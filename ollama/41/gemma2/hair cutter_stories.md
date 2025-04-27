@@ -1,0 +1,4 @@
+The scent of lavender shampoo and stale coffee hung thick in the air, a familiar aroma that clung to Emilia Rose Thorne like a second skin. The bell above the door chimed as another customer entered, breaking the afternoon silence of her salon, "Scissors & Soul."  Sunlight streamed through the dusty windowpanes, illuminating the faded floral wallpaper and the array of brightly colored hair products lining the shelves.  Emilia, her long brown hair pulled back in a neat braid, looked up from the magazine she'd been pretending to read. 
+
+
+The setting sun cast long shadows across the worn wooden floorboards as Emilia surveyed the small space. Outside, the sleepy town of Willow Creek was just beginning to stir, its residents venturing out for their evening routines. The salon itself, tucked away on a quiet side street, felt like a sanctuary - a world away from the rush and bustle of the bigger city just a few miles down the road. 

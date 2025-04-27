@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named David Chang, who made his name by bringing the Chinese-American experience to the American fast-food market. Then, in the mid-aughts, the chef's profile began to rise and he built a cult following by experimenting and cooking something completely unusual - an omelet made entirely from scratch.
+
+Omelets are a staple of American cuisine, yet they have only recently entered serious conversation as a breakfast option, and not really a mid-day eatery. It can be incredibly difficult to find the right omelet for both parties involved, as some have it made too small, a couple have one that seems to fall apart inside after about a half-hour or so, others have it that's too large, while other recipes have a dense layer of batter that looks like a cake and not a thick omelet.
+
+So, what are the best choices? And can they ever exist in China?
+
+A good omelet, to me, is the opposite of a greasy grease mess. If you'd seen me walking to work one Friday morning this fall, you'd have seen me running. The time was 6:30am, I was still asleep, but I was also in the middle of stuffing myself with leftover food I'd brought back from a nearby night club. I'd stopped at a Chinese bakery to gather my ingredients, and found myself wandering towards a section of the supermarket with a

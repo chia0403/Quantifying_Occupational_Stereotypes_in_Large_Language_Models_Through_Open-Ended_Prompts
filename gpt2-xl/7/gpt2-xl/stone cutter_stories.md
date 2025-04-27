@@ -1,0 +1,7 @@
+Once upon a time, there was a stone cutter named "Barker" who earned his name working on an excavation at a site called "Wychwood," he was a good, honest and honorable man. He was one of the first miners of the region, and he became very attached to that part of the country, and he never wanted to leave it. He worked for the last thirty years on that hill, and he died many years ago. I have a great fondness for the hill and that hill is very close to me. It is almost a religious feeling, a feeling which we may often get from going there and standing on the top.
+
+When men and things die, they get together here, and they talk over the things that happened, over the things that happened during the last fifty or sixty years. It is a very happy business.
+
+Mr. Barker lived on a farm that was about four miles south of where we're standing. He used to gather his horse and cart and go to the farmhouse, and there he would get plenty of wholesome food to eat and the most sumptuous dinners. It was all the same to us that he died, and what took place in his last days was just as pleasant to us.
+
+He spent a good deal of time with us, as he always did. He liked to talk and was always kind-hearted, and never thought of himself as just working a stone cutter. He considered

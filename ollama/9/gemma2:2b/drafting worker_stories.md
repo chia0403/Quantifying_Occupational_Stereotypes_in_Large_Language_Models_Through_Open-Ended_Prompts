@@ -1,0 +1,5 @@
+The rhythmic scrape of metal against steel was like music to Elias Thorne's ears. He stood back, his hands stained with grease and dust, surveying the sprawling factory floor of Thorne Industries.  Its massive, smokestack-wreathed silhouette dominated the skyline of New London City. The air hummed with a low, constant thrum – the machinery churning out intricate gears for the city's ever-growing network of flying vehicles. 
+
+Elias was known as "the detail man," his sharp eyes and tireless hands capable of spotting a minute error in hundreds of parts. He was a draftsman at heart, but not a true one – he never quite understood why some people thought it an artistic pursuit.  To him, the precision on a blueprint was just plain good sense, a kind of geometry that built something real. 
+
+Today's project was different. The blueprints for the city's newest airship were coming together and Elias’ hand hovered above the steel panel, his brow furrowed in concentration as he studied the intricate, almost alien-looking, design on the sheet. It was a daring new model, one that would push the boundaries of flight – all thanks to him. 

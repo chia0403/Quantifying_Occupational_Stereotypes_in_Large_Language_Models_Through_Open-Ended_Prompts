@@ -1,0 +1,6 @@
+The harsh fluorescent lights of the drafting room hummed like angry wasps, buzzing in Eliza Beatrice Hawthorne's ears as she squinted at the blueprints spread across her desk. Her pencil, worn smooth from years of precise lines and calculations, hovered over the paper, hesitant. The air hung thick with the scent of stale coffee and frustrated sighs - a familiar aroma in their corner of the sprawling General Dynamics facility. 
+
+Eliza was a detail-oriented soul, meticulously drawing blueprints for the latest generation of military drones. She thrived on precision, finding solace in the black lines that mapped out complex mechanical structures. But today, the usual sense of calm was absent.  A knot of anxiety tightened in her chest, fueled by whispers circulating through the room: rumors of impending layoffs, of budget cuts, of a new AI program threatening their jobs. 
+
+
+The setting is a dimly lit, cramped drafting room within a vast, impersonal military technology facility. The room is cluttered with desks piled high with blueprints, half-empty coffee mugs, and discarded pencil sharpenings. Outside the window, the endless gray expanse of an industrial park stretches towards the horizon.  

@@ -1,0 +1,5 @@
+The smell of stale coffee and burnt toast hung heavy in the air, mingling with the faint scent of desperation that clung to Eleanor Beatrice Winthrop like a second skin.  Eleanor, or Ellie as she was begrudgingly called by most, sat at her cluttered desk in Mr. Henderson's cramped office, her fingers drumming a restless tattoo against the chipped Formica surface. Outside, Chicago hummed with the usual morning rush: the rumble of buses, the honking symphony of traffic, and the distant wail of a siren, all weaving together into an urban tapestry that Ellie usually found comforting. But today, it only amplified the knot of anxiety twisting in her stomach.
+
+Mr. Henderson, owner of Henderson & Sons, a mid-sized advertising firm teetering on the brink of bankruptcy, had called a meeting for 9:00 sharp.  Ellie knew what that meant.  The air crackled with an unspoken fear, a shared sense of impending doom amongst the staff. She glanced at the clock, its hands creeping towards the dreaded hour. In her gut, Ellie knew this wasn't just another routine meeting. This was it. The moment everything changed. 
+
+

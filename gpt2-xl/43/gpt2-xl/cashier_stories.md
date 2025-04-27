@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named Sam. Sometimes she worked at a convenience store, sometimes at a hotel, or a bakery. That was back in the day when we worked in the kitchen and there was no need to count money. The money you gave me on your way home could be counted. Nowadays many people who need a cashier can't find one anywhere, even in hotels and restaurants. Even the cashier who works in the bakery now can't find one. But in Sam's day we counted our quarters and worked like machines. Now many are afraid to work." ―Cheryl
+
+In Grand Theft Auto V, several Cash Points, Cash Shop locations, and some cash registers carry various messages that reference this film, with the original posters for both films.
+
+The Cash Machine in Vinewood Drive only carries the message "CASH POINTS DON'T DO REALITY."
+
+Cash Shop cash registers throughout The Liberated Territories are similar, as they state "STILL REPRESENTING CASH! A CASH FOR ME?" while showing an image of the character from the film with the words "I DO" written around it, similar to the slogan printed on the doors of the backpacks in GTA III. They also have "BULLETS" written on the front, with the same type of graphic used as the "BULLETS FOR YOU!" billboard and "SHIPPING NOW'S THE S

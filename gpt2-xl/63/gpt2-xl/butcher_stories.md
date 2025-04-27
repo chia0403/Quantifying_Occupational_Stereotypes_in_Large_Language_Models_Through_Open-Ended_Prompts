@@ -1,0 +1,7 @@
+Once upon a time, there was a butcher named Jack. He had a lot of customers, including a baker, her husband, their dog, and another butcher by the name of Jack. Some were good; some weren't so good and there wasn't much left for the butcher to do. Then one day the customer, the baker, their dog, and the butcher all went crazy and started chopping people up and eating them.
+
+"Where did all your customers come from?" the Baker asked. Jack answered, "They all die of fright in my store."
+
+At that, people began to leave. Not many took Jack seriously at first, but as time went on, people started picking him apart piece by piece, making fun of him all the while. Eventually, at the beginning of his shift, the Butcher's wife told him her husband was dying. Jack agreed to let her butcher his husband and take over his shop for the rest of his shift. When the butcher came in, he didn't really take well to Jack. One day Jack caught the Butcher getting angry at one of the customers and was in no mood to deal with a madman. So he grabbed his axe and went after the Butcher, swinging it as hard as he could.
+
+"You can't go anywhere near a butcher without getting axe-handle cuts," the Butcher told Jack. "Just because you're the butcher, it doesn't mean you're some kind of hero. You don't know

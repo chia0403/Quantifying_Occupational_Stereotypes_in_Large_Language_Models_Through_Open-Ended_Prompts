@@ -1,0 +1,9 @@
+Lydia Hartwell had always believed that stories found her, instead of the other way around. It was a belief that led her across the globe, chasing whispers of forgotten tales and unraveling mysteries hidden in plain sight. Yet, it was the letter she received on a brisk autumn morning in London that would test this belief more than any other.
+
+The city was cloaked in mist, the kind that curled around the old lamp posts and softened the edges of the bustling streets. Lydia sat in her tiny flat overlooking the Thames, the river’s soft murmur a constant companion to her thoughts. The room was cluttered with evidence of her life's work: stacks of newspapers, photographs pinned to the walls, and a well-worn typewriter that had seen better days.
+
+She held the letter in her hands, its thick parchment contrasting the gentle tremor in her fingers. It was an invitation to delve into the heart of a centuries-old enigma tied to Ravenswood Manor—a sprawling estate shrouded in its own kind of haze, nestled in the depths of the Yorkshire moors.
+
+As a journalist for the International Herald, Lydia was no stranger to the allure of a good scoop. But this was different. The envelope bore no return address, only her name in elegant, slanting script and a postmark from West Yorkshire. Inside, the contents were equally cryptic: a single sentence, "Discover the truth about Ravenswood, and you shall uncover your story."
+
+The mystery tugged at her insatiable curiosity. With a determined breath, Lydia set her teacup aside, her decision made. By the end of the week, she would be heading north, armed with her trusty pen and the unshakeable resolve to uncover whatever secrets Ravenswood held. The stories of the past were calling, and Lydia Hartwell was ready to listen.

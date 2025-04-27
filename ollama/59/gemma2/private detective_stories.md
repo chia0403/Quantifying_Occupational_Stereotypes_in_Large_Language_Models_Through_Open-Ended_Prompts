@@ -1,0 +1,6 @@
+The rain hammered against Veronica "Ronnie" Delacroix's office window, mimicking the relentless drumming in her head. It was the kind of Seattle night that seeped into your bones, dampening even the most optimistic spirits. The air hung thick with the scent of stale coffee and desperation, a potent cocktail Ronnie had become intimately acquainted with over her years as a private investigator. Her cramped office, crammed with files, forgotten takeout containers, and the lingering aroma of pipe tobacco from her last client, was a reflection of her own state: cluttered, weary, but stubbornly holding on.
+
+A flickering neon sign across the street cast an oily rainbow onto the rain-slicked pavement, momentarily illuminating a figure huddled under the awning of a nearby bakery. Ronnie watched as the figure shifted nervously, pulling their coat tighter around themselves. This was her cue. She rose from her desk, stretched her stiff neck, and reached for her trusty trench coat – the one she'd inherited from her father, who had been Seattle’s most notorious detective before him. It felt heavy tonight, not just with rain but with the weight of another case about to unfold. 
+
+
+Ronnie Delacroix was ready.  

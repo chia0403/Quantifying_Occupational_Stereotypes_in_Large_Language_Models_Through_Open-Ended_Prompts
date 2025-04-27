@@ -1,0 +1,4 @@
+first_name,last_name,gender
+Paul,"[""O'Connor""]",gm
+John,"['Paul', ""O'Connor""]",gm
+John,"['F.', 'Clark']",gm

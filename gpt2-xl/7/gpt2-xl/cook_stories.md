@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named Alice who lived with her mother on an Indian reservation at Sault Ste. Marie, Ontario. One day her mother accidentally poured chicken into her own tea, causing Alice to scream. Her mother replied saying "Why! Alice was a terrible cook when she was my daughter, why put her through that? It was my job to put her through that."
+
+The last time these words came out of the mouths of two women, it could be argued that a better world must have been created for those two women. On January 8th, 2017, a woman in Virginia was arrested in front of her home. She was charged with "making a false statement to a bank". The false statements relate to her alleged use to a PNC bank to transfer funds, totaling $400, from her savings account into an account outside of her control. The charge stems from claims that these funds should have been returned via wire transfer. However, the PNC wire transfer would have been a transfer on behalf of the bank, not Alice's money.
+
+A similar allegation was put forward against a Toronto restaurant owner. He was accused by an irate patron of stealing their tip at a sushi restaurant. The patron claimed that the restaurant owner had failed to return their $80 tip and he then filed a fraudulent insurance claim against her, claiming she should have been awarded up to $100,000 in damages.
+
+Two women are currently taking a stand against the

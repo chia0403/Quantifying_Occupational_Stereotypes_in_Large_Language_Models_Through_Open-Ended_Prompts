@@ -1,0 +1,9 @@
+Okay, here’s a story opening and setting featuring a police officer named Evelyn Beatrice Harding:
+
+**Story Opening:**
+
+The coffee was lukewarm, the doughnut stale, and the silence in the precinct thicker than week-old mustard gas. Evelyn Beatrice Harding stared out the grimy window, watching the rain lash against the neon glare of the "Eat at Joe's" sign across the street. Three AM. The witching hour, when the city coughed up its secrets like a bad lung. Tonight, it felt like it was choking on something particularly nasty. A feeling, cold and prickly, had been crawling up her spine all shift, a premonition she knew better than to ignore. The only sound was the rhythmic thump of Sergeant Miller's snores from his desk, a counterpoint to the frantic drumming in Evelyn’s chest. Tonight wasn’t going to be quiet. She could feel it in her bones.
+
+**Setting:**
+
+The story opens in the 17th Precinct of the Elm Ridge Police Department, located in the heart of the decaying industrial city of Elm Ridge, Pennsylvania. The precinct itself is a drab, brick building, a relic of a bygone era when manufacturing and steel ruled the landscape. Inside, the air is perpetually heavy with the smell of stale coffee, cheap cleaning products, and simmering anxiety. The walls are painted a depressing shade of beige, scarred with pinholes and faded notices. Desks, cluttered with paperwork and half-eaten takeout containers, are arranged in rows, illuminated by harsh fluorescent lights that cast long, unflattering shadows. Outside, Elm Ridge is a city clinging to life, its factories shuttered, its storefronts boarded up, and its streets plagued by poverty and crime. The relentless rain, a constant feature of the region, seems to wash away any lingering hope, leaving behind a film of grime and despair.

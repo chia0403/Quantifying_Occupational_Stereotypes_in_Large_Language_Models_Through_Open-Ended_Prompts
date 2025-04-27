@@ -1,0 +1,5 @@
+Once upon a time, there was a judge named Justice Antonin Scalia and he was a judge on the United States Supreme Court and a conservative icon and now he's dead and now he's irrelevant so maybe that's a good sign. And just to be clear, it's not a good sign if he is dead and irrelevant and everybody is saying we should be more liberal and less liberal now that he's dead. But if he's dead, it's the beginning of the end of conservatives on the Supreme Court and it's the beginning of the end of conservatism as there's almost no power left.
+
+You just think about all the people that are coming up now as members of the Supreme Court. There will be at least four on there: Neil Gorsuch, Chief Justice Merrick Garland, Ruth Bader Ginsburg, and who's the fifth? They may not get elected but if they get elected they're guaranteed to be confirmed.
+
+There will never be a conservative Supreme Court again in the United States and the only hope on that is Trump will nominate a conservative to be the fifth member. And then they'll just have to work with the liberal Justices.

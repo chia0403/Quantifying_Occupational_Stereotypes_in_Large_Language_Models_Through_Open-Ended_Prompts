@@ -1,0 +1,6 @@
+The flickering gas lamps cast long, dancing shadows across Judge Amelia Davenport's desk, casting her face in an alternating light and dark tableau. Rain lashed against the tall windows of her chambers, mimicking the tempest brewing within her. The mahogany surface, usually gleaming from constant polishing, was now littered with legal scrolls and crumpled notes, a testament to the sleepless nights she’d spent grappling with the case before her. 
+
+Amelia, renowned for her sharp intellect and unflinching impartiality, felt a knot of unease tightening in her stomach. This wasn't just another trial; this was personal. The defendant, a young man named Elias Blackwood accused of arson, had once been her student, a bright, ambitious boy who reminded her of her own younger self. Now, he stood on the precipice of ruin, his fate hanging precariously in the balance. 
+
+
+The city of Alderstone itself seemed to mirror Amelia's inner turmoil. A sprawling metropolis perched precariously between glittering wealth and festering poverty, it had always been a place of contrasts. Tonight, however, the rain-soaked cobblestones felt slick with an oppressive sense of foreboding, as if the city held its breath, waiting for the judge's decision to tip the scales. 

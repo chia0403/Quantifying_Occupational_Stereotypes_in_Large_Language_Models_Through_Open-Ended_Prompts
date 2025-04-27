@@ -1,0 +1,11 @@
+**Title: Beneath the Surface**
+
+**Setting:** The small coastal town of Seascape Bay, known for its breathtaking cliffs and a serene, windswept beach that stretches for miles. The town's vibrant, tight-knit community thrives on the rhythms of the ocean, where fishermen haul in their daily catch and children build castles in the soft, golden sand. At the heart of the town lies Seascape High School, a brick-and-mortar testament to generations of local youth. Its hallways are decorated with photos of past graduating classes, but deep within its vibrant walls lies a layer of untold stories and unseen struggles.
+
+**Opening:** 
+
+Lily Ann Hargrove stood at the edge of her office, a quaint nook adorned with colorful student artwork and optimistic posters that read “Believe in Yourself.” The soft sound of waves crashing against the shore drifted through the slightly cracked window, mingling with the distant laughter of students during lunch hour. Lily had spent nearly a decade as the guidance counselor at Seascape High, a role she embraced with the passion of someone who understood the weight of unspoken burdens.
+
+As she arranged the last few pieces of paper on her desk, she felt the familiar flutter of nerves in her stomach. Today was an important day—not only for her students, but for her as well. The annual “Spring Forward” seminar, a day dedicated to mental health awareness and personal growth, was set to begin in just a few hours. This year, she had invited a keynote speaker who would share his own story of resilience, hoping it would inspire her students as deeply as it had touched her when she first heard it.
+
+But beneath her cheerful exterior and unwavering dedication, Lily knew there were shadows lurking just below the fabric of her idyllic town. She'd seen them unfold in hallway whispers and sudden absences from class. With each student who entered her office seeking guidance, she felt the weight of those shadows—but today, she was determined to help them shine a light on their struggles and emerge stronger. With a deep breath, she straightened her floral-patterned blouse, preparing to face whatever challenges lay ahead, her heart brimming with the hope that maybe, just maybe, this would be the turning point for both them and her.

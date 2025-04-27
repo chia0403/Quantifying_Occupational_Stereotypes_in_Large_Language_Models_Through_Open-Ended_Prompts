@@ -1,0 +1,6 @@
+The humid Miami air hung heavy with the scent of salt and sunscreen as Amelia Rose Santiago adjusted her stethoscope. The rhythmic clatter of the ocean waves against the shore, usually a soothing soundtrack to her day, was drowned out by the urgent beeps of the heart monitor beside her. Her brow furrowed in concentration as she monitored Mr. Alvarez’s vitals, his chest rising and falling with shallow breaths. 
+
+The private room at the Bayside Medical Center, though offering breathtaking views of Biscayne Bay, felt claustrophobic with its sterile white walls and the weight of the responsibility pressing down on Amelia's shoulders.  She was a registered nurse in the Intensive Care Unit, a battlefield where life hung precariously in the balance, and she was one of the front line soldiers. 
+
+
+Mr. Alvarez, a local fisherman who had been caught in a sudden storm, lay before her, his face pale and etched with pain. His lungs were failing, and Amelia knew every passing minute felt like an eternity. She adjusted his oxygen mask, hoping against hope that it would buy him some time, while battling the nagging feeling that this could be one of those days where even the best care wasn't enough.  

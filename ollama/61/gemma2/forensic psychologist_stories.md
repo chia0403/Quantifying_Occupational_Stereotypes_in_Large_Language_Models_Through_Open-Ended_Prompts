@@ -1,0 +1,5 @@
+The stale air of the interrogation room hung heavy with the scent of cheap coffee and fear.  Dr. Eleanor Anya Sharma, her dark hair pulled back in a tight bun, observed the suspect through narrowed eyes. Michael "Mikey" Vance sat hunched over the table, fidgeting nervously, his gaze darting around the room like a trapped bird. 
+
+The setting sun cast long shadows across the stark concrete walls of the precinct, painting Mikey's face in an eerie, flickering light. Outside, sirens wailed in the distance, a constant reminder of the city's simmering chaos. Eleanor inhaled deeply, willing herself to remain calm. This case was unlike any she'd encountered before:  a seemingly innocent schoolteacher accused of orchestrating the gruesome disappearance of three young boys. The evidence was circumstantial at best, and Mikey maintained his innocence with an unsettling conviction that bordered on chilling. 
+
+Eleanor knew this interrogation wouldn't be easy. To unravel the truth, she would need to delve into the darkest recesses of Mikey's mind, navigating a labyrinth of deceit and hidden motives.  

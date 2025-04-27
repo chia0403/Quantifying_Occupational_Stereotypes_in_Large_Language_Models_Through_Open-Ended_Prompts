@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting for a story featuring a manicurist:
+
+**Setting:**
+
+The bell above the door of "Nail Nirvana" jingled a cheerful, if slightly tinny, greeting as the late afternoon sun slanted through the large picture window. Nail Nirvana wasn't exactly nirvana; it was more like a meticulously organized, slightly cramped, but undeniably sparkly storefront on Main Street in the sleepy, suburban town of Willow Creek, Ohio. The walls were painted a soothing lavender, and the air was a potent cocktail of acrylic monomer, citrus-scented hand lotion, and faint desperation – the kind of desperation that settles in when women (and sometimes men) are seeking a momentary escape from the humdrum of their everyday lives through a fresh coat of polish and a little bit of pampering. Three manicure stations, each equipped with a bright, adjustable lamp and a dizzying array of nail colors, lined one wall. Opposite them stood a plush, velvet pedicure chair bathed in the warm glow of a salt lamp, usually reserved for Wednesdays (Pedicure Wednesdays! As the sign proudly declared). Today, however, a half-finished gel manicure sat abandoned on the far left station, as an uncharacteristic tension filled the air.
+
+**Opening:**
+
+Evangeline Pearl Sterling, a woman who usually found solace in the rhythmic click of clippers and the satisfying smoothness of a freshly buffed nail, felt a knot tighten in her stomach. She wrung her hands, a habit she’d sworn to break, and peered nervously out the window, searching for the familiar beat-up Ford pickup truck that her grandfather drove. He was late. Dangerously late. Ever since her grandmother had passed, Pop had been forgetful, but he always remembered to pick her up from work. Now, as dusk settled, casting long shadows across Main Street, Evangeline couldn't shake the feeling that something was terribly, terribly wrong.

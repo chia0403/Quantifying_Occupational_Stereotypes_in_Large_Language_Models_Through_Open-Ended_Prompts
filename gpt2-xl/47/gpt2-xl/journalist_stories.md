@@ -1,0 +1,7 @@
+Once upon a time, there was a journalist named Gary Webb published a small, independent, investigative newspaper called The San Jose Mercury News. The paper's crime was to write what Webb says is the truth about Webb's source, the Central Intelligence Agency, and the use of drugs used to create, and prolong, insurgencies in Central and South America.
+
+I remember reading "Dark Alliance" when it came out; although my father was not present, this small, independent, investigative newspaper was like an instant classic. It gave credibility to people, even back then, who thought that the US government was engaged in some serious, perhaps even criminal, activity. The book exposed a CIA drug trafficking ring — one that had a connection with Nicaraguan contras linked to Oliver North, perhaps the most reviled and vilified man in government history. I was a little kid; I had no personal experience with drugs during those days, or since, however, I was certain that these were crimes and this corrupt group was at the bottom.
+
+It does not surprise me that the book was so widely praised and the stories that I told about the illegal drugs that were being run out of the US and used to overthrow governments all over the world were so well presented in a very compelling way.
+
+The problem was that the Mercury News soon collapsed with a combination of bad management, bad press, and the death of editor Dan Rather in 2000. Gary Webb was eventually fired. His work appeared to show

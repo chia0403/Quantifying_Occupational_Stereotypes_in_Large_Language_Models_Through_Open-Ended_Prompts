@@ -1,0 +1,3 @@
+The wind whipped across the parched earth, carrying with it the scent of sagebrush and dust. The sun, a merciless ball of fire in the cloudless sky, beat down on Jebediah "Jeb" Thorne's weathered face as he squinted at the horizon.  His boots sunk into the cracked soil of his ranch, Thorne Ridge, a sprawling expanse of land nestled in the heart of the Arizona desert. The once vibrant green pastures had long since withered under the relentless summer sun, leaving behind a landscape painted in shades of brown and gold. Jeb, a man as tough and resilient as the cacti that dotted his land, sighed. This was the driest year he'd seen in decades.  The fate of his cattle, his livelihood, hung precariously in the balance. 
+
+

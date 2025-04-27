@@ -1,0 +1,5 @@
+The scent of lavender and chamomile battled against the acrid tang of burnt coffee in the air.  It was an unsettling combination that always seemed to linger in The Sanctuary – Elara Thorne’s haven for weary souls.  Elara sighed as she adjusted the teal blanket draped over a plush massage table, each fold a testament to its countless uses over the years. 
+
+She'd started her career as a therapist with a dream of easing tension and restoring balance - a wish she had certainly found fulfilling in the bustling metropolis of New York City. But lately, Elara felt trapped within the very walls she'd painstakingly decorated. The city was a relentless tide of noise and chaos, and even the gentle hum of her massage business couldn’t quite drown it out.
+
+The Sanctuary was a sanctuary only for some – a haven from the urban fray for the wealthy and privileged who could afford its discreet services.  But lately, Elara had been losing clients faster than she could fill them in; their demands too high, expectations too steep. Tonight, however, there was a new arrival – a man with haunted eyes and hands that trembled slightly as he walked towards her. 

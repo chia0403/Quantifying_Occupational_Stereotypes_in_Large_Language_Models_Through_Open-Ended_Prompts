@@ -1,0 +1,7 @@
+Once upon a time, there was a editor named Jimmie Johnson and a couple of young designers, Jeff Wilson and Steve Mackey. At least, that's the story John Elway told at the time. In a 2001 interview, Elway said, "We used to have a bunch of people working in a room. That room today is pretty much empty, and the people working there don't know each other. They don't even see each other. I would come in every day with guys like Joe Montana, John Elway. They'd pull up their sleeves, get to work, and try to figure out how to get the ball to the guy next to you."
+
+These men had been together as "The Big 3" for years and had forged a bond of mutual respect with each other. All that was needed was an opportunity. Not only was there a need for better personnel, but there was also a need for better games themselves.
+
+To that end, Elway brought in Wilson to manage the game-design process. There were plenty of coaches and analysts around, but Wilson wanted to make sure that they had the game vision and game plan to win games.
+
+In 1997, the Broncos and Raiders met in Super Bowl XXXII in Miami. Before kickoff, the Broncos had only one play call on offense. Elway had Wilson change it into a run play by taking the ball out of a play-action pass. Then, he immediately ran the ball to

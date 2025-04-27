@@ -1,0 +1,5 @@
+The humid Miami air clung to Dr. Eleanor Vance like a second skin as she walked briskly towards the Crime Scene Unit van. The sun, already high in the sky, cast long, shimmering shadows from the towering palm trees lining the streets. A faint scent of salt and jasmine hung heavy in the air, a constant reminder of her proximity to the ocean. But today, the beauty of the coastal city was overshadowed by the grim task at hand: another gruesome murder had rocked Miami's usually carefree atmosphere. 
+
+Eleanor, known for her sharp intuition and unwavering focus, adjusted the straps of her satchel, which contained the essential tools of her trade – psychological profiling manuals, notepad, and a well-worn fountain pen that felt more like an extension of herself. She paused at the yellow police tape, waiting for the officer to wave her through. This case was unlike anything she had encountered before, a labyrinthine puzzle woven with chilling details and unsettling inconsistencies that whispered of a darkness lurking beneath Miami's vibrant surface.  
+
+

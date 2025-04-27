@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The misty dawn air clung to the dew-kissed grass of Willowdale Manor like a damp shroud, casting an eerie gloom over the once-grand estate. Groundskeeper Emily Josephine Wellesley stirred the embers of last night's fire, her hands numb from the cold as she gazed out at the sleeping gardens. The silver moon cast an ethereal glow over the sprawling lawns and manicured hedges, illuminating the skeletal branches of the ancient oak trees that stood sentinel along the property's borders.
+
+As Emily breathed in the damp earth scent, a sense of unease crept over her like a chill. It wasn't just the weather that unsettled her – it was the feeling that something was watching from the shadows, waiting for its moment to strike. She'd been working at Willowdale Manor for nigh on five years now, but in that time, she'd grown accustomed to the creaks and groans of the old house, the whispers of the wind through the trees. Tonight, however, felt different. Tonight, the stillness seemed oppressive, like a physical presence that pressed against her skin.
+
+Just as Emily was about to turn back towards the manor, a faint rustling sound caught her attention. She froze, her ears straining to pinpoint the source of the noise. And then, in an instant, it was gone – leaving her with only the echoes of her own ragged breathing and the oppressive silence that seemed to be closing in around her like a shroud.

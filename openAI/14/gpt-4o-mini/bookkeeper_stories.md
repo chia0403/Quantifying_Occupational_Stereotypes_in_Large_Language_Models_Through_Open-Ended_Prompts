@@ -1,0 +1,9 @@
+Title: **Whispers in the Ledger**
+
+Setting: The story unfolds in the small, quaint town of Elderswood, nestled between rolling hills and thick, whispering forests. It’s a place where time seems to slow down, where the air is tinged with the scent of pine and fresh ink. The streets are paved with cobblestones, and the storefronts display charming window boxes bursting with flowers. Elderswood’s heart is its historic library, a grand stone building with ivy crawling up its walls, a perfect refuge for book lovers. Just a few blocks away is a modest office named "Clarence & Co. Bookkeeping," where the hum of a vintage typewriter and the rustling of paper provide a comforting background. 
+
+Main Character: **Cordelia Margaret Whitten**
+
+Cordelia Margaret Whitten, a diligent and meticulous bookkeeper in her mid-thirties, sat at her worn oak desk, the soft golden light of the afternoon sun streaming through the window, casting a warm glow on her neatly organized workspace. With her glasses perched delicately on the bridge of her nose, she methodically reconciled accounts, her fingers dancing over the keys of her calculator. Cordelia had always found solace within the pages of financial reports, the certainty of numbers grounding her amidst the chaos of the outside world. 
+
+Yet today was different. As her pencil scratched against the ledger, an unusual feeling prickled at the back of her neck—a sense of being watched. She glanced up, catching a glimpse of a shadow lingering at the edge of the library’s entrance. A flicker of curiosity and unease danced within her as she tried to shake off the sensation. Little did Cordelia know, that this fleeting moment would unravel a mystery hidden deep within the town's past, pulling her far beyond the familiar comfort of her ledgers and into a tale woven with secrets, whispers, and the enigmatic ties that bind the town of Elderswood together.

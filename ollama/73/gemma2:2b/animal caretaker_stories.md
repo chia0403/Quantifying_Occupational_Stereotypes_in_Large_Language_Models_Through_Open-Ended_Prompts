@@ -1,0 +1,7 @@
+## The Whispering Woods
+
+**Setting:** Nestled deep within the ancient redwood forests of Northern California lies Whisperwood Sanctuary - a sprawling woodland estate dedicated to caring for injured and abandoned wildlife. Its weathered fences hide a world brimming with the rustling leaves, chirping insects, and the occasional howl of a lonely wolf echoing from afar.  The sanctuary is run by Eleanor Thistlewick, a woman whose life's purpose is as clear as the mountain stream that babbles its way through the property - to heal the broken and forgotten creatures of the wild. 
+
+**Character:**  Eleanor Thistlewick, with hands calloused yet gentle, has spent her entire life dedicated to Whisperwood. Her days are filled with mending a feathered wing here, comforting a scared fawn there, and tending to the needs of every living thing that crossed the threshold. The sanctuary is her solace, her passion, her legacy. 
+
+**Opening:**  A chill wind whipped through the ancient oaks, sending leaves swirling in dizzying patterns around Eleanor’s feet as she approached the small clearing. She paused at the edge of a sun-drenched patch where a young fawn lay trembling beneath a towering Redwood. Its brown coat was matted with mud and its tiny legs were too shaky to carry it. "Easy now, little one," Eleanor whispered, her voice soft as the rustle of fallen leaves.  Her heart ached for this creature. It reminded her of her own childhood, spent in a world where humans seemed more distant than stars in a velvet night sky. 

@@ -1,0 +1,5 @@
+The relentless sun beat down on the back of Jebediah Silas Goodweather as he surveyed his cornfields. Dust devils danced across the parched earth, mimicking his own swirling anxiety. Normally, the mid-August heat wouldn't bother him so much. He was a farmer, after all, and farmers were built tough. But this wasn't a normal year. This was the year the rain simply stopped.
+
+Jebediah squinted, his brow furrowed like the dried-out furrows in his fields. Row after row of corn stalks stood brittle and brown, their promise of a bountiful harvest withered away like a forgotten dream. The air hung heavy with the scent of scorched earth and impending doom. He kicked at a clod of dirt, sending it tumbling into a web of cracks that spider-webbed across the baked ground.
+
+His farm, Goodweather Acres, nestled in the heart of Dust Bowl, Oklahoma, had been in his family for generations. His grandfather had weathered the original Dust Bowl with grit and determination, and Jebediah had always felt a deep connection to the land, a solemn promise to honor their legacy. But staring out at the devastation now, he wondered if even the toughest Goodweather could survive this.

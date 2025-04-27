@@ -1,0 +1,7 @@
+Once upon a time, there was a landscaper named Joe Green. He built and tended greenhouses in his spare time and in summer afternoons when there was less of a need for such things. Green went by the name Green, for lack of a better one.
+
+Joe Green, however, loved the green, the green, the green. It helped keep him warm in the summers, and it even kept him away from the blackest nights, in fact it was Green who first came up with the idea of making fires with the green to ward off the darkness. If it weren't for the green, he would probably still be working on his greenhouse.
+
+Green grew up as a small time gardener in a small town in New England and later he discovered that he could actually start his own greenhouse business. Initially, he had one in his backyard and it was full of plants. He was a bit of a showoff and people would visit and marvel at what he was producing. But Joe Green was more than just a gardener.
+
+When it came time to leave the town of New England for a larger city, Green decided to stay for good. It was easier to stay and work with the people there if he'd have a garden in which to work. He didn't care if he had to start over and start over again like some sort of miser, he just wanted to grow everything he possibly could. This was his passion, his dream in life,

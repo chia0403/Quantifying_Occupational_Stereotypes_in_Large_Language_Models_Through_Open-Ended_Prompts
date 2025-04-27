@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The sun had barely cracked the horizon over the small town of Willow Creek, casting a warm orange glow over the quaint Main Street. The smell of freshly brewed coffee wafted from the local diner, enticing passersby to come and sample the day's special: "Brew-ry Breakfast Burritos." For 35-year-old Jack "Hawk" Hawkins, the morning light was just another reminder that it was time to get to work.
+
+As a roofer with his own small business, Hawk had spent countless mornings like this - crawling up ladders, hammering nails, and battling the elements to keep homes and buildings in top condition. He took pride in his work, and his customers adored him for it. But with winter approaching, Hawk's schedule was about to get a whole lot busier. The snow would bring out all the old leaks and shingles that needed fixing, and he was ready to put in the long hours necessary to keep his business - and his clients - safe.
+
+Hawk lived in a cozy little bungalow on Elm Street, just a short walk from his shop on Main. He loved nothing more than coming home at the end of a long day, kicking off his boots, and watching the sunset over the rolling hills beyond the town's borders. Little did he know, however, that this particular morning would bring with it a challenge unlike any he'd faced before...

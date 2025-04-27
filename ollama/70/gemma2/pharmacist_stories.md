@@ -1,0 +1,7 @@
+The fluorescent lights hummed above Amelia Beatrice Hawthorne's head, casting a sterile glow over the shelves crammed with bottles and vials. Every cough syrup, every pain reliever, every antihistamine was an army waiting to be deployed against the ailments plaguing the town of Havenwood. Outside, rain lashed against the glass doors of Hawthorn Apothecary, mirroring the storm brewing inside Amelia. 
+
+
+The bell above the door chimed, announcing a new customer, but Amelia barely registered it. Her gaze remained fixed on the crumpled note clutched in her hand – "Meet me at the old mill. Midnight." The handwriting was familiar, scrawled with a confidence that both intrigued and terrified her.  This wasn't the first anonymous message she'd received, not by a long shot, but this one felt different. More urgent, more dangerous. 
+
+
+Havenwood was usually as placid as a summer pond, its inhabitants content in their routines. But lately, something had shifted, an undercurrent of unease flowing through the town like the dark river winding behind Hawthorn Apothecary. The whispers started subtly – strange occurrences, unexplained illnesses, and unsettling dreams. Then came the notes, cryptic messages veiled in riddles, promising answers to Havenwood's growing anxieties. Amelia, with her knowledge of herbs and potions, found herself drawn into this mystery, despite the gnawing fear that she was walking straight into a hornet's nest. 

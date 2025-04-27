@@ -1,0 +1,7 @@
+Once upon a time, there was a computer programmer named J.R.R. Tolkien. Like an awful lot of programmers, Tolkien was a complete dork. And like an awful lot of dorks, Tolkien tried to pass himself off as an author — despite the fact that he wasn't sure about the very notion of writing. When it came to his love of fantasy stories, the man who coined the term "literary" in the phrase "realistic" was all in on it.
+
+Advertisement
+
+You might think that's the story of most fantasy writers. After all, Tolkien was the man behind the creation of Tolkien and the Lord of the Rings. You might even think, like me and this writer, that it's the story of pretty much every writer in the genre — not just the high class elite that actually wants to write great books. But the truth is, the vast majority of authors and screenwriters do have a serious, lifelong interest in the form. And the secret, I'm afraid, is getting into something as completely unwieldy as the movie industry. The problem doesn't just lay in the fact that you can't make your way through an entire first date if you haven't sat through an entire story: It's more likely that you're not doing it right, and the industry is not taking kindly to people who don't know their business.
+
+The fact that the industry is such a weird place is one of the reasons that I've

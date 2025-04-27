@@ -1,0 +1,7 @@
+Once upon a time, there was a hairdresser named Jane. During one particularly hectic appointment – Jane had been taking care of Harry's hair for the past few months, a fact that Harry found disconcerting – the pair got in a brief fight about the direction his hair has been going. At this point in their lives, Harry decided it wasn't worth the trouble to argue at length over this.
+
+And so, Harry parted Jane's long black locks into thirds, tucked them into a bun, and let them hang down past his shoulders. The change was minor – he was proud to have managed to tame his naturally long locks and it had taken Harry the better part of three days to achieve his desired outcome – it wasn't a radical change, it was just a bit different, but as Harry had been forced to do everything by himself since Harry had gotten his first haircut and Harry figured that this was something he had been wanting for a long time, it wasn't going to change his life much.
+
+And, while the new appearance was quite noticeable, it had taken Harry only one shower to finally get used to it. The fact that it had taken him only a day instead of two or three made Harry happy. And as his mood lifted once again, one problem became apparent. Since the haircut, Harry had lost about ten pounds.
+
+That was surprising – he and his wife had weighed about the same – but considering that his skin was as pink as

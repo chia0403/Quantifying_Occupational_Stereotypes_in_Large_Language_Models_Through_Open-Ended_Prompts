@@ -1,0 +1,7 @@
+Rain hammered against the corrugated iron roof of Amelia's tiny studio apartment, its rhythm echoing through the worn wooden floorboards.  Outside, the city throbbed with an electric storm-like energy: thunder claps cracked across the sky, and streetlamps flickered under the deluge. Inside, however, it was a world of muted colors and shadows, illuminated only by the warm glow of Amelia's antique enlarger.
+
+Amelia, her weathered face framed by wispy grey hair, adjusted the focus on a portrait she'd been working on for weeks. She studied the image: a woman with eyes as blue as storm clouds, standing under an ancient oak tree in a forgotten corner of the city. Her name was Amelia Blackwood, and every photograph she captured held not just faces but stories waiting to be told. Stories of lives lived, hopes dashed, and dreams chased on the urban landscape. This one, however, felt different, its silence almost palpable. 
+
+She closed her eyes, feeling a sudden surge of energy in her veins. It wasn't the kind she usually experienced - this was raw, vibrant energy that seemed to pulsate from the picture itself. Amelia leaned forward, and as she did, a single blue butterfly landed on the image. Its wings shimmered under the enlarger’s light, a tiny beacon of color in the grey storm.
+ 
+"Where'd you come from?" Amelia whispered, her eyes wide.  The room was silent except for the rain and the fluttering of the butterfly's wings.  

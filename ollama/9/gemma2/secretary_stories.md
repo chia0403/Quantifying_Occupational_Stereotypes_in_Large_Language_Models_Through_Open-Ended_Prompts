@@ -1,0 +1,8 @@
+The air in Eleanor Hazelwood's tiny office was thick with the smell of stale coffee and unfulfilled dreams. Rain lashed against the windowpanes, mirroring the tempest brewing inside her. A crumpled resignation letter lay on her desk, its edges softened by nervous fingers that hadn't dared to commit.  
+
+Eleanor stared out at the bustling city below, a concrete jungle teeming with ambition. Here in her cramped corner office, she felt like a forgotten footnote, a cog in the massive machine of Sterling & Sons Publishing House. Twenty years she’d spent answering phones, scheduling meetings, and filtering the incessant demands of demanding authors, editors, and executives.  Twenty years of dreaming of a life beyond the beige walls and echoing silence of her cubicle. But fear, like a stubborn vine, had choked those dreams before they could bloom. 
+
+But today, something was different. The air crackled with possibility, a sense that change was on the horizon, as tangible as the scent of rain. Perhaps it was the letter, finally birthing the courage she’d been suppressing for years. Or maybe it was the glint of lightning that illuminated her face in the gloom, a momentary spark mirroring the fire igniting within. Whatever it was, Eleanor knew this: she wouldn't be content being just another forgotten secretary anymore.  
+
+
+This story takes place in New York City in 1985. The city is a bustling metropolis, a melting pot of cultures and dreams, where ambition thrives and the air hums with possibility.  The world outside Eleanor’s window represents everything she longs for: excitement, freedom, recognition. It's a stark contrast to the confines of her office, which symbolize stagnation and the monotony of her daily routine.

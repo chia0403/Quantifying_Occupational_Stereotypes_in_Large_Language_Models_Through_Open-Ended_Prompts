@@ -1,0 +1,4 @@
+The fluorescent lights hummed above Amelia Beatrice Cartwright's head, casting a sickly yellow pallor over the aisles of "Bargain Bin Bonanza." It was 3:47 pm on a Tuesday, the hour between lunch and dinner rush that always felt like purgatory for cashiers. The silence was punctuated only by the distant whirring of the industrial-sized fan in the back room and the occasional cough from Mrs. Henderson, who sat in her usual spot near the checkout, meticulously sorting coupons.  Amelia's fingers drummed a restless tattoo on the worn countertop. She craved the familiar buzz of activity, the flurry of purchases, the small talk that punctuated the monotony. But for now, she was left with the echoes of "Have a nice day!" and the faint scent of stale popcorn that clung to the air like a ghost. 
+
+
+Bargain Bin Bonanza wasn't known for its exciting clientele. Most days, it felt more like a graveyard of forgotten desires than a store.  

@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named James B. (Jimmy) Brown who was the first black professional photojournalist in the United States. And there was also a Negro League baseball player named Jackie Robinson, who had his own story told to Hollywood in 1947. It was on the last day of the Major League season that, according to the ESPN Films' "Baseball: 150 Years of Negro League Baseball", Robinson and his Detroit Tigers became the first team in modern American sports history to win 100 games, winning all but three of their games.
+
+If it isn't clear by now that Major League Baseball and professional baseball as an institution remains deeply racist, then consider this: when this event was first reported on in the newspaper, no one even knew Robinson could've been black. Robinson had played second base in the Negro Leagues and didn't pitch or bat in the major leagues, yet he was "too big" to be a regular player because he was "too black." To borrow a phrase from John T. Reed's book "The White Game", "The Negro Leagues (as they were then called) were a black man's major league."
+
+Robinson played for the Detroit Tigers, and during their first season they began outscoring the other teams, 30-7, a number that stands to this day–and probably will for at least another 100 years. The Associated Press reports:
+
+"The Tigers' record-tying 100 victories is

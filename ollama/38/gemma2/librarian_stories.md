@@ -1,0 +1,6 @@
+The air in the Grand Oak Public Library hung heavy with the scent of aged paper and beeswax polish. Sunlight streamed through the stained-glass windows, illuminating motes of dust that danced like tiny constellations in the still air. Eleanor Beatrice Hawthorne, head librarian for the past twenty-five years, surveyed her domain with a practiced eye. Her sensible brown shoes clicked softly against the worn oak floor as she made her rounds, straightening spines and silencing the occasional cough from a distracted reader. 
+
+It was a Tuesday morning, which meant Story Time for the toddlers, followed by the weekly knitting circle in the afternoon. Eleanor loved these routines, the predictable hum of activity that filled the library with life. But today, something felt different. A prickle of unease ran down her spine as she noticed a faint metallic scent mingled with the familiar aroma of old books. It was subtle, almost imperceptible, yet it pulled at her senses like an unanswered question. 
+
+
+She paused before the reference section, her gaze lingering on the towering shelves that held centuries of knowledge.  A shiver coursed through her. It wasn't just the strange scent; a disquiet settled in the pit of her stomach, a feeling she hadn't experienced since the Great Book Robbery of '98. Could it be? 

@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named John McDougall who proposed that there was a great deal of sugar in American food and that some foods should be restricted to avoid this dietary source of sweetener. He found that most of the time, those limits of sugar consumption were exceeded by the average healthy American. So it was not necessarily a bad thing to have some "restricted sugar." But in order to avoid eating excess sugars, we needed to eat our food more slowly and eat less of it.
+
+Today's dietary advice emphasizes the importance of eating more fiber, less saturated and trans fats. But are you aware that we still have all kinds of sugars—sucrose, glucose, fructose? And more and more sugar is used as an ingredient in many foods as a sweetener. Not all of it is in the form of table sugar, which can be obtained from table fruits, but it is in the form of high fructose corn syrup, which is added to nearly every processed food as an additive.
+
+Are you aware that we still have all kinds of sugars—sucrose, glucose, fructose?
+
+This is the reason why you will find excessive amounts of sugar in processed foods: there is plenty more sugar available in the form of fructose than there is for other forms of glucose, sucrose, or corn sugar. The fructose content that you see in many processed foods is not all natural—it's been converted from glucose by some process. This is

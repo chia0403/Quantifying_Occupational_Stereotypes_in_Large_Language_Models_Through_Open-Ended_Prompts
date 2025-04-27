@@ -1,0 +1,8 @@
+The air hung heavy with the scent of pine needles and damp earth. A thin mist clung to the dew-kissed grass of the practice field, making the early morning light seem even more subdued.  Evelyn "Evie" Blackwood adjusted her whistle around her neck, the metal cold against her skin. She took a deep breath, the crisp air filling her lungs, and surveyed the scene before her. 
+
+The junior varsity football team was still huddled in their pre-practice warm-up circle, a motley crew of lanky teenagers buzzing with nervous energy. Evie knew most of them by name – Michael "Mikey" Jones, the wide receiver with a lightning-fast sprint; Thomas "Tommy" Miller, the quarterback struggling to find his confidence; and Daniel "Danny" Garcia, the quiet but incredibly strong lineman who always surprised everyone with his unexpected bursts of speed. They were all chasing that one elusive dream: making it to varsity, proving themselves under the Friday night lights.
+
+Evie had been coaching this team for three years now, ever since she’d decided to leave the bustling world of professional sports behind and return to her hometown, bringing with her a wealth of knowledge and a quiet determination to help these kids find their own path to greatness. 
+
+
+Today was different.  Today felt heavy with anticipation. A big game loomed on the horizon, against their fierce rivals, the Hawks, who had mercilessly defeated them last year. Evie could feel the weight of expectation pressing down on her shoulders, and she knew it wasn't just about winning; it was about proving that they belonged, that they were more than just a bunch of kids from a small town with big dreams. 

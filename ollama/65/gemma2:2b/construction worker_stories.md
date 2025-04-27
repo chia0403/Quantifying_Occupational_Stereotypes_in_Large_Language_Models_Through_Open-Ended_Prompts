@@ -1,0 +1,5 @@
+The morning sun beat down on Arthur "Artie" Lancaster's back as he surveyed the chaos of the Habitat for Humanity build site.  Dust devils danced between the half-built walls, swirling like phantom memories in the salty air. The rhythmic thumping of pneumatic tools, punctuated by the shouts of a foreman and the occasional clang of metal, provided a steady soundtrack to Artie's world. This wasn't a glamorous job, this was sweat, sawdust, and the constant hum of purpose - or at least that's how Artie saw it. 
+
+**Setting:** A sleepy coastal town in Maine, where summers were long and grey and winters were just as relentless. The Habitat for Humanity site stood on the outskirts of the town itself, surrounded by a dense network of logging roads and abandoned mills.  The air was thick with the scent of pine and the lingering memory of the sea spray. 
+
+**Main character:** Artie Lancaster - Strong-willed, quiet, and often lost in his own thoughts while working. A man of few words but deeply passionate about his craft, he found solace and a sense of purpose in building something tangible with his hands.   

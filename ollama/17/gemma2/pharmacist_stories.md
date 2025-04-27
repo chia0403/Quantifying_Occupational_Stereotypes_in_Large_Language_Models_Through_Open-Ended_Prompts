@@ -1,0 +1,6 @@
+The bell above the door jingled its discordant tune as Amelia Beatrice Winthrop surveyed the lone figure entering her little shop, "Winthrop's Wonders."  Amelia, or Millie as she preferred, adjusted the spectacles perched precariously on her nose and offered a warm smile. 
+
+"Good morning! What can I do for you?" she chirped, her voice echoing through the quiet space filled with the scent of lavender and chamomile. Sunlight streamed through the dusty windows, illuminating shelves stacked with jars of colorful herbs and tinctures, alongside rows upon rows of neatly labeled bottles. Outside, a light mist hung low over Maple Creek, obscuring the vibrant autumn foliage that usually painted the quaint town in hues of crimson and gold. 
+
+
+Millie's pharmacy was an institution in Maple Creek, its weathered brick facade a testament to generations past. The shop held secrets whispered through the years – remedies for heartache, cures for ailments both physical and emotional, and a wealth of knowledge passed down from Millie's grandmother, the original proprietor.  But today, something felt different. A chill snaked through the shop, not just from the damp air, but from the intensity in the visitor's eyes. This wasn't a routine cough or a need for teething relief. 

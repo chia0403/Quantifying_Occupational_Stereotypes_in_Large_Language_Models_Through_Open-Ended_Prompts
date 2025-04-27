@@ -1,0 +1,9 @@
+## Opening:
+
+The flickering fluorescent light above Amelia Rose Davies' desk seemed to mock her. It buzzed with the same incessant, irritating rhythm as the pop-up error messages plaguing the hospital's patient management system. Amelia rubbed her tired eyes, the bridge of her nose throbbing. It was 2:17 AM, and the promised "quick fix" had spiraled into a labyrinthine nightmare of corrupted data and cascading dependencies. She swiveled in her ergonomic chair, its once-comforting lumbar support now feeling like a medieval torture device. Outside the reinforced window of the server room, the city was a distant glimmer, a world of sleep and quiet normalcy she could only dream of.
+
+## Setting:
+
+The scene takes place in the Central Server Room of St. Jude's General Hospital, located in the industrial outskirts of a sprawling Midwestern city. The room is windowless, save for the aforementioned reinforced window offering a view of the city skyline. The air conditioning hums a constant, low drone, battling against the heat radiating from the rows of blinking server racks. Cables snake across the raised floor, a chaotic tapestry of connectivity, each strand vital to the hospital's operations.
+
+Amelia's desk is a small island in this ocean of technology. It's cluttered with half-empty coffee cups, crumpled sticky notes covered in arcane code snippets, and a well-worn copy of "Database Design for Mere Mortals." A framed photo of a golden retriever sits precariously on the edge, a silent reminder of a life outside of debugging. The room's walls are painted a sterile, institutional grey, offering no relief from the visual assault of screens and flashing lights. The overall atmosphere is one of tense urgency, a constant reminder that lives depend on the smooth functioning of the technology within.

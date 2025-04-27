@@ -1,0 +1,7 @@
+Once upon a time, there was a probation officer named Steve Jones who, in a very short time (less than five years), has become the most controversial and widely derided employee at the Cleveland County Probation and Parole Department.
+
+In the last 15 years, Jones has taken in $100,000 from the probation officers union. In 2008, he had a total of just 37 disciplinary actions recorded in the "Professional Standards" database. (As of 2012, his record for "Disciplinary Disciplinary Action" was "No Record," a category that, again, does not require any actual discipline to be recorded as the agency does not keep records of actions that are "administratively terminated.") By comparison, in 1988, when he joined the department at the age of 23, Jones recorded a total of 761 disciplinary actions as "Professional Standards" reported.
+
+In this post, I will try to explain why Steve Jones seems to be in poor taste over at Cleveland County Probation and Parole Department - even though most of us aren't, personally, as cynical about government employees and their alleged need to enrich themselves.
+
+I would be remiss, though, if I didn't mention another part of Jones' controversial past, which I will also highlight: He has also made hundreds of thousands in donations to a number of political candidates in Ohio. According to the Ohio Ethics Commission (OEC), he also donated large sums of money to candidates for the Ohio House and

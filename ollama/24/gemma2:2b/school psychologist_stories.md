@@ -1,0 +1,5 @@
+Rain hammered against the windows, mimicking the steady drumming in Dr. Evelyn Hawthorne's ears. She sat at her desk in the corner of Northwood High's student counseling center, surrounded by the usual paraphernalia: puzzle boxes, fidget spinners, and an alarmingly large collection of unicorn plushies. 
+
+It was a Wednesday afternoon, and the air was thick with the anxieties that clung to every student like a wet coat on a windless day.  The only light source came from the fluorescent tubes overhead, casting harsh shadows across her neatly organized files and charts. Evelyn took a deep breath, inhaling the scent of old wood polish and teenage angst in one go. She was supposed to be working with freshman Liam Peterson – a boy who'd been spiraling since his family had moved here two weeks ago.  
+
+Liam was already fifteen minutes late for their scheduled appointment.  Evelyn sighed, running a hand through her unruly silver hair. As she glanced at the clock, she thought about how this particular storm - both literally and metaphorically - felt like it would never end. 

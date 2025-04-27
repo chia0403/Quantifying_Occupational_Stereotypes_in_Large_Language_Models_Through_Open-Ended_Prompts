@@ -1,0 +1,6 @@
+The humid Georgia air clung to Coach Amelia "Amy" Harper like a second skin as she paced the sidelines. The bleachers groaned under the weight of expectant parents and restless children, their faces illuminated by the harsh glare of the stadium lights.  Beneath the sprawling oak trees that cast long, skeletal shadows across the field, the eighth-grade football team huddled, their helmets gleaming in the artificial light. Their nerves were as raw and exposed as the freshly cut grass beneath their cleats. This was it. The championship game. 
+
+Amy glanced at her clipboard, its pages filled with scribbled plays and anxious notes.  She knew every one of these boys by name, by personality, by their quirks and fears. They'd sweat together under the Georgia sun, they'd argued over formations, they'd shared triumphs and disappointments, forging a bond stronger than any she'd seen before. Tonight, it was about more than just winning. It was about proving to themselves, and to each other, that they were capable of achieving greatness.
+
+
+The whistle blew, the crowd erupted, and Amy took a deep breath, the familiar scent of cut grass and sweat filling her lungs.  This wasn't just another game. This was their moment. 

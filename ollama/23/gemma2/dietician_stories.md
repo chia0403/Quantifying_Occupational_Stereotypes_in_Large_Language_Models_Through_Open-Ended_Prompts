@@ -1,0 +1,6 @@
+The aroma of burnt toast hung heavy in the air, competing with the faint, metallic scent of blood that always seemed to cling to Eleanor Rosalind Cartwright's office.  Eleanor, or Ellie as her patients called her (though never to her face), sighed and ran a hand through her already messy auburn braid. She was supposed to be prepping for a meeting with Mrs. Petrovsky, a woman who swore by the miracle of kale smoothies despite displaying all the nutritional deficiencies of a starved caveman. Instead, Ellie found herself staring at the charred remains of her breakfast toast, wondering if she’d accidentally started a fire in her toaster oven again. 
+
+The setting was a small, cramped office nestled above a bustling bakery in Brooklyn. The walls were plastered with motivational posters featuring kale smoothies and suspiciously photoshopped fruit platters. Ellie's desk held a collection of well-worn nutrition books, scattered patient files, and an alarming amount of empty teacups. Sunlight streamed through the dusty window, illuminating the chaos and casting long shadows across the worn carpet. 
+
+
+This wasn't exactly how she envisioned starting her day. But then again, Eleanor Rosalind Cartwright rarely did.

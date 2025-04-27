@@ -1,0 +1,7 @@
+Once upon a time, there was a kindergarten teacher named Anna. Anna was a sweet, caring girl and she had some issues. The kids were happy to be around her. She was a teacher who loved kids, but also loved her husband, husband who was a terrible drunk. One day, the drunk would start going on long rambles through the office. Soon he would tell Anna stories about some crazy thing he'd done in the army or at a certain place in town. Anna would be too preoccupied with how crazy it sounded to even pay attention to the story. The truth is, the kids would have heard the rumors about their great grandfather and their father before they'd seen him.
+
+At first, the children only heard the one version of the story over and over, but soon they started to take in the stories themselves. Each time Anna mentioned the drunk guy she loved so much, they became even angrier. Eventually, the children would say things like "That guy needs to go home!"
+
+It was Anna's job to keep the drunken teacher from the children. Sometimes it got to the point where her husband didn't even leave the office to care for one of her children.
+
+Finally, she lost her patience and stormed out of the office. Her husband saw her get out of the building and asked "Did you really just...?" His wife didn't want to be there anymore and she told him that no, there was no going back. She

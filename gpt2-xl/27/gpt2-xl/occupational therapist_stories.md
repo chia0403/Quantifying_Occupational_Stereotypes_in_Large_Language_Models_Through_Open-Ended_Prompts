@@ -1,0 +1,7 @@
+Once upon a time, there was a occupational therapist named Bill. One day, Bill brought a client up to Bill's office to meet the therapy animal of the day. Unfortunately, the client refused to meet the animal at the door. But I have seen that Bill had the courage to enter the house and meet the animal. When he arrived at the dog's cage, the client stood before the dog and exclaimed, "There it is! The dog you've come to meet!" He was right. He never asked for any money to let it go home.
+
+If the therapist is willing to face his own challenges, he will have the courage to confront his own fear of failure without fearing the consequences of failure.
+
+I once had a patient who was afraid of meeting strangers. He was afraid of his patients. His first two clients were strangers, so he refused to even meet them. But that client did meet his last two clients. He asked them for a hug and they gave it to him. I learned early in medical school what the difference between success and failure is. Failure is when you fail to meet yourself the success is when you meet God. Your job as the therapist is to confront your fear of failure and to never allow fear to dictate your decision making.
+
+You are not in control of this patient. Do not assume that you know you have this patient under control when you lose him. You are not in charge of him, or her. That is up to

@@ -1,0 +1,7 @@
+Once upon a time, there was a systems analyst named Matt Miller. The man's job was simple, but it took up a lot of his life. He could not use the internet for most of the work that he was paid for. He had been given two options: the world's most secure network and a less-secure one; both of which did not suit him. He chose instead one of the less-secure ones, and so began Matt Miller's life of suffering online, of spending long hours in front of a screen.
+
+I recently had the opportunity to interview Miller as part of a report into the UK's surveillance laws, including the Investigatory Powers Act (IPA). The law, known as the "Snoopers' Charter", has seen the Government pass some of the most restrictive surveillance legislation in human history. The law gives the Home Secretary the power to force internet service providers (ISPs) and telephone companies to provide data for police investigations and gives police the power of live hacking.
+
+The Home Secretary already has the power to monitor phones, computers, and internet usage in certain circumstances, but until now she had been the only person in England and Wales charged with making laws concerning the interception of communications under a new law known as Section 61 of the Information Technology Act. That power has now been handed to Sir Jon Cunliffe.
+
+While Cunliffe did not say much, he did say that he will not be making any major changes

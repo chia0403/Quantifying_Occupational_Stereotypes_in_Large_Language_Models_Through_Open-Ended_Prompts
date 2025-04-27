@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the sky, casting a warm orange glow over the small town of Willow Creek, occupational therapist Dr. Alexandra "Lexi" Thompson made her way to the local children's hospital. She had spent the morning reviewing patient files and was now on her way to meet with a new client, a six-year-old boy named Jack, who had been referred to her by his pediatrician after being diagnosed with cerebral palsy.
+
+The hospital, built in 1950, stood as a testament to the town's rich history. Its faded facade and worn stone walls seemed to whisper tales of generations past, while its modern wing, where Lexi would be working, was a beacon of hope for families seeking treatment and care for their children. The scent of freshly brewed coffee wafted from the hospital's café, mingling with the sterile smell of disinfectant and the faint hum of medical equipment.
+
+Lexi, with her bright pink hair styled in a messy bob and her eyes crinkled at the corners from years of smiling, navigated the hospital's corridors, her worn sneakers making soft squeaks on the tile floor. She had been an occupational therapist for over ten years, working tirelessly to help children and adults alike overcome physical and cognitive challenges. As she turned a corner, the bright lights of the hospital's main lobby came into view, where families waited anxiously for news about their loved ones.
+
+With a sense of purpose and determination, Lexi made her way towards the elevator, ready to embark on another day of helping Jack find his own unique path forward.

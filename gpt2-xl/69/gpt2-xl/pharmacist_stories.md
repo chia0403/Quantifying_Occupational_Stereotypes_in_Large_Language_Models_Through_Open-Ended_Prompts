@@ -1,0 +1,7 @@
+Once upon a time, there was a pharmacist named Dr. Barry Marcus who was one of the leaders and inventors of the anti-tuberculosis drug Tamiflu, a potent anti-cancer drug. He was diagnosed with prostate cancer and died shortly after the discovery of Tamiflu. In this video, Dr. Barry Marcus discusses how and why he was diagnosed with Stage IV stage four prostate cancer, as well as his fight against the disease.
+
+He talks about the early years of his research to discover the causes of, and develop treatments for, these cancers, and how he learned about Tamiflu and the early experiments in its development that led to the early approval of the drug. As a result, his research was one of the most important (and the most publicized) studies regarding the safety and efficacy of the drug.
+
+But what Dr. Marcus didn't know was just how good Tamiflu was, and that it was, in fact, the drug that saved him. In fact, he would later write about his experience with cancer in his book: Cancer, Survival, and Death in the Twentieth Century, which was published in 1986. He writes about how he made the decision to discontinue his Tamiflu research and use the funds from the book profitably in other areas of research, and how he went on to do important research in cancer survival rates, as well.
+
+But Dr. Marcus didn't stop there. While in Los

@@ -1,0 +1,7 @@
+Once upon a time, there was a receptionist named Carol who just happened to have a big secret.
+
+C. J. Cherryh is a celebrated screenwriter who, over the last several decades, has written dozens of adaptations of novels by Patricia Marx, and her latest film adaptation is The Woman in the Window. C.J. Cherryh writes in a way that most people can understand: she has a sense of the human condition that is so real, so vivid, so true that it seems her mind has jumped straight to the novel. She understands and can write about the experience of a character that you're unlikely to meet or experience in real life. And The Woman in the Window is a terrifically original take on the character, the book, and the book's setting.
+
+In the novel, a woman named Julia, a married-to-a-banker guy, discovers a window seat with an ad for a hot affair in the middle of the afternoon. She looks, doesn't see anyone, and assumes it's empty. When it's not empty, she begins having sexual thoughts, and she's not just imagining these things. She's experiencing them, and this arouses her to the point that she decides to go home and go to work the following day, hoping to keep her secret from the man who is on the other side of the door.
+
+The film is quite a departure from the source material, but it's a wonderful step forward,

@@ -1,0 +1,5 @@
+The flickering fluorescent lights hummed a monotonous tune above Ms. Eloise Bellweather's head, casting a sickly yellow pallor over the otherwise pristine classroom.  Dust motes danced in the stale air, illuminated by the setting sun bleeding through the grimy windows. The bell for dismissal had rung ten minutes ago, but the room remained stubbornly silent, save for the rhythmic tapping of Ms. Bellweather's pen against her desk. A stack of ungraded essays, each a window into the turbulent minds of her junior English students, threatened to engulf her small world.  
+
+Outside, the last rays of summer sun painted the sky in hues of burnt orange and faded lavender, a stark contrast to the melancholy that hung heavy within the classroom walls. Ms. Bellweather sighed, pushing back a stray strand of auburn hair that had escaped its bun. The day's lesson on Shakespearean sonnets had fallen flat, replaced by a wave of teenage apathy. A pang of weariness settled in her chest – another day, another battle fought against the encroaching indifference of adolescence. 
+
+

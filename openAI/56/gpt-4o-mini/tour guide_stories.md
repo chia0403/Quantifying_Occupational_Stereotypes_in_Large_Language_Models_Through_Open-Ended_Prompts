@@ -1,0 +1,9 @@
+Title: Shadows of the Grand Canyon
+
+Setting: The early morning sun casts a golden glow over the vast expanse of the Grand Canyon, its layers of red and orange rock illuminated like a watercolor painting. Shadows dance in the deep crevices, while the sound of the Colorado River gently flowing below fills the air with a soothing melody. Tourists gather at the edge of the rim, their eyes filled with wonder as they prepare for a day of adventure. Nearby, a tall, confident woman adjusts the straps of her well-worn backpack, her dark curls bouncing slightly as she moves. 
+
+Opening: 
+
+“Welcome to one of nature’s greatest masterpieces!” The voice of Amelia Harper carried over the murmurs of excited tourists, her enthusiasm infectious. She flashed a bright smile, her green eyes sparkling with the thrill of the day ahead. As a seasoned tour guide with a love for storytelling, Amelia had spent the last eight summers leading eager adventurers along the canyon trails, sharing tales of the Ancestral Puebloans and the geological wonders that surrounded them. 
+
+Today, however, was different. Today, beneath the surface of her cheerful demeanor, a sense of unease stirred within her. A recent discovery of ancient artifacts along one of the lesser-known paths had drawn attention to the canyon's secrets, and Amelia sensed that the day might unfold with more than just stories of history and rock formations. She adjusted her trusty wide-brimmed hat, squinting out at the vast horizon before her, wondering what mysteries the Grand Canyon had in store this time. Little did she know, the shadows concealed more than just geological wonders; they held echoes of the past that were about to rise and intertwine with her very own journey.

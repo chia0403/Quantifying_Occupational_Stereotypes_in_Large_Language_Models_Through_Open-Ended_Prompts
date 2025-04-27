@@ -1,0 +1,3 @@
+Once upon a time, there was a school psychologist named Ed Helms. In 2006, Helms was hired away by "30 Rock" as a producer and the show brought him into the writers' room. The following year, Helms left the show, citing differences with NBC Entertainment president Jennifer Salke (who has since taken over as showrunner), but it's been said he has not been too far from the writers' room ever since.
+
+This, from an official network Twitter account:

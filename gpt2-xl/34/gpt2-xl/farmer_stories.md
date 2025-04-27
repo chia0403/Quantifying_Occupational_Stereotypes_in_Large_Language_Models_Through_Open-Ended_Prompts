@@ -1,0 +1,7 @@
+Once upon a time, there was a farmer named Sigmund. An evil wizard was attacking the village with horrible things and he needed any aid he could get. Fortunately, a young man named Thorin Oakenshield, the king's son, was around with a longbow and a friend named Gimli, the dwarf. They both went to help their friend. Thorin and Gimli had to overcome giants and orcs with the aid of an elf named Eomer. As soon as they and their friends overcame them (as they'd been assigned) they went to Sigmund's house.
+
+Sigmund's house was full of horrible monsters and he was only human. So they tried to help him out by showing him the monsters and by throwing them around like bowling pins. He found that this was not the best of ideas, as he was also being attacked by goblins. So the heroes said, "Enough of this. Let's go back to the cave."
+
+However, Sigmund, who was having some sort of panic attack at this point, decided that he didn't want them to go to the cave, but want to go to his home and hide. He then asked, "Well, how about you show me your home so that I can leave, eh?"
+
+Gimli agreed that would do much more to get his friend out of there than his own home. In fact, the heroes found Sigmund's house to be a

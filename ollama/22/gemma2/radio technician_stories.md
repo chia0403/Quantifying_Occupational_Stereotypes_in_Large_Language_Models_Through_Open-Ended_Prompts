@@ -1,0 +1,8 @@
+The whine of the faulty generator filled Elias Thorne's ears, a constant, high-pitched hum that mirrored the buzzing anxiety in his chest. Rain lashed against the corrugated tin roof of the shack, each drop sounding like a hammer blow. Inside, the cramped space was lit by a single flickering bulb, casting long, dancing shadows across the workbench cluttered with spare parts and tools. Elias, his brow furrowed in concentration, held a soldering iron to a tangle of wires, its tip glowing fiercely in the dim light.  
+
+His hands, calloused and scarred from years spent coaxing life back into broken machines, moved deftly as he worked. He was deep in the heart of the Mojave Desert, miles from any town or civilization. The nearest outpost, Dustbowl, was a day's trek by foot, if the wind didn't change course and turn his makeshift sand-trapper into a swirling vortex of dust. 
+
+Elias Thorne, master radio technician extraordinaire, wasn’t supposed to be here. He was supposed to be back in New Vegas, tinkering with high-tech comms equipment at the Lucky 38 casino. But fate, as it often did, had other plans. His job in Vegas had ended abruptly – a case of corporate greed and misplaced trust – leaving him stranded with a few credits, a battered toolbox, and a broken promise to send his younger sister postcards from the glitz and glamor of the Strip. 
+
+
+Instead, he found himself in this desolate corner of the wasteland, tasked with repairing the only radio tower for miles around - the lifeline between Dustbowl and the outside world. The fate of an entire community rested on his shoulders, a weight that felt heavier than any broken circuit board.

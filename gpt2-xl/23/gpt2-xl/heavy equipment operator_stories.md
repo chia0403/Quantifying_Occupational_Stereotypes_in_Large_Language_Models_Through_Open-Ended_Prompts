@@ -1,0 +1,7 @@
+Once upon a time, there was a heavy equipment operator named John McClaughry. McClaughry was a hard-worker and a good leader. But not today. The world in general and McClaughry in particular had changed, forever. Now he was a machine operator, doing a job that he despised. What should the industry leader do when, in the process of doing his job, his workplace turned into an ugly, dangerous place?
+
+One solution that McClaughry came up with was to start a club of his workers. McClaughry didn't like to work alone, and he believed it would make him more productive if he had a group of his fellow employees surrounding him. Thus he formed "the club," a fraternal organization dedicated to providing a safe workplace, a place for meetings, a place for fun. Now, McClaughry had a good idea. He would hold the club meetings in his yard, and if someone suggested that these meetings should end, he would just get rid of them. And it worked. Over the years, the membership of McClaughry's club multiplied, and eventually, the group even became a local club, a type of business association.
+
+The club was not so much about helping employees and management as providing a safety net that was both informal and protective. Not all factory managers were satisfied with the current system, but rather everyone was unhappy.
+
+So there was a group of workers who were willing to work in a dangerous

@@ -1,0 +1,7 @@
+The rain was a relentless curtain of gray on the grimy windowpane of Desmond Thorne’s office. A fat slug of neon green from the city street spilled into his view, illuminating the overflowing ashtray in a sickly glow. He pulled out a cigarette, noting the way the ember sparked against the grime-caked glass, and lit it with the precision that was his trademark even after decades on this earth. Desmond Thorne, a private eye who could track a stray cat's meow through a city of whispers, had been called in for something he hadn't expected: missing persons case. 
+
+"The dame said her husband...well, he just vanished," Mrs. Delacroix whispered, clutching at the collar of her worn coat like a lifeline. "Left no note, nothing." Her face was drawn and pale as moonlight on a graveyard.  Desmond rubbed the bridge of his nose - another case of missing people, another story to unfold in the labyrinthine city that thrived on secrets. He pushed back from his desk, ignoring the callouses on his fingers which were a testament to years spent in the gritty underbelly of this town. 
+
+"Where'd he go?" Desmond asked, leaning forward as if peering into Mrs. Delacroix's very soul. The rain was relentless, but so was the city's heart, beating with a hidden rhythm only Desmond knew how to decipher.  He took a drag from his cigarette, letting the smoke curl up like a mournful song against the city’s oppressive grayness. 
+
+

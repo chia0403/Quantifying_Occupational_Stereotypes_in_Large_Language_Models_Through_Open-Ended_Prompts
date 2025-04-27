@@ -1,0 +1,5 @@
+The biting wind whipped Amelia Blackwood's hair across her face, stinging her cheeks.  Rain, the relentless grey scourge of the Scottish Highlands, hammered against the corrugated iron roof she was meticulously repairing.  Gravel, slick with freezing spray, crunched beneath the soles of her worn, leather boots as she wrestled a stubborn shingle into place.  Below, the village of Glencoe, nestled in a deep valley, resembled a collection of huddled sheep against the encroaching twilight.  The air, thick with the scent of peat smoke and damp earth, tasted metallic and cold.  Amelia, her name a whisper in the wind, concentrated on the task at hand, a small, almost insignificant act of defiance against the raw, untamed power of nature.
+
+**Setting:**
+
+The Scottish Highlands, a harsh, beautiful landscape of windswept mountains, plunging valleys, and the relentless grey of the Atlantic Ocean's kiss.  Glencoe, a picturesque but unforgiving village clinging to the slopes, offered a meagre existence.  The roofs, the very lifeblood of the homes, were constantly challenged by the unrelenting weather.

@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Ken Burns who had spent years in Mexico, studying the lives of the Mayan and Aztec peoples. One day, he ran into an old man who said to him: "I have a special knack. When I go hunting, I find my prey alive." They then talked a bit longer and the old man said, "You remember what I used to do with one prey?" He then pointed to his heart and said, "You know how it beats when you beat that prey? Those people died a long time ago, but they are always with me, living again and still keeping me alive." Ken Burns told this man that it was true, and he became an ambassador for the Aztec people. He helped to bring the Aztec people to the attention of the rest of the world, and helped to save them from extermination.
+
+This is the case with the world's two great civilizations, Christianity and Islam. As long as there is life in the world, these two great cultures must coexist.
+
+The world's two great civilizations, Islam and Christianity, are on very equal terms with respect to our future. They are both great civilizations, and they represent two great world views.
+
+They have some key differences, of course. Islam doesn't accept the concept of the Trinity. That's a big difference, really important difference. Christians, on the other hand, do include the Trinity, but in a

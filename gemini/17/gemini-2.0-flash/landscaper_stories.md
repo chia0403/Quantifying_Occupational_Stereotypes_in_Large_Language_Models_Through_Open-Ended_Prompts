@@ -1,0 +1,7 @@
+## Story Opening:
+
+The humid Georgia air hung heavy, clinging to everything like a damp shroud. Sweat beaded on Silas Bartholomew Finch’s forehead, blurring his vision as he wrestled the recalcitrant wheelbarrow up the incline. He swore softly under his breath, a low, rumbling sound that was almost lost in the chirping cacophony of cicadas. This job was proving more of a trial than he’d anticipated. Not the landscaping itself; Silas could coax life out of concrete if he put his mind to it. No, it was the house. It felt…wrong.
+
+## Setting:
+
+The story unfolds in the sleepy, affluent town of Willow Creek, Georgia. Silas is working on the grounds of the grand, antebellum mansion known as "Bellefontaine." The house sits perched atop a gentle hill, overlooking a meticulously manicured lawn that stretches down to a tranquil, algae-tinged pond. Wisteria, laden with fragrant purple blooms, climbs the towering white columns of the veranda, casting dappled shadows across the aged brick façade. Bellefontaine is a monument to a bygone era, steeped in history and whispered rumors of tragedies past. The air is thick with the scent of honeysuckle, jasmine, and the cloying, almost sickly sweet aroma of decaying magnolia blossoms. While beautiful, there's an undeniable sense of unease that permeates the property, a feeling that Silas can't quite shake. He can see the old Finch family plantation, a shadow of its former glory, in the distance from the Bellefontaine property.

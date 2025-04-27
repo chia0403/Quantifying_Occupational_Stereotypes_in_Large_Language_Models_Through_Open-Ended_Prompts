@@ -1,0 +1,6 @@
+The rusted swing set creaked in the gentle breeze, its once vibrant red paint faded to a dusty rose by years of sun and neglect. A lone, chipped porcelain doll lay forgotten beneath it, its vacant blue eyes staring up at the overcast sky. Amelia "Amy" Thistlewood sighed, kicking at a loose pebble as she walked. 
+
+The abandoned playground was the only semblance of life in this otherwise desolate stretch of land, surrounded by overgrown fields and crumbling concrete remnants of what was once a bustling town.  Now, Amy was its sole resident, tasked with caring for the forgotten souls – the animals – that remained: a flock of scraggly chickens pecking at the dry ground, a mangy stray dog named Rusty who followed her like a shadow, and a colony of cats who ruled the dilapidated shed like their own personal kingdom. 
+
+
+Amy had taken on this lonely responsibility after inheriting the place from her eccentric aunt, a woman whispered to have spoken with animals and brewed potions in the moonlight.  While Amy was more practical than mystical, she found herself strangely drawn to these creatures, offering them comfort and companionship in their forgotten world.  The town may be gone, but within its rusted heart, life still flickered, fragile yet persistent, like a dying ember refusing to be extinguished.

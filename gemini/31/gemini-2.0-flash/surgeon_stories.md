@@ -1,0 +1,9 @@
+## Story Opening & Setting
+
+**Setting:** The pre-dawn chill clung to the air outside New York Presbyterian Hospital, a tangible reminder of the relentless January wind whipping off the Hudson River. The sky was a bruised purple, barely hinting at the promise of dawn. Inside, however, the air was thick with the sterile scent of antiseptic and a more subtle undercurrent of simmering anxiety. Halogen lights buzzed overhead, casting harsh shadows that danced on the linoleum floor. This was the 17th floor, the surgical wing, and the world here operated on a different clock, governed by the demands of flesh and bone.
+
+**Opening:**
+
+Dr. Evelyn "Eve" Grace Alistair, scrubbed raw and still humming with the residual tension of the 12-hour shift she'd just finished, stared at the reflection in the darkened window of the residents' lounge. The city skyline, a jagged tapestry of concrete and steel, offered no solace. The surgery, a complex repair of a ruptured aortic aneurysm, had been textbook perfect, a triumph of precision and skill. Yet, the patient, a young father of two, was still teetering on the edge, clinging to life in the ICU.
+
+Eve ran a hand through her tightly pulled-back auburn hair, dislodging a stray strand that stuck to her forehead. Exhaustion etched itself into the lines around her hazel eyes, turning them the same somber shade as the pre-dawn sky. She hadn't expected to feel this hollow. Success, once a reliable source of elation, now tasted like ash in her mouth. Maybe it was the weight of responsibility, the constant awareness that the difference between life and death often rested solely on her gloved hands. Or maybe, she thought, as the first sliver of pink pierced the horizon, it was something deeper, something she hadn't quite been able to name since... since her own life had irrevocably fractured.

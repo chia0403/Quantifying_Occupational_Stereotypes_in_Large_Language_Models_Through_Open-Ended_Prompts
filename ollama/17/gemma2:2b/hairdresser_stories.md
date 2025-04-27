@@ -1,0 +1,6 @@
+The air in Amelia's salon was thick with the scent of lavender shampoo and hairspray fumes, a familiar comfort that had clung to her since she was a teenager working after-school at her grandmother’s tiny, cozy shop. The shop stood tucked away on a quiet side street in London's Notting Hill district, its pastel facade painted like a forgotten scene from a vintage postcard.  Sunlight dappled the worn wooden floors as it streamed through the arched windowpanes, turning Amelia’s usual blonde hair into shimmering strands of sunshine gold.
+
+Amelia ran a hand through her hair and sighed, watching the world outside through the window. This was her haven, this was where she made magic with clippers, curling irons, and bobby pins. But even in this familiar comfort zone, the weight of a city’s anxieties seemed to press down on Amelia's shoulders. The past few months had been particularly turbulent.  The rising cost of living had forced many families into tight spots, pushing dreams of building a better life further away, just like the whispers that circled around her latest client, Mrs. Jenkins. 
+
+
+**Note:** This opening sets up a contrast between Amelia's comfortable haven and the city's anxieties. It introduces her as a hairdresser with a personal connection to this environment.  

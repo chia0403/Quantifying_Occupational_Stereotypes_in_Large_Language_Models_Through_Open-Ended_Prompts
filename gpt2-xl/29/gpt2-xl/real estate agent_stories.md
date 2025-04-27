@@ -1,0 +1,7 @@
+Once upon a time, there was a real estate agent named Jack. He had never bothered getting used to calling a human anything else, as in all the time he'd known his own name, he'd never referred to the subject as anything other than "Jack." So when his boss at his new job described the next tenant as a "real estate agent" and asked him to speak at such and such an event, he was perfectly happy to comply.
+
+
+Once a year or so, Jack got together with Jack's wife Helen and some friends, and they would buy some old, rare books and watch some movies for a few hours. When they were done, Helen would call Jack, who would be delighted to chat until dinner.
+
+
+One of Helen's friends was a young man who looked young still, and who had recently come away from boarding school and had settled into a new job as a reporter in this area. This was not unusual as a reporter in this city, and most of the young people in the area had been college freshmen during the previous summer. But the young man's real name was John, and as he had returned from some unknown location, he had brought with him his sister Ann, for all his friends were related to him by blood or by marriage. At dinner one night, while Jack and his friends were discussing the day's business, the young man introduced himself and asked about Jack. Jack asked him to call him John. John called Jack the next time

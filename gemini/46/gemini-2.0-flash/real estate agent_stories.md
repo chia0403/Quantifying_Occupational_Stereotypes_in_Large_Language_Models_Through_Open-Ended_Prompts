@@ -1,0 +1,7 @@
+The persistent hum of the air conditioner did little to combat the August heat radiating off the asphalt of Coral Gables. Penelope "Penny" Ainsworth wiped a bead of sweat from her brow, the Florida humidity already attacking her perfectly coiffed blonde bob. She smoothed down the lapel of her crisp, cream-colored blazer, hoping she still looked professional despite the weather’s best efforts.
+
+Penny adjusted the 'For Sale' sign in front of the Mediterranean-style villa, making sure it was perfectly aligned. This was 78 Ocean Breeze Drive, and it was going to be hers. Not literally, of course. Penelope Ainsworth, top-producing real estate agent for "Sunshine State Properties," was determined to sell this particular slice of paradise and add another dazzling commission to her growing bank account.
+
+The property itself was stunning: terracotta roof tiles, a bougainvillea-draped courtyard, and a promised ocean view from the master suite balcony. Inside, the house boasted high ceilings, marble floors, and a chef's kitchen worthy of its own reality show. The former owners, a retired couple who had moved back north to be closer to their grandchildren, had meticulously maintained the property, leaving Penny with a practically turn-key sale.
+
+The only problem? The persistent, unnerving feeling that something was… off. A subtle unease that prickled at the back of Penny’s neck, a feeling she couldn't quite shake. Maybe it was just the summer heat playing tricks on her. Or maybe, just maybe, this dream house had a secret it wasn't willing to give up easily.

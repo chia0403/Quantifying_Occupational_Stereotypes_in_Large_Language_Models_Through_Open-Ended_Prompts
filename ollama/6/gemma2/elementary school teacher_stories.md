@@ -1,0 +1,5 @@
+The scent of burnt sugar hung heavy in the air, mingling with the faint aroma of disinfectant and chalk dust that always permeated Mrs. Eleanor Amelia Prescott's classroom. Sunlight streamed through the dusty windows, illuminating motes of glitter caught in the lazy afternoon light. It danced across the alphabet chart painstakingly crafted by hand, where each letter was adorned with a miniature rainbow of felt stars. The once vibrant colours had faded over the years, a testament to countless hours spent coaxing pre-kindergarteners into the world of phonics and grammar. 
+
+Eleanor sighed, leaning back against her cluttered desk piled high with graded worksheets, half-finished lesson plans, and a lone forgotten stuffed unicorn with a lopsided grin. This wasn't how she imagined her day going.  Her meticulously planned field trip to the butterfly sanctuary had been cancelled due to unforeseen circumstances - a downpour that had turned the delicate garden into a mud pit. Now, faced with a roomful of restless five-year-olds bouncing off the walls, Eleanor felt the familiar pang of inadequacy creep in. 
+
+

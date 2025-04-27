@@ -1,0 +1,7 @@
+## Story Opening:
+
+The scent of sawdust and old velvet hung heavy in the air, clinging to the threadbare carpet like a forgotten dream. Arthur Reginald Davenport, Artistic Director of the struggling Paragon Theatre, coughed, waving a hand theatrically in front of his face. The single bare bulb hanging precariously from the rafters did little to dispel the gloom, painting long, skeletal shadows that danced with his every movement. He felt, as he often did these days, like a moth batting against a relentlessly dusty window.
+
+**Setting:**
+
+The Paragon Theatre, nestled in a forgotten corner of Grimsborough, a city long past its industrial heyday. It was once a grand dame of the stage, a glittering beacon that drew talent and crowds alike. Now, its facade was crumbling, the paint peeling like sunburnt skin. The once-vibrant red velvet curtains were faded and patched, the gold leaf detailing chipped and tarnished. The seats, a motley collection of salvaged and donated pieces, creaked ominously under the weight of phantom audiences. Backstage, the labyrinthine corridors smelled of damp and despair, echoing with the ghosts of performances past. The dressing rooms were cramped and cluttered, filled with dusty wigs, moth-eaten costumes, and the lingering scent of forgotten hopes. The Paragon, in essence, was a reflection of Arthur Reginald Davenport himself – beautiful in its bones, but teetering precariously on the brink of oblivion.

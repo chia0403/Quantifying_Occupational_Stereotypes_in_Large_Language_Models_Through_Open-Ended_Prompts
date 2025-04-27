@@ -1,0 +1,5 @@
+In the heart of Maplewood, a quaint town where the leaves blushed crimson and gold in the gentle embrace of autumn, stood the historic Rosewood Inn. Built from timeworn bricks and lovingly restored oak, the inn possessed a charm that spoke of stories untold and secrets kept within its walls. The scent of fresh cinnamon rolls from the adjacent bakery mingled with the crisp, cool air, setting a serene yet bustling atmosphere. 
+
+At the entrance of the inn, behind a polished mahogany counter, sat Clara Hughes. With a soft smile and an infectious warmth, she was the first face every guest encountered. As the receptionist, Clara was the gatekeeper of the inn's many hidden tales, listening intently to the joys and sorrows of travelers passing through. Her task was simple but significant: to make each guest feel as though they’d found a home away from home.
+
+Clara's deep, chestnut eyes glanced at the clock, ticking softly upon the wall. It was nearing the hour when the early autumn sun would cast a golden hue through the stained glass windows, a daily reminder of the tranquility that wrapped around her like a well-worn quilt.

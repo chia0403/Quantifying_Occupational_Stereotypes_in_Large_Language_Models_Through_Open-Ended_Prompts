@@ -1,0 +1,9 @@
+## The Whispering Walls 
+
+The air in Dr. Emilia Thorne’s office felt thick with suppressed tension. The ornate Victorian furniture, draped in velvet curtains, whispered tales of opulent past lives, but nothing could quite mask the unsettling hum that resonated through the stone walls. Emilia sat behind her desk, a steel-blue gaze fixed on the framed photograph of her late father, his smile frozen in a time long gone. 
+
+Emilia Thorne, Ph.D., forensic psychologist, was renowned for her keen insight and relentless pursuit of truth. Today, however, that truth felt elusive.  Her latest subject, Daniel "Danny" Lancaster, a man whose past was as shrouded in silence as the shadowed alley where he'd been found, stood before her like a ghost trapped in a decaying house. Danny’s case had sent ripples through the community of Oakwood, a quaint town steeped in history but now wrestling with an unsettling sense of unease. 
+
+The whispers started after Danny’s body was discovered, barely recognizable beneath layers of grime and fear. He'd been found in a derelict mansion on Maplewood Road - the very same home where generations of the Blackwood family had lived until their untimely demise over a century ago. The old house, now owned by the enigmatic Ms. Amelia Thorne, Emilia's distant aunt, held its secrets close, whispering stories of long-forgotten tragedies and lingering resentments that threatened to consume even those who sought solace within its stone walls. 
+
+Emilia knew she was on the brink of something significant. But as the hours ticked by, her mind raced with questions: could Danny’s demise be connected to his family's history? Could Amelia Thorne be hiding more than just a family secret? As Emilia delved deeper into Danny's case and the tangled web of his past, she realized that the walls of Oakwood held not only whispers but the echoes of forgotten truths, awaiting someone brave enough to listen. 

@@ -1,0 +1,7 @@
+In the quaint village of Alderwood, where morning mist hung heavy over cobblestone streets and ivy-clad cottages, lived a housekeeper named Eleanor Whitfield. The village, with its narrow lanes and neatly trimmed hedgerows, curled around a pristine lake, reflecting the pale blush of dawn. Whispering willows skirted the water’s edge, their graceful boughs dipping into the mirrored surface.
+
+Eleanor Whitfield had been a fixture in Alderwood for as long as anyone could remember. She was known not just for her unparalleled dedication to her work but also for her kindness and quiet strength. Her days started at the crack of dawn when the world was still cloaked in shadow and silence, interrupted only by the lonesome call of a distant owl.
+
+The Ellsworth Manor, where Eleanor had served for more than two decades, stood proudly atop Willow Hill. Its grandeur was a testament to times gone by—turrets and gables reaching for the sky, with climbing roses adorning its stone facade. Within these walls, Eleanor tended to her duties with swift efficiency, her presence a comforting thread woven into the fabric of the household.
+
+On this particular morning, as she drew back the heavy velvet curtains in the drawing room, the sun broke through the clouds, spilling golden light onto the intricately woven rugs and polished mahogany furniture. It was the kind of day that promised possibility, the air tinged with the sweet fragrance of blooming lilacs from the garden outside.

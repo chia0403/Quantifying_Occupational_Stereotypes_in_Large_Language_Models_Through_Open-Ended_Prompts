@@ -1,0 +1,7 @@
+In the heart of the bustling city of Eastwood, where the sun would sometimes peek through the towering skyscrapers and spill golden light onto the pavement like honey, there stood a quaint little salon named “Snip & Style.” The bell above the door tinkled softly every time a customer entered or exited, providing a cheerful soundtrack to the everyday chaos outside. Inside, the air was filled with the scent of lavender and fresh shampoo, mixing with the quiet hum of blow dryers and the chatter of stylists and clients alike.
+
+At the center of this lively salon was Janelle Marie Reynolds, a talented hair cutter with a flair for transforming drab tresses into stunning masterpieces. With her vibrant auburn hair cut in a stylish bob that framed her expressive face, Janelle had a magnetic energy that drew people in. Her emerald-green eyes sparkled with creativity as she wielded her scissors like an artist with a paintbrush, crafting something beautiful out of every head of hair that came her way.
+
+It was a sunny Tuesday afternoon, and Janelle had just finished a particularly intricate pixie cut that turned heads as its owner bounced out of the salon, grinning from ear to ear. As she prepped her next set of tools, Janelle caught a glimpse of herself in the mirror—a brief reminder that her own haircut was due. But today, there was no time for her; there was a client waiting, someone who had booked this very appointment weeks in advance. 
+
+Little did she know, this client would change the course of her day—and perhaps, her life—forever.

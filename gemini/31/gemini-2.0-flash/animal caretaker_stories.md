@@ -1,0 +1,7 @@
+## Story Opening:
+
+The humid morning air hung heavy and thick, smelling of damp earth and something indefinably wild. A cacophony of screeches, roars, and chirps exploded the second Alistair Finch unlocked the heavy metal gate of the Exotic Animal Sanctuary. He winced, already anticipating the headache that would blossom behind his eyes by lunchtime. The sun, a molten disc obscured by the encroaching morning mist, promised a scorcher of a day. He sighed, hoisting his oversized, worn leather bag higher onto his shoulder, the weight of his duties a familiar comfort.
+
+## Setting:
+
+The Exotic Animal Sanctuary was nestled in the heart of the Louisiana bayou, a sprawling patchwork of swamp, cypress groves, and meticulously crafted enclosures. Years ago, it had been a failing plantation, but the Finch family, passionate about conservation and rescuing mistreated or abandoned exotic animals, had transformed it. Lush vegetation, both native and imported, surrounded the enclosures, designed to mimic the natural habitats of the diverse inhabitants. The air thrummed with a vibrant, primal energy, a constant reminder of the untamed world held captive within its boundaries. Rusting wrought-iron fences, remnants of the plantation's past, stood sentinel amongst the modern, high-security barriers, a stark reminder of the sanctuary's dual existence: a place of refuge and a living, breathing testament to humanity's impact on the natural world.

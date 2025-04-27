@@ -1,0 +1,9 @@
+**Title: Grains of Dust**
+
+**Setting:** The relentless sun hung high over the rugged expanse of the Arizona desert, casting long shadows from the towering cacti. Nearby, the earth groaned as massive machines rumbled to life, vibrating with the power of their engines. There had always been magic in the desert for those who cared to look, but it was a magic buried beneath years of grime and toil. Dust danced in the air, shimmering like tiny diamonds in the scorching light, as a fleet of heavy equipment carved out the contours of the land, shaping it for a new chapter.
+
+**Opening:**
+
+Caleb Andrew Montgomery adjusted the brim of his well-worn baseball cap, swiping a hand across his sweat-soaked brow. His broad shoulders heaved with the effort as he maneuvered the joystick of the bulldozer, its diesel engine growling in response. Each push of the earth, every turn of the tracks, was another step in transforming the parched ground into an intricate network of roads and buildings for the new solar farm. The roar of machinery was a familiar symphony, one that accompanied him through sunrise and into the fiery embrace of twilight. Most days, he found contentment in the rhythmic hum of work—the way the vibrations traveled through his body, grounding him amid the chaos life often wrought.
+
+But today was different. There was an undercurrent of anticipation that made the air feel charged, as if the desert itself was holding its breath for something exciting about to unfold. Caleb couldn’t shake the feeling, his intuition honed over years of operating machines that reshaped landscapes. He glanced toward the horizon, where a dust cloud loomed larger than any he had ever seen, the sun refracting off its billowing clouds in hues of orange and gold. Something was coming, and for a moment, he felt as though his heavy equipment had become more than just a tool—perhaps it was the vessel through which destiny would find him once more.

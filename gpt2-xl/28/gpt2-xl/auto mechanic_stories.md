@@ -1,0 +1,7 @@
+Once upon a time, there was a auto mechanic named John who was very successful. When his wife died, he was crushed to death while changing a flat tire. The next morning, a man came in with the body parts of a kid and a baby. No baby, no child, no car that he owned.
+
+Years later, someone was digging near the body and found his wife's head and one of her fingernails.
+
+While searching for the second finger, he found a gold band with "John" and "Gold" on it. He put them right there on the ground for all to see and, for what seemed like eternity, he waited for someone to find them. When nobody did, he picked up one of her fingernails and put it on his wedding band, along with the other one, until he finally found them. He got all excited and got a little too excited that they still weren't found. He then decided to keep them as a reminder that he did not give up his wife, she did not give up her child.
+
+Then, one day, he discovered a little girl's head buried underneath the cement blocks. He was very excited about that and named her Charlotte. For years, he had dreams about her and wished he had a pet with which to keep her company. However, he could not make his pet fit on the concrete blocks either. While holding Charlotte, he was able to watch the little girl's little head

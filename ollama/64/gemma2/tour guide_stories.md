@@ -1,0 +1,5 @@
+The morning mist clung to the cobbled streets like a phantom shroud, swallowing the cheerful chatter of tourists emerging from their hotels.  Amelia Eloise Cartwright, her name as grand as the ancient city she called home, adjusted her tweed jacket and surveyed the scene with practiced eyes. 
+
+Edinburgh at dawn was a canvas painted in shades of grey and lavender, the iconic Scott Monument rising like a sentinel against the bruised sky.  The air, still crisp from the night's chill, carried the faint scent of heather and chimney smoke. Amelia’s tour group, a motley crew of wide-eyed Americans and bemused Europeans, shuffled around her, clutching maps and guidebooks with the fervor of pilgrims on holy ground. She smiled, the familiar warmth spreading through her chest despite the lingering dampness. This was where she belonged, weaving tales of history and folklore amidst these ancient stones, breathing life into the whispers of centuries past.  
+
+Today's adventure: a journey deep into Edinburgh's dark heart, exploring the hidden alleyways and forgotten chambers that held secrets better left undisturbed. 

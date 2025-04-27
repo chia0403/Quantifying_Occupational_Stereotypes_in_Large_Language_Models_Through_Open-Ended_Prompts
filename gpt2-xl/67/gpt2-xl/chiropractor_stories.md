@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named Doctor Chua. There he was, wearing a white coat and blue tie, speaking glowingly of his experience and expertise, about the life-changing benefits of spinal manipulation. There were also a group of people there to witness this wondrous new technique.
+
+The patients were people who suffered from back pain, spinal stiffness, and headaches, and were desperate for relief. The two groups were very happy and supportive of one another — until the chiropractor stepped out. And in the back of everyone's mind was the question: Why he left? What possible purpose could there possibly be for Doctor Chua, a very well-respected practitioner of chiropractic medicine?
+
+For the next 30 years — from 1975 until his death in 2012 — Doctor Chua wrote many op-ed articles, op-ed columns, and even wrote books on the topic of chiropractic. And he seemed to be enjoying himself. Then, in 2010, there was another unfortunate news report about chiropractors: One of them had allegedly sexually abused patients.
+
+There were immediate calls to end the practice of chiropractic altogether in California. In a very short amount of time, chiropractic was outlawed in the state. In what became known as the "Chiropractic Inquisition," one chiropractor, identified as "Dr. Judy," was convicted for 30 counts of sexual misconduct — which is a very heavy sentence, given that sexual

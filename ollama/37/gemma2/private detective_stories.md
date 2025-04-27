@@ -1,0 +1,6 @@
+Rain lashed against the corrugated iron roof of Silas Blackwood's office, each drop sounding like a miniature hammer blow. Inside, the air hung thick with the scent of stale coffee and despair. A single bare bulb cast a sickly yellow light across the cluttered desk piled high with files labeled "unsolved," "gone cold," and "lost causes." 
+
+Silas himself slumped in his worn leather chair, nursing a lukewarm cup of something that may have once been coffee. His name was Silas Bartholomew Blackwood, but everyone simply called him "Blackwood." A craggy face framed by prematurely graying hair stared out at the storm-tossed city through the grimy windowpane. He was a man who had seen too much darkness in his years as a private investigator, and it had etched itself onto every line of his weathered visage. 
+
+
+The flickering neon sign outside advertising "Silas Blackwood: Solutions for Your Problems" seemed to mock him with its misplaced optimism. His problems were mounting faster than he could solve them. He was running out of time, money, and hope.  A raucous clap of thunder rattled the windowpanes just then, jolting Silas from his thoughts. The phone on his desk buzzed. He picked it up, a glimmer of reluctant anticipation in his eyes. Perhaps this one wouldn't be another lost cause.

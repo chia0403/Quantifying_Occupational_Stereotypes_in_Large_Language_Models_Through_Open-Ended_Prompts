@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the dusty streets of Old Town, Azura Elara Vasquez locked up her small nail salon, "Polished Perfection," for the evening. The worn wooden sign creaked in the gentle breeze, bearing the faint scent of lavender and turpentine that wafted out into the night air.
+
+Inside, the fluorescent lights hummed softly as Azura tidied up the cramped space, her eyes scanning the array of bottles and tubes on the shelves, each one containing a secret blend or trick she'd learned over the years. She lived for this kind of work – the gentle clinking of nail files, the soft scrub of cuticle oil, and the whispered conversations that flowed as freely as the tea she served to her clients.
+
+As a manicurist with a passion for art and storytelling, Azura had built a loyal following among the town's eclectic residents. From eccentric shopkeepers to struggling artists, everyone came to her chair for more than just a tidy hand – they came seeking wisdom, comfort, or simply a listening ear.
+
+Tonight, however, the atmosphere felt different. The stars seemed brighter, and the shadows cast by the street lamps grew longer and darker. Azura couldn't shake the feeling that something was about to shift in Old Town, something that would change her life forever.

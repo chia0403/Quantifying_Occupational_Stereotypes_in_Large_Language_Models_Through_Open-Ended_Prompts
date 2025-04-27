@@ -1,0 +1,7 @@
+Once upon a time, there was a writer named Walter Lord. After becoming sick and falling under the influence of a certain character, a character he claimed was a demon, the writer took his own life. Of course, no one believed the writer, to no one's surprise. The story of the death of Walter Lord is told in the book "Eyes Without a Face."
+
+Loki is not the only character in all of mythology with a weird name. The demon, the Kraken (named after the sea witch or kraken, a sea beast), is another figure who has a strange name. The Kraken is the only figure of Norse mythology that actually comes from outside of history.
+
+The Kraken is known throughout the world as the great sea monster of the North, with three heads; one of gold, silver, and bronze. The Kraken is the only creature of Norse religion with a name of rhyme. The Kraken is often depicted as a bull with three heads, one of which is an eye, and is said to have a hundred eyes.
+
+The Kraken comes from the ancient Greek god of the seas, Poseidon, because, as we've already established in the myth of the origin of the title Kraken, the myth is that the Kraken comes from the old Greek Sea goddess, Athena, and the Greek Titan Cronos (or Kronos), who was the son of the Greek god Zeus and the sea goddess Aphrodite. The Kraken is also a representation

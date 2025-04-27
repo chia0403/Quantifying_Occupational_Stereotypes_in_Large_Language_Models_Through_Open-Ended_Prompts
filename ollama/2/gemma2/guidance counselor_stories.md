@@ -1,0 +1,6 @@
+The stale scent of disinfectant clung to the air in Ms. Eleanor Ainsworth's office, a scent she usually found comforting. It meant order, sterility, a chance for a fresh start. But today, even the bleach couldn't mask the underlying aroma of anxiety that permeated the tiny room. The late afternoon sun slanted through the blinds, casting long, wavering shadows across the well-worn linoleum floor and the mismatched collection of armchairs meant to offer comfort. 
+
+Eleanor tapped a pen against her desk, listening to the rhythmic tapping of rain outside. It was the kind of day that made people feel trapped, like the world had shrunk down to the four walls surrounding them.  She glanced at the clock – 4:35 p.m. – and sighed. Just fifteen minutes until Sarah Walker arrived, her usual frantic energy replaced by a chilling stillness that sent shivers down Eleanor's spine.
+
+
+Sarah was a star student, top of her class, captain of the debate team, destined for greatness. But lately, something had shifted. Her once-bright eyes now held a haunted look, and her usually articulate words came out in hesitant whispers. Something was deeply wrong, and Eleanor, despite years of experience navigating the turbulent waters of teenage angst, felt utterly unprepared for this storm. 

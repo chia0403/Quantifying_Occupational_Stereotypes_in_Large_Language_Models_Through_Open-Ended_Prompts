@@ -1,0 +1,9 @@
+## Story Opening & Setting
+
+**Opening:**
+
+The insistent chirp of a mockingbird battled with the rumble of passing trucks on the highway, a cacophony that did little to soothe Dr. Eleanor Abigail Vance's fraying nerves. She pinched the bridge of her nose, the faint scent of lavender from her lotion doing little to alleviate the tension tightening the muscles around her temples. Fifteen minutes. Fifteen minutes until Mark showed up, and Eleanor was no closer to figuring out how to navigate the tightrope he'd strung across her professional ethics. It wasn't just that he was the mayor's son, though that certainly added a layer of unwanted complexity. It was...the *everything* of it. His raw grief, his simmering rage, the unspoken expectations hanging in the air like the humid summer heat. She took a deep breath, adjusted the angle of the sunlight streaming through the blinds, and tried to remind herself that she was there to help, not to judge. Easy to say, harder to do.
+
+**Setting:**
+
+Dr. Eleanor Abigail Vance's office was located on the second floor of a converted Victorian house in the heart of Harmony Creek, a small, idyllic town nestled in the rolling hills of North Carolina. The building, painted a cheerful shade of robin's egg blue with white trim, housed a handful of other therapists and a quiet, unassuming accountant. Eleanor’s space was carefully curated to be both welcoming and professional. Sunlight filtered through lace curtains, illuminating the soft textures of the plush velvet couch and the antique Persian rug underfoot. Bookshelves lined one wall, overflowing with titles on psychology, philosophy, and even a few well-worn novels. A small, bubbling fountain provided a gentle white noise, masking the sounds of the street below. The overall effect was one of peaceful refuge, a stark contrast to the turmoil that often filled the room.

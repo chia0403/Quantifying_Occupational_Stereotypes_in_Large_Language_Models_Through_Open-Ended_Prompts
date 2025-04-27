@@ -1,0 +1,7 @@
+In the heart of Emerson, a quaint coastal town where the scent of saltwater embraced every breeze, stood the venerable St. Abigail's Hospital. Its red-brick facade had weathered decades of storms and sunshine, becoming as much a part of the landscape as the lighthouse that guided boats safely to shore.
+
+The morning sun painted the sky with hues of gold as it peeked over the horizon, ushering in another day of healing and hope within the hospital's hallowed halls. Inside, the rhythmic hum of bustling corridors set the pace for nurses and doctors clad in crisp uniforms.
+
+At the center of this symphony of care was Amelia Clark, a registered nurse whose gentle demeanor and unwavering competence had made her a cornerstone of the hospital's emergency ward. Amelia was known for her calming presence, an anchor amidst the stormy seas of injury and illness that swept through the ER doors each day.
+
+Today, as she tied her chestnut hair back into a neat bun and donned a clean, white uniform, Amelia prepared for another demanding shift. Her eyes sparkled with quiet resolve, a reflection of her passion for helping others—a passion that burned brightly despite the long hours and emotional toll her work often demanded. With a final glance in the mirror, she steeled herself for the day’s challenges, knowing that within the chaos, she would find purpose and moments of profound connection.

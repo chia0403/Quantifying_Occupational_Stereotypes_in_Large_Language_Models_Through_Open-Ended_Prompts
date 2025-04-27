@@ -1,0 +1,11 @@
+Title: **Fading Lights**
+
+Setting: The story unfolds in the vibrant yet gritty streets of New York City during the summer of 2023. The air is thick with humidity, and a haze of heat mingles with the tantalizing aroma of street food vendors. At the heart of the city lies a modest, run-down film studio that hasn’t seen a major production in years. Graffiti-stained walls tell tales of forgotten glories, while flickering neon signs buzz incessantly as if trying to break the silence of neglect. Inside the studio, remnants of past productions litter the floor—discarded scripts, dusty film reels, and faded posters of cult classics.
+
+Opening: 
+
+As the early morning sun peeked through the cracked windows of the studio, casting elongated shadows across the worn wooden floor, **Evelyn Marceau** poured over her notes, her brow furrowed in concentration. A seasoned director known both for her audacious vision and her penchant for exploring the depths of the human experience, Evelyn's once-bright career had dulled to a flickering ember. After years of working on low-budget indie films, she was determined to make her mark once again with a gripping new screenplay that had haunted her dreams.
+
+With coffee in hand and streaks of grease from yesterday’s takeout smudged across her script pages, Evelyn felt the weight of the world press down as she contemplated her next move. The city pulsed outside, a relentless rhythm that both inspired and intimidated her. The familiar sounds of honking taxis and distant sirens mixed with the chatter of hopeful artists, all navigating the labyrinth of their desires. She caught a glimpse of her reflection in a dusty mirror—a woman in her early forties, eyes a mix of determination and weariness, dreaming of lights that once shone brightly now faded to dim.
+
+Today, Evelyn would hold auditions for a leading role that could make or break her latest passion project, a film centered around the bond between strangers and the truths that can shatter them. She could already feel the electric anxiety in the air as she prepared the room filled with mismatched chairs and bright yellow walls, reminders of the vibrancy her career once possessed. This was it—the moment that could reignite her journey in a city where dreams were chased relentlessly, but rarely caught.

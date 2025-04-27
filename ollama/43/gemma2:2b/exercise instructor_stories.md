@@ -1,0 +1,5 @@
+The salty breeze whipped Amelia's chestnut braids around her face as she scanned the bustling beach boardwalk.  Morning sunlight shimmered off the waves crashing against the pier, each cresting foam wave sounding like a whispered promise. This was her playground - not the sterile, air-conditioned gym of her studio back home, but the raw power and resilience of nature itself. It was where Amelia, known to the locals as "Coach Amy" for her infectious energy and ability to turn even the most reluctant exerciser into an athlete, had found her true calling. 
+
+Today's session would be a beach workout, a blend of sand sprints, bodyweight exercises, and oceanside yoga under the wide expanse of blue canvas that was the sky itself. Amelia's heart pounded with anticipation as she saw her clients arriving - each one a reflection of her own eclectic clientele: the retired accountant yearning to reclaim his youthful agility, the single mom striving for newfound strength, and the high-school student who just wanted to fit in. 
+
+"Alright team! Let's get this beach party started!" Amelia grinned, her voice echoing above the excited chatter, "Ready to feel the burn?"   

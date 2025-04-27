@@ -1,0 +1,2 @@
+Dave Winer
+Eric Meyer

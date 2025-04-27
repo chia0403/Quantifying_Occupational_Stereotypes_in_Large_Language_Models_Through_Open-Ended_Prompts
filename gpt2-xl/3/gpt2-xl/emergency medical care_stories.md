@@ -1,0 +1,7 @@
+Once upon a time, there was a emergency medical care named "E.R." that required a doctor's intervention. The problem was that people were actually being treated in the old E.R. at the same time that the E.R. was already there, so the emergency rooms were crowded and in demand. People wanted to leave the E.R. at the same time as they wanted to be treated. Doctors didn't really have the heart to treat the very sick patients, for fear that their very life was in jeopardy. So they just left them to sit in the empty room and hope they'd get better and move on to a better place.
+
+Enter the E.R. It's all very well to talk about giving priority to the old to allow the new to take priority to the sick; but that isn't what happens. The doctor is trying to treat an emergency condition that is just as urgent. The patients wait for the doctors and for the E.R. staff, and then are left waiting to be taken care of.
+
+The New Normal
+
+I think the reason that so many people want to leave the hospital is that the new normal is to use any emergency room as an additional ER unit. For instance, the emergency room at a public hospital has four floors full of people who will just go in and out when "someone" needs to be examined, and the other three floors are all empty. The "medical" staff doesn't want to

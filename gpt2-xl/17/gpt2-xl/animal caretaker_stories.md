@@ -1,0 +1,7 @@
+Once upon a time, there was a animal caretaker named Cesar who worked his way up to a position in a veterinary hospital, where he did great, and eventually passed away. The town wanted to create a memorial statue of Cesar, so a group of vets, all in their 60s, decided to create one, but no one wanted to help. Some retired vets would like to help themselves to Cesar's collection of animals, and some retired vets have never given as much as a cursory look at anything that Cesar left behind. The locals want it to be Cesar, and some locals think it should be a museum, or something like that."
+
+
+Some members of the public have called on the BBC to change the title of Cesar's Zoo, and to change the animals on display. And the Animal and Plant Health Inspection Services in North Carolina's Charlotte-Mecklenburg has responded to the demand with a comment: "The owner or person designated to care for and keep the zoo animals will pay for their care, housing, food, vet care, and for any reasonable expenses associated with maintaining these animals."
+
+
+I'll admit that when Cesar first died, there were a great many members of the public (and even some vets) who felt just a little odd about the fact that an animal caretaker or pet owner is named for him. But Cesar was never "Cesar the Caretaker". He is Cesar the Citizen, he is

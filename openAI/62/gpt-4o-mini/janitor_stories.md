@@ -1,0 +1,11 @@
+**Title: The Forgotten Key**
+
+**Setting:**  
+The story unfolds in the sprawling corridors of Crestwood Manor, an old estate turned museum on the outskirts of a quaint New England town. The mansion, built in the late 1800s, is a riot of faded opulence, with dust motes dancing in the shafts of pale sunlight that filter through the tall, grimy windows. Once a grand home filled with laughter and life, it now stands cloaked in echoes of its past—creaky floorboards, ornate chandelier shadows, and walls adorned with portraits of stern-faced aristocrats who seem to watch with disapproval as time marches on.
+
+**Opening:**  
+As the sun dipped low on the horizon, casting long shadows that twisted through the dimly lit hallways of Crestwood Manor, **Ellison James McBride** pushed his mop across the floor with a rhythm that echoed in the silence. A janitor by necessity, Ellison was a man of few words, his peppered hair telling tales of toil and time. He wore a well-worn uniform—dark trousers frayed at the cuffs and a faded blue shirt that had seen better days. His hands, calloused and scarred, moved deftly as he scoured the once-grand ballroom, now a silent shell decorated with dust and age.
+
+The manor held secrets, and tonight, as the shadows grew deeper, Ellison could feel them pooling in the corners like forgotten dreams. He often caught glimpses of the elegance that had once thrived here; he could almost hear the distant strains of a piano accompanied by silk-clad laughter. But beneath that veneer of nostalgia lay a tension he couldn’t quite put into words—a whisper that tugged at his curiosity.
+
+As he finished polishing the marble floor, a glint caught his eye from beneath an ornate side table, its carvings nearly obscured by layers of dust. Ellison knelt, brushing aside the debris, revealing an old, tarnished key—its metal cool to the touch and laced with intricate designs. He stared at it, a spark of intrigue igniting in his chest. What door could it open? Whose secrets awaited him? And as he slipped the old key into his pocket, the air around him seemed to thrum with possibility, foreshadowing a night that would change everything.

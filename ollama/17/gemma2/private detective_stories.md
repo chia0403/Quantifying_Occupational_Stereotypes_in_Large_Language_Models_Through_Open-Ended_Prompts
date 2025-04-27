@@ -1,0 +1,6 @@
+The rain hammered against the cracked windowpane, each drop like a tiny fist pounding on the faded floral wallpaper.  Inside his cluttered office, Detective Alistair Finch sat hunched over a half-empty bottle of whiskey, his brow furrowed as he traced the lines etched into a worn photograph. The picture showed a woman with fire in her eyes and a smile that could melt glaciers – Eleanor “Ellie” Vance, his missing client.
+
+Finch’s office wasn't exactly what you’d call glamorous. It was a cramped space above a greasy spoon diner in the seedier part of New Orleans, where jazz bled out from every doorway and secrets hung heavy in the humid air.  The smell of stale coffee and despair mingled with the faint aroma of jasmine from the potpourri Ellie had gifted him when she’d hired him two weeks ago. 
+
+
+He'd sworn to her he'd find her husband, a man rumored to be involved in some shady dealings. Now, two weeks later, all Finch had were leads that went cold and a gnawing feeling in his gut that something was terribly wrong. The rain kept drumming against the glass, a relentless reminder of time slipping away. He needed a break, a spark of inspiration, anything to crack this case wide open before it swallowed him whole. 

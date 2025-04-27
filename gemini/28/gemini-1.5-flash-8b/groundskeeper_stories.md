@@ -1,0 +1,5 @@
+The biting November wind whipped Amelia Blackwood's thick, grey-streaked hair across her face as she wrestled with a stubborn patch of overgrown ivy clinging to the stone balustrade of the Grand Manor's south terrace.  Dust motes danced in the pale sunlight filtering through the skeletal branches of the ancient oak trees that framed the sprawling estate.  Amelia, a groundskeeper for the Blackwood family for over thirty years, knew the rhythm of this place, the subtle shift of the seasons, the precise language of the trees and the whispers of the wind.  Today, however, something felt different.  A tremor, almost imperceptible, ran through the air, a sense of unease that clung to the frigid air like frost.
+
+The Grand Manor itself, a towering edifice of grey stone and intricate carvings, loomed over the landscape, its many windows dark and silent.  The property, sprawling across hundreds of acres, was a testament to generations of wealth and power, a legacy steeped in the Blackwood family history that Amelia had intimately known since her childhood.  Inside, whispers of whispers echoed.
+
+

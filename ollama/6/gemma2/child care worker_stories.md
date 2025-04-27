@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Elias Thorne’s head, casting a sterile, yellow glow over the cluttered playroom.  Crayons lay scattered across the floor like fallen soldiers, their once vibrant colours dulled by countless tiny hands. A plastic dinosaur roared forlornly from its perch on a rocking horse, and the remnants of a half-built block tower threatened to topple with every giggle that erupted from the gaggle of children gathered around the puppet theatre. 
+
+Elias, his own laugh lines etched deeper than they should be for someone barely in their thirties, watched the chaos unfold with a mixture of affection and weariness. He’d been working at Sunshine Daycare for five years, longer than he’d imagined possible, but there was something about the messy, unpredictable world of preschoolers that kept him coming back. They were demanding, they were loud, they were constantly covered in some kind of sticky substance, but their boundless energy and unyielding optimism were strangely addictive.  Especially on days like this, where even a simple game of hide-and-seek felt like an epic quest for the lost city of Atlantis. 
+
+
+Elias sighed, pushing his glasses up the bridge of his nose as he surveyed the scene. It was going to be another long day.

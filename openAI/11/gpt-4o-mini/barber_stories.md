@@ -1,0 +1,9 @@
+Title: **The Last Cut**
+
+Setting: The small town of Eldridge, nestled between rolling hills and dense woodlands, is a place where the pace of life moves slowly, and everyone knows everyone else’s business. The air is perfumed with the scent of pine and freshly brewed coffee from the nearby café. In the heart of Eldridge sits a weathered brick building with a faded sign that reads “Riley’s Barbershop,” its red and white striped pole spinning lazily in the afternoon sun. Inside, the shop is a blend of old and new: antique mirrors reflect the vibrant, modern décor, and vintage barber chairs sit juxtaposed against a wall bedecked with photographs capturing decades of style and community.
+
+Opening:
+
+In the heart of Eldridge, where time felt like an afterthought, Riley Donovan stood behind his well-worn barber chair, the hum of clippers buzzing softly around him. With a steady hand and a practiced eye, he shaped the edges of a young boy’s hair, his movements fluid and precise. Sunlight streamed through the large front windows, casting a warm glow over the eclectic collection of combs and scissors arrayed neatly on the counter. To Riley, each snip of the scissors told a story—not just of hair, but of the lives and secrets shared within these sacred walls.
+
+Riley Donovan wasn’t just a barber; he was a keeper of tales. Over the decades, he had watched children grow into men, heard whispered dreams and hushed confessions, and witnessed the ebb and flow of the town’s pulse. They came to him for more than just a haircut; they came for solace, camaraderie, and a sense of belonging. But today, as a cool breeze tousled the leaves outside, Riley felt a weight in the air, an inexplicable shift that hinted at change—a change he could neither cut nor trim away.

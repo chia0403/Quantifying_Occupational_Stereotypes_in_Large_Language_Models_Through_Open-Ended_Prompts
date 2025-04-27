@@ -1,0 +1,7 @@
+Once upon a time, there was a architect named Louis Sullivan, and his work was so unique and impressive (especially considering that Louis, unlike so much other people who had a hand in shaping the New York City skyline, lived in the North Country, not far from Vermont!) that the people of the Northeast loved to celebrate it. But when Louis moved out of New York City and into Burlington, he left the city in his wake — he didn't even bother to leave letters for his employees back in New York. So when Brooklyn's great architect-founder was given the unfortunate task of designing the new Brooklyn Bridge (and the great majority of people who live in Brooklyn still do not know who he was), everyone knew that the city needed the last laugh and he would have to live up to the legacy of his Brooklynian predecessors.
+
+And now Louis Sullivan has answered this call for a grand rebranding of one of the oldest bridges in the New York City borough of Brooklyn (which, by the way, is part of the Tri-State region and not in New York proper).
+
+Louis Sullivan has gone on record saying that he was trying to "re-invigorate Brooklyn" by revitalizing the old Brooklyn Bridge.
+
+The new Brooklyn Bridge will also feature a permanent memorial to Louis, who is also known as Louis Sullivan or Louis C. Sullivan. It may seem odd that a New York citizen and local politician would be a member of the same bridge authority, but it

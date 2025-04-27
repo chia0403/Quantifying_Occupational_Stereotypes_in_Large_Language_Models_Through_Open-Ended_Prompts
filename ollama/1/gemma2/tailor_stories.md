@@ -1,0 +1,5 @@
+The rhythmic clatter of the sewing machine was the only sound breaking the quiet hum of Elara Clementine’s shop on a Tuesday afternoon in late August. Sunlight streamed through the dusty windows, illuminating motes dancing in the air and casting long shadows across bolts of vibrant silks and rough linens piled high on shelves. The scent of lavender sachet hung heavy alongside the earthy musk of leather and wool. 
+
+Elara, her brow furrowed in concentration, expertly maneuvered a needle through layers of crimson velvet, stitching a delicate floral pattern onto a ballgown commission for the Duchess’s daughter.  She hummed softly to herself, a tune as familiar and comforting as the weight of the needle in her hand. Outside, London bustled with its usual chaotic symphony – carriages clattering on cobblestones, hawkers bellowing their wares, children's laughter echoing down narrow alleyways – but within Elara’s shop, time seemed to move at a different pace, measured by the gentle whir of the machine and the soft rustle of fabric. 
+
+

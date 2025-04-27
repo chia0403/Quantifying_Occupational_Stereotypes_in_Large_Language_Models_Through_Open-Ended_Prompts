@@ -1,0 +1,4 @@
+The rain hammered against the windows of "Align Chiropractic," mimicking the insistent rhythm of Dr. Amelia Beaumont's thoughts. Outside, Seattle writhed under a blanket of grey skies and perpetual drizzle, a fitting backdrop for the storm brewing inside her.  It had been six months since her father, the clinic's founder, passed away, leaving Amelia with both the legacy of his practice and the crushing weight of responsibility she hadn't quite known how to handle. 
+
+
+She adjusted the collar of her white coat, wishing it could somehow hold back the tide of worry that threatened to drown her. The waiting room was eerily quiet – a stark contrast to the usual bustle – and the phone lay silent. This wasn't just about keeping the doors open; it was about honoring her father's memory, about upholding the gentle but firm guidance he'd offered his patients. But how could she possibly fill those shoes? 

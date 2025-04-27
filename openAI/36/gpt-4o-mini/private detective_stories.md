@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The rain fell in a steady rhythm, tapping against the window panes of the small office like a persistent melody, winding through the cluttered space and mingling with the old jazz record that crackled softly in the background. The smell of damp paper and stale coffee hung in the air, a familiar smell that had become the backdrop to the life of one Avery Markham. 
+
+In the heart of Rainier City, where shadows lingered just a little too long and alleys whispered secrets of the past, Avery was no stranger to the darker side of human nature. With tousled chestnut hair and piercing blue eyes that seemed to miss nothing, he squinted at the stack of case files before him, the dull light of the desk lamp haloing around his brow like a crown of stress. He was a private detective, but not just any detective—he was the one people turned to when the truth was muddled by lies, and when the world outside felt too unforgiving.
+
+As he pushed a pencil behind his ear and leaned back in his creaky chair, a heavy wooden door swung open—revealing a gust of wind and a sight that would forever change his course. A figure stood silhouetted against the rain, soaked to the bone but exuding a kind of desperation that caught Avery’s interest. Little did he know, the invitation was the beginning of a puzzle as intricate as the city itself, one that would pull him deep into a web of betrayal, buried secrets, and a danger he could never have anticipated.

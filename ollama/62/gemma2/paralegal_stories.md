@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Emilia Reyes' head like a chorus of restless spirits. The air in the office was thick with the scent of stale coffee and simmering stress. Files overflowed from every surface, casting a papery shadow over the worn carpet. Outside, rain lashed against the windows of the fifth-floor office, mimicking the frantic drumming of Emilia's fingers on her keyboard as she frantically searched for a missing contract amendment. 
+
+It was Friday afternoon, and Mr. Davenport, their senior partner, had just called, demanding that she find the document before he left for the weekend. The problem was, Emilia hadn't even received the original contract, let alone an amendment.  With every passing minute, the weight of her impending failure pressed down on her like a physical burden.
+
+
+Her cubicle, a cramped space partitioned by dusty blue curtains, offered little refuge from the chaos. A single potted fern, its leaves drooping with neglect, seemed to mirror her own state of exhaustion. She rubbed her tired eyes, willing herself to focus. This wasn't just about Mr. Davenport’s temper; this was about her reputation. As a paralegal at one of the city's most prestigious law firms, she couldn't afford to be caught unprepared.

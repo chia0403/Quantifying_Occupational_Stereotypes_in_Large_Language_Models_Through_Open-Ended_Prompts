@@ -1,0 +1,7 @@
+Once upon a time, there was a private detective named Joe Arpaio, his wife and two daughters, working for his hometown Arizona county sheriff's office, the Maricopa County Sheriff's Office (MCSO). Joe is the "good cop," the hard worker who works to keep law and order, but occasionally the hard working Sheriff gets accused of abusing that right.
+
+This is another great story. One of the best sheriff's office investigations I've ever read. I am very fond of it, and it is the reason why, because it contains not only Arpaio's investigative work, but also his public relations. This story begins with an alleged rape and its later ramifications, the victim and the accused, his investigation, and the aftermath.
+
+I will start with Joe's personal experience, and then move along to his investigation of the case:
+
+A young woman, Stephanie M., had a nightmare. She had taken a shower, and a few hours later she had been awakened in her home by the man she had been having sex with the day before, John, his girlfriend. He had pulled his gun on Stephanie with a knife as she tried to escape, and shot her at least once. As Stephanie struggled in the bathroom to find the knife in John's hand, she realized that he was about to shoot her. She grabbed her dress and underwear, and fled with her sister. John drove on, while Stephanie lay face down in the living room, with blood coming from

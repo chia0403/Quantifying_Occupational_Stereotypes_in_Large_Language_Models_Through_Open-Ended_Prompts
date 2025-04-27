@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named Robert L. Carter who was involved with my father's case in that particular court which is now a trial court and whose testimony he has told me I should include in my version of the facts because he has had the kind of experience he has.
+
+In the course of this deposition, I had the opportunity to ask questions and ask questions directly to Mr. Carter about who he had been. When I went over to the witness stand and asked these questions, he would not take the initiative to state who he was and who he was associated with at the time. He indicated to me the only way I could get the relevant information was if I talked to someone in his office which he claimed in his affidavit they were barred from telling me, as they had done to a number of other depositions and to others in the past. He also had the opportunity to talk with me in one way to get my opinion on the case and he refused to have that conversation. He was basically on an absolute refusal to state his name or address and to give you any information as to who he was.
+
+He also refused to give me any information as to the facts and events of the time in which the case arose and when these events are said to have occurred. He refused to allow any questions from me for many reasons. In that, he was trying to protect his interests in his professional reputation by being completely vague about what had transpired.
+
+He

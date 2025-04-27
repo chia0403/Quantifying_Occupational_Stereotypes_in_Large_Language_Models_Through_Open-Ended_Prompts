@@ -1,0 +1,9 @@
+**Title: The Last Call**
+
+**Setting: The Rusty Anchor, a cozy yet slightly rundown bar nestled along the misty coastline of Whittier Bay. The walls are adorned with weathered fishing nets and photographs of sailors from years past. The bar top is polished mahogany, reflecting the amber glow of dim hanging lights. The salty air seeps in through the open windows, mingling with the scent of spilled whiskey and sea breeze, inviting the regulars and the occasional traveler alike to settle in and share their stories.**
+
+**Opening:**
+
+As the sun dipped below the horizon, casting hues of orange and purple across the sky, the Rusty Anchor stirred to life. Shadows danced in the fading light as the first patrons trickled in, clamoring for warmth and comfort from the chill outside. At the bar, wiping down the polished surface was 28-year-old Margaret Ellen Brantley, known simply as Maggie. With a fiery mane of auburn hair tied back into a messy bun and a smattering of freckles dusting her sun-kissed cheeks, Maggie held the kind of presence that made people feel instantly at home.
+
+She deftly maneuvered behind the bar, her movements fluid and practiced. The wooden shelves behind her sagged under the weight of an assortment of liquors, each bottle holding a story of its own. Outside, seafoam lapped against the pier, and the distant sound of gulls echoed in the twilight. For Maggie, the bar was more than just a place to work; it was an anchor in her tumultuous life—a place where she could drown out the noise of her own thoughts and connect with the world, one drink at a time. Little did she know that tonight would bring more than just the usual crowd and banter; it would bring a storm—one that was poised to unravel the secrets she had kept buried deep within her.

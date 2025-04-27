@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The insistent chirp of the office telephone ripped Amelia Beatrice Pennyfeather from her reverie. Another Tuesday, another mountain of receipts, and now, likely, another demanding client with a penchant for misplacing vital documents. Amelia sighed, a small, papery sound that barely registered in the otherwise silent accounting firm of "Sterling & Bloom." She’d been staring out the window, tracing the patterns of condensation on the glass with a fingertip, dreaming of sun-drenched beaches and novels where numbers never dared intrude. But the insistent chirp persisted, a digital drill boring into her skull, pulling her back to the stark reality of spreadsheet cells and overdue VAT returns. "Pennyfeather," she answered, her voice a little sharper than she intended, "Sterling & Bloom, how may I help you?"
+
+**Setting:**
+
+The setting is a small, somewhat faded, accounting firm called "Sterling & Bloom" located in the historic district of a coastal town named Port Blossom, Maine. The firm is housed in a three-story brick building with peeling paint and ivy climbing up the walls. Inside, the office is a warren of cramped cubicles filled with the comforting chaos of paperwork, filing cabinets overflowing with folders, and the constant hum of adding machines. Sunlight, when it dares to pierce the perpetually overcast sky, filters weakly through dust-laden windows, illuminating motes dancing in the air. Amelia's cubicle, tucked away in a corner, is her sanctuary. It is marginally tidier than the others, with a small framed photograph of her beloved tabby cat, Mr. Whiskers, perched on her monitor and a perpetually wilting peace lily on her desk. The air is thick with the scent of aged paper, stale coffee, and the faintest hint of salt from the nearby ocean.

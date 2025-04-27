@@ -1,0 +1,5 @@
+The desert wind whipped sand into Amelia "Em" Reyes's eyes, stinging them like miniature needles. The sun, a malevolent orb in the endless blue sky, hammered down on her worn canvas hat.  Her hands, toughened by years of gripping steel and hauling earth, clutched the steering wheel of her monstrous Caterpillar 797 dump truck. Amelia surveyed the vast, desolate landscape. It was like breathing another planet, each horizon a blur of ochre and rust-colored rock formations that stretched as far as her eyes could see.  
+
+It had been years since she'd last seen anything resembling green. Now, she only saw dust and concrete, a testament to humanity’s insatiable appetite for progress. Her job was the only constant in this ever-shifting world; every day she hauled dirt, moved boulders, carved away at the earth with her trusty beast of steel. 
+
+Today, however, something felt different. A knot tightened in her stomach. The usual mechanical hum of the engine seemed louder than usual, and the air itself vibrated with an almost tangible unease. Her gut told her that this time, it wasn't just another job - something significant was at stake.

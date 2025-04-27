@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Story Opening:**
+
+The roar of the crowd was a physical thing, a hot, humid wave that crashed over Amelia Isabelle Rossi as she stepped onto the stage. It was deafening, exhilarating, and utterly terrifying, all at once.  She could feel the vibration through the soles of her vintage, cherry-red Dr. Martens, the drums resonating directly into her bones.  Just hours ago, she'd been struggling to tune her battered acoustic guitar in a dimly lit rehearsal room, the scent of stale coffee and desperation thick in the air. Now, bathed in the blinding light of the spotlight, she was Amelia Rossi, the voice of a generation, or at least, that's what the posters plastered all over the city claimed.  Her throat constricted. Tonight wasn't just another gig. Tonight was the night.
+
+**Setting:**
+
+The story opens at the **Neon Phoenix Music Festival** in present-day **Tokyo, Japan**. The festival is a sprawling, three-day event held in the reclaimed industrial district of **Odaiba**. The stage Amelia is about to perform on, the **Crimson Stage**, is an enormous, futuristic structure built from steel and illuminated by pulsating neon lights. The background is a panoramic view of Tokyo's skyline, a glittering tapestry of skyscrapers and neon signs that blurs into the hazy, polluted night sky. Around the stage, food stalls hawk steaming bowls of ramen and yakitori skewers, mingling their smells with the sweet, artificial scent of cherry blossom-flavored candy. The crowd is a vibrant mix of ethnicities and styles, a sea of faces illuminated by the glow of smartphones and glow sticks, all unified by their anticipation and love of music.  The air is thick with the energy of thousands of people, the relentless beat of the bass vibrating through the concrete and into the very soul of the city.

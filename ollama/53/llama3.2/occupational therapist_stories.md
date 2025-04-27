@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded beyond the horizon, casting a warm orange glow over the small town of Willow Creek, occupational therapist Dr. Maya Rose Jensen made her way to the local children's hospital, her worn sneakers scuffling against the pavement. The smell of freshly brewed coffee wafted from the café on Main Street, enticing her as she walked towards the entrance.
+
+Maya, a 32-year-old native of Willow Creek, had always been drawn to helping others, and her career as an occupational therapist had brought her full circle back to her hometown. She worked with children who had been injured in accidents or were dealing with chronic illnesses, using play-based interventions to help them develop the skills they needed to thrive.
+
+As she stepped into the hospital's lobby, Maya was greeted by the familiar hum of beeping machines and the soft murmur of conversations between families and medical staff. She took a deep breath, savoring the mix of anxiety and anticipation that always accompanied her first visit with a new patient. Little did she know, today would be no exception.
+
+With a warm smile, Maya made her way to the pediatric ward, where she was scheduled to meet her new client, 7-year-old Max Thompson, who had been admitted with a mysterious injury that left him unable to walk or engage in his favorite activities. As she approached the room number assigned for their session, Maya's heart began to beat just a little bit faster – and she couldn't help but wonder what challenges lay ahead.

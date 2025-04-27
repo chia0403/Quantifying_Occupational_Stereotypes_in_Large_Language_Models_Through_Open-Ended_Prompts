@@ -1,0 +1,5 @@
+Rain lashed against the attic windowpane, blurring the old Victorian silhouette of the house outside. Inside, Amelia "Amy" Hawthorne ran a damp hand over her laptop screen, cursing under her breath as she stared at the blank document.  The words, usually flowing like ink on parchment, refused to appear. 
+
+**Setting:** A ramshackle, dusty attic apartment in a decaying Victorian mansion overlooking a forgotten part of Chicago. The air was thick with the scent of old paper and damp wood. Cobwebs draped over rusted gears from long-forgotten clocks, casting eerie shadows across the room.  The only source of light came from the battered desk lamp illuminating Amy's face – a pale reflection of her own tired eyes. 
+
+**Main Character:** Amelia "Amy" Hawthorne – A talented writer stuck in a rut. Once brimming with inspiration, she now wrestled with writer's block, unable to move past her half-written novel about a woman navigating the tumultuous waters of post-war America.  She yearned for something more, something to break free from the mundane and ignite her imagination once again. 

@@ -1,0 +1,9 @@
+Title: Shadows of the Drafting Table
+
+In the sprawling city of Verenthia, where the skyline was a jagged silhouette against the twilight sky, the hum of machinery filled the air like a distant symphony. Among the rows of drafting tables in the cavernous Prowess Architecture Studio, assistant draftsman Nathaniel James Hawthorne meticulously measured and sketched the intricate details of a new high-rise building. The scent of graphite and ink mingled with the faint aroma of coffee, creating a comforting backdrop to his late-night labors.
+
+It was early autumn, and the sun had dipped below the horizon, leaving only the faint glow of blueprints illuminated by the soft, flickering fluorescent lights above. Greasy sketches of towering edifices blanketed the tables around him, while lines and curves danced across the pages like a puzzle waiting to be solved.
+
+Nathaniel, known to his colleagues as “Nate,” was a meticulous worker with tousled chestnut hair and an ever-present pencil tucked behind his ear. Over the past few months, he had locked himself in the rhythm of work, drowning away memories of a life once filled with laughter and love. The humming air conditioning billowed against him, a gentle reminder of the world outside that he often tried to forget.
+
+As he leaned over a particularly complex design—a sustainable living space layered with greenery—he felt the weight of the city pressing against him. Each stroke of his pencil seemed to echo his dreams and frustrations, yet inside him a flicker of hope remained alive, urging him towards a future that felt both tantalizingly close and painfully out of reach. Little did he know, the secrets hidden within those blueprints would soon weave an unexpected tale, altering the course of his life forever.

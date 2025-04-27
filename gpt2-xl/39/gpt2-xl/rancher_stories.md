@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named John Wayne who thought he could use the money in front of him to buy some cattle. A bunch of his friends came over to his house and suggested that he also buy chickens from John's chickens. In his mind, he made it into a transaction and bought some chickens and he said he'd also buy a chicken. So, the money in front of him came from selling the chicken he had bought and he bought some more chicken and then John bought some more chickens. Then, he asked him to buy more chickens and John bought all these chickens. It was a long, long time. They bought chickens for a long time.
+
+
+And John told the rest of his friends and they said, we love John. We want that money. Please buy all our chickens. We need all of John's chickens.
+
+
+And they bought their chickens, too. But they had to let the chickens go because John's chicken was going to give birth. This little girl came and John said, it's going to be her first child. So she had to go go to a chicken farmer. We don't live anywhere rich, so the chicken farmer sent her to another farmer. Her baby was born but it didn't have a name, which means the owner, John's chicken, didn't have to name the baby. So the other chicken farmer said, that's alright, let's name it. So she named it Chicken Olly.

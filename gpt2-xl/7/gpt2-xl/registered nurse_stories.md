@@ -1,0 +1,6 @@
+Once upon a time, there was a registered nurse named Mrs. E.T. D'Arcy who, due to some sort of freak accident, lost all of her skin in a brutal car crash that left her partially blind and with no arms and no legs. She had been married and still loved her husband, but when the accident happened in 1981, she had to move out, since that was when her husband was getting married and he could no longer accept her inability to continue caring for him.
+
+Well, her husband's new wife was named Mrs. E.T. D'Arcy who had not lost her sight but, as the doctor says, had lost all her skin. They'd been married for seven years when the accident took place, but two weeks before, Mrs. D'Arcy and the new Mrs. D'Arcy went for a drive together, and in an unfortunate mistake, Mrs. D'Arcy struck Mrs. D'Arcy's new wife on the head, and that's why she's blind now.
+
+
+The D'Arcy's are living a happy little life that's easy on the eyes. As far as they are concerned, they've not had the best of lives, but a good one at that. Mrs. E.T. D'Arcy is a nurse and still takes care of her husband, but while he spends his days at the nursing home, they have more time together. Mrs. E

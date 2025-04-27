@@ -1,0 +1,7 @@
+As the first light of dawn crept over the sleepy town of Willow Creek, Emilia Rose Thompson stepped out into the crisp morning air, her eyes scanning the quaint streets lined with ancient oak trees and faded Victorian homes. The streets were quiet, save for the distant chirping of birds and the soft hum of the local diner's neon sign.
+
+Emilia, a petite woman in her mid-twenties with curly brown hair and a warm smile, had been the housekeeper at the grand Oakwood Manor for three years. She took pride in her work, meticulously tidying every nook and cranny, polishing silverware until it shone, and preparing elaborate breakfasts that would make even the most discerning guest swoon.
+
+As she unlocked the manor's front door and stepped inside, a faint scent of decay wafted out from the musty hallway. Emilia wrinkled her nose in distaste, knowing that Mrs. Jenkins, the reclusive mistress of Oakwood Manor, had been battling illness for months. Despite the whispers among the townspeople about the mysterious illness, Emilia was sworn to secrecy, bound by a promise to keep the manor and its occupants safe.
+
+With a deep breath, Emilia began her daily routine, carefully avoiding the strange, flickering lights that seemed to dance in the hallways at night. Tonight would be no different – she had been tasked with preparing a special breakfast for Mrs. Jenkins, one that would help ease the woman's growing unease and frailty. Little did Emilia know, however, that tonight would bring more than just the usual household chores...

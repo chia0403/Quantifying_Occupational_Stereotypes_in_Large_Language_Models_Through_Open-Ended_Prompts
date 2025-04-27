@@ -1,0 +1,5 @@
+The smoky air hung heavy in The Blue Moon Saloon, clinging to Elara Nightingale's sequined dress like a second skin.  Her fingers nervously tapped out a rhythm against the worn mahogany bar top as she surveyed the dimly lit room. A haze of cigarette smoke swirled around a handful of patrons hunched over their drinks, barely registering her presence. It was Tuesday night at The Blue Moon – prime time for washed-up cowboys and disillusioned dreamers, neither of whom cared much for an up-and-coming songbird like Elara. 
+
+She had been playing these gigs for months now, hoping to catch the ear of someone, anyone, who might believe in her talent. But tonight felt different.  A prickle of anticipation danced along her spine, fueled by a whispered rumour she'd heard earlier: a scout from Nashville was supposedly in the house, looking for fresh faces. Elara took a deep breath, tasting the bittersweet tang of whiskey and regret on her tongue. This could be her chance, but first, she had to face the crowd, their indifference a silent judge waiting to pronounce her success or failure.  
+
+

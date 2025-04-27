@@ -1,0 +1,5 @@
+The morning mist clung to the cobbled streets like clinging cobwebs as Elara Thorne stitched.  Her nimble fingers danced over a spool of crimson silk, her focus unwavering even as the aroma of fresh bread from the bakery across the street mingled with the tang of sea salt and the faint whiff of lavender wafting from the apothecary next door. Elara was known throughout Aethelgard as "The Whisperer," not for any magical talent, but for the way she could make cloth sing. 
+
+Her shop, "Whisper Threads," was tucked away on a forgotten corner of The Market Square, its worn wooden facade barely visible beneath layers of creeping ivy and the ever-present grime of the city's heart.  Within its walls, Elara transformed simple cotton into gowns fit for queens, shirts strong enough to carry a blacksmith's hammer, and tapestries that echoed with the stories whispered by generations past. 
+
+Today, however, she worked on a commission unlike any other: an emerald silk cloak for Lord Alderon, heir apparent to the royal family and rumored to possess a spirit as untamed as his ambitions. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a artist named David Byrne who got famous for being a fan of the New Wave of British Heavy Metal bands. One day, he got together with a guitar tech named Geoff Barrow and he recorded some demos. They released The Belly of the Beast. And the music was awesome. And people started to buy it. But eventually, Byrne and Barrow had a falling-out with the owner of the record company they were recording for. In fact, the owner of that label got fed up with the whole record company/artist thing and told Barrow to shut up and quit it. But he persisted, and went on tour with the album and got good reviews, and then the record company, afraid that his career was not going to be on a better track, went after him and bought the record company and became a major label. And then The Belly of the Beast sold, and they tried to make money off of its success, and made some horrible mistakes."
+
+"I hate the whole thing," says a man in the audience, "I'm going to go and see your band. The Belly of the Beast is a great album."
+
+"Well," says Byrne. "If you don't like it, you can buy the record for thirty-five quid—"
+
+"For thirty dollars, of course," says the man. "Oh, fuck the record label!" With that, the man turns to leave. "

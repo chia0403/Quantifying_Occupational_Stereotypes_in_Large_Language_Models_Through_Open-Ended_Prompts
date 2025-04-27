@@ -1,0 +1,9 @@
+In the heart of the sleepy coastal town of Windmere, where the salty sea breeze tangled with the scent of blooming jasmine, stood the grand yet weathered estate known as Elmsworth Manor. Its façade, a blend of crumbling stone and lush ivy, spoke of years gone by—of laughter, lavish gatherings under the sprawling oaks, and a family whose name had faded into local legend.
+
+As dawn broke over the horizon, casting a golden glow through the gnarled branches, a solitary figure moved purposefully through the tall grass surrounding the manor. This was Madeline Clara Thompson, the steadfast housekeeper who had dedicated her life to the upkeep of Elmsworth. With her curly chestnut hair pulled back into a practical bun and a dark blue apron fastened securely over her simple dress, she embodied a sense of resilience that matched the house itself.
+
+Madeline's early morning routine was punctuated by the soft sound of waves lapping at the shore and the distant call of seagulls. She had started working at Elmsworth Manor as a girl of just sixteen, drawn to its storied walls and the promise of a life filled with warmth and purpose. Now, at thirty, she knew every creak of the floorboards and every shadow that flickered in the corners of the great hall. Yet, she sensed that beneath the surface of her predictable days, the manor held secrets—whispers of the past waiting to be unearthed. 
+
+As she stepped onto the worn threshold, a gust of wind flung a loose window open, chilling the air. Madeline paused, the hairs on the back of her neck prickling, as if the manor itself were beckoning her deeper into its mysteries. Today, she promised herself, she would explore the rooms she had seldom entered, those usually locked behind dust and time.
+
+Unbeknownst to her, the day ahead would unravel threads long kept hidden, and Madeline would find herself at the heart of an unfolding story that would change not only the fate of Elmsworth Manor but her own as well.

@@ -1,0 +1,7 @@
+Once upon a time, there was a veterinarian named Dr. Bambi Moo that was a brilliant scientist. She came up with several ways to create a dog that could fly (which would've been pretty cool). She tried the experiments but was unsuccessful. She then tried to create a dog that could fly by flying through a door. It failed as well. So, she tried again using an energy field (or as she said, an antimatter field). The dog was able to fly through this and so she called it an Electrondog. This dog was so good that it was able to kill a monster, which was an awesome feat. It was the best dog ever!
+
+Fast forward to about 20 years later, Dr. Bambi had been retired. She went home, drank the last bit of her alcohol, took out all the antifreeze, used her space vacuum cleaner and started doing some research on flying and particles. What she found was a lot on this very topic. She did some more experiments and was even able to create a large ball of plasma. This ball of plasma moved around and kept the Antibodydog alive.
+
+Dr. Moo, who lived to be 97, was well respected by all her colleagues. Everyone took her and her Dog (and space vacuum cleaner) seriously! And so, after her death, people began claiming that it was her doing that it had all these amazing abilities.
+
+Now, I'm

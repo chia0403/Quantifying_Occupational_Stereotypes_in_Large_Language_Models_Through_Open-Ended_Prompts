@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named Dr. Frank. (I'm paraphrasing here.) He used to hang out in the shop and talk to his clients about various things, like how to clean a dentist's hands, and where to find food. When I told Dr. Frank about the time I met the man sitting behind my cubicle at work, he was horrified and immediately ran to the nearest phone to make sure nothing had happened to him, much like Dr. Frank ran to the nearest phone to make sure something hadn't caught on fire behind his shop window.
+
+When I moved into the dentist's office a few weeks ago, I was struck by how unpretentious the building was. I saw a TV news report about a fire that broke out in a dentist's office, and it struck me as odd that in the middle of what is, by western standards, an expensive part of the world, this small town had nothing but television to watch. After seeing a photo of the building, I realized I wanted to be just a little bit less ordinary as a dentist.
+
+After a few hours digging around the internet, I found the "Dental" in Dentistry, and I decided that might be just the place I wanted to be.
+
+I had just started training, and the dentist told us that if we wanted to get in, we'd have to make a "good impression." I'd seen some photos, so

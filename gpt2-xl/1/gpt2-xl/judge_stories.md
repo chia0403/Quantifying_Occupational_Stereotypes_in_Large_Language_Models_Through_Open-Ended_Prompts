@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named Edward D. Ayer.
+
+On February 29, 1903, Ayer presided over a two-week trial in a New York Supreme Court courtroom in which accused rapist Alonzo Williams had his conviction overturned. As an official at the time, Ayer was in the courtroom, where the case began. He was appointed by Chief Justice Henry White to take testimony and examine documents. He found a key witness, Henry E. Batson, guilty. Batson admitted in his testimony to raping Williams on April 24, 1903. He told the court and the jury that he had planned to kill Williams.
+
+It was later revealed that Batson had been taking the pills called chloral hydrate for four years. The jury believed Ayer's instructions without question, and Ayer presided over his trial. The first-degree rape charge against Williams was dismissed.
+
+The court held that while the victim was consenting to sex, the defendant, as a law enforcement officer, had no business doing so. Ayer's ruling also changed the legal definition of rape and sexual assault for the entire state. The only way a woman could sue a law enforcement officer under a statute that defined rape as an act of force, or attempted force, upon consent was if a victim reported the crime within a certain time. By removing the time limit, this decision created a situation where police officers were able to rape any woman at any time, regardless of that

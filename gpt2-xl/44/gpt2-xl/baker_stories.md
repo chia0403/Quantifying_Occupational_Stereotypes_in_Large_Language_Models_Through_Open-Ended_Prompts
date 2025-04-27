@@ -1,0 +1,5 @@
+Once upon a time, there was a baker named Bob Loeb, whose bakery was always packed, even for the days when the sun shines, the sky is blue, and the season is summer. The owner would always say that it takes ten minutes to get a box. And ten minutes was good. He kept the price low and because he made a lot of good bread, it always got great ratings from the customers.
+
+After a while, someone asked him what he would do if he had a hundred time machines. Loeb said, "I would get an additional bakery in downtown Boston and add a few new flavors. Then, after six months, I would be the most successful independent baker in the region!" It was only after the bakery had made over ten million a year that he would have bought a machine for more than just the money.
+
+Bob Loeb would have been a hero to all of Boston in the 1950s. But the machines never came. After a long fight with the state of Massachusetts, Loeb closed up shop. I hope to see him one day around the corner from here.

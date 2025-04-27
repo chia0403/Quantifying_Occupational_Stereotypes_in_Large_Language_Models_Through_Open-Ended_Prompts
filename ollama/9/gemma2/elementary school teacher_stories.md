@@ -1,0 +1,6 @@
+The smell of crayon wax and stale pizza hung heavy in the air, a familiar scent to Miss Amelia Beatrice Everly that somehow managed to be both comforting and nauseating all at once. Her third-grade classroom at Willow Creek Elementary was a whirlwind of activity: tiny hands struggled with glue sticks, rainbow construction paper lay strewn across desks like confetti, and the constant chatter of eight-year-olds filled her ears like a chorus of chirping birds.  
+
+Amelia surveyed the scene with a weary smile. It was Tuesday, which meant "Crazy Hat Day," and her classroom had outdone itself. A pirate hat adorned with plastic parrots sat atop a young boy named Timmy's head, while a girl named Lily sported a crown fashioned from paper plates and glitter. Amelia herself wore a bright pink beanie covered in felt flowers, a gift from her niece that she’d stubbornly refused to remove. 
+
+
+Despite the chaos, Amelia loved this time of day. This messy, vibrant world of imagination and discovery was what fueled her passion for teaching.  It wasn't always easy - some days, like today, were pure sensory overload - but seeing the spark in a child's eye when they finally understood a concept or hearing their laughter echo through the room made it all worthwhile. 

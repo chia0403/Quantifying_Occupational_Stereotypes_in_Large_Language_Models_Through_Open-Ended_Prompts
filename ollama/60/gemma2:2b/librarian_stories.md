@@ -1,0 +1,5 @@
+The air in the Grand Blackwood Library hung thick with the scent of old paper and aged leather.  Dust motes danced in the shafts of pale sunlight filtering through the stained glass windows, illuminating the sprawling shelves that reached for the high vaulted ceiling. Amelia "Amy" Thorne, her silver hair pulled back into a neat bun, surveyed her domain with a quiet smile. For twenty years she’d been at the heart of this labyrinthine institution, a custodian of stories, a keeper of knowledge, and a silent guardian of forgotten dreams.  
+
+Tonight, however, a new story was brewing. The usual hushed tranquility was shattered by a boisterous knock on the door. A flustered young woman with wild, auburn hair and eyes that glittered like sapphires stood in the doorway. Her voice, barely above a whisper, pleaded for help, "I need to find the… the…"  The words trailed off as she glanced over Amy’s shoulder at the mountain of books behind them.
+
+"Find what?" Amy asked, her voice calm and measured. She always felt a thrill in the beginning of a new tale - the spark of possibility, the promise of discovery. "Tell me, dearie, what brings you to my corner of the world?" 

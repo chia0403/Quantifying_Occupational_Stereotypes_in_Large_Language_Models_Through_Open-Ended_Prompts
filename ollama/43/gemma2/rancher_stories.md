@@ -1,0 +1,6 @@
+The sun was already high in the sky, casting long shadows from the gnarled juniper trees across Jebediah “Jeb” Clayton’s weathered face. A bead of sweat trickled down his temple as he wrestled with the stubborn gate latch, the rusty metal protesting with every twist. The dusty air hung heavy with the scent of sagebrush and manure, a familiar aroma that clung to Jeb like a second skin. His ranch, Clayton's Crest, sprawled across the arid expanse of the Arizona desert, a patchwork of parched land and meager green patches where stubborn mesquite trees stubbornly clung to life. 
+
+Jeb squinted at the horizon, his gaze fixed on the distant silhouette of the Superstition Mountains, their rugged peaks shrouded in mist. They loomed over his property like watchful guardians, silent witnesses to generations of Clayton's who had wrestled with this unforgiving land.  He knew every inch of it, from the hidden springs that fed the meager creek to the treacherous washes that threatened to swallow a careless rider whole. 
+
+
+His life was simple: tending to his cattle, mending fences, battling droughts, and facing the relentless heat of the desert sun. It wasn't an easy life, but it was all Jeb knew. He was a creature of the land, bound to its rhythm as surely as the sunrise. But lately, a disquiet had settled over him, a feeling that something was about to change.  

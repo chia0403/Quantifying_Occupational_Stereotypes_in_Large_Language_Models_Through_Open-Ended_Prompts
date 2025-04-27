@@ -1,0 +1,7 @@
+##  Opening & Setting:
+
+The sprawling Victorian estate of Blackwood Manor was alive with whispers, mostly carried on the relentless breeze that whistled through the ancient oaks lining its grounds. It wasn't just the wind; it was the air itself, thick with secrets and long-forgotten memories. A chill clung to everything - from the crumbling stonework to the damp earth beneath Elara Thorne's calloused boots as she surveyed her domain: a sprawling labyrinth of meticulously manicured lawns and overgrown borders. 
+
+Elara, known affectionately as 'Ellie' by the local villagers, wasn't just the groundskeeper at Blackwood Manor; she was its silent guardian, keeping the estate grounded, literally and figuratively. For years, she had tended to its unruly vegetation, a haven of tangled vines, whispering willow trees, and overgrown flowerbeds that housed secrets hidden beneath their verdant facades. But these days, even Ellie's quiet routine felt shaken, as if Blackwood Manor itself was teetering on the edge of something bigger - something ominous and undeniable.
+
+The manor, with its darkened windows and peeling paint, loomed like a forgotten memory against the twilight sky. The ancient oak that served as the manor's centerpiece creaked in the wind, each groan echoing like an unquiet spirit trapped within its thick bark. Ellie's eyes narrowed as she noticed a flicker of movement within the shadows. 

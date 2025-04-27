@@ -1,0 +1,6 @@
+The air hung heavy with diesel fumes and anticipation. A chorus of truckers' engines grumbled like a herd of mechanical dinosaurs as they queued for the weigh station on Highway 87, just outside Amarillo, Texas. Among them sat Jackson "Jack" Clayton, his worn leather cap pulled low over his brow, squinting against the midday sun that beat down mercilessly on the rusted chrome of his rig.  His 1987 Kenworth W900, affectionately nicknamed "Betsy," was a testament to years of hard miles and countless cross-country hauls. The faded paint job sported more dents than a golf course, each telling a silent story of Jack's time on the open road. His calloused hands gripped the steering wheel, his mind already racing ahead to the next stop: Albuquerque, New Mexico – another leg in his never-ending journey across the desolate heartland.  He flicked on the CB radio, static crackling through the speaker before a gruff voice broke through the noise. 
+
+"Breaker one nine, this is Big Tex. Anyone got any good eats around Amarillo? This trucker's stomach's grumbling louder than a freight train."
+
+
+Jack chuckled, tapping his fingers against the steering wheel in anticipation of the next leg of his journey. He had no idea that this seemingly ordinary haul would soon lead him down a dark and unexpected path. 

@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Dr. Eleanor Beaumont's head like a chorus of anxious bees. It was a Wednesday afternoon, which meant meetings, paperwork, and navigating the labyrinthine corridors of Willow Creek High School with its ever-shifting tides of teenage drama. Eleanor sighed, running a hand through her carefully styled auburn hair. Her office door was slightly ajar, a beacon of normalcy in a sea of adolescent angst.  
+
+Outside, the autumn air was crisp, tinged with the scent of fallen leaves and impending rain. The schoolyard, usually buzzing with activity after lunch, was eerily quiet, save for the rhythmic drumming of raindrops against the windowpane. This unusual stillness made Eleanor's stomach clench. Something felt off. 
+
+
+Willow Creek High, nestled in a sprawling suburb of Chicago, had a reputation for being anything but ordinary. Beneath its veneer of normalcy lurked a complex web of social hierarchies, academic pressures, and simmering anxieties that often spilled over into the realm of the bizarre. Eleanor had witnessed it all – from petty rivalries to full-blown breakdowns – during her five years at the school. But today, there was an undercurrent of something darker, something she couldn't quite place.  

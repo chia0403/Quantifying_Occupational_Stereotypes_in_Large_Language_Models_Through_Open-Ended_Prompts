@@ -1,0 +1,5 @@
+The humid Miami air clung to Amelia Rose Dubois like a second skin as she dashed across the bustling street. Her stethoscope bounced against her chest, keeping time with the frantic beat of her heart. Sirens wailed in the distance, their mournful cries a familiar soundtrack to Amelia's life as an EMT for Miami Fire Rescue. 
+
+Amelia skidded to a halt outside a dingy food truck, its vibrant paint job now smeared with what looked like blood.  A crowd had gathered, murmuring and pushing against the police tape that fluttered in the humid breeze. A young woman sat slumped against a wall, her face pale and drawn, clutching at her side. Her cries were muffled by the cacophony of the city, swallowed whole by the relentless hum of traffic and laughter from a nearby cafe. 
+
+Amelia knew she was running out of time. This call could be just another drunk brawl or a sprained ankle, but her gut screamed that something was terribly wrong. She plunged into the crowd, her eyes fixed on the injured woman, ready to face whatever chaos awaited her.   

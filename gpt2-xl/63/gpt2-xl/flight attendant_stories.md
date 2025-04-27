@@ -1,0 +1,7 @@
+Once upon a time, there was a flight attendant named Nancy. This is her story.
+
+As a child, I was sent off to an orphanage in Russia. My father's family owned several stores in Moscow. I spent a considerable time there. If you're ever in Moscow, go to the St. Andrew's Church, in the Ulyanovsk district. An obelisk stood behind the church. After school I studied business administration. In addition to my responsibilities as an administrative assistant, I had also to help my father with some of the accounting work he had performed. I have always had a curious attraction to accounting since I wasn't a trained accountant. I was, however, pretty good a math and physics, and I enjoyed those subjects greatly.
+
+Around 16, I got into a dispute at school with a boy named Ivan. The dispute went on for weeks, and eventually I got expelled. Fortunately my father was nearby and was able to talk me into returning.
+
+I came back with a different story. I was an honors student. I was always one of the top students in my class. The school principal, the first teacher I had ever had, called me on the phone the night before the school's parent-teacher conference. She told me that while most of the teachers in my middle school loved me, three out of five of her colleagues hated me. Of the three, one liked me but one disliked me intensely. The third disliked

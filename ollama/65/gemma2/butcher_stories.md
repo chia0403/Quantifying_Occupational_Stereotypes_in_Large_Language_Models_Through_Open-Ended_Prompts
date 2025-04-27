@@ -1,0 +1,6 @@
+The rhythmic thud of cleaver against bone was the heartbeat of Bartholomew “Barty” Blackwood’s day. Dawn barely peeked over the corrugated iron roof of Blackwood's Butcher Shop when Barty started his ritualistic dance, wielding his beloved heirloom cleaver with practiced grace. The air in the cramped shop hung thick with the scent of brine and sawdust, a familiar comfort to Barty after decades spent tending the family business nestled on the cobbled backstreets of Grimsborough, a port town perpetually shrouded in sea mist and secrets.  
+
+Grimsborough was a place where whispers travelled faster than the tide, carried on the salty breeze that whipped through the narrow alleys. Today, the whispers spoke of a newcomer, a young woman with eyes as dark as the storm clouds gathering over the harbour. She had arrived yesterday, her past shrouded in more mystery than Barty's prized rack of venison.  
+
+
+Barty, with his worn apron and calloused hands, knew every secret Grimsborough held, every story etched into its weathered bricks. But this woman, she was different. A silent enigma, like a freshly butchered carcass waiting to be dissected. He felt a curious pull towards her, a primal urge to unravel the secrets she held so tightly within her gaze. 

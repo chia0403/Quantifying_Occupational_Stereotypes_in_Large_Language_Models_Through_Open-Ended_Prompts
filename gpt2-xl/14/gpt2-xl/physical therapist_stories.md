@@ -1,0 +1,7 @@
+Once upon a time, there was a physical therapist named John. "He was doing a fantastic job, taking care of my shoulder in a very professional way," says Jennifer, 35, who has also dated and slept with a whole host of men over her career in beauty. "Then, a year ago, the physical therapist decided it was easier to deal with my back problems myself." (She has the scars to prove it.) The split, says Jennifer, was extremely amicable, with John retaining the rights to her name and the business while she transferred her email address to his male partner.
+
+This type of emotional, material, and even psychological damage comes in one of three different grades—recovery versus treatment, nonrecovery of symptoms versus recurrence of symptoms, and postrecovery.
+
+"In regards to recovery, we're very well-trained in what recovery is, what PTSD is like, what the course of treatment is," says Dr. Siegel, of the National Center. "People who are in a very strong recovery should not have an impairment. People who have a very strong PTSD should not have an impairment. They should be able to be functional and productive and able to work. But it should be the very, very, very small minority that has something that may cause them to suffer significant impairment."
+
+The only way to judge whether a person is suffering from PTSD, other than an EEG that shows the symptoms, is by going to

@@ -1,0 +1,9 @@
+## The Whispering Books of Blackwood Library
+
+**Opening:**
+
+Agnes Beatrice Plumkett hated Tuesdays. Tuesdays meant sorting returned periodicals, a task even the library cat, Dewey, seemed to loathe, judging by the way he sharpened his claws on the magazine rack when Agnes got within ten feet of it. But this Tuesday was different. As Agnes reached for the top copy of "Ornithological Monthly," a shiver ran down her spine, cold as the crypt beneath Blackwood Manor itself. It wasn't just the chill seeping in from the perpetually damp stone walls; it was a feeling, a prickling unease that settled in her stomach like a lead weight. She could have sworn, just for a fleeting moment, that she'd heard a whisper emanating from the stack, a hushed and rustling sound like brittle pages murmuring secrets into the dusty air.
+
+**Setting:**
+
+The Blackwood Library, officially known as the Blackwood Memorial Library and Historical Archive, stood on the edge of the small, isolated village of Oakhaven, nestled deep within the Cotswolds. Built in the late 18th century by the eccentric Lord Blackwood, it was less a public lending library and more a mausoleum for forgotten knowledge. The architecture was imposing: gothic arches, stained-glass windows depicting obscure mythological figures, and towering shelves that stretched to a vaulted ceiling twenty feet high. The interior was perpetually dim, illuminated by weak electric lights and the occasional filtered sunlight that managed to penetrate the dense ivy clinging to the building's exterior. The air hung heavy with the scent of aged paper, leather binding, and a faint, unsettling odor of mildew and decay. The library held an eclectic collection, ranging from local parish records dating back to the 16th century to a complete first edition of Darwin's "On the Origin of Species," alongside a surprisingly comprehensive collection of occult texts and forgotten folklore.

@@ -1,0 +1,7 @@
+## The Whispering Walls of Grey Manor
+
+The air hung thick with unspoken tension as Amelia Finch adjusted her glasses, peering through the dusty windowpanes of Mrs. Hemlock's grand office.  Grey Manor, a stately edifice with creaking floorboards and an echoing grandeur that seemed to swallow all sound, was a world away from Amelia's bustling city life. Now, she sat hunched over a filing cabinet, surrounded by mountains of paperwork and the silent weight of unanswered emails, her fingers tingling with an unexplainable unease. 
+
+Mrs. Hemlock had always been a quiet figure in her own right, but lately, something felt off. Her usual sharp gaze was clouded with worry, and the once-sparkling elegance of Grey Manor seemed to sag under the stress of unseen burdens.  For Amelia, who'd begun as the only secretary Mrs. Hemlock deemed worthy of such an esteemed position, the weight of this mystery pressed upon her like a physical burden. 
+
+Outside, the storm raged, its howling winds mirroring the unrest in her own heart. Amelia knew she was expected to remain neutral, to be a silent observer in this tumultuous game of intrigue that unfolded within these walls. But as she flipped through a particularly dense stack of legal documents, a single line caught her eye: "An inheritance awaits."  Amelia's breath hitched. It wasn't just an inheritance; it was the key to unlocking a mystery older than Grey Manor itself. 

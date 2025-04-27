@@ -1,0 +1,7 @@
+Once upon a time, there was a dress maker named Dorothy Parker. She made a dress that Dorothy Parker made, and Dorothy Parker made another, and then another, and all of those dresses are still out on the market."
+
+My aunt, my friend who worked for the same company for thirty years, also works for the same company now. Dorothy Parker's dresses are available in a big box. My mom's dresses are sold via a subscription service. "Not everyone's gonna want to pay forty bucks a box," says my mother. "We're not making money if we only make six dollars a box." This company makes a product people love to wear, and so they can afford to charge it such a reasonable price.
+
+A dress, like all things in the marketplace, has to be created to be consumed. A dress has to be thoughtfully crafted to create the illusion of a perfect fit, the right amount of material, and the appearance of a beautiful object. To create this illusion, each designer and fashion designer, whether it be Loehmann or Mary Katrantzou or Diane von Furstenberg or Prabal Gurung, creates a dress according to a specific template, a code they have created. The design studio behind your favorite designer is called an in-house production studio (also called the label or house).
+
+A designer will design a garment with a specific body or shape, but most times, a designer will also need to accommodate a specific

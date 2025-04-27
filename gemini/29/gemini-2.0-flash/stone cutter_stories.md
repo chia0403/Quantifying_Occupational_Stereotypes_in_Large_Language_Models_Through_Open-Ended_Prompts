@@ -1,0 +1,11 @@
+## Story Opening:
+
+The incessant tap, tap, tap of granite against steel was the lullaby of Aethelred Stonecraft's existence. It was a rhythm as old as the hills that cradled the village of Oakhaven, a rhythm that pulsed through his blood like the lifeblood of the earth itself. Today, however, the rhythm felt off, a discordant note scratching at the edges of his focus. He hadn't slept well, haunted by dreams of crumbling statues and shifting landscapes. And the cold, it was a bone-deep cold that no amount of wool could chase away, a chill that seemed to emanate not from the winter wind howling outside his workshop, but from the very stone beneath his hands.
+
+He paused, lifting his hammer and chisel. The winter sun, a watery disc behind a veil of snow clouds, barely penetrated the grime-streaked window, casting the interior of his workshop in a perpetual twilight. The air hung thick with the dust of ages, a fine grey powder that coated everything: the rough-hewn workbench strewn with sketches and tools, the half-finished tombstone leaning against the far wall, even the thick, calloused skin of Aethelred's hands.
+
+## Setting:
+
+Aethelred's workshop was a small, sturdy structure built of the very stone he worked with. It stood just on the edge of Oakhaven, nestled against the base of the Whispering Cliffs, a range of grey, wind-sculpted rock formations that dominated the horizon. The village itself was a cluster of thatched-roof cottages huddled together for warmth against the relentless winter. The villagers were a hardy folk, their lives dictated by the changing seasons and the demanding land. Farming was their main occupation, but stone was their backbone, providing the foundations for their homes, the walls for their fields, and the markers for their graves. Oakhaven relied heavily on Aethelred's skill, and he, in turn, relied on the village for his livelihood.
+
+The workshop was more than just a place of work; it was Aethelred's sanctuary. The rough stone walls, the smell of granite and oil, the comforting weight of his tools - these were the things that grounded him. But today, even this familiar space felt unsettling, pregnant with an unspoken dread. Something was amiss, and Aethelred Stonecraft, master stone cutter of Oakhaven, couldn't shake the feeling that he was about to become a part of it.

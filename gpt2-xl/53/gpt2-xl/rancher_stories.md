@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named Jim Stewart. A farmer who lived in the foothills of the Chihuahua mountain range in southwestern New Mexico, Jim Stewart raised sheep and cattle near the town of Nogales and the nearby town of Nogales, Arizona. He was not a great man, he was not an evil man, but he certainly knew how to fight with his hands. As early as 1933 he was on the front line defending the community from the Mexican raiders that had been terrorizing the area since the '30's.
+
+On March 5, 1935 a band of raiders tried to raid Nogales and, without mercy, Jim Stewart put his fists to use as an indomitable front line soldier. He grabbed the man who led the raiders and threw him to the ground, then began kicking him hard in the ribs. When he saw what he was doing he stopped, dropped his knife. Stewart picked up his knife and gave the man a good old blow in the face. As Stewart continued to kick him Stewart sawed at his throat, finally killing his assailant.
+
+That evening the local newspapers reported that Stewart was seen cutting up what appeared to be a human corpse.
+
+Jim Stewart was awarded the Congressional Medal of Honor for his actions in defending the citizens of Nogales against the bandits who had been terrorizing the region for the previous seven years. It was only one of several acts of heroism that he had

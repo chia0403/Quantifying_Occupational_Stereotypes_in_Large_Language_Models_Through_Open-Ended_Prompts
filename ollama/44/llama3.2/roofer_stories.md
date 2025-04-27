@@ -1,0 +1,7 @@
+As the first wisps of dawn crept over the sleepy town of Ravenswood, Maine, Jedediah "Jed" Thompson adjusted his worn denim vest and surveyed the rooftops before him. The crisp autumn air carried the scent of wood smoke and damp earth, a familiar aroma that stirred something deep within Jed's weathered soul.
+
+A third-generation roofer, Jed had spent his entire life beneath the eaves and in the midst of the bustling construction sites that dotted Ravenswood's landscape. His grandfather, Ezra Thompson, had taught him the trade when he was just a boy, and now, at 42, Jed owned his own roofing company, Thompson's Roofing Co.
+
+The streets were already coming alive, the sounds of early morning traffic and chirping birds mingling with the hum of Jed's trusty old van, which bore the company logo emblazoned on its side. As he sipped his coffee from a thermos wrapped in worn insulation, Jed mentally checked off the day's schedule: a routine inspection for Mrs. Jenkins' Victorian on Maple Street, followed by a new installation at the Ravenswood High School's dormitory.
+
+Little did Jed know, this particular morning would hold more than just routine maintenance and routine conversations with his coworkers. The shadows that had been gathering in the corners of his life were about to be stirred once again – and nothing would ever remain still on the rooftops of Ravenswood, Maine.

@@ -1,0 +1,5 @@
+**Setting:** The pre-dawn chill hung thick in the air over the dusty expanse of the Pilot Travel Center in Cheyenne, Wyoming. Yellow sodium vapor lights cast a jaundiced glow on the rows of idling rigs, their diesel engines coughing and rumbling a low, industrial lullaby. The smell of exhaust fumes mingled with the stale scent of coffee and microwaved breakfast burritos emanating from inside the brightly lit convenience store. Frost glittered on the cracked asphalt, a silent testament to the relentless Wyoming wind.
+
+**Story Opening:**
+
+Agnes "Aggie" Petrocelli squinted into the rearview mirror, adjusting her faded "Kiss Me, I'm Italian" baseball cap. The reflection stared back at her - a roadmap of wrinkles etched by years battling sun, wind, and bad diners. She rubbed her calloused hands together, trying to coax a little warmth into them before stepping out of her beloved 18-wheeler, a beat-up Kenworth W900 named "The Rosetta Stone" (because, as Aggie liked to say, it held all the secrets to life on the road). The Rosetta Stone groaned a weary sigh as Aggie killed the engine, the silence that followed almost deafening compared to the truck's constant roar. 

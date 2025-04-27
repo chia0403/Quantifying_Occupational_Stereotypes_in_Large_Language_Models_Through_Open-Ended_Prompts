@@ -1,0 +1,5 @@
+The morning sun hung low over the manicured lawns of Bellagio Gardens, casting long shadows that stretched like emerald fingers across the dew-kissed grass. The air was crisp with the scent of freshly cut roses and the faint hum of distant lawnmowers, a symphony familiar to Elara Rosewater, who meticulously pruned a vibrant hydrangea bush.  
+
+Elara, a petite woman with sun-kissed skin and hair the color of wheat, moved with practiced grace, her shears snipping away dead blooms with surgical precision. She was known throughout Bellagio Gardens for her talent – transforming ordinary gardens into havens of tranquility and beauty. Her clients, mostly wealthy families who cherished their sprawling estates, showered her with praise and generous tips. 
+
+But today, Elara felt a knot of unease tightening in her stomach. The air seemed heavier than usual, pregnant with an unspoken tension that pricked at her senses.  A sense of impending change hung over the gardens like a mist, threatening to shroud the familiar comfort in something… unsettling.  

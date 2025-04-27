@@ -1,0 +1,5 @@
+Once upon a time, there was a singer named Bruce Springsteen who was kind of like a R&B, Motown kind of guy. And he had the big hit record 'Born in the U.S.A,' the 'Born in the U.S.A.' video — and it was sort of the Americanization of what was happening in European'soul' music. And the big song in the video was 'God Bless the U.S.A.' — with the whole lyrics: 'God Bless this land of opportunity/ God Bless this land of liberty.' And that was a bit of a statement when 'Born in the U.S.A.' was number one, but also very anti-war at the time. Which is what I feel about the Trump election.
+
+JORDAN: And with the 'God Bless the U.S.A.' video, he was singing a different kind of song — it was a kind of protest song — but it sort of became a sort of anti-numbers kind of song and now it's sort of becoming part of the way the American government talks about people who don't look like them, and the kinds of discrimination they face and the sense, though I don't know if it's that way, that there's something wrong with them, that their country doesn't do well by them.
+
+I'm reading the piece you wrote about Donald Trump in 2010, which you also co-

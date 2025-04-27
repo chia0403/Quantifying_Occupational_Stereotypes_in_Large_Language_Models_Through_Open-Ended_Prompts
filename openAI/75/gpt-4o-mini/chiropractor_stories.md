@@ -1,0 +1,13 @@
+Title: **The Cracked Compass**
+
+Setting: The small, sun-soaked coastal town of Crescent Bay, renowned for its sweeping cliffs, vibrant gardens, and the rhythmic sound of waves crashing against the shore. The salty air carries the laughter of children playing on the beach and the faint scent of blooming marigolds. At the heart of this picturesque town stands "Haven Chiropractic," a cozy, brick-front clinic adorned with a whimsical sign depicting a spine cradled by two gentle hands. Inside, calming colors blanket the walls, and the soothing sound of a water fountain creates an atmosphere of tranquility.
+
+Opening:
+
+Dr. Amelia Grace Turner adjusted her white coat as she peered through the large window of her clinic, watching the sun slowly dip toward the horizon. The vibrant hues of orange and pink danced across the sky, casting long shadows over the path leading to her front door. She inhaled the salty breeze, feeling the weight of the day drift away with each breath. It had been a busy week at Haven Chiropractic, with an ever-rotating cast of patients who relied on her healing hands to alleviate tension and pain. 
+
+But today felt different. A whispered urgency seemed to swell in the air as if the very tides were pulling at her. Perhaps it was the lingering unease from a new patient who had arrived just yesterday—a burly fisherman named Gus who spoke in fractured sentences and whose shoulders bore a burden that went beyond musculoskeletal strife. Amelia had sensed a story inside him, one of loss and secrets, and she knew that, like a finely tuned spine, her instinct would guide her to unravel the knots in his life.
+
+With her mind half on her next appointment and half on the impending twilight, Amelia turned to the photo on her desk, a framed snapshot of a sunlit beach from her childhood. It reminded her of long summer days spent collecting seashells with her grandmother, days filled with laughter that floated like whispers across the waves. In this quaint town where the ocean met the land, Amelia was guided by an unshakeable belief in the healing power of connection—a belief that would soon lead her on a journey far deeper than the adjustments she performed in her clinic. 
+
+As the last rays of sunlight flickered like candlelight, Amelia felt the weight of new beginnings settle on her shoulders. Little did she know, the tide was about to bring something unexpected ashore.

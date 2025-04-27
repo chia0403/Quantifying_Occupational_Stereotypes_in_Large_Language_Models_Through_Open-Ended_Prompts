@@ -1,0 +1,6 @@
+The rain hammered against the attic window like angry fists, each blow rattling the dusty panes. Inside, Eleanor Thistlewick hunched over her battered typewriter, its keys clicking out a staccato rhythm that echoed the storm's fury. The air hung thick with the scent of old paper and brewing tea, both comforting and suffocating in equal measure.  Eleanor was surrounded by chaos - piles of manuscript pages strewn across every surface, overflowing bookshelves threatening to topple over, and forgotten trinkets whispering tales of a life lived. 
+
+The attic, tucked away at the top of her grandmother's rambling Victorian house on the edge of the Cornish coast, was Eleanor’s sanctuary. Here, amidst the clutter and the whispers of the past, she could lose herself in the world she was building, page by page. But tonight, even the familiar comfort of her writing space couldn't drown out the storm raging both outside and within.  Eleanor stared at the blinking cursor on the screen, a white flag of surrender waving before her. The words wouldn't come. They never did when the darkness pressed in, whispering doubts and fears she couldn't shake. 
+
+
+She was Eleanor Thistlewick, a writer with a head full of stories and a heart full of longing, desperately trying to find her voice amidst the chaos of her own making.  

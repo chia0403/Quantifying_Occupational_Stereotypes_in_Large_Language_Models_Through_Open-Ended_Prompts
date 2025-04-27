@@ -1,0 +1,5 @@
+The air in Agnes Pearl Hawthorne’s office smelled faintly of lavender and old paper, a scent she found oddly comforting amidst the chaos of her latest assignment.  Sunlight streamed through the dusty windows, illuminating motes that danced like tiny stars in the stillness. The late afternoon cast long shadows across the cluttered desk, where Agnes was hunched over a mountain of receipts and invoices. Her brow furrowed as she deciphered the illegible scrawl of Mr. Grimshaw, the proprietor of Grimshaw’s General Emporium.  Agnes knew her job as bookkeeper wasn't glamorous, but she found a certain satisfaction in untangling financial mysteries and bringing order to the world, one ledger at a time. 
+
+The setting: A small, cluttered office above a dusty antique shop in Port Hope, a sleepy seaside town on the cusp of the roaring twenties. The year is 1924. Agnes, dressed in her sensible brown dress and sensible shoes, felt completely out of place amongst the flamboyant flappers and jazz-loving young men who filled the town’s taverns and dance halls. She preferred the quiet company of numbers and the reassuring weight of a well-worn ledger.
+
+

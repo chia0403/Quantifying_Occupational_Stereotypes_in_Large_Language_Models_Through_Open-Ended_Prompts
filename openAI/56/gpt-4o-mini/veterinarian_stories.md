@@ -1,0 +1,9 @@
+**Setting:** The small coastal town of Willow Bay, where the sound of crashing waves mingles with the cries of seagulls, and the air is infused with the scent of salt and blooming wildflowers. Nestled between lush, rolling hills and the shimmering blue expanse of the ocean, the town is dotted with charming cottages, artisanal shops, and a vibrant farmer's market every Saturday morning. At the edge of town, just a stone's throw from the beach, stands the Willow Bay Animal Clinic, a cozy yet bustling haven for four-legged friends and their owners.
+
+**Opening:**
+
+Dr. Lydia Ann Collins stood at the large window of her clinic, watching the first light of dawn peek over the horizon, painting the sky in hues of orange and pink. She loved this time of day—the promise of new beginnings twinkling in the early morning light. With a steaming cup of coffee cradled in her hands, she took a moment to savor the peace before the inevitable hustle began.
+
+As a veterinarian, Lydia had dedicated her life to caring for animals—their welfare, their quirks, and their unyielding loyalty. Every weekend, she found herself knee-deep in work, attending to the local wildlife or rescuing stray dogs that wandered onto her doorstep. It was a life filled with purpose, yet at times overwhelming. 
+
+But that morning felt different. There was an electricity in the air, an unnameable tension that made her intuition prick with awareness. Even the gulls outside seemed to squawk with urgency, as if they, too, sensed a shift lingering just beyond the horizon. Lydia set her cup down and pulled on her white lab coat, ready to face whatever the day had in store. Little did she know, the uncharted territory she was about to step into would change her life and the lives of the animals she adored forever.

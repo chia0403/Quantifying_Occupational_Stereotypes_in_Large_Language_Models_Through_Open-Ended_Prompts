@@ -1,0 +1,2 @@
+Gertrude Shatner
+Nichelle Nichols

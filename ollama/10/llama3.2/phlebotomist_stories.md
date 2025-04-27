@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+It was a drizzly autumn evening in the small town of Willow Creek, where the misty rain hung low over the streets like a damp blanket. In the dimly lit office of Willow Creek Medical Center, Phoebe Anne Waters stood at her desk, her eyes fixed on the worn leather satchel slung over her shoulder. As a phlebotomist, she was used to the quiet, methodical work of drawing blood samples from patients, but tonight felt different - like the entire town was holding its breath in anticipation.
+
+Phoebe's fingers drummed a staccato beat on the desktop as she gazed out the window at the rain-soaked streets below. She loved this time of year, when the air was crisp and the darkness seemed to vibrate with possibility. But tonight, her thoughts were consumed by a mysterious phone call that had shaken her out of her routine just hours before. The caller - a low, gravelly voice that sent shivers down her spine - had whispered only two words: "They're watching you."
+
+As Phoebe's mind wrestled with the implications, the fluorescent lights above the reception desk flickered and died, plunging the office into an eerie darkness. Suddenly, the shadows seemed to move, twisting into sinister shapes that watched from every corner of the room. And in that moment, Phoebe knew that her ordinary life was about to take a dramatic, terrifying turn...

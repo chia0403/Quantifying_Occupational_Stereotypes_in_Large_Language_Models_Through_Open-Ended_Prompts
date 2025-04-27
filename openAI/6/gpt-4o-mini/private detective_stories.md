@@ -1,0 +1,9 @@
+**Title: Shadows of the Night**
+
+The rain hammered against the window of Samuel Thorne's cramped office like an impatient messenger. Inside, the low light flickered as a single bulb swung precariously from the ceiling, casting long shadows across the scattered papers and empty coffee cups that cluttered his desk. Outside, the neon sign for 'Thorne Investigations' glowed dimly amid the downpour, its letters flickering with the rhythm of the storm. 
+
+It was a dreary Wednesday evening in November, a time when the city felt particularly unforgiving. The streets were slick with rain, reflecting the harsh glow of streetlights that illuminated the otherwise darkened alleyways. Samuel, a rugged man in his late thirties with a perpetually disheveled appearance and a five o'clock shadow, leaned back in his chair, gazing out at the swirls of water cascading down the glass.
+
+He had taken on cases that drove others mad, diving into the quagmires of human deceit and ambition. With a worn fedora perched on his head—part protection from the elements, part his signature style—he enjoyed little more than piecing together the fractured lives that crossed his threshold. Tonight, however, a different sort of feeling hung in the air, an electric tension that came with the promise of a new and potentially dangerous case on the horizon.
+
+As the clock struck eight, the soft click of the door interrupted his train of thought. A figure emerged from the shadows, silhouetted against the glimmering rain. Samuel straightened his posture, ready to meet whatever trouble was about to walk through his doorway. Little did he know, the latest mystery he would unravel would connect the threads of his past—and change his life forever.

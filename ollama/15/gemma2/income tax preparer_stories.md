@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Beatrice “Bea” Pendleton’s head, casting a sickly yellow pallor over the stacks of paper that threatened to topple from her desk. Her apartment, normally cozy with its mismatched furniture and overflowing bookshelves, felt claustrophobic under the weight of tax season. Outside, the January wind howled through the alleyway, rattling the rickety fire escape she shared with a surly Siamese cat named Mr. Whiskers. 
+
+Bea chewed on the end of her pen, squinting at a particularly convoluted W-2 form. Another year, another barrage of numbers, deductions, and arcane tax laws that seemed designed to punish the financially disadvantaged. She sighed, feeling the familiar weight settle on her shoulders – the burden of helping people navigate the labyrinthine world of income taxes while battling her own mounting anxieties about rent and student loan payments.  This wasn’t just a job for Bea; it was a responsibility, a lifeline for many in her community who relied on her expertise to keep their heads above water. 
+
+

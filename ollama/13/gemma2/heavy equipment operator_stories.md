@@ -1,0 +1,6 @@
+The air hung thick with the smell of diesel and dust, sunlight glinting off the chrome grille of Amelia "Ace" Carter's D9 bulldozer. It was another scorching summer day in Dust Bowl Valley, Arizona. The red earth stretched out before her like a cracked canvas, pockmarked by the tracks of countless heavy machines that had carved this desolate landscape into submission. 
+
+Ace squinted through the grime on her visor, sweat already stinging her eyes despite the early hour. This was her domain, this sun-baked wasteland where men and machines battled against the elements to extract what little wealth remained from the earth.  She ran a calloused hand over the worn leather of the control panel, its familiar contours offering comfort amidst the harshness of her surroundings. 
+
+
+Ace was more than just a heavy equipment operator; she was Dust Bowl Valley's most skilled and daring bulldozer driver. She understood these machines like an extension of herself, their rumbling engines whispering secrets only she could decipher. But today, there was a new weight in Ace's heart, a tremor of uncertainty that even the familiar hum of her engine couldn't drown out. The rumors swirling through the dusty camp about a forgotten mine shaft on the edge of the valley were growing louder, and they had Ace's name whispering on their lips.  

@@ -1,0 +1,5 @@
+## Story Opening:
+
+The bell above the door of "Locks & Loaded" chimed, its cheerful jingle a stark contrast to the anxiety churning in Esmeralda Fiore's stomach. Outside, the late afternoon sun cast long, dusty shadows across the sleepy main street of Harmony Creek, Montana. Inside, the scent of freshly cut hair mingled with the comforting aroma of Earl Grey tea, a ritual Esmeralda insisted upon for herself before every appointment.
+
+She took a deep breath, pushing a stray strand of raven hair behind her ear. "Locks & Loaded" wasn't just a catchy name; it was a reflection of Esmeralda's sharp wit and her belief that a good haircut could be a weapon against a bad day. But today, even her trusty shears felt heavy in her hand. Mrs. Abernathy was scheduled for her weekly trim and perm in thirty minutes, and Esmeralda, usually a font of local gossip and styling advice, found herself struggling to conjure even a polite smile. Harmony Creek, a place she had always considered a haven, felt… different. Uneasy. And Esmeralda Fiore, the town's resident hair artist and confidante, had a feeling it was all about to unravel.

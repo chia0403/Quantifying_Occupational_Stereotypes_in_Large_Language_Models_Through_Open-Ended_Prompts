@@ -1,0 +1,5 @@
+As the sun set over the small coastal town of Ravenswood, casting a warm orange glow over the worn wooden docks and bustling streets, Emilia Rose "Mia" Thompson polished a glass with a white apron wrapped around her waist. The smell of saltwater and stale beer wafted through the air as she expertly mixed a whiskey sour for the bar's newest patron.
+
+The Ravenswood Pub was a gathering place for locals and travelers alike, where stories were shared and secrets kept behind the wooden counter where Mia worked late into the night. The sounds of laughter and clinking glasses mingled with the gentle hum of the neon sign above the door, which creaked in the sea breeze like an old sailor's sigh.
+
+As Mia handed the drink to a gruff but affable fisherman named Jack, she couldn't help but feel a sense of restlessness. The summer solstice had brought an influx of tourists to Ravenswood, and with it, a wave of uncertainty that threatened the quiet rhythms of small-town life. Still, Mia was determined to keep her focus on the drink, and the people who came to share their stories with her behind the bar.

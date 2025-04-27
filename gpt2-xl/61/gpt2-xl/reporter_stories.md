@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named William Lietzau. The New York Times, which Lietzau covered for 26 years, was just beginning to give the story its own front page with a column about the Holocaust and "Jewish-Christian relations" before Lietzau met a man who would change the world by telling his story, a man who would go on to tell many more, and help to transform America into a better place. And Lietzau would bring that story of courage, of hope and of resilience to an unlikely place. So, for a few moments, let go. Lietzau will not be with us to see his story told. He was murdered on July 17, 2010, a week after it happened.
+
+The man who killed Mr. Lietzau? His name was Steven Spielberg.
+
+It's true that Lietzau had spent time in Germany and had heard about Spielberg's career before. Lietzau's own father, a New York theater director, was a film and television producer and he loved movies. Lietzau had spent most of the 1990s, the last years of his life, exploring his father – visiting his home and getting to know his family.
+
+Still, Lietzau didn't expect to be working on a project like this the day he moved to New York in 2002. When the opportunity arose in 2003, Lietzau was just finishing

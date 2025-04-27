@@ -1,0 +1,9 @@
+**Setting:** The rain-soaked streets of Eldridge, a small, coastal town known for its misty mornings and vibrant sea life. The sound of crashing waves fills the air as the fog drapes over the town like a heavy curtain, muffling the busy sounds of daily life. The scent of saltwater mingles with the aroma of freshly brewed coffee from the nearby café, while the lighthouse stands tall on a cliff, serving as a steadfast guardian against the biting winds.
+
+**Story Opening:**
+
+Officer Rebecca Mae Sinclair stood at the edge of Eldridge Harbor, her rain-soaked uniform clinging to her as the chilly breeze swept through the cobblestone streets. It was early morning, and the usually bustling town was cloaked in a thick fog that hung heavily over the water, shrouding the world in a quiet stillness. The rhythmic sound of the waves lapping against the pier was accompanied by the distant honking of seagulls, their cries echoing loneliness.
+
+As she gazed out into the mist, she could barely make out the silhouette of the lighthouse, a beacon of hope in the encroaching gloom. She took a deep breath, savoring the briny air, which soothed her nerves. Today was going to be different. Detective Samuel Harrow had just been reassigned to their precinct, and Rebecca was both intrigued and apprehensive about their first case together. She couldn't shake the feeling that something dark was stirring beneath the surface of Eldridge’s tranquil facade.
+
+Staring into the fog, Rebecca clutched her badge tightly, a reminder of her duty to protect this town and its people. The town’s secrets had a way of revealing themselves when least expected, and she silently promised herself that she would uncover whatever shadows loomed ahead. But for now, all she could do was wait for the sun to break through the mist and illuminate the truths hidden in the depths of the harbor.

@@ -1,0 +1,5 @@
+The sun beat down on Bartholomew "Barth" Hawthorne's neck as he wrestled another unruly weed from the meticulously manicured lawn of Elmwood Manor. Sweat dripped from his brow, mixing with the pollen clinging to his weathered skin, and forming streaks through the dust that coated his forehead. His calloused fingers, thick from years of digging and pruning, gripped the trowel with practiced ease, yanking the stubborn weed free with a satisfying tug. He tossed it into the overflowing bucket at his feet, sighing as he surveyed the expanse before him. 
+
+Elmwood Manor was a majestic Victorian mansion, draped in ivy and whispering stories of forgotten grandeur. The sprawling lawns surrounding it were Bartholomew's domain, a canvas upon which he painted patterns of neat rows, vibrant blooms, and manicured hedges. He took pride in his work, finding solace in the rhythmic hum of his shears and the earthy scent of freshly turned soil.  
+
+But today, beneath the summer haze, something felt off. A sense of unease prickled at Bartholomew's skin, as though an unseen shadow had settled over Elmwood Manor. The air itself seemed to hold its breath, waiting for something… 

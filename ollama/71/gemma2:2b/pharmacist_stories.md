@@ -1,0 +1,5 @@
+The flickering gaslight cast long, dancing shadows across the worn linoleum floor of Edgar Thorne's apothecary.  The scent of lavender and pine clung to the air like a ghost from forgotten summers. The shelves, groaning with jars and vials of vibrant colors and strange, musky smells, seemed to sigh in unison with each passing gust of wind that rattled the old bay window. 
+
+Edgar Thorne, his hands calloused yet surprisingly nimble despite his age, meticulously poured a measured dose of valerian root tincture into a small glass vial.  His brow furrowed, a slight frown creasing his usually jovial face as he observed the swirling amber liquid under the single lamp's glow. He was a man of science, a man of logic, but even he couldn't deny the subtle magic that danced between the ingredients in this peculiar concoction.
+
+The year was 1898, and the sleepy seaside town of Port Haven seemed to have swallowed time whole. The air hung heavy with the salty tang of ocean spray and the faint whisper of ghostly tales about the abandoned lighthouse on Black Rock Point – a place locals dared not even speak of.  For Edgar Thorne, however, this was his sanctuary, his world. 

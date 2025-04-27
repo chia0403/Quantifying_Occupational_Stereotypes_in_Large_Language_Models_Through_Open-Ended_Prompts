@@ -1,0 +1,7 @@
+Once upon a time, there was a bookkeeper named Arthur Fagge, a man with great ambition and no interest in making the world a better place. His greatest project, however, was his search for the true meaning of good and evil, and he worked tirelessly in order to discover what made a hero or a villain. The book, as you might suspect, was called "Fagge's Law Book." For some reason, the book was lost until Arthur's son, Thomas, discovered it hidden in the desk of a former colleague. Arthur wanted the book out of the hands of any who would use it in evil, so Thomas stole it while hiding it in his desk. The book was later discovered by Arthur's assistant, Thomas Carfax, and was used to convict the evil Mr. Fagge.
+
+
+I don't know how many times I've tried to remember when Fagge's Law Book came out, but I would argue that it is somewhere in the '80s, when the book was still in print, although it was re-issued in paperback later. There was an animated version of Fagge's Law Book, which, although I haven't seen it, seems like a decent example of animated fairy tale, and it had an interesting soundtrack, which also I haven't seen.
+
+
+The animated version involved King of the Hill in that the evil Fagge wants to imprison all of the hero's friends and family in a giant book that

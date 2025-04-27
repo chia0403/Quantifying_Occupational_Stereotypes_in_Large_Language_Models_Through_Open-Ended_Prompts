@@ -1,0 +1,7 @@
+Rain hammered against the windowpanes of Dr. Evelyn Thorne’s office like a thousand tiny hammers on steel. The storm, brewing for days on end in the heart of Seattle, mirrored the tempest inside her. Across from her, Mr. Carmichael, a man whose eyes held the dull grey reflection of shattered glass, sat slumped in his chair, clutching a worn photo album. Evelyn, forensic psychologist to the city's elite and a pioneer in understanding the intricacies of human psyche, felt a familiar unease gnaw at her stomach.
+
+Evelyn knew this case had been different from day one. The victim, renowned architect Arthur Sterling, hadn't died as a result of an accident. He was murdered, strangled with a rope made for tying down cargo, and his studio, normally a whirlwind of creative chaos, now stood silent, shrouded in the oppressive weight of grief.  The city mourned, but Evelyn saw something more. There was no clear motive, no obvious enemy, just a trail of whispered rumors and half-truths that danced around like dust motes in the moonlight. 
+
+**Setting:** Seattle, Washington - A city known for its progressive outlook, rainy days are as much a part of the skyline as the iconic Space Needle. While the city pulsates with technological advancement and innovation, it also harbors a dark underbelly where secrets fester beneath the surface.
+
+**Main character:** Dr. Evelyn Thorne -  A forensic psychologist renowned for her sharp mind and empathetic approach to understanding the complexities of human behavior. 

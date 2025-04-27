@@ -1,0 +1,7 @@
+Once upon a time, there was a probation officer named Charles S. Vollmer, who was an expert in the art of probation. And he was a pretty cool guy. Charles Vollmer once said some amusing and relevant stuff about his work. I think I should mention that he was a good guy. He also took an extended break from the police force to practice his juggling and to help raise money for various worthy causes. Anyway, he once wrote about the world of probation.
+
+Vollmer's piece begins with an illustration, which shows us an unnamed student named Albert and a little boy named Edward. I hope you will find a way to tell us a little bit about these characters, so that we can imagine them and their world and what might have happened had something different happened in their lives, so that one day we can also imagine a different person like Albert.
+
+Albert is a student at a boarding school who is in the third or fourth grade, and Edward the boy who is seven years older than Albert. Edward is an eccentric and a genius, who has been expelled from school several times because everybody on the faculty and parents alike consider Edward to be a nuisance.
+
+Albert is now a junior at the school, and he and Edward are neighbors. One day, Albert and Edward are playing hide-and-seek, and Albert runs away from Edward in order to continue playing. Edward eventually tracks down Albert after hearing a noise behind a tree. Because of this

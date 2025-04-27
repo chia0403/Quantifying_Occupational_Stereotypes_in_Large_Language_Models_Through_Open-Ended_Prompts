@@ -1,0 +1,7 @@
+Once upon a time, there was a executive named John O'Bannon, and every single one of you in this room has one thing in common: you were once part of John's team. John was the chairman and lead CEO of SGN Group, the world's largest internet provider, and he was also the founder of a company that was responsible for a great deal of the innovation and business acumen in this room, SGI. At the same time, he started a company called New Media. What you know about SGI and New Media comes from the early days of the internet, when John O'Bannon was at IBM.
+
+To date, SGI has created and introduced more than 50 technologies, operating systems, and applications that remain in widespread use today.
+
+John O'Bannon was born in 1927 in the Bronx. But from a young age, John O'Bannon showed an aptitude for computers. By his ninth birthday, he had written a programming language, and by his twelfth birthday, he had implemented every single instruction. Later, he worked for the University of Chicago, and at the same time, he studied at MIT and joined IBM, where he worked on their UNIVAC computer.
+
+With the completion of the UNIVAC, IBM realized that all these computer languages created by these students could be applied to building their own computer systems for a much higher price, and they decided to bring O'Bannon on-board

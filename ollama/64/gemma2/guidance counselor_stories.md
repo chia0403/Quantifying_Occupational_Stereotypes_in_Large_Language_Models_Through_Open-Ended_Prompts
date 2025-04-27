@@ -1,0 +1,6 @@
+The fluorescent lights of Willow Creek High hummed above Eleanor Vance's head like a chorus of weary bees.  She sat at her desk, surrounded by piles of application forms, permission slips, and college brochures. Outside, the November wind rattled the windows, carrying with it the scent of damp leaves and the distant rumble of a passing storm. 
+
+Eleanor sighed, pushing back a stray strand of auburn hair that had escaped her tight bun. This was always the most chaotic time of year. Senioritis was in full swing, parents were breathing down her neck about college applications, and everyone seemed to be on edge. Eleanor, however, preferred the controlled chaos. It was within this whirlwind of emotions and anxieties that she found purpose – guiding these lost souls, helping them navigate the turbulent waters of adolescence and find their way towards their future. 
+
+
+Today, though, even her usual resilience felt frayed. A student had burst into tears earlier, overwhelmed by the pressure to achieve, another had confessed to crippling anxiety about college interviews, and now a third was pacing outside her door, muttering nervously. Eleanor leaned back in her chair, took a deep breath, and picked up a pen. She needed a cup of coffee, and maybe a moment to herself before this storm truly broke.

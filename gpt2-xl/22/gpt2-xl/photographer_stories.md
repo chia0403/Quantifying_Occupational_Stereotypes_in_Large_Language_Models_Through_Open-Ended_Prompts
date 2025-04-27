@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named David Hockney. Hockney was a master. As many of you will recall, the photo of Prince Philip the former Duke of Edinburgh was taken with a Polaroid. When asked to give his opinion on the picture, Hockney said: "It's a lovely picture, but it does show him like he did 30 years ago as opposed to today".
+
+"What I'm saying is that's a portrait that would have been taken at a time when Prince Philip was a handsome young man in a handsome suit," concluded Hockney.
+
+That's what these photographs tell us – Philip is clearly not what he used to be, for his clothes are now more revealing than their counterparts of a few years ago, and the quality of his hair is very different. This is not to say that we should take away all our faith in Prince Philip from the man: the last few years have shown that he still retains his moral compass. But Philip's body language in this photo tells us that the old Philip could not help but feel inadequate and uncomfortable in this dress and in these circumstances.
+
+For this picture, the question we really need to ask ourselves is – what are the criteria to decide if it really is an appropriate portrait? Can we truly ignore the fact that the photograph shows a 70-year-old man in inappropriate dress and pose of age? Can we not tell that the man in the photograph is not acting

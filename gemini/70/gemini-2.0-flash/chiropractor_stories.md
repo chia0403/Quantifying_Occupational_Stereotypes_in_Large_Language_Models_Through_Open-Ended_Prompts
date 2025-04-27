@@ -1,0 +1,13 @@
+## Story Opening:
+
+The first whiff of disinfectant hit Dr. Amelia Grace Harding like a punch to the gut. Not the pleasant, sanitized scent of a hospital or even a dentist’s office, but the harsh, vaguely floral-scented kind that reminded her of a budget motel bathroom after a particularly messy incident. Amelia braced herself, took a deep breath of relatively fresh air from the open window, and then plunged back into the relative chaos of her waiting room.
+
+Mrs. Higgins, bless her cotton socks, was regaling young Timmy, the boy with perpetually knotted shoulders from lugging his trombone around, with a detailed account of her hip replacement surgery. Timmy, bless his teenage heart, was looking anywhere but at Mrs. Higgins, his gaze fixed on the flickering fluorescent lights that threatened to drive Amelia to early retirement. Across the room, Mr. Henderson, a retired construction worker whose back had seen better days, was humming a jaunty tune while meticulously combing what little hair he had left.
+
+This was it. Another Tuesday at Harding Chiropractic Clinic, and Amelia, despite the minor occupational hazards of questionable air fresheners and verbose patients, wouldn’t trade it for the world. Well, maybe for a week on a tropical island with unlimited margaritas and no spinal misalignments, but that was a fantasy for another day. Today, she was here to untangle the knots, soothe the aches, and hopefully, bring a little bit of pain-free mobility back into the lives of her beloved, if sometimes eccentric, patients. It was, after all, what she was meant to do.
+
+## Setting:
+
+The **Harding Chiropractic Clinic** is located in the small, somewhat sleepy town of Willow Creek, Oregon. It occupies a converted storefront on Main Street, nestled between a bustling bakery and a dusty antique shop. The building itself is old, with creaky wooden floors and high ceilings that Amelia has tried to soften with warm colors and calming artwork. Sunlight streams in through the large front window, illuminating the mismatched collection of comfortable chairs and outdated magazines in the waiting area.
+
+The clinic consists of three rooms: the waiting room, a small consultation room filled with anatomical charts and models, and a treatment room containing the all-important chiropractic table, along with various tools and implements used for adjustments and therapies. The overall atmosphere is homey and welcoming, reflecting Amelia's dedication to creating a safe and comfortable space for her patients. While it may not be the most modern or luxurious clinic, it’s filled with heart and history, just like the town it calls home.

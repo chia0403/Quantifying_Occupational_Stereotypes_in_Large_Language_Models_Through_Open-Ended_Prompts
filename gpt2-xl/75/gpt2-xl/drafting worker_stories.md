@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named Michael. I don't think his actual job title was drafted, but the job he did in the office was to review documents for draftsmanship and spelling errors. He also kept some of the books he was grading, and these provided some inspiration for my own writing as far as character names and other references. We worked well together, and he was well liked by everyone. I won't delve into their career, but suffice it to say that I know he was well past 60 years of age.
+
+This is the world I lived in when I began the process of turning what was, in my mind, an original screenplay, into a movie. I know the process is not always the same, in fact, no one I know has ever been through it, because it's much too dangerous. But if it is in your head, that's how you want it to be.
+
+Here is the process I ran through using three pieces of equipment:
+
+1) A desktop editing program: I will call it Final Draft. You can find it for a fraction of the cost and size that Word was, and with only a few tweaks, it's an amazing and well worth buying and using. I used it on a Mac Mini, but any full-size laptop and monitor will work just fine. I've never been an Apple person, and I doubt anyone else does either. All you need is an internet connection, and a

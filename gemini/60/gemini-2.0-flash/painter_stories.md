@@ -1,0 +1,9 @@
+## The Story: Painted Echoes
+
+**Opening:**
+
+The salt spray kissed Eleanor Mae Hawthorne's face as she wrestled with her easel, the tempestuous wind threatening to hurl it, along with her painting, into the churning grey abyss below. Each gust felt like a malevolent spirit, intent on erasing the delicate dance of colour she was trying to capture on the canvas. But Eleanor, a woman sculpted by decades of coastal winds and unwavering artistic vision, stood her ground. Her weathered fingers, stained with cerulean and ochre, gripped the easel legs with a surprising strength, her eyes locked on the horizon. The sky, a bruised tapestry of slate and violet, was tearing apart, revealing fleeting glimpses of fiery orange where the setting sun still clawed its way through the storm. It was a violent beauty, a raw, untamed power, and Eleanor was determined to immortalize it, even if the sea swallowed her whole in the attempt.
+
+**Setting:**
+
+Eleanor's studio, perched precariously on the cliffs of Port Sorrow, Maine, was as chaotic and captivating as the ocean that raged below. It was a converted lighthouse keeper's cottage, its rounded walls lined with paintings in various stages of completion. Canvases leaned against each other, a vibrant jumble of seascapes, portraits, and abstract explorations of light and colour. Jars overflowing with brushes, tubes of paint squeezed dry, and palettes crusted with dried pigment covered every available surface. The air was thick with the scent of linseed oil and the faint, briny tang of the sea. A single, circular window, reinforced against the relentless storms, offered a panoramic view of the Atlantic, serving as Eleanor's constant muse and tormentor. The room itself was a testament to Eleanor's life: weathered, worn, and overflowing with the echoes of countless captured moments.

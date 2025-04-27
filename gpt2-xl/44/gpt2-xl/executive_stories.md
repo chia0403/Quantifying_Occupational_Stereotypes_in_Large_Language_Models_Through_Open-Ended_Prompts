@@ -1,0 +1,7 @@
+Once upon a time, there was a executive named Bill Ayers. He met Martin Luther King Jr. on a trip to Ghana, and they became friends; later, he met Barack Obama and helped him campaign for senator.
+
+And then there's his wife, Bernardine Dohrn. Both have been associated with the Weather Underground, which was "a domestic revolutionary group [that] carried out bombings, armed robberies, and attempted assassinations. That's a lot to be in partnership with. Then again, I'm not even really sure if that group ever actually existed". (We're not a little late on this one, my bad.)
+
+That's a lot to be in partnership with. Dohrn and the Weather Underground were a little crazy. Her book, The Black Revolution, is the most thorough and comprehensive history known of that group, and here's what you do. First you find the people responsible for these crimes. Then you go for the individuals responsible for these crimes, and then you go for the individuals involved in the crimes and try to catch each other up so you can go after them. I think that kind of explains her philosophy, but even without it she makes a pretty convincing case. It was fascinating.
+
+The book does not seem to have any major political undertones or references that I could readily figure out. If such a thing existed, I didn't know anything about it. The only political statement I found was this one: The Black

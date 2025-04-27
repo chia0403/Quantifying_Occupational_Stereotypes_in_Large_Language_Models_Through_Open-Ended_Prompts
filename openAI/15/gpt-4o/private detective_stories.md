@@ -1,0 +1,9 @@
+The wind howled through the narrow alleyways of New Dublin, a city where shadows seemed to stretch at impossible lengths and secrets whispered between the cobblestones. Nathaniel "Nate" Calloway, a private detective known for his unyielding resolve, stood beneath a flickering streetlamp, his silhouette merging with the darkness around him. The rain fell in a relentless drizzle, mingling with the city’s smog to create a thin, mournful mist that clung to the skin like a shroud.
+
+Nate had been born here, in this urban labyrinth, where towering skyscrapers jostled with stooped tenements, and where every face in the crowd had a story hidden beneath wary eyes. The city buzzed with life, an inescapable hum that echoed from all corners — the grind of the metro beneath his feet, the distant wail of a saxophone from a late-night club, the low murmur of deals made in shadows.
+
+Tonight, however, the streets were quieter than usual. It was as if the city held its breath, waiting for something or someone to awaken its restless spirit. Nate’s trench coat flapped around his legs as he moved, each step deliberate, each echo fading into the depths behind him. He was on his way to meet a new client, a woman who claimed her brother, an investigative journalist, had vanished while tracking a lead that went deeper than anyone had dared to dig.
+
+As he approached the corner café where they were supposed to meet, the warmth of the interior lights spilled onto the wet pavement, creating a beacon in the gloom. Nate paused, glanced back at the deserted street, and then pushed open the door. Inside, a soft jazz number played, and the air was tinged with the comforting aroma of freshly brewed coffee.
+
+He spotted her immediately — Katherine Hale — sitting at a secluded booth, her expression tense and watchful. Her eyes met his, a silent plea hidden within their depths, and Nate knew in that moment that his journey into the underbelly of New Dublin was just beginning.

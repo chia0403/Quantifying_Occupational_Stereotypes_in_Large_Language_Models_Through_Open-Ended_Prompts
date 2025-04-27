@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Elizabeth, who lived in a little apartment above the kitchen. She worked her way to the top of the totem pole, and when one of the guests moved out, her job was outsourced to a guy named John Smith. This happened right about the time that my mother's best friend, Kathy, joined her.
+
+My father and mother were in the late stages of a breakup while I was growing up. They never married and never had kids, but Kathy and I spent almost every night on our couch, watching reruns of the old Married with Children episodes, reenacting the most embarrassing moments of my childhood for aunts and uncles, cousins and anyone else who walked through the door.
+
+My father's relationship with his ex-wife had always been more complicated, the ex-wife having grown to love and respect him. That ended at the end of the week and the following Sunday, after six years of trying to work the situation out, the divorce came through and the father turned out to be my legal father.
+
+Over the years I'd been learning the art of the phone call – a form of communication in which you ask and receive permission to send and receive money. All I had to do was get a job and earn the necessary cash, and I could afford to send and receive money to a lot of different people. This made me feel good, and it gave me the ability to save up for

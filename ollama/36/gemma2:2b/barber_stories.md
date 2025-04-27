@@ -1,0 +1,6 @@
+The aroma of sandalwood and old leather hung thick in the air of "The Straight Edge," as if it had been bottled and poured into every corner of the shop decades ago.  A soft whirring from behind the counter was the only sound louder than the steady rhythm of Daniel Blackwood's scissors against fine, blonde hair. It was late afternoon in the bustling heart of New Orleans, a city that pulsed with life even as the sun began its descent. The humidity clung to the air, thick and almost sticky, yet the warmth seeped from the worn mahogany floorboards, creating a cozy nook for the patrons who sought refuge from the humid night. 
+
+Daniel, with his salt-and-pepper beard neatly trimmed into a goatee, was a fixture in this haven of calm amongst the chaotic symphony of the French Quarter. He knew every customer's story, every scar, every line etched by laughter and worry alike, like he had known them since they were children playing under the shade of his grandfather’s oak tree. 
+
+
+His customers were as diverse as the city itself - a jazz musician with chipped nail polish and tired eyes, an aging opera singer clutching a worn-out program, a young aspiring writer with a sketchbook full of dreams.  Daniel saw them all as reflections of the same pulse, the same relentless heartbeat that drove New Orleans. 

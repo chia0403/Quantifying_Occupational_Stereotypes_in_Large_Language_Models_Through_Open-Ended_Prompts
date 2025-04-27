@@ -1,0 +1,7 @@
+Once upon a time, there was a journalist named Frank Zappa. He had become famous—or infamous, depending on who you ask—for creating some brilliant music, among them a quartet that combined jazz, blues, and prog rock. Most importantly, he would not take any shit on the internet. But after a few years of writing for the Rolling Stone, and the Zappa Family Trust's own webzine, Zappa Plays Zappa, and the occasional radio interview, he started losing interest in social media. In 2004, he declared bankruptcy, and he hasn't stopped composing since.
+
+I knew that Frank Zappa played guitar, and this is not unlike Zappa at his very best: creative, inventive, and sometimes a bit strange. I was a big fan, however. I still am, and I wanted more, more, more.
+
+Thus, I sent Frank an email, one that had all the flair of a press release: "Hi, we're two writers here at BuzzFeed News, and we're trying to do an article on the music of Frank Zappa." I sent him a photo of myself wearing a Zappa t-shirt, and his reply told me exactly what I wanted.
+
+I explained that BuzzFeed's aim was to be an irreverent, highbrow news site focused on music and culture and the creative process, and so I really wanted to focus on Zappa's music—in the traditional sense, not the Z

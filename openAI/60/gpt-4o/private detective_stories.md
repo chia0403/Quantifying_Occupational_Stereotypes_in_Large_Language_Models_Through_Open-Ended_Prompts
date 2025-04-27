@@ -1,0 +1,7 @@
+In the heart of the bustling city, where shadows seemed to stretch a little longer and whispers danced in the midnight air, stood the neon-lit sign of Morton’s Bar—a haven for the lost, the curious, and the discreet. Inside, the thick scent of tobacco mingled with the bitter aroma of aged whiskey, creating an intoxicating veil.
+
+At the far corner, a shadowy figure, indistinguishable under the dim amber lights, nursed a half-empty glass of scotch. This was Vincent Harrington, a private detective whose reputation for unraveling the most intricate mysteries had earned him both respect and enmity in equal measure. A man of paradoxes, Vincent wore a worn-out fedora that shaded his piercing emerald eyes and a trench coat that seemed to carry countless tales within its folds.
+
+Rain began to tap gently on the frosted windows as the evening sky deepened into a blanket of inky velvet. This city, with its tangled alleyways and towering edifices, was a labyrinth of secrets—a perfect hunting ground for someone of Vincent’s elusive talents. Here, every fleeting glance and hurried footstep painted a mosaic rich with stories, untold and unexplored.
+
+As the clock ticked towards midnight, the bar's door creaked open, and with it came a gust of crisp autumn wind, heralding an unexpected visitor. Vincent's gaze shifted subtly, his keen instincts sensing that this stranger, wrapped in an air of urgency and mystery, was about to pull him into another chapter of his increasingly complex life.

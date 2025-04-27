@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The neon lights of Sunset Boulevard cast a gaudy glow over the small, cramped apartment that had been my home for the past year. I sat on the edge of the worn velvet sofa, running my fingers through the tangled mess of my curly brown hair as I stared blankly at the old piano in the corner. My name was Astrid Ruby LaRue, and I was a singer - or at least, I had been, until the last year when my career had stalled and my bank account had gone from fat to flat.
+
+As I strummed a few melancholy chords on the piano, I couldn't help but think about how far I'd fallen. Just a year ago, I was opening for big-name acts at venues like the Hollywood Bowl and the Whisky a Go Go, with sold-out crowds hanging on my every word. Now, I was lucky to get a gig at the local coffee shop down the street from my apartment, and even then, it was usually just a handful of sad-sack music fans who showed up to listen to me warble away about heartbreak and lost love.
+
+But despite the setbacks, I couldn't shake the feeling that there was something more out there for me - something that would take me back to the top of the music scene, where I belonged. And so, with a sense of restless determination, I began to noodle out a new song on the piano, one that would shake off the doubts and fears that had been weighing me down and send me soaring once again into the spotlight. Little did I know, this song would change everything.

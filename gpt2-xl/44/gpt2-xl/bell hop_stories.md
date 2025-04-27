@@ -1,0 +1,5 @@
+Once upon a time, there was a bell hop named "Ralph Wiggum," which was voiced by Fred Armisen, with whom I had a great time at Coney Island. I also remember when Ralph was part of "The Family Guy" – and I wanted to be his brother, and my name was "Ralph Wiggums" (and I thought it would be funny to walk in the room with one of these two wannabes). Then, one day I opened Reddit, and I saw that it wasn't actually possible to make people's names sound like I always had imagined them, so I thought – what if, in the name of good taste, I changed how people's names sound? People would actually want to be named after me. So I turned it into a challenge, and I created the following subreddit and gave it a vote. It won. If you want to look into the details, just go to /r/AskReddit, /r/NoahIsHere, or /r/RalphWiggum.
+
+3. I've been told that I am the "Ralph Wiggum" of Reddit to a certain extent – how does that make you feel?
+
+Awww, I love it! And also it makes me feel kind of proud that this guy who wasn't actually named after me somehow took on this role from whom I've had great fun trolling. I think it was kind of like a weird "

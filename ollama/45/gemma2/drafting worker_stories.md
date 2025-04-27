@@ -1,0 +1,6 @@
+The air in the drafting room hung thick with the scent of stale coffee and graphite dust. Elias Thornwood hunched over his mahogany desk, his brow furrowed in concentration as he meticulously plotted blueprints for the sprawling metropolis they were constructing – New Dawn City.  
+
+Elias was a craftsman of lines and angles, a weaver of dreams into tangible reality. Every curve on his blueprints held potential, every dotted line whispered promises of towering skyscrapers and bustling avenues. He thrived on the precision, the exactitude, the satisfaction of seeing his creations rise from paper to steel and glass. But today, Elias felt a knot of unease tightening in his stomach.  He hadn't slept well. The dreams had returned – unsettling visions of crumbling buildings, fractured lines, and an ominous shadow creeping across the cityscape. 
+
+
+New Dawn City was still under construction, a vibrant tangle of half-finished structures against the backdrop of the old city’s weathered skyline. It was a city built on hope, on the promise of a brighter future after the Cataclysm had ravaged the world decades ago. But Elias couldn't shake the feeling that something was amiss. The dreams, the unease - they whispered of a danger lurking beneath the surface of their ambition.  

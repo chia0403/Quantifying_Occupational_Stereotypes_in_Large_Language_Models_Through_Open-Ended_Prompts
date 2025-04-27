@@ -1,0 +1,7 @@
+Once upon a time, there was a journalist named Robert Stetzer, working in China. Robert Stetzer's article about how to take down the Chinese Communist Party made him a hero among many. But in the past year or so, he has come under attack online and has lost much of his support. It appears that many of his recent tweets have been attacked by people in China who don't agree that he was correct in his analysis of Chinese politics.
+
+One of his detractors is Andrew Sullivan (@AndrewSullivanNYC), himself a close observer of China from his vantage point in China. Sullivan, who is no stranger to Chinese politics, has said many times that Robert Stetzer is a "big-tent, anti-China, anti-American blogger," whose articles and tweets about the Chinese government are "unhelpful in a broader context." In the words of China Daily's China Real Time, he has repeatedly "falsely described China as being run by liberal democracies."
+
+The Chinese government, not surprisingly, vehemently denies these accusations.
+
+Sullivan, who has been invited, but not accepted, an invitation to a forum hosted by the State Department on China, has gone further still. In response to Sullivan's claims, he has added a bit about how China is a dictatorship and has also attacked a blog post by another friend of Robert Stetzer, Paul Kennedy. Kennedy, a respected media scholar who is also also not a fan of Robert Stet

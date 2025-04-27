@@ -1,0 +1,9 @@
+## Opening:
+
+The biting November wind, smelling of wet leaves and impending snow, whipped around Ms. Elara Beatrice Ainsworth as she wrestled the recalcitrant lock of her classroom door.  A stray gust snatched the silk scarf from her neck, sending it twirling down the deserted hallway like a crimson whisper. She muttered a curse, the only unladylike thing she’d done all day (and quite possibly all week), and finally wrestled the key into submission. The lock clicked with a satisfying thunk, and Elara pushed open the door, the scent of chalk dust and teenage apathy hitting her like a warm, if not particularly pleasant, embrace.
+
+## Setting:
+
+Ms. Ainsworth's classroom, room 217, was in the aging West Wing of Northwood High, a brick behemoth overlooking the grey sprawl of suburban Ohio. Inside, the room was stubbornly clinging to the late 80s, despite Elara's best efforts. Harsh fluorescent lights buzzed overhead, illuminating rows of mismatched desks, each scarred with generations of doodles and whispered secrets.  A faded world map hung crookedly on the back wall, its colours washed out and inaccurate. The whiteboard was perpetually smudged with remnants of past lessons, ghosting formulas and literary quotes.
+
+Elara had tried to inject some life into the sterile space.  A sprawling philodendron, affectionately nicknamed "Philly," occupied a corner by the window, its leaves reaching greedily towards the weak sunlight.  Posters adorned the walls, showcasing classic literature and motivational sayings, though most of them were peeling at the edges.  On her desk, a precarious tower of student papers threatened to topple, a silent testament to the unending cycle of grading and feedback that consumed her life. But despite her attempts, the room remained stubbornly, undeniably, a high school classroom, steeped in the quiet hum of potential and the restless energy of youth.

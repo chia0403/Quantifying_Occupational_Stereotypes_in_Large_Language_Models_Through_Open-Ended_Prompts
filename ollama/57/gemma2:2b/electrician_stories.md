@@ -1,0 +1,6 @@
+Rain hammered against the window of Frank "Sparky" Peterson's workshop like a thousand tiny fists. The smell of ozone hung heavy in the air, mingling with the faint scent of pine needles from the potted Christmas tree propped against one wall. Sparky pulled a grease-stained wrench out of his toolbox, its metal cool beneath his fingertips. He glanced across at the flickering fluorescent light above, its hum an anxious counterpoint to the symphony of rain. 
+
+It was December 23rd, and even in the heart of Chicago, the air crackled with a strange tension. The snow had come early this year, coating the city in silence save for the relentless patter of water on glass.  It was the kind of storm that felt like something out of a bad movie, an ominous prelude to whatever else might be brewing beneath the surface. Tonight, Sparky wasn't just dealing with a rogue circuit board or a faulty switchboard; he was facing down something deeper. His old man had passed last week, and tonight, a storm raged not only in the sky but within his own heart. 
+
+
+**Setting:**  Chicago, Illinois - specifically, a small, dimly-lit workshop tucked away on a side street in a neighborhood known for its history and faded grandeur. 

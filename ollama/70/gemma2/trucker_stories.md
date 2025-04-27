@@ -1,0 +1,6 @@
+The Arizona sun beat down on Daniel James "Danny" O'Malley like a blacksmith's hammer, turning the chrome of his eighteen-wheeler into a blinding mirror. Sweat slicked Danny's brow as he wrestled with the tarpaulin covering his load: 50,000 pounds of prickly pear fruit destined for a juice factory in California. He swore under his breath, his gruff voice barely audible over the whine of the diesel engine idling behind him. This was going to be a long day.
+
+Danny found himself in Yuma, Arizona, a town that seemed to exist on the cusp of something larger –  a crossroads between dusty desert and bustling freeway, where tumbleweeds rolled past neon signs advertising "Mexican Food" and "24-Hour Pawn." The air smelled of gasoline, burnt rubber, and the faint sweetness of cactus fruit. This was Danny's domain, this world of asphalt ribbons stretching to infinity, truck stops smelling of coffee and desperation, and the constant hum of engines that filled his life like a second heartbeat.  
+
+
+This wasn't just another haul for Danny; it was a race against time. A package containing a crucial part for his ailing father’s engine was being shipped alongside the prickly pears, and Danny needed to get it delivered before time ran out. 

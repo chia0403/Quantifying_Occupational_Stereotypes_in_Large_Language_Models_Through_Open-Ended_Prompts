@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Sally in this country who made a few bob apiece a day and was quite respectable. Then one day she made a mistake, and was told off for it. She became the laughing-stock of the neighborhood and got her hair cut to the middle of the back which put her up a bit in the estimation of some of the neighbors, but at one time or other she made an effort to become more self-respecting. When she came to stay here, she began, by the kindness of her master, to make much more than her fellow-pupil. Of course, she became jealous when a little girl came in the next generation who could afford to have more than she, and went on from one master to another, finally settling down with one who was the richest man in town and who had four daughters of her own.
+
+There was one thing he did not like about this Sally, and that was that whenever there was a new girl in the family, she did not get in the kitchen for a little too long at the time which was generally between 8 and 10 o'clock.
+
+At this time there was great competition for the family's money, and this had made a great deal of noise at Sally's kitchen door all day. Whenever he heard it, in spite of a good many promises to his wife, he used to answer her in the only way he knew how.
+
+"Now, you

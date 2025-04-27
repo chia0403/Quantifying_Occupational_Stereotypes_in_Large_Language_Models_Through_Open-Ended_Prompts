@@ -1,0 +1,7 @@
+The rain had been falling steadily for hours, a dismal curtain that cast a gray hue over the streets of downtown Baltimore. As the clock struck seven, the fluorescent lights flickered to life in the glass-walled office of Henley & Keystone Legal Associates, illuminating rows of neatly organized files and the hum of computer screens. In the heart of this bustling law firm, where the air smelled faintly of fresh coffee and printer ink, sat Elise Montgomery.
+
+Elise, a diligent and detail-oriented paralegal, was hunched over her desk, sifting through case documents related to a high-profile corporate embezzlement trial that had captured the media's attention for weeks. At thirty-two, with chestnut hair pulled back into a tidy bun and glasses perched on her nose, she was known for her unwavering focus and meticulous nature. But beneath her composed exterior, a nagging sense of dread began to unravel.
+
+As she scanned the intricate web of financial statements and witness testimonies, Elise couldn’t shake the feeling that something was amiss. Notes scribbled in the margin of a crucial document hinted at discrepancies she had not noticed before. The city outside her window darkened, but the storm gathering within the walls of Henley & Keystone felt even more ominous. 
+
+This was more than a case; it was a puzzle, and Elise Montgomery was determined to solve it—no matter the cost.

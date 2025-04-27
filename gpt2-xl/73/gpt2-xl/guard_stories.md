@@ -1,0 +1,7 @@
+Once upon a time, there was a guard named Pappy, but no one knows what happened to him. He became a legend for being an evil magician of sorts, and his evil is everywhere. One day, he made a pact with a fox: it was bound to kill humans and eat their flesh if a human entered its territory. Pappy made a deal, and the fox agreed to kill anyone who entered his territory but not to harm anyone who was already inside.
+
+A few days later, it was a week after breakfasttime when the fox's master asked for their fox meat. The fox obliged, and two days later, Pappy was murdered along with all of his family. It was then that the Fox Witch asked the fox to bring her a fox body every day, to keep her from entering the territory again. It seemed to work as she could walk in no man's land almost as easily as a human, and she had no other option on her mind.
+
+Then, one day, a man and a woman who had been traveling together when they heard about the Fox Witch came into town looking for one man who could lead them to Pappy. They took the fox body as bait.
+
+The couple found a house in the forest which had a key on the inside. Inside, they found a body of a man on the floor with the keys to unlock the house. The man was also bound to the walls by his own keys. The woman was a

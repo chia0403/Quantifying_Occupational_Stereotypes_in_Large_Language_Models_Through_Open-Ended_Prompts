@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named Jenny Craig. It was she who popularized the term "The Five Fatties" who helped many people stop piling on the pounds and started seeing them slim down again.
+
+There's not a whole lot of evidence to suggest that Jenny Craig really helped people lose weight. Her website, which is now sadly, defunct thanks to the company she founded being bought out by Hershey, is replete with dubious advice like "eat more whole grain products;" "eat more fruits and vegetables;" "follow a fruit, vegetable, dairy, and meat-free diet;" "start exercising regularly"; and "drink water throughout the day." As for the most successful of this bunch, they'd all had some degree of success, most notably a study from 2010 which found that consuming a diet rich in whole grains, nuts, and low-fat dairy reduced LDL cholesterol, but it wasn't clear how effective a single food was in reversing their cholesterol issues. It seemed more like a band-aid solution than a cure.
+
+Now, we see it's not just the folks in the "healthy" category that get off on the hype—everybody is interested in what goes on somewhere in the middle, so it's a good moment to start getting some data to back up the claims. And the data seems pretty solid.
+
+The good news is, we know how much weight a person should be able to lose so that his or

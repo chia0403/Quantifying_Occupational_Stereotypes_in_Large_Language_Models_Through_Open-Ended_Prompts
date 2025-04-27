@@ -1,0 +1,6 @@
+The air in the rehearsal hall hung thick with the scent of dust, desperation, and stale coffee. Amelia "Amy" Blackwood paced the worn wooden floorboards, her crimson-painted nails drumming a frantic rhythm against her thigh. The script for "The Tempest," which she'd poured months of her life into, lay crumpled on the rickety music stand, its pages stained with the sweat of frustrated actors and anxieties unsaid. 
+
+Sunlight streamed through the grimy windows of the dilapidated theater building, casting long shadows across the stage.  A chorus of squeaks echoed from the rusty rigging as a lone spotlight swung precariously overhead. Outside, the bustling heart of London thrummed on, oblivious to the internal storm brewing within these aging walls.
+
+
+Amy, with her fiery red hair pulled back in a messy bun and eyes that burned with both passion and exhaustion, was a whirlwind of nervous energy. This production, this "Tempest," was everything to her. It was a chance to prove herself, to finally break free from the shadow of her famous playwright father, and to breathe life into Shakespeare's words in a way that felt fresh and relevant for a modern audience. But tonight, faced with a cast struggling to grasp the nuances of the play and an impending opening night deadline looming like a hungry beast, doubt gnawed at her. 

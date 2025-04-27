@@ -1,0 +1,7 @@
+The air hung thick with the scent of gasoline and burnt oil, a familiar perfume to Emilia "Em" Reyes. Grease stained her faded denim overalls, and a smear of grime traced its way down her cheek like an unwelcome badge of honor. Her calloused hands tightened around a wrench, muscles coiled beneath the worn fabric of her shirt. The dim light of the overhead bulb in Reyes Auto Repair cast long shadows across the cluttered workshop, illuminating rows of disassembled engines, tools scattered like fallen soldiers, and the half-eaten burrito perched precariously on a toolbox. Outside, the first drops of rain began to splatter against the corrugated metal roof, a prelude to the storm brewing over Mesa Verde, Arizona.  
+
+Em squinted at the engine in front of her – a 1970s Ford Mustang, its once-proud cherry red paint faded to a dusty rose. She had inherited this beauty from her late grandfather, Miguel, a man who’d taught her everything she knew about engines and life. It was his last project, left unfinished when he’d succumbed to a sudden illness.  
+
+Now, Em sat with the Mustang’s engine block before her, determined to finish what her grandfather had started. This wasn't just about fixing a car; it was about honoring his memory, keeping a piece of him alive in the whirring pistons and roaring exhaust that defined their world. But tonight, the storm felt different. It carried a sense of unease, like something beyond the weather threatened to break through the familiar rhythms of her life. 
+
+

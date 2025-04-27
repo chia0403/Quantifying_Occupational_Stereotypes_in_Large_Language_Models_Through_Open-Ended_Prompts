@@ -1,0 +1,5 @@
+The air hung heavy with exhaust fumes and diesel as Clayton "Dusty" Miller shifted his weight in the worn leather of his cab.  He squinted at the horizon, a ribbon of desert stretching endlessly to meet the shimmering heat haze that danced on the asphalt before him. The midday sun beat down mercilessly on the dusty California highway, turning it into a mirage he could almost taste with each gust of wind from his cracked window. 
+
+The setting sun cast long, jagged shadows of pine trees and cacti against the endless expanse of earth. It was a landscape that felt as unforgiving as it was beautiful. Dusty had seen it all -  the stark, lonely beauty of Nevada's valleys, the vibrant lifeblood of Florida’s coastlines, and the heart-wrenching isolation of Alaska's frozen plains. Yet, this desert stretch always held him captive in its silence. 
+
+Clayton Miller wasn't just a trucker; he was an embodiment of that relentless road – scarred, worn down, yet somehow strong. His forty years on the asphalt had forged him into a man who knew every curve and bump of every highway, every tollbooth and every town. 

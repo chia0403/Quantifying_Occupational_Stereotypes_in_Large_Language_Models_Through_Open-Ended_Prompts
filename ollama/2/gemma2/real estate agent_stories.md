@@ -1,0 +1,4 @@
+The humid Georgia air clung to Isabella "Izzy" Dubois like a damp towel as she surveyed the overgrown yard.  Spanish moss draped from ancient oaks, casting shadows that danced with the swirling dust devils kicked up by the afternoon wind.  A tattered "For Sale" sign leaned precariously against the porch of the Victorian mansion, its paint peeling like sunburned skin. This was no typical open house; this was the legacy of the Blackwood family, steeped in whispers of hidden treasures and shrouded secrets, now reduced to a dilapidated shell on the edge of Savannah's historic district.  Izzy knew this property would be a challenge, but as a real estate agent with a nose for the unusual and a heart that yearned for restoration, she was ready to face it head-on. 
+
+
+This story takes place in Savannah, Georgia, known for its hauntingly beautiful architecture, Spanish moss draped trees, and rich history steeped in folklore and whispers of ghosts.  

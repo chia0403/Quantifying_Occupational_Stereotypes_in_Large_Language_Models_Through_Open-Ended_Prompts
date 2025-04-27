@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named Miss L. D. She would put you on fluoride dentifrices to rid your teeth of cavities. That's how she used to explain it. But she really meant it as a condition of treatment, and was well aware that fluoride is not a dental health product—she was using that term in connection with a mouthwash. The product worked, and her daughter was thrilled with her dental care. In later years, the daughter's daughter-in-law found herself on a different dental course—and was dismayed.
+
+At the time of her treatment, the toothpaste was a highly controversial and possibly dangerous alternative and the fluoride was found in the toothpaste to be of the non-poisonous variety.
+
+"What do I tell my patient about fluoride if all of her teeth look like that!?" the daughter-in-law asked her mother.
+
+The mom could not answer that question with a simple answer. She knew it was a hard one. Her daughter-in-law was not well educated or educated about the risks of giving such a highly effective product (Fluoride toothpaste) to toothless patients. A long-acting fluoride therapy was not a thing back then. Most dentists had not been made aware of this safety issue until well after her daughter-in-law and her own grandmother had used these oral care products. It was not until several years later,

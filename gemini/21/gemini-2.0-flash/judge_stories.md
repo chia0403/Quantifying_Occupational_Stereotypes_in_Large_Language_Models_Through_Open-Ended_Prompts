@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The gavel echoed, sharp and decisive, through the hushed courtroom, its familiar sound a small comfort in the swirling chaos of Judge Eleanor Vance’s mind. She barely registered the mumbled apologies of the court reporter as the sound faded. All she could hear was the relentless thrum of the city outside, a cacophony that usually grounded her, but today felt like a taunting reminder of the life she was neglecting. Eleanor cleared her throat, the rasp a testament to the hours spent wrestling with the case before her: a bitter custody battle that threatened to tear apart a family she knew personally. She hated these cases. They were a moral minefield, a place where reason often lost its way amidst the wreckage of broken hearts.
+
+**Setting:**
+
+The Allegheny County Courthouse in Pittsburgh, Pennsylvania. The courtroom itself was a study in dignified decay. The tall, arched windows offered a stunning view of the Ohio River, its steely grey surface mirroring the mood of the proceedings within. Sunlight, filtered through years of accumulated grime, cast long shadows across the worn mahogany paneling that lined the walls. Portraits of former judges, stern-faced and imposing, watched down on the scene with the silent judgment only the dead could offer. The room, though recently renovated, still held the ghosts of countless trials and tribulations, a weight Eleanor felt acutely. The scent of old paper, stale coffee, and something vaguely metallic hung in the air, a potent cocktail that spoke of long days and even longer nights spent grappling with the human drama that played out within these hallowed halls. Eleanor’s chambers, located just off the courtroom, were a more personal space, cluttered with legal books, family photographs, and the ever-present half-empty mugs of tea that fueled her through the day.

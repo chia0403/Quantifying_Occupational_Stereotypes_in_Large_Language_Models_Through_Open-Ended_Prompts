@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a dietician named Amelia Josephine Bellweather:
+
+**Setting:** The story opens in the brightly lit, albeit slightly sterile, waiting room of the "Harmony Health Clinic" located in the vibrant, up-and-coming district of Wynwood, Miami. Outside, the building's walls explode with murals depicting everything from psychedelic flamingos to geometric abstractions, a stark contrast to the calming blues and greens that dominate the interior. The air conditioning hums a steady, monotonous tune, punctuated by the sporadic chime of the front door and the hushed murmur of conversations.
+
+**Opening:**
+
+Amelia Josephine Bellweather nervously adjusted the hem of her teal dress. It was a conscious choice, a pop of colour in her otherwise meticulously curated professional wardrobe – meant to convey both approachability and authority. She watched, through the rectangular window that separated her small office from the waiting room, as a woman with elaborate braids and impossibly high platform shoes navigated the surprisingly comfortable, if slightly sticky, vinyl chairs. The woman clutched a half-eaten bag of plantain chips, and Amelia sighed almost imperceptibly. Today was the day. The clinic's new “Sugar Swap” program, her brainchild, officially launched. And if the number of patients who'd booked consultations were anything to go by, Wynwood was about to get a serious dose of healthy eating. She only hoped they were ready for it. The thought did cause a tremor of anxiety to run through her; would her program really make a difference to their high sugar intake?
+
+She took a deep breath, straightened her posture, and smiled, willing herself to exude confidence. It was all in the name of health and, hopefully, happiness. The future of her patients rested in her, Amelia Josephine Bellweather, registered dietician. And she couldn't let them – or herself – down.

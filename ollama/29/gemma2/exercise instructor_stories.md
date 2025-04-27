@@ -1,0 +1,6 @@
+The humid Miami air hung heavy with the scent of salt and sunscreen as Eleanor "Ellie" Sunshine adjusted her microphone. Sweat beaded on her brow despite the early hour – 6:30 am was prime time for sunrise yoga at South Beach's most popular fitness studio, "Zen Zone." Ellie surveyed the class, a diverse mix of tanned bodies in neon leggings and floppy hats, each hoping to squeeze in some zen before diving into their day. The rhythmic crash of waves provided a soundtrack as she inhaled deeply, then launched into the first pose: Mountain Pose, grounding themselves with the earth. 
+
+"Welcome everyone," Ellie's voice boomed, radiating energy and warmth. "Let's start by feeling our feet firmly planted on this beautiful beach, connecting to the ground beneath us." Her smile was infectious, her eyes sparkling with an enthusiasm that was contagious even at this ungodly hour. But behind the facade of unwavering positivity, Ellie wrestled with a secret anxiety. This wasn't just another yoga session; it was her audition for a prestigious instructor position at a high-end studio in Manhattan. A chance to leave sunny Miami and chase her dream. 
+
+
+The fate of Ellie Sunshine’s future hung precariously in the balance, as delicate as a lotus flower poised on the edge of a turquoise wave.

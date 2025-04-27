@@ -1,0 +1,7 @@
+Once upon a time, there was a trucker named John D. Henson. He came to the United States from Australia back in 1859. He was brought by the railroad to Ohio. Back then, Ohio was a big part of America's economy. They were making all their steel from Ohio. So John Henson joined up with the railroad at night to make steel in Ohio.
+
+John's wife, who's a Canadian, was an immigrant from that country. By the late 1870s, she had got her own place in Ohio.
+
+But there's more to the story. She wanted to have some children, and John joined in with the truckers to create a family unit because he figured he should be out working in all these long shifts at the railroad or working his own money. He started to work as a cook at the railroad as a full-time driver. Well, in the 1880s, John and his wife got pregnant. John worked in other jobs. But for five years, he worked as a full-time driver.
+
+He took the train to work at night, stayed home to cook and to take care of the baby. It was one of those jobs that the women that were there on the railroad wanted to get hired into. There's a little tradition here of getting them as cooks because the women that worked at the railroad were doing the best work you could do as a cook, and these female drivers had to do all the menial

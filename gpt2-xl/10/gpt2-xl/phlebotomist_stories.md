@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named L.M. Leckie, who wrote a book about phlebotomy, and I took it and read it. I think if anyone should have a book about phlebotomy, it might be L.M. Leckie. It was a very readable book, one I would recommend to anyone who wants to understand anatomy and surgery and physiology and how blood gets to the various parts of the body. He said phlebotomy was a science that came after other sciences.
+
+Q: How does a surgeon learn phlebotomy?
+
+A: One of the problems you face, particularly in the West, is that there are a lot of books on phlebotomy and not a lot of people who could teach that. Not to say there isn't any interest or interest in the subject – if nobody had any real need for it, then it couldn't be sustained – but there aren't a lot of medical schools that teach that.
+
+There is an anatomy course at Dartmouth, for example, but there are courses in anatomy in the United States, and the courses in anatomy are not taught in medical schools. One of the reasons physicians are often ignorant of their anatomy is because they come with anatomy courses that take years of study, whereas it takes a few weeks of training to learn anatomy. Doctors take a number of basic medical courses in the United States with different kinds of curric

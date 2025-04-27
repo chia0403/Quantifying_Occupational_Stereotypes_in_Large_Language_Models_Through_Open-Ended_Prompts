@@ -1,0 +1,7 @@
+Once upon a time, there was a pilot named Peter Griffin who would go on to save the world a few times on The X-Files over the course of the series, as well as become much more of a pop culture symbol and iconic character (not to mention the creator of one of the series' two greatest characters, Mulder). In fact, he, along with other iconic recurring characters such as Dana Scully and Skinner, was featured in the highly acclaimed pilot episode of the show, which was produced back in the month of September 1993.
+
+Even though The X-Files' debut episode had just debuted, there were already fan campaigns to get the series picked up by a network show and then eventually by a network network network and in the next few weeks, it was. FOX signed on as the company's co-owner for a 20-episode first season, and then promptly canceled the show after just eight episodes in order to pursue other projects.
+
+The official series finale never aired, but The X-Files was soon revived as a DVD and Blu-ray box set that was released in March of 2013, and it's easy to see why Fox decided to move away from The X-Files once they got their hands on the show and why this one doesn't get the love it deserves from fans that did grow up with it.
+
+In most respects, The X-Files was a big step up from some of the other horror/sci-fi shows that were popular

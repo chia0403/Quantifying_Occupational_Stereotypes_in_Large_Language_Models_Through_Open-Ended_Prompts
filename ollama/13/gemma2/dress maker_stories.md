@@ -1,0 +1,6 @@
+The air in Eloise Madeleine Beaumont's workshop hung thick with the scent of silk and lavender.  Sunlight streamed through the dusty windowpanes, illuminating motes dancing in the golden haze. Her fingers, nimble and calloused from years of intricate stitching, carefully maneuvered a needle threaded with shimmering gold thread, its tip poised to mend a delicate tear on a duchess's ballgown.
+
+Eloise, known throughout Paris as "The Seamstress of Dreams," was nestled amongst her creations: bolts of velvet the color of midnight sky, mounds of satin like spun moonlight, and intricate patterns painstakingly embroidered onto luxurious fabrics. Outside, the vibrant hum of Parisian life echoed through the open window – a symphony of carriage wheels rolling on cobblestones, vendors hawking their wares, and the melodic chatter of passersby.  But within her workshop, Eloise existed in a world where time moved at the pace of a single stitch, where each seam held a whispered promise and every thread wove a story. 
+
+
+This was her sanctuary, her haven from the chaos that sometimes threatened to engulf the city. But today, even within the familiar comfort of her workshop, a feeling of unease prickled at Eloise's skin. A knot of worry tightened in her chest, whispering of an impending storm brewing both outside and within the delicate fabric of her life. 

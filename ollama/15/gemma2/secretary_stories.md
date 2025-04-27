@@ -1,0 +1,6 @@
+The rhythmic click-clack of Agnes Beaumont's fingers against her vintage typewriter was the only sound breaking the morning silence in Mr. Hawthorne's office. Outside, London was just stirring awake, the faint grey light filtering through the dusty blinds to paint stripes across her neatly organized desk.  A plume of steam rose from her chipped china mug of tea, swirling like a miniature storm cloud above the overflowing ashtray beside it. 
+
+Agnes, with her meticulously pinned-back auburn bun and sensible navy dress, was as much a fixture in Mr. Hawthorne's cluttered office as the antique globe that occupied one corner and the towering bookshelf crammed with leather-bound volumes. She’d been his secretary for fifteen years, a silent witness to his triumphs and failures, the keeper of his secrets and the executor of his whims. 
+
+
+But this morning felt different. A prickle of unease danced on the back of Agnes' neck, an intuition she couldn't quite place.  Mr. Hawthorne was due back any minute from his meeting with Lord Ashworth, a man known for his ruthlessness and penchant for underhanded dealings. And something about the way Mr. Hawthorne had left this morning – a furrow in his brow, a hurried whisper of "keep everything confidential" – told Agnes that whatever transpired wouldn't be ordinary. 

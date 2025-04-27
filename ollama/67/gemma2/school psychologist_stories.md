@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia Celeste Hawthorne's head, casting a sickly yellow pallor over the cluttered room. Papers overflowed from overflowing trays, maps of the human brain hung haphazardly on the walls, and a half-eaten bag of sunflower seeds sat precariously on the edge of her desk – testament to a day already overflowing with anxieties. 
+
+Amelia sighed, rubbing her temples as she stared at the latest referral in front of her: Ethan Pierce, 10 years old, suspected anxiety disorder. Another case added to the ever-growing pile, another child wrestling with demons Amelia hoped she could help understand and tame.  
+
+The walls of Mrs. Hawthorne's office, located in the bowels of Maplewood Elementary School, held the weight of countless whispered fears and unspoken traumas. Today, however, it felt heavier than usual. A palpable tension hung in the air, a silent echo of the storm brewing outside - a tempestuous mix of wind and rain that mirrored the turmoil churning within Amelia's own heart.  

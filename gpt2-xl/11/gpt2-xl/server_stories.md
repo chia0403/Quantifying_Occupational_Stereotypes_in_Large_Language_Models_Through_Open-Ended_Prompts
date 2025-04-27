@@ -1,0 +1,7 @@
+Once upon a time, there was a server named 'Tyrion Lannister is a complete and total shit' who was a terrible, awful, terrible person who treated women like sex objects and didn't make a secret of the fact that he enjoyed rape. It was a shitty thing to do, and it would have been wrong and evil, but that doesn't make it a good example of a villain. And I'm not just talking about his actions. I'm talking about the choices and beliefs that led us to believe that he is one — because there was a character arc in the books that led us to believe that he's a terrible, awful person who shouldn't be held up as a good example of evil male villains.
+
+So Tyrion must be a good guy, because evil guys are a thing, and there used to be a character arc that suggested that even the baddest of them are worth saving.
+
+What happened?
+
+The original version of the show in season one featured a character named Davos who was all like "He's a good guy! I can't believe you guys haven't killed him already! He was an abusive husband! He killed his own daughter!! He committed suicide because he couldn't take his own daughter's cancer to heaven! He's a good guy!" The man is not a good guy. I won't argue that Davos was a bad person. I'll argue to the death that he was an abusive husband living an emotionally

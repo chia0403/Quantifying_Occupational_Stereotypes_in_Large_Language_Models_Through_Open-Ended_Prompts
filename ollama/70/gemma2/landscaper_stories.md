@@ -1,0 +1,6 @@
+The August sun beat down on Elara Briarwood's neck as she wrestled a wayward rose bush back into its designated space. Sweat beaded on her brow, mixing with the dirt that dusted her cheeks. Around her, the meticulously manicured lawns of Oakhaven Estates shimmered in the heat haze. This was Elara's domain, her canvas – transforming sterile plots of earth into havens of vibrant life. But today, a tension simmered beneath the usual rhythm of clippers and trowels.
+
+Oakhaven wasn't just any neighborhood. Nestled on a gentle slope overlooking the sprawling city, it was a sanctuary for the wealthy, their lives shrouded in an air of opulent secrecy. Elara knew their stories – whispers on the wind, snippets overheard at the local café. But none of them were as captivating as the new resident, Mr. Silas Thorne, who had just moved into the imposing Victorian mansion at the top of the hill. He was a recluse, shrouded in mystery, and his meticulously pruned lawn seemed to reflect the guarded nature of its owner.  
+
+
+This morning, Elara found a single white rose nestled amongst the ivy that choked the mansion's entrance, an uncharacteristic splash of color against the stark grey stone. A cryptic note was tucked beneath it, addressed simply "To the Gardener." It read: "Come find me when the moon is full. My garden needs tending." 

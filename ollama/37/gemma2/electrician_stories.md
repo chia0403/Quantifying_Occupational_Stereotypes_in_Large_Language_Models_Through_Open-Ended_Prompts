@@ -1,0 +1,7 @@
+The humid Georgia air clung to Elias "Eli" Bartholomew like a second skin as he wrestled with a tangled mess of wiring in the attic of Mrs. Henderson's Victorian mansion.  Dust motes danced in the slivers of sunlight piercing through grimy skylights, illuminating the space where cobwebs draped from rafters and floorboards creaked ominously under Eli's weight. The scent of aged wood and mothballs hung heavy, a pungent reminder that this house had seen its fair share of time. 
+
+Eli swore under his breath as a loose wire sparked, sending a shower of sparks skittering across the dusty floorboards. He wasn't exactly thrilled about working in this dilapidated relic, especially on a sweltering summer day like this. Mrs. Henderson had insisted it needed "fixing up for the grand reopening," whatever that meant. Eli suspected the real reason was to impress her granddaughter, who'd inherited the mansion and seemed determined to restore its former glory. 
+
+Eli wiped his brow with a grimy rag and squinted at the tangled mess of wires.  He could hear the distant hum of cicadas outside, their incessant chirping adding to the symphony of creaks and groans that filled the dusty attic. He just needed to untangle this mess and reconnect the power, then he could get out of this sweltering tomb and grab a cold beer. But as he reached for a particular wire, something glinted beneath it, catching his eye. It wasn't supposed to be there...
+
+

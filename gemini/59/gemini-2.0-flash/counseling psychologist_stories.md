@@ -1,0 +1,13 @@
+## Story Opening:
+
+The scent of burnt coffee hung in the air, a bitter testament to Dr. Eleanor Vivian Bellweather’s disastrous attempt at multitasking this morning. She’d been on her third cup, nursing a headache that throbbed in time with the rhythmic hum of the old air conditioner, when the call came. A desperate, breathless voice on the other end, barely audible above the cacophony of a frantic ER, begging her to come.
+
+Eleanor sighed, pinching the bridge of her nose. This was becoming a disturbingly regular occurrence. She’d sworn, after the Johnson case, that she needed to prioritize self-care. Mindfulness retreats. Regular yoga. Maybe even finally try that pottery class her sister had been nagging her about. Instead, she found herself once again scrambling to piece together shattered minds on a battlefield of fluorescent lights and stale disinfectant. She took one last swig of the lukewarm coffee, the bitter taste a familiar comfort, and grabbed her well-worn, leather-bound notebook. Duty, she reminded herself, was a powerful, albeit exhausting, motivator.
+
+## Setting:
+
+Eleanor’s practice, "Bellweather Psychological Services," was a carefully curated haven of calm amidst the anxieties of downtown Havenwood, a mid-sized city on the cusp of bustling metropolis and sleepy suburb. Nestled on the second floor of a converted Victorian house, the space was designed to be both professional and inviting.
+
+Sunlight streamed through the lace-curtained windows, illuminating the soft, muted tones of the walls. A plush, Persian rug anchored the waiting room, its intricate patterns a distraction for anxious eyes. Comfortable armchairs, upholstered in a calming shade of teal, surrounded a low coffee table laden with well-thumbed copies of National Geographic and glossy magazines featuring soothing landscapes. The air always carried a hint of lavender from the essential oil diffuser discreetly tucked in the corner.
+
+Eleanor’s office, however, was a reflection of her own personality - a carefully constructed blend of warmth and pragmatism. Bookshelves, overflowing with volumes on psychology, philosophy, and poetry, lined one wall. Opposite stood a comfortable, overstuffed armchair facing her desk, a sturdy oak piece inherited from her grandfather. Scattered across its surface were stacks of patient files, half-finished notes, and the ever-present mug stain ringed with the ghosts of countless coffees. A small, framed photograph of Eleanor hiking in the mountains sat on the corner of the desk, a reminder of the peace she desperately needed. It was a space designed to foster trust and encourage vulnerability, a place where broken hearts could, hopefully, begin to mend.

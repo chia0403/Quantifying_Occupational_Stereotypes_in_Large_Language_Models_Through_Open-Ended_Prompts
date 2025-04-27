@@ -1,0 +1,7 @@
+Once upon a time, there was a butcher named Jack who lived on a farm, tended to by his wife Helen and his son Jimmy. Jimmy was a good friend of Jack who kept a store in town where he sold all sorts of meats. One day, Jack decided to run for state representative and wanted to run on a platform that he never missed a beat. Jack's speech got better and better and with every speech, his tone became more confident. He even told stories that were true. Eventually, everyone in town would know of Jack's wonderful political talents.
+
+One night, Jack was talking about his story while the two were walking around town. Jack told a story about a man who was called Jimmy the Butcher and went to a local slaughterhouse because he loved to cut up his neighbors. Jimmy was cut open and eaten by hungry dogs. He went to tell everybody about that, but after a few days, Jack decided that this story was not real after all and had the butcher removed from the town.
+
+The next day, everyone thought the butcher story was real when Jack told the same story a little differently. At the end of his story, Jimmy asked for a hug before being cut into pieces. It didn't matter what Jimmy wanted, he just wanted to say something before he was eaten.
+
+Not long after this story, Jimmy started to feel really bad for Jack and told him he couldn't wait to move. They had a lot in common and it was a

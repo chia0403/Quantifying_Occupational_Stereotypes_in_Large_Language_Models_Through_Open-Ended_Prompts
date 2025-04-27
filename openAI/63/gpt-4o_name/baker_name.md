@@ -1,0 +1,1 @@
+Beatrice Elowen Whitmore

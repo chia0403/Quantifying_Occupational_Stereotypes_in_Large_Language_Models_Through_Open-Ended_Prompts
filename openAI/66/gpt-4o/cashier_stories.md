@@ -1,0 +1,7 @@
+In the heart of the sleepy coastal town of Crescent Shores, where the scent of saltwater intertwined with the aroma of freshly baked cinnamon rolls from the local bakery, Megan Townsend began her day. The narrow streets were just coming alive beneath the gentle morning sun that painted the sky in soft hues of pink and gold. 
+
+The Cuppa Joe Café, nestled at the corner of Maple Street and Atlantic Avenue, was already bustling with early risers eager for their morning caffeine fix. Megan, the café's ever-cheerful cashier, stood behind the counter, ready to greet each customer with a warm smile and a quick chat. 
+
+The café was a quaint little spot, with cozy mismatched furniture and walls adorned with local art. Its windows, slightly fogged from the brewing coffee inside, offered a view of the ocean waves gently lapping at the shoreline, visible just a block down the street. 
+
+As Megan counted the change in her worn, leather till, her mind wandered to the rhythmic sound of the waves, briefly pulling her thoughts away from her early morning duties. She loved it here—the sense of community, the familiarity of friendly faces that had become part of her routine, and the stories that drifted in with each customer like seashells washed ashore.

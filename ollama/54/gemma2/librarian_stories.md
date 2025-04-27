@@ -1,0 +1,5 @@
+The aroma of old paper and leather hung heavy in the air, a comforting familiarity to Eleanor Hazelwood. Sunlight streamed through the arched windows of the Oakhaven Public Library, illuminating swirling motes of dust dancing in its golden beams.  Eleanor, her silver hair pulled back in a neat bun, adjusted her spectacles and surveyed her domain. Rows upon rows of books stretched before her, each spine whispering stories untold. She ran a finger along the worn velvet of a leather-bound first edition, savoring the tactile memory of countless readers who had come before her.  
+
+Oakhaven was a sleepy town nestled amidst rolling hills, untouched by the frenetic pace of the modern world. Its inhabitants were as predictable as the turning seasons, and Eleanor, with her encyclopedic knowledge of local history and gossip, knew them all. But lately, a subtle unease had begun to prickle beneath the surface of Oakhaven’s placid existence.  Something was amiss, and Eleanor, the quiet observer of human nature, felt it in her bones. 
+
+

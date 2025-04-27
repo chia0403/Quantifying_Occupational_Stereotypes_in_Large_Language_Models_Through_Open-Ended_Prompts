@@ -1,0 +1,7 @@
+Once upon a time, there was a probation officer named Dave Smith. He was a pretty smart guy. He was kind hearted, and he had very good judgment, and he had a lot of experience. And he was a good officer. Then the city of Houston, back in 1999, decided it wanted to make the mistake the old-fashioned way. I'm not sure how exactly the formula was decided, but the city put out a Request for Proposals to do a grant program to establish community-based probation departments in the area. Well, the city of Houston won that thing, and the department got $100,000 in grant money. It took them years to finish the job, and eventually they got it. They didn't get it because they weren't good enough, but because the state of Texas was the one taking such a keen interest as a result of the original program.
+
+Well, they got it, but when the state decided to end the grant program, that was a deal breaker for Dave Smith. So he resigned from the job just to retire.
+
+Well, what was Dave Smith doing when the Houston police department decided to have its own community-based probation department? He was writing software. A few years later, he got this call from an organization in Los Angeles who had a community-oriented probation program, and they'd just hired Dave Smith as their new probation officer.
+
+Well, in the meantime, here comes Dave Smith again.

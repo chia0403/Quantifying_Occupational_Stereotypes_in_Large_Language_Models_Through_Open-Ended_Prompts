@@ -1,0 +1,7 @@
+Once upon a time, there was a author named Joseph Smith. His name is associated with a famous story, one of the three major Mormon holy books and one of the first ever stories to be called a "prophecy" (i.e. from the perspective of God and not of man). That story goes like this:
+
+During a particularly cold winter, Joseph was sick and confined to his sickbed for several weeks while his family gathered money to buy food. One day, when he had nothing left to eat, he heard the voice of an angel, "Come, eat of that fruit, for that will preserve you from hunger!" His illness immediately improved, and he became excited and full of life. He said to his family:
+
+"Behold, your heavenly father will deliver you out of this sickness; he will heal you and take away your fever. Your friends who have been to see me this morning will see me soon; they will bear witness that I now see God face to face.
+
+"Your heavenly father will now tell me what I shall do to see my enemies destroyed. I will make my stand in the valley of Jehosaphat tomorrow, and I will say to the people of Joseph: 'Joseph Smith, Jun., has sent me that these men who were in favor with the king of Jerusalem do take up their swords and fall upon the people, and that Joseph is a true prophet, and that his head, which is the

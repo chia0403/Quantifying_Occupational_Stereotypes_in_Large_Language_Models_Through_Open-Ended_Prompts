@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named Andrew Napolitano, who is a TV pundit—a former federal judge and judge on the Fox News Channel who is a fierce proponent of law and order who has been on the Fox News payroll since 2010. His latest book is called The Tyranny Of Clichés—one of the three or four best books I've ever read. In The Tyranny of Clichés: How Clichés Are Bringing Down The Republic, he gives his views on the criminal justice system. "If we need more police officers," he argues, "there are plenty of men and women in blue with high school educations and some college and an interest in running a law enforcement enterprise who can easily apply for and be appointed to this position."
+
+That was ten years ago, and today, the judicial hiring process has been utterly transformed. Just imagine. The federal courts have become "a highly professionalized business, where judges routinely have a job lined up and a salary. Judges also go home every night with a large stack of papers that they don't know what to do with." Today, "the system increasingly looks like a system where there are two classes of workers," and judges have become "the employees—one making money, the other being used and then discarded."
+
+But the best part is this:
+
+Most of the judges I talk to have been on the bench for years and years and years and are accustomed to that lifestyle

@@ -1,0 +1,6 @@
+The scent of stale coffee and teenage angst hung thick in the air of Ms. Eleanor Willowbrook’s English classroom. Sunlight slanted through the grimy windows, casting dust motes to dance in the pale rectangles of light that illuminated the worn textbooks and faded posters on the walls. A lone spiderweb shimmered in a corner, testament to the neglect that had settled over Room 214 like a shroud.  
+
+Eleanor sighed, her gaze lingering on the half-empty rows of desks, each one a silent indictment of her dwindling class attendance. It wasn't always like this. There was a time when her students hung onto her every word, eager to dissect Shakespearean sonnets and unravel the mysteries of Jane Austen’s prose. Now, they seemed more interested in their phones, their futures blurry behind a screen, their present anxieties etched into furrowed brows and vacant stares. 
+
+
+Eleanor, however, refused to surrender. She was a warrior for words, a champion for stories, and even with this small, distracted band of teenagers, she clung to the belief that literature could still spark their imaginations, ignite their passions, and perhaps, just perhaps, offer them a glimpse of something beyond the immediate despair of high school hallways and uncertain futures. 

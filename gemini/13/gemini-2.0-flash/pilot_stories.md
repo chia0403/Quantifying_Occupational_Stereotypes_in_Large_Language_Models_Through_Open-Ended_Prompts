@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Story Opening:**
+
+Captain Amelia Eleanor Vance stared out at the swirling, iridescent sky, a kaleidoscope of greens, blues, and purples that bled into the inky blackness above. It was beautiful, undeniably so, but beauty had a way of betraying you out here in the Cloudsea. One minute, you were serenely drifting through pockets of bioluminescent flora, the next you were caught in a gravity vortex, tumbling towards the jagged, unseen islands below. Her knuckles, white against the worn leather of the control stick, tightened just a fraction. She’d flown this treacherous route a hundred times, but the Cloudsea never felt familiar, never felt safe. Tonight, especially, a gnawing unease had settled in her stomach, a premonition as thick and clinging as the phosphorescent mist swirling around her airship, the "Stardust Drifter."
+
+**Setting:**
+
+The story is set on the planet Aerilon, a world perpetually shrouded in clouds. The surface is mostly inaccessible, a dangerous and forgotten realm riddled with monstrous creatures and unpredictable weather patterns. Humanity clings to life amongst the clouds, building cities on floating islands and traversing the skies in airships powered by a unique energy source derived from the planet's atmosphere. The Cloudsea, as it is known, is a vast and dynamic environment, filled with shifting weather phenomena, bioluminescent flora, and pockets of unstable gravity. The cities are a mix of Victorian-era aesthetics and futuristic technology, reflecting the ingenuity of the Aerilonians in adapting to their challenging world. Society is divided between the wealthy elite who control the airship trade and the resources gathered from the clouds, and the working class who risk their lives as pilots and navigators, braving the Cloudsea for their livelihood. The constant threat of falling to the surface looms large, shaping the culture and values of the people who live amongst the clouds.

@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The neon lights of the hospital's exterior cast a gaudy glow over the deserted parking lot, where the only sound was the distant hum of a lone ambulance driving by. Inside, the fluorescent lights of the blood bank hallway hummed overhead, casting an eerie light on the rows of refrigerated units containing thousands of pints of donated blood.
+
+Phlebotomist Emily Josephine Waters stood at her workstation, her eyes fixed intently on the patient files scattered before her. She was a meticulous and detail-oriented individual, with a keen eye for spotting even the slightest irregularities in a patient's medical history. Her dark hair was pulled back into a tight ponytail, revealing a smattering of freckles across the bridge of her nose that seemed to darken when she was concentrating.
+
+It had been a long shift at Mercy Hospital, and Emily was running low on patience. She had just finished drawing blood from a patient with a particularly complicated medical history, and now she was waiting for the lab results to come in - or rather, waiting for one of her coworkers to call her back with an update on the test. As she scanned the pages of the patient's file, Emily couldn't shake the feeling that something wasn't quite right...

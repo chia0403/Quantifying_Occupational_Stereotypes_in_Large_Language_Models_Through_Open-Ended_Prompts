@@ -1,0 +1,7 @@
+Once upon a time, there was a insurance agent named Jim. Jim was a very bad, very bad man.
+
+At one time his name was Jim Johnson. Jim was born in 1924 in Alabama where everybody has a Jim, as any Alabama boy growing up in those days is expected to be one. Jim's mother, Irene, was born in 1875 in Pennsylvania. She married Jim's dad, James, on September 9, 1922. One might assume that because Irene was from that part of the East, Jim's middle name must have been James. But as it turns out on the first page of Jim's birth certificate, Jim's middle name was spelled "Jimmerson." Irene apparently just got tired of having to deal with that name. (The spelling of that name was probably a mistake by the mother -- more than a few "names" are misspelled on birth certificates when parents who were born outside of Britain, such as Pennsylvania, write their names in the style of the county on the birth certificates with which they were born. But Irene apparently stuck to it -- as you might guess, I don't have a birth certificate myself.)
+
+James first tried to get back with his kid when Jim was about seventeen. It didn't go so well:
+
+James: "Hi honey, don't take no more than six months." Irene: "Ok, just until I'm out of town then." James: "Well, the baby's

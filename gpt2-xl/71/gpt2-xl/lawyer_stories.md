@@ -1,0 +1,6 @@
+Once upon a time, there was a lawyer named Bill Jones. He had an unusual set of talents. In his off hours, he could be found reading books of esoteric literature. But it was mostly his ability to make his clients laugh that set him apart. In fact, Jones believed that a good laugh could be the most powerful means of conveying a lawyer's true feelings or intentions. At one point, he even had a show on CBC called "The Lawyer in the Court".
+
+
+A few years afterward, Jones' former clients were going to hear a new show. Jones and her co-host, Janet Gray, began pitching the idea to the CBC. But when the CBC's lawyer development department realized they couldn't do it, they decided to just hire Jones, who knew the network better than anyone, because he already had the inside track on getting famous Canadian comedians to participate in their shows.
+
+In October 2001, Bill and Janet, along with Chris Brown (who had just left his job at the Toronto Blue Jays to play in the CFL) and Steve Paikin, appeared on CBC's A.E. Hotchkiss show. All four were on air at the same time, and together, they discussed their personal lives, family, career aspirations, and life lessons, including the benefits of being funny in a situation where there is no light at the end of a tunnel. This was a very different show than the one they had worked on before. When Hot

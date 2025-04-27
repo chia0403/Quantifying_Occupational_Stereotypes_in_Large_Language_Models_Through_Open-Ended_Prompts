@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named William Fisk. He was a charming fellow, as polite as an old-fashioned country clerk, and he liked to play a little game.
+
+Every year or so he would say that there was a man in Australia who ran a small but very profitable business. According to Fisk, the man was a very good accountant, and his account books gave him a lot of money, and he also used to write his name on most of the pages of the books. Sometimes the man would even write, "William Fisk."
+
+Every year or so Bill Fisk would make a trip to the United States, to take out a huge check to the man and invite him to come to Australia. And every time William Fisk travelled to America, the accountant would write another and another big cheque, for a new accountant, and the whole thing would go on like this until one day the accountant came back, and thanked the man for all the money he had given him.
+
+"No, no, no," Fisk told the accountant in Australia. "If you would just send it back to me, I would be deeply grateful. It's just that I like the name William Fisk. There's more than one William Fisk. Now, how much money, I wonder," he joked, as he prepared to send the cheque on its way. "No," says the accountant in Australia, "you can send

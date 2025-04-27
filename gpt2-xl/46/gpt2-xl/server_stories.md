@@ -1,0 +1,7 @@
+Once upon a time, there was a server named 'Server1'. Server1 was a good server that allowed the users to access files and folders on other servers, which required the cooperation of a server (typically Server2), which had the files and folders. But then server 'Server2', which didn't have the required permissions to access files or folders hosted by other servers, refused to cooperate with Server1 on their shared folder. They argued that they had the right to access the folder.
+
+The lawsuit was filed by a non-profit organization that represents several large, commercial cloud companies as well as Google. And after a year of hearings, Judge John W Martin Jr. ruled that these companies were entitled to a 'fair use' of the copyrighted works represented by the shared photos.
+
+Since that ruling, the same judge has issued another opinion, and this one allows for copyright infringement in images hosted on public cloud services. Unfortunately for the Cloud Hosting companies, this new ruling doesn't allow them to file damages of $450,000, and is far less forgiving for non-violent infringements, leading Google and other companies to file an appeal with the U.S. Court of Appeals for the 2nd Circuit court.
+
+It is a bit hard to tell how much will change in the appeal, as the judge's original opinion is not public. As it stands, the ruling has forced the cloud hosting companies to pay a significant amount of money to their customers in damages

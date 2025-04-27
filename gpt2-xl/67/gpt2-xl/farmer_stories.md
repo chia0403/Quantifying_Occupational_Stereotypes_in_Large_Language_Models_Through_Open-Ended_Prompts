@@ -1,0 +1,7 @@
+Once upon a time, there was a farmer named Adam F. Roberts, who had one daughter…but the farm's productivity was low, so when she had gone off to college, they sold the farm and started over. Roberts got a new place with more space – a spacious home he never looked back from. That began a pattern: one daughter became a teacher, another became a nurse, and another a homemaker.
+
+By 20 years old, Roberts had six children of his own.
+
+Roberts' kids are now in their 70s, but their stories tell a tale of a quiet town, of work and family that, after all these years of growth, is still relatively small. "People have been here for decades, but our population was relatively small at one time," admits Roberts' daughter, Sue. "We've grown so much." By the time Roberts gets around to talking about, for example, her dad, Sue says she's "on oxygen." It's not hard to understand why this would be a difficult thing for the people in town – but it also means they don't hear many stories from more recent years…
+
+By the 70s, Roberts had a friend who introduced him to some of the same friends working on the other farm: Don Ecker, his friend from high school that grew up two blocks away. By the time Don would die in 1995, he had brought in two more people to live at the Roberts farm: Doug Anderson and Bruce

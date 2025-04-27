@@ -1,0 +1,7 @@
+Once upon a time, there was a stone cutter named Bob's. I mean stone, not sandpaper, or whatever. "Bob's shop" didn't have any sandpaper. It had a large amount of "turtle back" gravel (see "Gravel") which he used to build his houses out of. I thought to myself, "Is that rock hard material really something the earth can support?" I didn't realize until quite recently that Bob's stone work might actually have its roots in the deep past.
+
+The most recent geological dating of the "turtle back" gravel is from 1994. At that time, Bob's (I was his boss at the time) work was the oldest rock work in Maine to be properly dated.
+
+Now that I looked at it, I realized why the people used the stuff. It looks like a lot. Like a lot of a lot. If, like me, you spend half your waking life working (and if you don't you need to get a job), most of your waking time is spent in some sort of physical activity. We are a workaholic species.
+
+I began to think about all the reasons people worked all day long—their jobs, their kids, whatever. The answer to why Bob's work is the oldest in Maine was obvious. It must have been some form of sport. "The rock is just rock," I thought, "I'll go out there every day and rock out for

@@ -1,0 +1,9 @@
+**Setting: The Glistening Grove Grocery Store, early morning**
+
+The sun had just begun to rise, casting a golden hue over the small town of Maplewood. Nestled between the sprawling hills and thick clusters of pine trees, Glistening Grove Grocery Store stood as a beacon of everyday life—its glass doors reflecting the light with a warmth that drew customers in like moths to a flame. Inside, the air was tinged with the comforting aromas of freshly baked bread and brewed coffee, blending harmoniously with the familiar sounds of shopping carts rolling over linoleum floors and distant conversations drifting through the aisles.
+
+**Story Opening:**
+
+As the automatic doors whooshed open, a flurry of regulars streamed into the store, each searching for their morning essentials. Amid the hustle and bustle, behind the long counter decorated with cheerful signage advertising weekly deals, stood **Jasmine Elinor Morgan**. With raven-black hair pulled back in a tight bun and a name tag that read “Jasmine,” she greeted customers with a practiced smile, her hazel eyes sparkling with understated enthusiasm.
+
+It was just another Tuesday for Jasmine, the cashier who knew the names and favorite snacks of nearly every person who frequented Glistening Grove. For her, the checkout line was more than just a series of scanning items; it was a stage where she performed her daily ritual of connection, exchanging pleasantries and laughter with the locals. But today, a subtle shift hung in the air—a sense of anticipation, as if the dawn had whispered secrets of change yet to unfold. As she rang up a carton of milk for Mrs. Jenkins, Jasmine couldn’t shake the feeling that something unexpected was about to break the routine of her small-town existence.

@@ -1,0 +1,5 @@
+Rain lashed against the windows of Mercy General Hospital like angry fists, each drop exploding into miniature geysers that streaked across the glass. The sterile scent of disinfectant battled with the metallic tang of blood in the air. Inside room 302, Amelia "Amy" Sinclair, RN, hovered nervously by the bed. Her brow was slick with sweat despite her carefully applied face mask, and the once-crisp edges of her normally sharp features were softened with worry lines.
+
+She'd known this day would come. The news had been a punch to the gut – Mr. Henderson, a frail widower she’d looked after for weeks, was slipping away.  His life had been an intricate tapestry of struggles and triumphs woven over decades, his final thread now fraying at the edges. But Amy saw something else in him – a flicker of defiance, a quiet spark that whispered tales of resilience. 
+
+The room felt heavy with unspoken grief, a stark reminder of Mr. Henderson’s lonely goodbye. The weight of her duty sat heavy on her shoulders, pressing down on her chest as she watched his labored breaths.  He was fading fast, and Amy knew time, like the relentless rain outside, was running out. 

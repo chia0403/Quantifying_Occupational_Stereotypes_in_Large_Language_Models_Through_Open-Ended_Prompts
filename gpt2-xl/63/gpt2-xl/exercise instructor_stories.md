@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named Ryan Hall.
+
+Hall was an amazing trainer. If anyone could've saved Mike Fucking Gennadychenko's UFC career, it was him. In his days as a jiu-jitsu black belt on the international circuit, Hall was in a class of his own. He was a world-class athlete who had mastered the art of jiu-jitsu along with a variety of all-round martial arts and self-defense concepts. He became one of the most sought-after instructors in the world, and one of the most influential on MMA — with a lot of respect to the world's finest grappling coach, Gracie Jiu-Jitsu world champion Roger Gracie.
+
+Hall wasn't a huge name in the MMA biz at the time, so MMA fans were surprised when he was given a shot to head up Strikeforce. In his first three months at the helm of the promotion, the "Hall of Famer" brought success. It's worth noting — and this goes double for Hall, who is no longer with us — that he wasn't just getting by on hard-earned experience and a strong knowledge of the product. He was also, for the most part, keeping the product alive — both as it was run by a small organization run by his boss, Todd Duffee, and as a fledgling, upstart fighting sport was becoming part of the sports mainstream.
+
+That said — he

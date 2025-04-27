@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the crumbling brick walls of Ravenswood High School, Emilia Mae Wilson began her nocturnal rounds as the school's janitor. The once-thriving institution had seen better days, its corridors now echoing with the whispers of forgotten students and the creaks of aging lockers.
+
+With a worn leather satchel slung over her shoulder, Emilia trudged through the deserted hallways, her rubber-soled shoes squeaking on the worn linoleum. She knew every nook and cranny, every hidden corner and secret spot, like the back of her hand. As she swept and mopped, her eyes scanned the dimly lit spaces for signs of mischief or neglect – a broken chair here, a discarded trash can there.
+
+It was on one such night, as Emilia reached into the dumpster labeled "Recycling," that she stumbled upon an old yearbook with no name listed beside a faded photograph. The image depicted a smiling girl in a bright yellow sundress, her eyes sparkling with mischief – and Emilia felt an inexplicable pang of recognition.
+
+Little did she know, this chance discovery would unravel a tangled web of secrets and lies that had haunted Ravenswood High for decades, drawing Emilia into the very heart of the school's mysteries.

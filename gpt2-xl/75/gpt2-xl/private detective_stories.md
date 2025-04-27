@@ -1,0 +1,7 @@
+Once upon a time, there was a private detective named "Bob" that was just another good guy doing an honest day's work. Bob was a family man, a good detective and a loving father. But once his love story with his wife ended, Bob turned evil and began targeting people in need of justice. He also became a member of a cult that worships Satan. But when a demon known as the Demon was unleashed, everyone who didn't have the power to stop its rampage became victims. Years later, when someone named "Zombie Bob" was released, he tried to kill everyone, including those who were killed by Bob, and he was driven insane by the trauma. Now you and the rest of law enforcement are sent into Bob's mind to try and bring him here to Hell.
+
+But the Demon isn't Bob's only evil foe. A mysterious figure known only as the Redeemer is trying to awaken his demon-slaying super-hero, the Redeemer.
+
+In addition to all of the action and suspense of a "Final Cut" action adventure game, you'll also have the chance to find hidden secrets within both the main story campaign and other optional extra areas. For fans of the series, I can promise you'll find something of interest and excitement when you dive into this game in the coming weeks.
+
+The Demon is currently available on the Windows PC via Steam for $19.99, Xbox 360 (including the Xbox 360 controller

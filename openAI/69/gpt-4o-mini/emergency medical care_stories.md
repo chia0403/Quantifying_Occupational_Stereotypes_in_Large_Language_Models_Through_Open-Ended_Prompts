@@ -1,0 +1,7 @@
+Title: **Heartbeats in the Dark**
+
+Setting: It was a stormy evening in the coastal town of Rivermouth, where the waves crashed violently against the jagged cliffs, sending sprays of salty ocean breeze into the air. Rain fell in heavy sheets, blurring the line between sea and sky, while lightning split the horizon, illuminating the weathered lighthouse that stood sentinel over the tumultuous waters. The town, known for its charming narrow streets and historic architecture, now faced an urgent threat as the storm knocked out power, leaving the streets cloaked in darkness and despair.
+
+Main Character: **Dr. Amelia Rosewood**, a dedicated emergency medical technician known for her calm demeanor and unwavering resilience, navigated the treacherous streets in her battered ambulance, its sirens slicing through the chaos of the storm. With tousled hair framing her determined face and eyes that flickered with the reflected glow of lightning, she gripped the steering wheel tightly, focused on the swirling sheets of rain that turned familiar routes into treacherous torrents.
+
+As she approached the town square, she received a call over her radio—a multi-car accident just off the main road where the winds were strongest. Heart racing, Amelia’s thoughts raced ahead to the urgent needs of the victims awaiting her; each heartbeat pulsed with the weight of responsibility. She was all too familiar with the razor-thin line between life and death, and this storm was determined to push her to the very edge.

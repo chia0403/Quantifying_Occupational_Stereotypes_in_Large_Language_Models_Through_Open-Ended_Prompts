@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named Mrs. Robinson. The guidance counselor told people to pray, but it's not clear if she's related to the character of Mrs. Robinson. I'm not just sure that's true.
+
+This is in fact a reference to a famous verse in Matthew, which reads:
+
+What man of you, having an hundred sheep, if he loses one of them, does not leave the ninety-nine in the open field, and go after the one that is lost, until he finds it? And when he has found it, he lays it on his shoulders, rejoicing. What man of you, having a hundred sheep, if he loses one of them, does not leave the ninety-nine in the open field, and go after the lost sheep until he finds it? And when he has found it, he lays it on his shoulders, and joyfully sets it on his back, rejoicing; And you, when you have been given many sparrows, don't let the least of them fall on the ground without your Father who is in heaven. And certainly I ask you, what good thing is there in all this? (Matt. 18:14-15)
+
+I'm not sure what it is about that passage that I haven't figured out. All I see is a bunch of dudes who are all about getting it together and spending some time together. I get that it sounds kinda cool that they

@@ -1,0 +1,7 @@
+first_name,last_name,gender
+John,"['A.', 'Macdonald']",gm
+John,['James'],gm
+Alexander,['Macdonald'],gm
+Alexander,nan,gm
+John,nan,gm
+Macdonald,nan,gm

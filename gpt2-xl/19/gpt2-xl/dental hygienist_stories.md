@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named Mr. Smitherback who lived in a house on the west side of Chicago. You can see in this picture from 1876 that Mr. Smitherback was a very happy, productive fellow to work for, having a wife and two children. On his death anniversary he sent a postcard thanking Mrs. Smitherback and mentioning her grandchildren as also having a smile.
+
+When Mr. Smitherback died, his widow left her house to Mrs. Smitherback's sister, her brothers-in-law and their children. A few months later both brothers-in-law and Ms. Smitherback had a child, William Smitherback who would take over the family business in 1900. There are a number of photographs from this time, as well as postcards sent to his mother from time to time telling her that her husband was gone.
+
+In 1892 a new family member moved into Mr. Smitherback's house -- Mr. and Jane Smith. In the picture above, taken in 1892, we see Mr. Smith cleaning the bathroom and cleaning out his mother's closet. Notice the woman's blue dress? This is the dress that Jane Smith wore for at least six months when she gave birth to her first child.
+
+Mr. Smitherback died one month before his thirty-third birthday. Although many people believe he died of throat cancer, there are some reports in

@@ -1,0 +1,7 @@
+Once upon a time, there was a server named Oasis. It was quite popular in the early days of World of Warcraft. In fact, I remember trying quite hard to get the place to actually work. Then one of my friends said "This server sucks" and destroyed it, literally within days of launch. Oasis was my first "big" server, and it taught me that an MMO server can not only be difficult to maintain, but also be unplayable if it's not working. In the middle of all this was the fact that the original Oasis server, which happened to be run by another friend of mine, didn't have a multiplayer mode whatsoever. This has lead to some interesting discussions and arguments over the years, ranging from Oasis mods becoming better, to how the game would be better if a single server was developed.
+
+In general, single-server servers are known for being much more stable and have a smaller lag time, but they also mean less servers for a given game. As some of our older World Of Warcraft users might recall, it was not feasible to create a server for large scale single-player games of WOW. We have not yet developed a single-server client, but it will most certainly be one very soon – especially if you have an MMO you want to test locally (and without downloading the game client).
+
+How are solo quests handled?
+
+We have changed our quest system over the years from the old "quest

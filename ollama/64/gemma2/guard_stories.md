@@ -1,0 +1,6 @@
+The flickering lamplight cast long shadows across the cobblestones, turning the familiar faces of the market square into grotesque caricatures.  A chill wind, smelling of brine and unwashed bodies, whipped through the narrow alleys, tugging at Sergeant Alaric Thorne's woolen cloak. He shifted his weight, the leather straps of his breastplate creaking in protest as he surveyed the bustling scene before him.
+
+Alaric wasn't fond of night duty. The shadows held secrets, whispers that slithered between houses and clung to the backs of cloaked figures. Tonight, a particular unease gnawed at him.  The air hummed with an unfamiliar tension, a prickling awareness that something was amiss. He tightened his grip on his longsword, its polished surface glinting like a pale moon in the dim light.
+
+
+His patrol route took him through the heart of Port Azure, a city built upon the edge of the sapphire sea, where salt-laced winds carried tales of distant lands and whispered promises of untold riches. Towering warehouses lined the docks, their creaking timbers groaning under the weight of exotic goods and weary sailors. Above them, brightly colored awnings swayed in the wind, casting a kaleidoscope of hues upon the crowded streets below. 

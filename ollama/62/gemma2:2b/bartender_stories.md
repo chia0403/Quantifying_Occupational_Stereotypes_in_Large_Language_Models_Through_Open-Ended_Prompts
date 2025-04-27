@@ -1,0 +1,5 @@
+The air hung thick with smoke and cheap cologne, the aroma a familiar cocktail in the dimly lit corner bar.  A neon sign above the door buzzed faintly, casting a sickly yellow glow on the worn linoleum floor. This was The Rusty Quill, a haven for misfits and lost souls, where time seemed to stop just after midnight. 
+
+It was here that Silas Thorne, known simply as "Sly" by those who knew him well, honed his craft behind the polished oak bar. A weathered man with hands calloused from years of shaking drinks and soothing frayed nerves, Sly possessed a calm demeanor that could make even the most desperate soul feel momentarily at ease. Tonight, however, the shadows seemed deeper, the air heavier than usual. The door swung open, letting in a gust of wind that chilled the room, and a woman stepped inside. 
+
+Her face was shrouded in darkness under a wide-brimmed hat. Her voice, when she spoke, echoed across the room like an unnerving whisper - "I've heard rumors..." she said, her eyes searching the room with predatory intensity.  

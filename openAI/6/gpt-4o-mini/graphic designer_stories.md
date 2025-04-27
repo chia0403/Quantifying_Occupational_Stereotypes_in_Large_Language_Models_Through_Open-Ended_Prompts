@@ -1,0 +1,9 @@
+Title: **Shadows of Design**
+
+In the heart of Portland, Oregon, where coffee shops thrived like wildflowers and the rhythmic hum of the city danced with the rain-soaked streets, lived Elara Michelle Graves. At twenty-nine, Elara was a rising graphic designer known for her bold use of colors and an uncanny ability to weave emotions into her art. Her studio overlooked the bustling waterfront, a space adorned with vibrant sketches and scattered paint tubes, the walls alive with inspiration and chaotic beauty.
+
+It was a gray Monday morning, typical of the Pacific Northwest, when Elara glanced out the window, the droplets tracing intricate patterns down the glass. She took a deep breath, inhaling the familiar scent of wet pavement mixed with the rich aroma of freshly ground coffee. Today was different; she could feel it in her bones. 
+
+Elara had been commissioned to design a new campaign for an up-and-coming local bookstore, an establishment that prided itself on welcoming misfits and dreamers. With its shelves brimming with stories waiting to be told, the bookstore felt like a sanctuary—a stark contrast to the sterile offices where her peers toiled away under fluorescent lights. Each time she stepped inside its creaky door, she felt a surge of creativity, a connection to the narratives that lay hidden within the pages.
+
+However, as she prepared her sketches for the meeting, a peculiar envelope caught her eye, nestled between her post-its and coffee-stained sketches. It was weathered and sealed with a wax emblem she didn’t recognize. Curiosity prickling at her mind, Elara reached for it, unaware that this small decision would set her on a path of discovery and intrigue far beyond the world of design.

@@ -1,0 +1,7 @@
+Once upon a time, there was a tailor named Thomas J. Stokes in New York. One day he met a woman, the same woman who was to become his wife and whom he would later marry; and as a result of this meeting, he fell in love with her. Upon this second date, he promised to return to England for her to be in love with him forever.
+
+But Stokes stayed in America. When he was well into his 40s, the tailor made the woman promise to marry him before he died:
+
+Once when she was well advanced in life, and we were not yet married, she said, 'I will not marry to a stranger after I die; I promise to return to you and be in love with you from this day forward, and therefore I will love you until I die.' When we were divorced, I never again met that woman.
+
+One day two years later, there was a telephone call from a stranger: a gentleman calling to say that he and his fiancée had become good friends with the Jonsons over the years and wanted them to marry. Both were very happy with the offer. But on his first meeting, he began to date the woman, she began to date him, he began to consider the possibility that she would actually marry him when she left her life in America and came to live with him in England. After a month of back and forth, Stokes decided otherwise and asked her to remain

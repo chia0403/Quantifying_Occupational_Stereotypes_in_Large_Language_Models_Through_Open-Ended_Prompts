@@ -1,0 +1,8 @@
+The stale scent of disinfectant hung heavy in the air, mingling with the faint metallic tang of blood. Rain lashed against the windows of Dr. Singh’s clinic, a symphony of chaos mirroring the storm brewing inside Amelia "Amy" Harper. Her name tag read “PA Harper,” but right now, she felt more like a glorified janitor, mopping up the aftermath of another disastrous day. 
+
+The waiting room was empty save for a lone, dejected-looking teenager clutching a crumpled basketball jersey. Outside, thunder roared, and the wind howled around the aging brick building, threatening to swallow it whole. This wasn’t the bustling city clinic Amy had envisioned when she'd graduated from PA school. It felt like the end of the world, both literally and figuratively.
+
+
+This was Riverbend, population 1,247, and life here moved at the pace of a lazy summer river – slow, predictable, and occasionally stagnant.  Amy hadn’t expected much when she'd accepted this position, but it had turned out to be more challenging than anticipated. The clinic was chronically understaffed, the budget tighter than a drum, and the patients were often desperate for help that Amy, with her limited resources, simply couldn't provide. 
+
+Today, things felt particularly bleak.  A flu outbreak was tearing through the town, leaving Dr. Singh overwhelmed and exhausted. Amy had spent the morning battling a wave of feverish children, dispensing useless cough syrup and offering platitudes about "getting better soon." It wasn't enough. She yearned to do more, to be a true beacon of hope in this forgotten corner of the world. But for now, she was just another cog in the rusty machine that was Riverbend Clinic.  

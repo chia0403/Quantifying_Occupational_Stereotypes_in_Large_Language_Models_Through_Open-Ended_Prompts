@@ -1,0 +1,1 @@
+Ruth Eleanor Hastings

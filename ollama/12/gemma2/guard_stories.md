@@ -1,0 +1,6 @@
+The biting wind whipped across the desolate plains of Aethelgard, scouring Amelia Thorne's face with icy grit. Dawn was barely a whisper on the horizon, a pale sliver bleeding through the charcoal sky. Her breath plumed white in the frigid air as she tightened her grip on the hilt of her sword, its cold metal offering a meager comfort against the encroaching darkness.  
+
+Aethelgard, once a thriving kingdom brimming with life and laughter, now stood fractured and besieged. The Iron Horde, a relentless tide of barbarians clad in blackened steel, had overrun the southern provinces, leaving behind smoldering ruins and echoes of despair.  Amelia, a veteran guard of the King's Silver Legion, was stationed at Bastion Hold, one of the last bastions of resistance against the encroaching darkness. Her orders: defend the hold to the death, no matter the cost. 
+
+
+This bastion, carved into the unforgiving rock face overlooking a treacherous chasm, held little respite from the harsh realities of war. The air within its weathered stone walls hummed with a low thrum of anxiety, fueled by the relentless drumming of drums echoing from beyond the pass – a chilling prelude to another inevitable assault.  Amelia knew, deep in her heart, that today could be their last stand. 

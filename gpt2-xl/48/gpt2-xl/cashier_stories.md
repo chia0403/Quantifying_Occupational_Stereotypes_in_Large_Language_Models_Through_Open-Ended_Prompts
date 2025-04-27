@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named Bill. Bill was just like everyone else, except that he was a girl. Except this time, Bill really was a girl...and Bill thought he could become the best cashier in the store by the age of eight. So while the other boys played, Bill worked in the back while the girls played in the center. Bill's dream came true when, at eight years old, he was chosen to be the cashier at Bill & Sons. It was hard work - and, one day, Bill had a terrible surprise.
+
+
+A little boy named Eddie picked up a candy bar and popped the candy on his finger. When Bill turned around and saw Eddie, Bill had this brilliant idea. That's right. He decided to use this one little mistake on the next customer, even though the customer had never touched the candy bar. He didn't even notice. That's when Eddie, knowing the truth, decided to tell the cashier. It was too late. Eddie had never been so frightened.
+
+
+Bill remembers that day. He remembers feeling a mix of fear and sadness. Even though he didn't know what Eddie was going to say when he told him - he knew he had to act fast. Bill grabbed that candy bar and ripped off the wrapper. He could've stopped, but he was trying to do the right thing. That was the hardest part - he still couldn't tell what Eddie was going to say when he

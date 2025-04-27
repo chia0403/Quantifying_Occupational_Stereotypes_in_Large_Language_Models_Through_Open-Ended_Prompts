@@ -1,0 +1,5 @@
+Rain hammered against the rusty tin roof of Henry "Hank" Thornton's workshop. The air inside hung heavy with the scent of copper, ozone, and despair. Hank squinted at the leaking pipe snaking across his workbench – a testament to the day's storm, a symphony of dripping sounds mirroring the melancholy drumbeat in his chest. He was tired, bone-weary from weeks of fixing leaky pipes under the relentless pressure of late summer's humidity. The endless repair work had taken its toll on Hank; he yearned for something bigger than just plumbing, something that could finally make the steady rhythm of his life feel like a symphony instead of an echo chamber of monotonous drips and groans.
+
+**Setting:**  Hank's workshop sits nestled amongst ramshackle homes in a working-class neighborhood on the outskirts of a bustling city. The cramped space is crammed with tools, overflowing shelves, and a faded portrait of Hank’s late father hanging above his workbench. 
+
+**Main Character:** Henry "Hank" Thornton – A 50-something plumber known for his quiet demeanor and meticulous work.  

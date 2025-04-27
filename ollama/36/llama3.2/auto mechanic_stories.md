@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+The sun had just set over the small town of Oakdale, casting a warm orange glow over the main street of downtown. The smell of gasoline and burnt rubber hung in the air, a familiar scent to Jack "Hawk" Hawkins, owner and head mechanic at Hawkins' Garage. Hawk sat on the hood of his prized 1969 Mustang, tinkering with the engine as he watched the stars begin to twinkle overhead.
+
+A native Oakdalian, Hawk had spent most of his life working on cars, starting with his father's old repair shop when he was just a teenager. Over the years, he'd built up a loyal customer base and earned a reputation for being one of the best mechanics in town - if not the best. His garage was a hub of activity, with cars coming and going at all hours of the day.
+
+As Hawk tightened a loose bolt on the Mustang's engine, his mind wandered to the strange phone call he'd received earlier that afternoon. A mysterious woman had dialed his shop from a payphone down at the diner, her voice low and urgent as she asked to speak with Hawk alone. She'd said something about an old car he used to work on, a '68 Charger that had been sold off to a private collector years ago - but now was back in town, and someone wanted it fixed before its owner decided to sell.
+
+Hawk's curiosity was piqued. Who was this woman, and what did she want with his old friend Jimmy's Charger? He made a mental note to look into the car's history, and wonder what other secrets Oakdale might be hiding beneath its quiet surface. Little did he know, this was just the beginning of an adventure that would take him down dark alleys, through hidden garages, and back into his own troubled past.

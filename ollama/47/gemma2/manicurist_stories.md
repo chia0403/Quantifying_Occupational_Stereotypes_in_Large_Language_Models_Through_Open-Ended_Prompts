@@ -1,0 +1,6 @@
+The air hung thick with the scent of acetone and jasmine, a familiar perfume that clung to Amelia "Amy" Rosewater like a second skin. The tiny nail salon, christened "Rosebud Nails" in faded pink script on the dusty storefront window, hummed with a low thrum of conversation and the rhythmic whirring of electric files. Amy, perched behind her station, watched as Mrs. Henderson, a retired schoolteacher with perpetually rosy cheeks, fidgeted under a layer of crimson polish drying on her nails.  
+
+The setting sun cast long shadows across the chipped linoleum floor, highlighting the cracks that snaked through it like veins. Outside, the humid July air in Galveston, Texas, pulsed with the drone of cicadas and the distant rumble of a summer storm brewing on the horizon. The ocean breeze, laden with salt and the promise of rain, drifted through the open window, stirring the wisps of Amy's auburn hair that escaped her tightly braided ponytail. 
+
+
+The bell above the door jangled, announcing a new arrival. A young woman, draped in an oversized coat despite the heat, stepped inside, her eyes wide with apprehension.  Amy, ever perceptive, sensed something was off. This wasn't just another hurried appointment for a quick touch-up. This woman had secrets, hidden beneath layers of anxiety and fear.   

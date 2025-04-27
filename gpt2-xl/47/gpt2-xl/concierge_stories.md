@@ -1,0 +1,7 @@
+Once upon a time, there was a concierge named John. John was smart, articulate, charming, and handsome. John made money through his business, didn't cheat his employees, and could be depended upon for guidance; so he was a good choice to come to Del Sol.
+
+In order to get started working at Del Sol, John started a small office right off the lobby floor, then worked his way up through the hierarchy, eventually making it to senior level management. The job of the chief concierge at Del Sol was to help keep the residents' expectations realistic. He was supposed to get to know his tenants, and, more important, to show them that he cared.
+
+John started off slowly. He learned their names and then talked to them, in front of the door. He would take note of the things they did and the things they said. If they did things more or less the same each time, then John was to assume that they liked the same things and so he would ask them the same questions. If they answered differently each time, then John was to assume that they didn't like the same things and leave it at that. If they answered truthfully every time, or if they said something different every time, John was to assume that they liked different things and stop asking questions.
+
+When John did find out about some of the tenants' past, he would ask the tenants how they wanted to deal with that. If they wanted

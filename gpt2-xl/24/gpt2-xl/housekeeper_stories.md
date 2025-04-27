@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Dorothy and she wanted to retire from work. She was so much in love with the work that she had chosen to stay at the same company for 30 years. After that, she wanted to start a family. So she retired for good one weekend a month.
+
+On her first weekend of retirement, she had an amazing dream. There was a beautiful field with flowers and a lake in it. It was beautiful and she remembered the happy times she'd had working there when she was young. She looked up into the sky and saw a dragon flying into the field. The dragon was a bit small for her to notice as it looked like it was just a little puff of yellow smoke. But the dragon did not stay in the field for long. She saw it fly away into the far distance in great haste. The next day she woke up and realized it was over for her and she was going to have to start working for someone else.
+
+But she couldn't let the fire go out of her and she decided to give life just another little push. She started at a new company where she's having the time of her life. She works around 20 hours a week and pays her own way. At that rate, her expenses only amount to about $2,000 per week while she makes double what she did at the old company. Plus, she gets to bring home some bonus money each month.
+
+And now she's

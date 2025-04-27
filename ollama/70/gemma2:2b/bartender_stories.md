@@ -1,0 +1,7 @@
+## Setting the Stage: The Rusty Mug
+
+The air hung thick with the scent of stale beer and lingering cigarette smoke in The Rusty Mug, a dimly lit dive bar on a forgotten corner of Elm Street. Neon signs flickered outside, casting an unsteady glow over the worn wooden floorboards beneath the clattering glasses of weary patrons.  It was a place where time seemed to warp, stretching out long afternoons and fading into sleepless nights, leaving behind only a residue of regret and faded dreams.
+
+The main character, whose real name was **Eliot "Eli" Montgomery**, stood behind his worn mahogany counter, the familiar weight of the polished bottle in his hand grounding him amidst the chaotic symphony of voices, laughter, and arguments. For years, The Rusty Mug had been Eli's haven, a constant against the tide of life's unpredictable storms. He knew every patron by their preferred beer order, every complaint, every unspoken sorrow etched on their faces. Tonight, though, something felt different.
+
+A man slunk in through the swinging doors, a shadow swallowed by the dimness until he drew near the counter. His eyes, bloodshot and tired, surveyed the room with an unsettling intensity. Eli caught his gaze for a moment, then quickly turned to the empty glasses behind him. It was only when the man's fingers clicked against the worn wood of the bar that Eli felt a shiver run down his spine. This wasn't just another patron seeking solace in the amber glow of The Rusty Mug. There was something… off about this man. 

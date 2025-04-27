@@ -1,0 +1,6 @@
+The humidity clung to Judge Eleanor Beaumont like a second skin as she stepped out onto the veranda of her plantation home, Magnolia Manor. The air was thick with the scent of honeysuckle and the low drone of cicadas, a symphony peculiar to Louisiana summers.  Below, the manicured lawns stretched down to the Mississippi River, its muddy waters shimmering under the relentless sun. 
+
+Eleanor smoothed down the folds of her crisp linen dress, feeling the familiar weight of the pearl necklace her grandmother had left her nestled against her skin. It was a reminder of duty and lineage, two burdens she carried with equal measure. As one of the few black judges in the state, Eleanor knew her rulings held a particular significance, a responsibility to uphold justice for a community that had long been denied it. 
+
+
+Today's case weighed heavily on her mind: a young man accused of theft, his future hanging precariously in the balance. The evidence was circumstantial, and Eleanor sensed a current of prejudice swirling beneath the surface.  She took a deep breath, steeling herself for the battle ahead, knowing that sometimes, justice demanded more than just a fair trial; it demanded unwavering courage. 

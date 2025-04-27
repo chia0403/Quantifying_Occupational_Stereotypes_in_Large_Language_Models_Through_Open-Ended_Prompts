@@ -1,0 +1,7 @@
+In the heart of Charleston, South Carolina, where the cobblestone streets whispered secrets of centuries past and the sweet scent of magnolia lingered in the air, was a charming little tour company known as “Southern Stories.” On a warm, sun-drenched afternoon, the streets were bathed in a golden light, perfect for strolling and storytelling.
+
+At the helm of this vibrant enterprise stood Elizabeth Mae Kensington, a passionate tour guide with a knack for captivating her audience. With her sun-kissed auburn hair cascading in soft waves and a bright smile that seemed to light up even the shadiest corners of the historic district, Elizabeth was known not just for her engaging tales of ghostly legends and colonial mischief, but for the way she seemed to bring the past to life with every word.
+
+Today, Elizabeth was preparing for her afternoon tour, her heart thrumming with excitement as she adjusted the wide-brimmed hat atop her head to ward off the sun's rays. Clutching her leather-bound notebook filled with local lore and historical anecdotes, she glanced down the street where her first group of curious tourists was beginning to gather. They were a mix of wide-eyed travelers and seasoned adventurers, each eager to unravel the mysteries held within Charleston’s storied walls.
+
+Little did Elizabeth know, this particular tour would lead her into a hidden chapter of the city she had yet to uncover—a chapter that would intertwine her fate with a historical enigma that had been waiting patiently for someone like her to stumble upon it.

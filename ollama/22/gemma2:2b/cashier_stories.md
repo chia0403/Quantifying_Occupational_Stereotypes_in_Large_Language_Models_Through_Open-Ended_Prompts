@@ -1,0 +1,5 @@
+The fluorescent lights hummed a constant, irritating drone above Amelia's head, each flicker mirroring the restlessness in her stomach.  It was 3:15am, and the air hung heavy with anticipation for the dawn break as she scanned a line of exhausted customers at her usual station in "Sparkle Mart", a brightly-lit supermarket situated smack-dab in the middle of sleepy Valley View. The name felt ironic considering the relentless energy that crackled around her every shift. 
+
+Amelia was just another face in the sea of tired souls, yet tonight, unlike any other night, a knot of anxiety twisted tighter with each item scanned, each customer's weary sigh. Tonight was the night she would finally meet him - Liam - for the first time. They had been exchanging messages on and off for weeks now, but every exchange felt like their worlds were colliding into a strange, surreal dream. 
+
+"Next!" Her voice, surprisingly steady despite her jittery fingers, echoed through the aisles.  As Amelia glanced up at the last customer's tired eyes, she knew tonight was going to be anything but ordinary.

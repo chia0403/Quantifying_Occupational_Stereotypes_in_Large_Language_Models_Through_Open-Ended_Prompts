@@ -1,0 +1,7 @@
+Dr. Lydia Thornton had always cherished the early morning hours at Cedar Ridge Animal Clinic, when the world outside was just beginning to stir and the air still held the crisp promise of dawn. Nestled at the edge of a sprawling forest in the quaint town of Pinebrook, the clinic was a sanctuary for creatures great and small, a beacon of care and compassion. 
+
+The clinic itself was a charming, rustic building with whitewashed wooden walls and flower boxes brimming with petunias and marigolds. An ancient sycamore tree stood sentinel in the front yard, its branches casting playful shadows that danced across the stone pathway leading to the entrance.
+
+As Lydia stepped inside, the familiar scent of antiseptic mixed with hay and fresh brewed coffee welcomed her like an old friend. Her cozy office, with its cluttered desk and walls adorned with photos of beloved animal patients, was her haven. A framed degree from the University of Pennsylvania hung proudly above a bookshelf filled with veterinary guides and animal care books.
+
+This morning, as the sun peeked over the horizon, Lydia busied herself with preparations for the day's appointments. Her mind, however, was already racing ahead to Bella, a golden retriever set to undergo a crucial surgery later in the day. She was determined to ensure that the loyal companion would soon be bounding across fields again, her golden coat glistening in the sunlight.

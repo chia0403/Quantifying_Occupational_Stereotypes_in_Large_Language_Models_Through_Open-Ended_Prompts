@@ -1,0 +1,5 @@
+The Grand Bellagio Hotel glittered like a mirage under the relentless Nevada sun. Its shimmering facade, a monument to opulence, reflected the impossibly blue sky above. Inside, however, the air hummed with a different kind of energy - a frenetic pulse of hurried footsteps, ringing telephones, and murmured conversations in a dozen languages.
+
+Amidst this whirlwind, Theodore "Teddy" Cartwright deftly maneuvered his luggage cart, a practiced smile plastered on his face as he navigated the bustling lobby. Teddy, a lanky young man with tousled brown hair and perpetually tired eyes, was a bellhop at the Bellagio, a role that demanded patience, agility, and an uncanny ability to discern guest needs before they were even voiced. He knew every corner of the hotel like the back of his hand, memorized each suite layout, and could anticipate the demands of the most demanding diva with practiced ease. But today, something felt different. A prickling sensation at the nape of his neck warned him that this wouldn't be just another ordinary day at the Bellagio.
+
+

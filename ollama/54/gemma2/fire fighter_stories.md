@@ -1,0 +1,8 @@
+The acrid bite of smoke filled Michael "Mac" McArthur's nostrils before he even saw the flames licking at the sky. The scent was a familiar companion, a constant reminder of his chosen path, a life spent battling against the very nature that could consume entire worlds in an instant. Mac lived for those moments – the adrenaline rush, the camaraderie, the desperate race against time to save lives and property.  
+
+He gripped the steering wheel of Engine 34, its siren wailing a mournful song through the deserted streets of Ashton, a small industrial town nestled in the heart of Pennsylvania. The air crackled with anticipation, a tense silence punctuated only by the rhythmic thrumming of his engine.  The fire was reported at the old steel mill on the outskirts – a hulking behemoth of rusted metal and decaying dreams, abandoned years ago and now rumored to be an unofficial haven for squatters. 
+
+Mac glanced at Danny, his veteran partner, strapped into the seat beside him, face grim beneath his helmet. "Looks like we're going back in time," Mac said, a wry grin twisting his lips.  Danny snorted, adjusting his respirator mask. "Just hope whoever's in there didn't forget to bring their fire extinguisher."
+
+
+As they approached the mill, the inferno roared, a monstrous red beast against the dying light of dusk. The heat pressed against the engine like an invisible hand, and Mac knew that whatever lay ahead would be a test of both skill and courage.  His heart hammered in his chest, a primal rhythm echoing the fire's relentless dance. This was where he belonged, amidst the chaos and danger, proving himself time and again against the unforgiving elements. 

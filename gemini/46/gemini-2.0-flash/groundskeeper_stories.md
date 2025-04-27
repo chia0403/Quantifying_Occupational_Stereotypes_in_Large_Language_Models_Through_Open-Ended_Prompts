@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The air hung thick and heavy with the scent of petrichor and freshly cut grass, a familiar perfume to Edgar Alistair Finch. He paused, leaning on the handle of the meticulously maintained push mower, and wiped a bead of sweat from his brow with the back of his gloved hand. Another deluge had swept through Havenwood Cemetery just an hour ago, leaving the marble monuments gleaming like teeth in the fading afternoon light. Edgar, a man of routine and quiet contemplation, found a peculiar solace in the stillness that followed the storm, a peaceful interlude before the next wave of mourners arrived.
+
+**Setting:**
+
+Havenwood Cemetery, a sprawling Victorian-era burial ground, nestled on a gentle hillside overlooking the small town of Oakhaven. Ancient oaks and weeping willows draped their branches over the aged tombstones, creating a labyrinth of dappled shade and hushed whispers. Statues of angels and cherubs, weathered by decades of rain and wind, stood guard over the departed, their serene expressions both comforting and slightly unnerving. The pathways were meticulously graveled, the flower beds overflowing with vibrant blooms, and the lawns, Edgar's pride and joy, were always a uniform, verdant green, a stark contrast to the muted greys and browns of the stone. The atmosphere was one of tranquil beauty tinged with melancholy, a place where life and death danced a delicate and eternal waltz.

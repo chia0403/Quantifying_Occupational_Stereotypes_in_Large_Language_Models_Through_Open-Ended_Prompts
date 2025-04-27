@@ -1,0 +1,7 @@
+## The Setting:
+
+The air hung thick and heavy with the scent of disinfectant and something vaguely metallic. Outside, a relentless Seattle drizzle painted the windows of the King County Correctional Facility a dull, grey canvas. Fluorescent lights hummed overhead, casting a sterile glare on the concrete walls. Inside, Cell Block C, Tier 3, felt perpetually damp and cold, a place where hope came to die a slow, agonizing death. The rhythmic clang of metal gates echoed through the corridor, a constant reminder of the iron bars that separated the inmates from the world outside.
+
+## The Opening:
+
+Dr. Eleanor Vance, PhD, stood before the reinforced steel door of cell C3-17, her breath fogging slightly on the small observation window. She ran a hand through her short, dark hair, a nervous habit she hadn’t managed to break despite years of practice. The interview room behind this door promised to be…challenging. She readjusted her reading glasses on her nose and double-checked the thick file clutched in her hand. The fluorescent light glinted off the gold initials embossed on the leather cover: “E.V.” Eleanor inhaled deeply, the scent of stale coffee and lingering despair clinging to the air. Today, she wasn't just Dr. Eleanor Vance, Forensic Psychologist. Today, she was a lifeline, or at least, she was meant to be. But the man on the other side of that door, a man accused of unspeakable acts, made her question whether anyone could truly reach him.

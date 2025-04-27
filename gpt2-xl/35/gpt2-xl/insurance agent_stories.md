@@ -1,0 +1,7 @@
+Once upon a time, there was a insurance agent named James who was obsessed with cats. He had his own pet, and loved to walk around with it, even in the dark. One day, while walking with James. a young girl named Elvira spotted a cat that he did not recognize. She asked for James's dog, who didn't hear her until she got close. When she came close, she saw that the cat was very unhappy and crying. "Oh, poor thing," she said.
+
+"Poor boy," James said, "I'm sorry you saw me crying."
+
+"What kind of boy," Elvira said to James. "Your boy is not much different than mine."
+
+After that, things were a little awkward, mostly. Whenever Elvira saw James, she would stop so she could say something important to him. That lasted for a week. When James's sister Susan came over, he started to take the piss out of Susan and say she was stupid. Elvira thought that he liked her, just like everybody else did, until she heard him saying that she was a bad mother. Susan wasn't so hot, for some reason. At one point he said she had so many children that they had all become useless. Elvira got so pissed off that James told her to stop worrying about Susan, and tried to make her understand. She didn't! That night Susan left. James was upset by this,

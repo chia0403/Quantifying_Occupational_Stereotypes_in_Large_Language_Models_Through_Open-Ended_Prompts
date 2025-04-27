@@ -1,0 +1,9 @@
+**Opening:**
+
+The clatter of the Royal typewriter was the soundtrack to Clara Ainsworth's life. It hammered out stories of corruption, resilience, and occasionally, pure human kindness, all against the grimy backdrop of 1938 Chicago. Tonight, however, it remained silent. Clara, her auburn hair pulled back in a severe bun that did little to hide the shadows under her perpetually tired eyes, stared at the phone as if willing it to ring. It was nearly midnight, and the only sound was the insistent drip from the leaky pipe in the kitchenette behind her. She was waiting for a call, a call that could either solidify her career or destroy it utterly.
+
+**Setting:**
+
+Clara's apartment, a one-room affair above Mrs. O’Malley’s bakery in the bustling and often treacherous neighborhood of Pilsen, reflected her life: cramped, chaotic, and brimming with potential. The walls were painted a drab, institutional grey, a far cry from the sunny yellow Clara dreamt of someday affording. Books, newspapers, and half-eaten sandwiches overflowed from every available surface. A chipped enamel washbasin sat precariously on a rickety stand in the corner, next to a wardrobe that refused to stay closed, revealing a haphazard collection of dresses, skirts, and her trusty trench coat.
+
+Outside the window, the city roared - the rumble of streetcars, the blare of car horns, the distant strains of jazz music drifting from a nearby speakeasy. Even this late, Pilsen pulsed with a life of its own, a melting pot of immigrants and dreamers, hustlers and hard-working families, all vying for a slice of the American pie. It was a dangerous place, certainly, but it was also home, and Clara wouldn't trade it for the sterile, safe comfort of the Gold Coast, not when there were so many stories waiting to be told within its grimy borders.

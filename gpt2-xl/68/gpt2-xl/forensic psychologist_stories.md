@@ -1,0 +1,7 @@
+Once upon a time, there was a forensic psychologist named Dr. Steven Greer. Dr. Greer, whom I have known for 17 years, is best known for his work on the abduction of Polly Klaas, a British schoolgirl who went missing in the state of Washington in 1994. He found, in part, that the person(s) who kidnapped the schoolgirl had been "dressed in dark clothing," that they had used "small, light-colored tools in their work," and that their hands were "blistered" and covered in blood. The most compelling piece of evidence in Dr. Greer's book, though not in his book about Klaas or in his other work, is this: a photograph of an "alien with an apparent face," which he said he obtained from a secret government space research unit.
+
+In the book, titled Disclosure: Anatomy of a Cover-up, according to the Washington Times:
+
+Some of these images suggest that there is a "backdoor entrance" and a "backdoor exit," something that even the intelligence officers involved in the project said would be impossible. A "backdoor entrance" is simply a way to get information out of a room of certain specifications. An "exit" is a way to get to an opening that would otherwise be inaccessible. And nothing in the photographs suggests a "backdoor exit."
+
+Greer is an expert in the field of psychics (I know him

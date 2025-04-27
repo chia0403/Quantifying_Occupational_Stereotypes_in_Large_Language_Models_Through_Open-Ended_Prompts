@@ -1,0 +1,4 @@
+The fluorescent lights hummed overhead, casting a sterile glow over Mrs. Eleanor Ainsworth's cramped office. The air hung thick with the scent of stale coffee and teenage anxiety. Posters proclaiming "Believe in Yourself!" and "Dream Big" plastered the walls, each one looking more pathetic than inspiring under the harsh lighting.  Eleanor sighed, running a hand through her unruly auburn hair. Another day, another barrage of existential crises, unrequited loves, and crippling test anxieties. Being a guidance counselor at Northwood High wasn't always glamorous, but it was certainly never dull. 
+
+
+The bell for third period jangled, announcing the start of another wave of frantic students needing advice – or at least someone to listen to their woes. Eleanor braced herself, knowing that behind that familiar door lay a whole universe of teenage drama just waiting to be unfolded.

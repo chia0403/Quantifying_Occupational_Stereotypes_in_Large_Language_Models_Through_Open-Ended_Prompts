@@ -1,0 +1,5 @@
+The sun beat down on Elias Beckett's neck like a blacksmith's hammer, turning his already sweat-slicked t-shirt into a second skin.  He gritted his teeth, hoisting another shingle onto the slanted roof of Mrs. O'Malley's Victorian home. Each nail hammered felt like a victory against the relentless heat and the ever-present creaking groan of aging timber beneath his boots. 
+
+The house itself sat perched on a hill overlooking the town of Havenwood.  Its faded grandeur was evident in the intricate gingerbread trim, the tall chimneys puffing out lazy plumes of smoke, and the sprawling wraparound porch that sagged slightly under its own weight. But time had taken its toll, leaving chipped paint, crumbling mortar, and a roof desperately in need of repair. 
+
+Elias, however, saw beauty in the decay. He knew every crack, every loose shingle, every whisper of age hidden within the walls. To him, these houses weren't just structures; they were stories waiting to be told, each one holding echoes of laughter, tears, and lives lived. And he was the one who helped keep those stories alive, piece by weathered piece.  

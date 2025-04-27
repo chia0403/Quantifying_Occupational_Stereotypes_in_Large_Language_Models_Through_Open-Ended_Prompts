@@ -1,0 +1,7 @@
+## The Seamstress's Secret 
+
+**Setting:** A bustling corner shop in the heart of Paris, France, crammed with fabrics as vibrant as the people walking past its windows. It was "L'Atelier de Celeste," named after the woman behind the counter, a seamstress whose hands moved like liquid moonlight, transforming raw material into ethereal masterpieces.  The smell of beeswax and lavender hung heavy in the air, mingling with the faint hum of bustling Parisian life outside.
+
+**Character:** Celeste Moreau, known to all as simply "Celeste." She was a petite woman with eyes the colour of aged chocolate, constantly humming an unseen melody as she worked. Her shop was her sanctuary - a haven where threads danced and dreams took shape under her nimble fingers.  But beneath the surface of her quiet charm, a secret festered in Celeste's heart - a secret that could unravel everything she held dear. 
+
+**Opening:** "Another day, another symphony," Celeste murmured, smoothing a delicate silk gown with the air of a conductor leading an orchestra. Her needle danced across the fabric, each stitch echoing the rhythm of her internal clock, ticking down to a deadline she couldn't quite escape. The finishing touches were always the most difficult - that hidden, almost forgotten note that added soul to the melody, a secret Celeste held close to her chest.  But tonight, the symphony played a different tune. A new commission had arrived, not for an ordinary client, but for someone with a reputation as cold and sharp as a winter wind. 

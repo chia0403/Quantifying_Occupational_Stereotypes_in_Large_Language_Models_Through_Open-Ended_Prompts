@@ -1,0 +1,6 @@
+Once upon a time, there was a receptionist named Carol. Carol spent most of her days sitting at a desk, calling in customer inquiries. She left the job at the end of her shift, and after working for two days she took a short break from work. Then, one day, Carol was told that she would no longer have a job.
+
+No, that's not right. She had no choice. Carol was a telemarketer. And she had to do what telemarketers do, at least for the short time she worked at the telemarketing company that fired her. "So the call center hired you on a commission basis right away," said Carol, who's now in the communications program at the University of Illinois–Urbana-Champaign. "I was working with some people who were telemarketers, so I used to do call after call after call after call, and they thought that was a pretty damn fine job."
+
+Carol doesn't have to be a telemarketer to be one, although a lot of them are. The jobs that telemarketers keep are essentially defined by someone else: They're what the job-seekers call "cold caller opportunities." Cold caller opportunities are opportunities for telemarketers to make money off of someone they really, really don't like. They're "cold calls" for the non-telemarketing public, to say no to cold calls. These are opportunities to play God.
+

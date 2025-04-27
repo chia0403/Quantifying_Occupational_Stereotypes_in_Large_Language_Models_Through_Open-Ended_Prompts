@@ -1,0 +1,6 @@
+The rhythmic clanging of copper pots against granite counters filled the small kitchen, punctuated by the occasional hiss of boiling water.  A plume of steam, tinged with rosemary and garlic, rose from a pot simmering on the stovetop, momentarily obscuring Amelia Beatrice Clementine, her brow furrowed in concentration.  
+
+Amelia, known to regulars at "The Copper Kettle" as just "Amy," was in the throes of creating one of her signature dishes:  a slow-braised lamb shank with rosemary-infused polenta and roasted root vegetables. It was a dish that demanded meticulous attention, each element carefully calibrated to complement the other. The restaurant itself, tucked away on a cobblestone street in a historic district of Prague, was as charming as its owner. Exposed brick walls adorned with vintage cookbooks lined the cozy dining room, while warm, amber light filtered through lace curtains, casting long shadows across the worn wooden floor. Tonight, like every other night since Amelia took over "The Copper Kettle" three years ago, it promised to be a symphony of flavors and shared stories.
+
+
+But tonight was different. A note, tucked beneath a plate left by an anonymous patron, hinted at something unsettling -  a whispered warning about a shadow lurking in the kitchen's heart. 

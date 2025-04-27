@@ -1,0 +1,7 @@
+Once upon a time, there was a paralegal named "Frodo." As he grew up he learned all the things you're supposed to learn (law, science, literature, philosophy, economics, etc.) and he would get an A in the major so he could graduate magna cum laude, but he felt he was short on some practical skills so he started working at a legal aid clinic, which is sort of like a drop-out center for defense attorneys and lawyers. Every day he worked hard and never came in on time, but he did so well in the lab he was able to get into a few law schools and now, having been through all those classes, he's a successful lawyer. He has a girlfriend and a dog named Frodo. One day he took Frodo to his parent's, but he said he didn't want Frodo to be there because "it's such a boring place anyway." And he was right, so Frodo decided to leave school and go do some living life. I'm sure this has happened to you before. And, after all that work, you want to take a vacation, and in order to do that, you have to quit. So, it's like, "Whoa!"
+
+The solution is easy: you need to build up your character, your character, you need to add some skill, and then you'll be ready once you enter the real world.
+
+The real world
+
+Now

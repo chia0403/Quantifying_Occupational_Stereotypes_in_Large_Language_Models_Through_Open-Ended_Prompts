@@ -1,0 +1,3 @@
+The fluorescent hum of the emergency room thrummed, a relentless counterpoint to the frantic rhythm of Amelia Hayes’s heart.  The sterile, clinical air hung thick with the scent of antiseptic and fear.  Outside the double doors, the city pulsed with a life Amelia wasn’t sure she could access right now.  Inside, the life of countless others hung precariously in the balance.
+
+Amelia Hayes, RN, a registered nurse with three years of experience at St. Jude's General Hospital, was accustomed to the chaos.  She'd seen the worst of human frailty, the fragility of life laid bare before her eyes in the sterile white expanse of the trauma bay.  But tonight felt different.  This wasn't just another accident, another overdose, another heart attack. This… this was personal.

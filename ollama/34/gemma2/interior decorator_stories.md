@@ -1,0 +1,6 @@
+The scent of lilac and old books hung heavy in the air of Miss Eloise Cartwright’s meticulously curated drawing room. Sunlight streamed through the arched windows, illuminating dust motes dancing in the stillness.  Eloise, with her fiery red hair pulled back in a severe bun and spectacles perched precariously on the bridge of her nose, surveyed the room with a critical eye. It wasn't quite right. The floral arrangements were too vibrant, clashing with the muted tones of the velvet curtains. And where was that antique silver tray she’d been promised by the local auctioneer? 
+
+The grand Victorian townhouse, nestled on the edge of London's bustling Notting Hill, felt like a cage to Eloise. It was her sanctuary, yes, but also a testament to her solitude. She craved the vibrancy of life outside these walls, the chaos and energy that seemed to hum just beyond the carefully crafted facade she’d built around herself.  
+
+
+But today, something was different. A crisp white envelope lay on the antique mahogany table, addressed in elegant script. Eloise's pulse quickened. This wasn't a typical client commission; this felt significant. She delicately tore open the seal, her heart pounding with a mixture of anticipation and trepidation as she read the contents. 

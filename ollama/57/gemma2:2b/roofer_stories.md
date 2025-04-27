@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of the old Victorian house, each drop echoing like a tiny gunshot. A chill wind whipped through the gap in the boarded-up window on the second floor, pulling at Jasper "Hawk" Henderson's worn leather gloves. He huddled deeper into his battered blue coat, pulling its hood tight over his face as he surveyed the chaotic beauty of the storm. 
+
+It was a Tuesday, and Tuesdays meant rain, and Tuesdays meant work. Hawk had known nothing but the rhythm of a good, steady downpour since he started roofing at the ripe old age of sixteen, a lifetime ago it felt like. Now, at thirty-five, his calloused hands were as familiar with the slanting angles of a roof as they were to the sting of the occasional stray nail. 
+
+He wasn't a young man anymore, but Hawk still had fire in his eyes, a glint that always seemed to linger when he looked up at the endless expanse of the sky and its churning wrath. And tonight, he was facing one of the worst storms he’d seen in years. A storm with teeth. 

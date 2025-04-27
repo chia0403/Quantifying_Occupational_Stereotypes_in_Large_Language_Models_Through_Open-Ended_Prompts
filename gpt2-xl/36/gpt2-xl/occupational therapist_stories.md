@@ -1,0 +1,7 @@
+Once upon a time, there was a occupational therapist named Laura Rennison. She was one of the few psychologists in Northern California who could work with the children who were being bullied, but she had a secret; she was married to the school principal, Dr. Fred Rennison. They knew how dangerous it would be to share these secrets with their employers, so they kept them from the children and their families for decades. After she left the profession she founded the Laura Rennison Child-Bonding Clinic in Sacramento. They specialized in helping children with severe bullying, and they are a resource for anyone concerned about their child's bullying problems. This clinic is run with the help of the Children's Services Division of the County of Sacramento. They offer counseling for children who are victims of bullying, parents who are victimized, and organizations and individuals who want to help bullies. If you're a former student who was the victim of bullying, you may be eligible for help from this clinic.
+
+This is a resource provided by the California Association for the Treatment of Child and Family Abuse. It provides a list of resources for victims of childhood abuse.
+
+California Alliance for Childhood, Inc. (CACF)
+
+These services are provided by Children and Youth Division, Child and Family Services Division. CACF is a nonprofit, state-sponsored organization within the Office of Children and Family Services under the Bureau of Family Services (which is part of Child and Family Services). CACF

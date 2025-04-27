@@ -1,0 +1,5 @@
+The sun, a molten fist punching through the dusty dawn, cast long shadows from the gnarled mesquite trees that dotted Elias “Eli” Blackwood’s ranch. The air was crisp, carrying the scent of sage and damp earth after a brief night rain.  A rooster crowed somewhere in the distance, a lonely call answered only by the rustle of wind through the tall grass. Eli stood on the porch of his weathered farmhouse, squinting against the glare as he surveyed the sprawling expanse of land that stretched before him – a patchwork of rolling hills, arid plains, and scrubland scarred by drought. 
+
+His gaze fell upon the herd of Hereford cattle grazing in the distance, their black and white hides glistening in the morning light.  Eli’s heart swelled with a familiar mix of pride and weariness. This land, passed down through generations of his family, was all he had ever known. It was his legacy, his burden, and the source of both his joy and his despair. He inhaled deeply, the scent of freedom filling his lungs. Another day on the ranch had begun.  
+
+

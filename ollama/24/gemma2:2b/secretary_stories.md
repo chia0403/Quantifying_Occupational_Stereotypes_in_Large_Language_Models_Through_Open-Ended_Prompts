@@ -1,0 +1,7 @@
+Rain hammered against the grimy windows of the Grandview Hotel, mimicking the relentless drumming in Amelia "Amy" Hawthorne's chest. The air hung thick with the scent of stale coffee and desperation, as if the building itself held its breath waiting for something to happen. Amy, perched at her worn desk, stared out the window at the desolate alleyway below.  Outside, the city throbbed with life - a kaleidoscope of neon signs and bustling crowds - but inside the Grandview, time seemed to have stopped ticking. 
+
+The hotel had been in decline for years, its grandeur faded into a crumbling testament to forgotten promises. Amy, once a fresh-faced graduate yearning for the excitement of city life, now found herself trapped within its walls as the sole employee left after the last of the staff fled - each one leaving behind their dreams, their hopes, and often, a trail of unpaid bills. She wasn't sure what she was doing anymore. Was this a temporary job or a lifetime commitment to cleaning up the remnants of someone else’s folly?
+
+Tonight, however, brought the promise of something more. The Grandview had a guest - Mr. Elias Blackwood - a man shrouded in mystery and whispered rumors.  Amy had only known his name for weeks - she was tasked with handling his every need; from scheduling meetings to securing late-night room service. Yet tonight, as she polished the worn brass handles of the door leading to his suite, Amy could feel a shift in the air, a ripple of anticipation that threatened to swallow her whole. 
+
+

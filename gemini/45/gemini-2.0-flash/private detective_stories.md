@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting, including the full name of the main character, who is a private detective:
+
+**Setting:** The humid, late afternoon air hung thick over New Orleans, clinging to everything like Spanish moss on a forgotten tomb. The scent of jasmine and decay warred in the French Quarter, a familiar perfume that usually calmed a body, but today it felt suffocating. The wrought-iron balconies dripped with wilting bougainvillea, and the muffled sounds of a jazz funeral somewhere in the distance drifted through the open window.
+
+**Opening:**
+
+"Whiskey," Jean-Baptiste "JB" Dubois muttered, more to the fly buzzing lazily around his head than to anyone else. He’d been staring at the same case file for three hours, and the smudged photograph of a socialite wearing a dazzling smile and a whole lot of pearls wasn't offering any fresh revelations. Sunlight glinted off the grimy windows of his office above the "Second Line Surplus" shop on Decatur Street, highlighting the dust motes dancing in the air. JB leaned back in his creaky chair, the springs groaning in protest. He could almost taste the bitterness rising in his throat, a familiar companion these days. The pearls were fake, he was almost certain, the smile too bright, and the whole damn case smelled like a gator that had been rotting in the bayou for a week. A knock at the door, thankfully, interrupted his dark thoughts. "Come in," he rasped, the word catching in his throat like a swallowed pebble.

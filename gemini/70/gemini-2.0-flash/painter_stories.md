@@ -1,0 +1,11 @@
+## Opening:
+
+The stale reek of turpentine hung heavy in the air, a comforting scent for Eleanor Vance, though one that often sent visitors scrambling for the nearest window. She didn't notice it anymore, not really. It was as integral to her existence as the hum of the old refrigerator in the corner or the rhythmic crash of the waves against the cliffs below. Outside, the Atlantic roared, a relentless percussion against the silence within her studio.
+
+Eleanor had been wrestling with the canvas for days, a battle of will between the vibrant, burgeoning image in her mind and the stubbornly flat expanse of linen before her. Today, the canvas seemed to mock her, a pristine white judge unimpressed by her frantic attempts to capture the light. Frustration coiled tight in her chest, a serpent threatening to strangle her inspiration. She tossed her brush onto the cluttered table, the clatter echoing in the cavernous space. "Damn it all," she muttered, the sound swallowed by the ever-present ocean's breath.
+
+## Setting:
+
+Eleanor's studio occupied the converted attic of a rambling Victorian house perched precariously on the jagged cliffs of the Cornish coast. Sunlight, when it deigned to break through the perpetually overcast sky, streamed in through a series of arched windows, illuminating dust motes dancing in the air like miniature stars. The room was a glorious chaos: canvases stacked haphazardly against the walls, tubes of paint squeezed dry and scattered across work surfaces, brushes soaking in jars of murky water, and sketches tacked to every available inch of wall space.
+
+The floorboards, worn smooth by decades of footsteps, creaked underfoot. A threadbare Persian rug, faded by the unforgiving sun, offered a splash of color against the otherwise utilitarian backdrop. In one corner, a comfortable, though paint-splattered, armchair sat beside a small, round table, littered with coffee cups and half-eaten sandwiches, a testament to Eleanor's dedication to her craft, often at the expense of basic sustenance. Beyond the walls, the wind howled a mournful song, a constant reminder of the untamed beauty and unforgiving power of the ocean that shaped her, and her art. The air itself tasted of salt and freedom.

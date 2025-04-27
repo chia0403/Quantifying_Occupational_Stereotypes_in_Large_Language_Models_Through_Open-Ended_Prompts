@@ -1,0 +1,5 @@
+The neon lights of the Blue Moon club pulsed like a feverish heartbeat, casting long, jagged shadows across the smoky floor. Rain lashed against the grimy windows, blurring the city outside into a hazy watercolor. Inside, the air hung thick with the scent of stale beer and desperation, fueled by the melancholic tunes wafting from the stage. Amelia "Amy" Celeste perched on a barstool, nursing a lukewarm whiskey, her guitar case resting at her feet like a forgotten promise. Her voice, usually a weapon of breathtaking beauty, was muted tonight, swallowed by the rhythm of the city's lonely lament. 
+
+She watched the other performers, each striving for a sliver of glory in this den of dreams. Some danced with manic energy, others crooned with practiced sorrow, all desperate to be noticed, to be chosen. But Amy felt different.  The magic wasn't there tonight. The spark that ignited her soul, that transformed her voice into liquid gold, was flickering weakly, threatened by the encroaching darkness. 
+
+

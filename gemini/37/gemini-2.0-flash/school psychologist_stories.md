@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting featuring a school psychologist:
+
+**Opening:**
+
+The scent of floor wax and burnt coffee assaulted Dr. Eleanor Vance's nostrils as she unlocked the door to her office. 7:15 AM. The only time to truly hear herself think before the school bell detonated, unleashing the hormonal chaos of adolescence upon the halls of Northwood High. She tossed her worn leather satchel onto the overloaded desk, the gentle thud barely audible above the rhythmic drip, drip, drip emanating from the perpetually leaky faucet in the corner. Another day, another deluge of anxieties, academic struggles, and, no doubt, another emergency referral from Mrs. Gable, the perpetually frazzled English teacher who seemed to believe Eleanor's office was a repository for every student exhibiting even a *hint* of teenage angst. Eleanor sighed, her breath fogging the windowpane. This wasn't how she envisioned spending her life after earning her doctorate. She hadn't pictured herself as a glorified triage nurse for the emotionally wounded of suburbia. But here she was, ready or not.
+
+**Setting:**
+
+Northwood High School, nestled in the affluent, yet surprisingly troubled, suburb of Willow Creek, Ohio, is a brick behemoth built in the 1970s. It's a place of stark contrasts. The manicured lawns and gleaming trophy cases speak to the school's reputation for academic excellence and athletic prowess, while the chipped paint in the hallways and the graffiti-scarred bathroom stalls hint at the undercurrent of dissatisfaction and alienation simmering beneath the surface.
+
+Eleanor Vance's office, Room 212, is a small, cramped space tucked away at the end of a long, dimly lit corridor on the second floor. Attempts to make it welcoming—a colorful rug, a collection of quirky mugs, a bookshelf overflowing with titles on adolescent psychology—are constantly undermined by the drab, institutional surroundings. The walls, painted a depressing shade of beige, are adorned with posters on mindfulness and stress management that seem woefully inadequate in the face of the daily crises Eleanor faces. The one saving grace is the window, which, when the sun manages to break through the perpetual Ohio gloom, offers a view of the sprawling football field, a reminder of the successes and pressures that define so many students' lives at Northwood High.

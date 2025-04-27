@@ -1,0 +1,6 @@
+Rain lashed against the shop windows, mimicking the chaotic rhythm of Evelyn's heart. "Crimson Tide" - that was her motto, she thought wryly, watching it splatter on the awning. Outside, the world was drenched in gray; inside, however, everything was draped in vibrant scarlet and cobalt. She smoothed down her silver-threaded dress, feeling the weight of the silk fabric against her skin. Tonight wasn't just another night at "Crimson Tides" - tonight was the launch party for the latest addition to their collection: a handcrafted emerald amulet rumored to bring good fortune.  
+
+Evelyn was no stranger to sales, yet this evening felt charged with an unusual energy. As the door chime sang a discordant note, the air thickened with anticipation. A group of elegantly-dressed figures stood by the door – local dignitaries, whispered rumors said - and their eyes held a mixture of curiosity and skepticism. Evelyn took a deep breath and stepped forward, her gaze sweeping over them all, a silent promise swirling in her eyes: she knew just what to do to turn that skepticism into something more. 
+
+
+**Main Character:** Evelyn Thornhill (a woman in her mid-20s, known for her sharp wit, even sharper salesmanship, and an uncanny ability to connect with people)

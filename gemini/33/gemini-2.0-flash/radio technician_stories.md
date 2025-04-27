@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** The year is 1947. The biting wind howled off Lake Michigan, whistling through the cracks of the WXON radio tower, a skeletal iron giant perched precariously on the north side of Chicago. Inside the small, cramped maintenance shack at the tower's base, the air was thick with the smell of soldering flux, burnt coffee, and the lingering scent of a thousand old radio dramas.
+
+**Story Opening:**
+
+"Damn static," Arthur Reginald Finch muttered, his breath clouding in the frigid air. He wiped a grimy rag across the face of the RCA AR-88 receiver, but the persistent crackle refused to abate. Arthur, a man whose life revolved around the delicate dance of electrons, found the stubborn interference particularly vexing tonight. He ran a hand through his perpetually disheveled brown hair, leaving a smudge of grease on his forehead. At thirty-two, Arthur Reginald Finch was a veteran radio technician, a master of vacuum tubes and capacitors, but tonight, the silence felt heavier, more ominous than any malfunctioning transmitter he’d ever faced. It wasn't just the static, he realized; it was the dead air after. A scheduled broadcast from the Chicago Historical Society - a dramatization of the Great Chicago Fire - should have started five minutes ago. The transmitter was humming, the power readings were normal, the antenna was pointed true. Everything was, on the surface, perfect. Too perfect. And Arthur Reginald Finch, a man who trusted his gut more than any schematics, knew in his bones that something was terribly wrong.

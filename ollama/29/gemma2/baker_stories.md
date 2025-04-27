@@ -1,0 +1,6 @@
+The aroma of warm yeast and caramelized sugar clung to everything in Eloise Amelia Cartwright's life. Even her dreams tasted of sourdough and spun sugar.  Her bakery, nestled on a cobblestone street in the heart of Willow Creek, was more than just a business; it was an extension of herself, a symphony of flour, butter, and carefully orchestrated chaos. 
+
+Willow Creek itself was a town caught between time periods, where gaslight lampposts cast flickering shadows on Victorian storefronts next to trendy coffee shops with names like "The Grindhouse." The bakery, however, remained a steadfast haven of tradition, its red brick facade untouched by the modern wave that seemed determined to sweep over everything else. Inside, Eloise’s world unfolded in layers: the comforting warmth of the ovens, the gentle clatter of whisks against porcelain bowls, and the murmur of contented customers savoring her creations. 
+
+
+But today, even the familiar scent of baking couldn't fully mask the undercurrent of unease that permeated the air. A chill wind rattled the windows, and a lone crow cawed mournfully from atop the ancient oak tree in front of the shop.  Something felt off, something whispered of change on the horizon, and Eloise Amelia Cartwright, Queen of Cakes and Master of Muffins, felt it with every fiber of her being. 

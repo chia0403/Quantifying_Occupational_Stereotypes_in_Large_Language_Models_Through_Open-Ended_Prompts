@@ -1,0 +1,6 @@
+The fluorescent hum of the pharmacy lights pulsed in time with the insistent thrumming in Amelia Grace Hawthorne's temples.  It was past midnight, and the familiar scent of lavender hand sanitizer and dusty cough syrup usually brought her a sense of calm, but tonight it felt oppressive. The tiny shop on Maple Street was almost always deserted at this hour, but tonight, a lone figure lingered by the vitamin aisle, his silhouette swallowed by the shadows.
+
+Amelia peered over her half-moon spectacles, her pulse quickening.  This wasn't the usual late-night customer seeking ibuprofen for a headache or antacids for heartburn. This man seemed hesitant, almost... afraid. His hunched shoulders and nervous tapping against a crumpled paper bag spoke volumes. She couldn’t see his face clearly, but something about him sent a chill down her spine, a feeling she hadn't experienced in years of dispensing prescriptions and comforting worried patients.  
+
+
+Amelia straightened her lavender cardigan, the one her grandmother had knitted for her on her graduation day from pharmacy school. It was the kind of cozy warmth that usually grounded her, but tonight, it felt more like a flimsy shield against the unknown. 

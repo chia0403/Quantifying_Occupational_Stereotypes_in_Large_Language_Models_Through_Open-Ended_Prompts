@@ -1,0 +1,5 @@
+The air in Mrs. Amelia Bell's office hung thick with the scent of over-used paperclips and teenage anxiety. Outside, the sky was a bruised purple, mirroring the storm brewing inside 17-year-old Lucas Thorne.  His eyes, usually bright like polished emeralds, were duller than faded denim, reflecting the weight of a million unanswered questions.
+
+Mrs. Bell sat at her desk, surrounded by motivational posters and neatly stacked student files. A single, warm lamp cast a soft glow on her face as she patiently awaited Lucas's outburst. It had been three weeks since he was caught vaping in the bathroom, the principal's stern gaze lingering over him like a hawk eyeing prey. Now, facing potential expulsion, Lucas felt lost in a sea of anxieties and the weight of his mother's mounting expectations.
+
+"I just don't understand," Lucas muttered, frustration lacing his voice. "What could I have possibly done wrong?"  His words hung heavy in the air, each syllable a tiny ripple on the calm surface of Mrs. Bell's empathy. 

@@ -1,0 +1,5 @@
+The low hum of the refrigerator vibrated through Elara Wren’s bones as she stacked mismatched plates in their designated corner. Outside, the July heat clung to the windows of “Rosie’s Diner,” turning the glass into hazy mirrors reflecting the neon flicker of the "Open 24 Hours" sign. Inside, the air was thick with the mingled scents of frying bacon, stale coffee, and desperation. A lone truck driver hunched over a lukewarm cup of joe at the counter, his weary eyes fixed on a flickering television broadcasting some late-night infomercial for miracle cleaning products.
+
+Elara wiped down a sticky table, her movements practiced and efficient. She knew this place like the back of her hand – every chipped mug, every wobbly chair, every worn patch on the red vinyl booths. Rosie’s was more than just a diner; it was a sanctuary for the weary, a refuge for dreamers, and sometimes, Elara thought wryly, a last stop before oblivion. She wasn't sure where she fit in that equation, but she knew she was stuck there, taking orders and serving coffee like a cog in a rusty machine. 
+
+

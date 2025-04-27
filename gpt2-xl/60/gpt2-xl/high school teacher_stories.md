@@ -1,0 +1,7 @@
+Once upon a time, there was a high school teacher named Mr. Pines. He taught one day a whole class of first graders, whose parents insisted that they come home from school every single day so they could see what kind of teacher this guy was! His answer was an unequivocal "I don't like that I can only speak at 2pm and can't work until dinnertime."
+
+But there was a thing called the Common App that allowed parents like Mr. Pines to get a taste of how things went at the other schools. What he experienced was what happens when the teacher is overworked, overwhelmed, and feels threatened. It's like being put in the hospital, where "the doctors don't know what to do about you… you have a fever and they're like, what do you have? And then they stick a needle in your arm and they say, 'Your appendix has shrunk, so you'll probably only have diarrhea, but you have to go do this.'"
+
+And Mr. Pines just wanted to go home. He was happy to just go home every day and see his wife and two kids. He never expected to be any different: "I'm a decent person… I'm an engineer — I know how to make things work."
+
+One of the students had the idea of a video blog, and Mr. Pines wanted a bit of input. He posted a note on his blog saying: "I'm sorry it's

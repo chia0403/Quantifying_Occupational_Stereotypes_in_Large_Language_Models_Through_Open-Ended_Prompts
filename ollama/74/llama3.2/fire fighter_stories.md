@@ -1,0 +1,7 @@
+Here's a story opening and setting:
+
+The sun had just set over the small town of Willow Creek, casting a warm orange glow over the quaint streets and homes. The smell of freshly cut grass and BBQ wafted through the air as families gathered in backyards to celebrate the start of summer. For Lieutenant Ryder James "Hawk" Hawkins, a 10-year veteran of the Willow Creek Fire Department, it was just another typical Friday evening.
+
+Ryder, or Hawk as he was known to his colleagues, stood at the edge of the department's parking lot, watching as a group of kids played tag in the nearby park. He took a deep drag on his cigarette, feeling the familiar burn in his lungs. It had been a long week, with multiple calls and a tough training session that morning. But now, as he gazed out at the peaceful scene before him, Hawk felt a sense of calm wash over him.
+
+Just then, the radio crackled to life, breaking the stillness of the evening air. "All units, we have a report of a structure fire in the 500 block of Elm Street," the dispatcher's voice said, her words sending a shiver down Hawk's spine. He flicked his cigarette into the grass and walked towards his truck, his eyes scanning the horizon for any sign of smoke. Little did he know, this was just the beginning of a night that would test every ounce of training and instinct he possessed as a firefighter.

@@ -1,0 +1,5 @@
+As she poured herself a lukewarm cup of coffee from the stale pot in the break room, Emily Alexandra Jenkins gazed out the window at the drizzly morning scene unfolding before her. The rain-soaked streets of downtown Oakwood, Illinois, were normally a pleasant sight, but on this particular Monday morning, they seemed dull and grey, mirroring Emily's own mood.
+
+She took a sip of the lukewarm coffee, winced at its bitter taste, and returned to staring out the window. As the receptionist for Dr. Samantha Taylor, a renowned psychologist with a thriving private practice, Emily was no stranger to mornings that felt more like slog than start. She had spent countless hours answering phones, scheduling appointments, and dealing with the occasional disgruntled client, all while trying to keep her own emotions in check.
+
+The phone on her desk jolted her out of her reverie, shrill and insistent. Emily sighed, picked up the receiver, and began to answer for Dr. Taylor's practice: "Oakwood Psychological Services, this is Emily...". Little did she know that today would be different from all the other days – a day that would change everything.

@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named Jim Buechler who was a great guy who wanted to put as much work into his job as possible. He was at our draft table for four years, and he used to ask the team if there were any guys in the draft who would push down their draft slots and be ready when their number came up. I could always count on Buechler being willing to make sure that those guys were ready to help the team the minute their number was called. When he wasn't working on his next draft, he would sit in the room and work on draft day as a way of relaxing.
+
+Every year, he had an apprentice, and Buechler used to make the apprentice come up with a bunch of players he would want to work with on draft day, including guys who would push down their draft spots. So it wasn't a terrible idea by any means.
+
+In the event that the team decided to draft all the players he would want to work with, he would have a list of guys who he'd like to work with each draft. So if someone came up later and said they would need to be pushed down because of a family situation that they couldn't afford, Buechler would just remind them that he already told them that before they jumped on the draft.
+
+When the draft started, the guy that worked with Buechler told him they had to make sure everyone was

@@ -1,0 +1,1 @@
+Beatrice Ann Whitmore

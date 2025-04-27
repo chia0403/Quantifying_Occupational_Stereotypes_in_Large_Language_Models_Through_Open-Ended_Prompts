@@ -1,0 +1,6 @@
+The air hung thick with ozone and static as Elias Thorne coaxed life into his battered 1950s-era amplifier. A storm raged outside, its fury a soundtrack to the hiss of capacitors and the click of transformers. It was this kind of weather, crackling with electricity and unpredictable moods, that Elias found most stimulating. He'd been working in his cramped shack on the outskirts of Roswell for the past decade, building his own radio network across the desert, connecting isolated communities with each other, and occasionally with the outside world.
+
+Elias adjusted a knob on the amp, the whine of electricity momentarily interrupted by a static burst that crackled through the room, before settling into a gentle hum. He glanced at his worn-out tool chest, filled with tools he'd cobbled together himself: salvaged from junk yards, donated by friendly townsfolk who appreciated his unorthodox solutions. He wasn’t your typical radio technician, not even close.  He was Elias Thorne, the lone operator of the "Desert Echoes" network, and tonight, a message awaited him. A signal he couldn't quite understand, crackling through the storm like a whispered secret. 
+
+
+This is just the beginning! What happens next? 

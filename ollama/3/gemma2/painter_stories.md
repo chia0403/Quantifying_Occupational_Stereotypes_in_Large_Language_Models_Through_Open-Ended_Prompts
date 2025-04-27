@@ -1,0 +1,5 @@
+The air hung heavy with the scent of linseed oil and turpentine, a familiar perfume to Elara Celeste Dubois that always brought a comforting sense of home. Her studio, perched precariously on the third floor of an old Victorian building overlooking the bustling city streets, was her sanctuary. Sunlight streamed through the dusty skylight, illuminating the chaotic beauty of paint tubes scattered across the workbench, brushes drying in jars of water, and canvases leaning against every wall, each a portal into a different world imagined by Elara's hand.
+
+Today, however, the usual serenity was disrupted. A persistent thrumming vibration echoed through the building, punctuated by muffled shouts and the clattering of metal.  Elara peered out the window, her brow furrowed in confusion. Construction workers swarmed around a newly erected scaffolding beside her building, their activity disturbing the peace she cherished. It was an unwelcome intrusion into her world of color and quiet contemplation.
+
+

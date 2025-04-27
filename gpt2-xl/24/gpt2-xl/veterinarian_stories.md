@@ -1,0 +1,7 @@
+Once upon a time, there was a veterinarian named Dr. Richard Gellin. For about 30 years, before his health deteriorated (which, I know, is a common occurrence in anyone's life), he traveled to far-flung parts of the country, where he often treated malnourished dogs. His philosophy was simple: All animals are created equal, and as far as he was concerned, they all deserve food, water, and a decent living.
+
+As sad as it may seem, this dog's memory probably inspired a few dog lovers to take the plunge to the grocery store on a Saturday afternoon. Now, imagine if someone offered this dog's philosophy when considering buying a pet. In light of recent "right-to-farm" events—a movement aiming to make certain commercial farm animals have access to as many animals as possible—maybe it's time to revisit this thought experiment. Who says animals don't deserve equal rights and a living?
+
+It's hard to know how widespread this sentiment is—the general public may never know all the ways that meat-eating animals suffer—but it's possible some people do. There are undoubtedly many people who are thinking about buying a pet after reading stories like the above.
+
+In any case, I hope this helps readers consider the following question: Is eating meat really better for the world? Or just more convenient? Would you support any legislation that would change the status quo, like increasing farm animals' access to

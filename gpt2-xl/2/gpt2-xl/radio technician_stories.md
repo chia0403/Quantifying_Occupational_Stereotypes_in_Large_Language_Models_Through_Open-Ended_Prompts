@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Richard. Richard worked for General Dynamics and made a lot of money as a mechanic of air transport aircraft.
+
+At some point, and Richard isn't quite sure when, Richard's life in the service started to crumble. In a bid to escape his life as a mechanic in the service, Richard decided to head to the college town of Denver to start his life as a student. Unfortunately, the college was only offering one degree to any student and that was engineering.
+
+Richard was determined to find a college that would give him a degree in engineering and, after several days of research, Richard determined that there was no other school in Denver that offered engineering. Richard ended up spending the next two years getting his degrees at a local community college. When Richard graduated, he got a job as a mechanic at an air transport company. One day, while repairing something, Richard discovered a switch that had been left in the plane. The switch had become stuck and Richard had to fix the plane by pulling out the switch from the plane. Unfortunately for Richard and the plane, his fingers became too tired and he had to take a break and rest his hand for a while. Richard had left his plane at the airport and then returned for it the next day. He noticed a faint trail of smoke coming from behind the plane.
+
+When Richard returned to his plane, he discovered that an explosion had occurred. His plane was badly damaged and it was

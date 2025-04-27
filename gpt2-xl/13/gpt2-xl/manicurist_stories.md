@@ -1,0 +1,7 @@
+Once upon a time, there was a manicurist named Debbie (now Debbie Reynolds) who got into hot water. In the 1970s, Reynolds was on the verge of losing her dental license after she got caught fiddling with her clients' teeth and falsifying her work records. But when the scandal came to light, it was Reynolds who was thrown into the middle of it with an eight-year-sentence for her role. That's a lot of time to lose on having a little mishap in order (in this case, a manicure with a black box painted on your fingers), but Reynolds was also criticized for what her lawyer called her "blatant, despicable violation of the public trust."
+
+10. Mariah Carey had a nasty fight with her daughter, Kianna, over a pair of earrings.
+
+When Carey's daughter Kianna was 11, the two battled over a pair of earrings they believed might have come from her mother's sister. "The problem is she got two of Kianna's earrings from her aunt's house," Carey explained. He argued, insisting that only one of the earrings was made in their family-owned shop—the other earring was his. Carey responded, saying, "It might be in that house in the closet over there. Or, maybe they got it here," and then stomped out of the room.
+
+11. A mother's love can make her do crazy

@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+In the sleepy coastal town of Ravenswood-by-the-Sea, where the fog rolled in off the ocean like a damp shroud every morning, Aurora "Rory" Wynter stood at her easel, gazing out at the grey expanse of water. Her studio, tucked away above the local bookstore and café, was a cozy sanctuary that smelled of turpentine and old books. The wooden floor creaked beneath her feet as she shifted her weight, her eyes never leaving the canvas in front of her.
+
+Rory's fingers danced across the palette, mixing colors with a practiced ease that belied the turmoil brewing inside her. She was an artist, one of the few in Ravenswood who made a living from her craft – painting landscapes and portraits that captured the essence of this rugged, windswept coast. But lately, Rory had been struggling to find inspiration, to capture the beauty she saw every day on canvas.
+
+As she worked, the sound of seagulls filled the air outside, mingling with the hum of the café below, where her mother, a former artist herself, was sipping coffee and chatting with the owner. It was a typical morning in Ravenswood-by-the-Sea, full of the comforting rhythms of small-town life – but for Rory, there was something missing, a sense of restlessness that had been growing inside her for weeks.
+
+And then, just as she was starting to make progress on the painting, Rory's gaze fell upon a small, enigmatic message scrawled on the edge of her canvas: "The sea remembers more than you do." She felt a shiver run down her spine as she wondered what it could mean – and who might have left such a mysterious note.

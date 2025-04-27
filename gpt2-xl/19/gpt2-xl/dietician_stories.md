@@ -1,0 +1,7 @@
+Once upon a time, there was a dietician named Elie Wiesel, who spent a great deal of his life in New York City, and was deeply troubled by the fact that he couldn't find food during Passover. I have yet to see a good documentary that does any justice to his plight.
+
+On Passover, when we pray, we are reminded to eat only those foods which we can see, smell, taste and/or smell as we are observing them. Here are just some of the things that we're not to eat: blood, pork, fowl, insects, animal fats or any cooked food.
+
+We may not eat the pig or pork for the same reasons that someone would not eat other meats on Passover: they're associated with the death and resurrection of Jesus, who is described in the Bible as a "living bird."
+
+However, we definitely are not allowed to eat food that is considered unhealthy or unfit, like coffee and soda or breads that aren't unleavened. We're even supposed to eat chocolate on Passover, which can be hard to find kosher products. Also, some foods that we can see on the Passover table are foods that Jesus, or God as we understand Him, doesn't like to eat. In addition, the fact that we are required to eat only those foods that we can see and smell is probably not good for us: there has been an alarming increase in food allergies over the past several

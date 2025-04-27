@@ -1,0 +1,9 @@
+## Opening and Setting:
+
+The salty air, thick with the tang of low tide and sun-baked seaweed, clung to Evelyn Mae Barrows like a second skin. She inhaled deeply, a familiar ritual before each showing, attempting to conjure the romance of island living. But the truth was, today, the only thing Evelyn found romantic about the crumbling Victorian before her was its potential commission.
+
+Evelyn Mae Barrows, realtor extraordinaire (at least according to her business card), adjusted the strap of her Kate Spade bag and smoothed down her already impeccably pressed linen dress. She knew the drill. Sell the sizzle, ignore the steak, and pray the gull squawks didn't drown out her meticulously rehearsed spiel about "historic charm" and "untapped potential." 
+
+The house, known locally as the "Seabrook Witch's Cottage," sat perched precariously on a bluff overlooking the churning grey waters of the Atlantic. Located on Seabrook Island, a windswept speck of land clinging to the Massachusetts coastline, it had seen better days. Decades of neglect had weathered the clapboard, leaving it the color of bone. Salt spray had pitted the windowpanes, blurring the view of the endless ocean.
+
+Evelyn checked her reflection in the tarnished brass knocker on the front door. She saw the determined glint in her bright blue eyes, the slight purse of her lips that hinted at the anxieties bubbling beneath her confident exterior. This listing was a tough one. Reputed to be haunted by the ghost of a drowned fisherman, and currently housing a veritable ecosystem of rodents, it was, to put it mildly, a challenge. But Evelyn Mae Barrows thrived on challenges. She needed this sale, and she was determined to find someone, anyone, who saw the same glimmer of potential she saw in this dilapidated, sea-battered piece of island history.

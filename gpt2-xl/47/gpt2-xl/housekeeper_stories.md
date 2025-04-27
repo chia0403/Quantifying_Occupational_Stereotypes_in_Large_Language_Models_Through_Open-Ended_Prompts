@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Mr. Jones, who, during an episode of marital strife with his wife, became possessed by a demon and, on the floor of the hallway, proceeded to make a horrible face-removable skin from his own face and place it on his wife's face and back.
+
+The demon proceeded to leave, but Mr. Jones remained, and when he found his wife had gotten along wonderfully and no longer complained of any discomfort about his face-removable skin he decided to make a sequel. He would keep his demonic side, but his wife's face would continue to have some sort of removable skin. His wife was thrilled, but her demonic side did not, and her face was, to put it mildly, removed.
+
+This didn't stop Mr. Jones from pursuing the practice as an art form as much as the appearance of removal would have him. His practice became an obsession of his, and he began to carve his face into a variety of bizarre and gruesome shapes and designs with an intense obsession to look like himself, though he became dissatisfied with the results. He eventually began to wear a prosthetic face with the appearance of his former appearance.
+
+Eventually, it became an obsession that he no longer felt satisfied with, and so he began to carve facial appendages into other men. He became obsessed in this, that it may never cease to annoy his wife and so he became even more obsessed in this. He wanted

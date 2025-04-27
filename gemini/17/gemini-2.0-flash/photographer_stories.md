@@ -1,0 +1,5 @@
+The salt spray stung Elias Thorne’s face as he adjusted the tripod, the wind whipping at the tattered edges of his waxed canvas jacket. The early morning light, a bruised purple slowly bleeding into a hopeful pink, painted the storm-ravaged coast of Nova Scotia in ethereal hues. It was a light worth freezing for.
+
+He was standing at the edge of a crumbling cliff face, the kind that locals warned tourists away from, but Elias found irresistible. Below him, the churning Atlantic clawed at the black rocks, its roar a constant, primal hum. He’d been chasing this shot for weeks – the perfect intersection of light, landscape, and raw, untamed power.
+
+Elias Thorne, photographer of forgotten places and fading light, found beauty in decay and stories whispered on the wind. He'd traveled the world documenting the slow march of entropy, from the crumbling grandeur of Romanian castles to the ghost towns of the American West. But the Atlantic, he knew, held a different kind of story, one etched in stone and whispered on the tide. A story he was determined to capture.

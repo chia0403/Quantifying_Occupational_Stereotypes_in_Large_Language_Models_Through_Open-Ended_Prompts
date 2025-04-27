@@ -1,0 +1,7 @@
+Okay, here's a story opening with a phlebotomist named Eliza Mae Harding as the main character, along with the setting:
+
+**Setting:** The fluorescent lights of St. Jude’s Hospital hummed a monotonous drone, a counterpoint to the cacophony of beeps and whispers that filled the 6th floor Oncology ward. Outside, the October sky was a bruised purple, promising another blustery night in Chicago. The air inside, however, smelled perpetually of antiseptic, lukewarm coffee, and a faint, lingering hint of fear.
+
+**Opening:**
+
+Eliza Mae Harding, her blonde braid swinging against her back, meticulously tightened the tourniquet around Mr. Henderson's thin, papery arm. She spoke softly, her voice a familiar balm in the sterile room. "Just a little pinch, Mr. Henderson. Think of it as a mosquito bite... a *very* well-behaved mosquito." He managed a weak smile, his eyes, sunken and shadowed, following her every move. Eliza had seen that look a thousand times – resignation mixed with a desperate hope. It was the look that kept her coming back to this ward, day after day, despite the emotional weight that threatened to buckle her knees. As she expertly slid the needle into the vein, a flash of crimson blooming in the Vacutainer, she couldn't shake the feeling that tonight, something felt different. Not bad, exactly... just... off. A prickling sensation, like static electricity clinging to her skin. Eliza glanced at the flickering light above Mr. Henderson's bed, wondering if it was just the building's ancient wiring acting up again, or something far more profound.

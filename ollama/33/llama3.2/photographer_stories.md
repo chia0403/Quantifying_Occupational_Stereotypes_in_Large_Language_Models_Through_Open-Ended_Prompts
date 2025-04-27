@@ -1,0 +1,9 @@
+Here's a story opening and setting for you:
+
+As the last wisps of sunlight faded over the worn wooden pier, Emilia Adelaide "Mia" Thompson adjusted her camera strap, the familiar weight of her Nikon D850 a comforting presence in the fading light. The small coastal town of Ravenswood-by-the-Sea was bathed in a soft, golden glow, as if the day itself was exhaling a final sigh before surrendering to the darkness. Mia stood at the edge of the water, the waves lapping gently at her feet, and gazed out at the tranquil scene before her.
+
+Mia had grown up in Ravenswood-by-the-Sea, where her father, a fisherman, had taught her the value of patience and the beauty of the everyday world. She had always been drawn to photography, capturing the intricate patterns on shells, the play of light on waves, and the quiet moments between people. As she grew older, Mia's passion for photography only deepened, taking her on journeys around the world, from the bustling streets of Tokyo to the sweeping landscapes of New Zealand.
+
+Now, at 28 years old, Mia had returned to Ravenswood-by-the-Sea, seeking a sense of connection and purpose that seemed to be missing in her life. Her latest project, capturing the stories of the town's residents, had begun to take shape – but she was struggling to find the right shot, the one that would unlock the secrets of this place and reveal its true beauty.
+
+As Mia began to frame her next shot, a faint noise caught her attention – a soft knock on the door of her small beachside cottage. It was just a gentle tap, almost imperceptible, but it sent a shiver down her spine. Who could be visiting at this late hour? And what did they want?

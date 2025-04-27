@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named Dr. George W. Carter. His son, Dr. George W. Carter Jr. was an expert in dental implants. When his father passed away in 1966, Dr. Carter decided that he wanted to make that profession fun and exciting and give young doctors like himself a challenge. So he started the Carter Dental Institute.
+
+The initial mission statement has changed as the institute has grown since then. There are now four different parts in the Carter Dental Institute: the Oral Lab, the Dental Institute, the Dental Care Center, and the Dental Recruitment Program, each with the intention of building a new culture of dentistry with a purpose.
+
+The Oral Lab is a unique place in this hospital where young doctors must practice medicine by using their skills in real-life patient care. The lab, which is dedicated to the maintenance of the oral care of the public at large, is full of modern technology that is ideal for those new professionals coming into this field. From the dental professionals' perspective however, the office is much like anywhere. It has a traditional, white environment complete with desks, chairs and whiteboards while the doctors and others in the lab sit around in the waiting room. The office includes a small, single patient room that houses a doctor's computer and a few chairs as well as a few private rooms for patients to call for more advanced care.
+
+The Dental Institute is

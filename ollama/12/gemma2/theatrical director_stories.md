@@ -1,0 +1,6 @@
+The air hung thick with anticipation, the scent of stale coffee and rosin clinging to the worn velvet curtains of the Grandview Theatre.  Eleanor "Ellie" Beaumont adjusted her wire-rimmed spectacles, peering over them at the chaotic scene unfolding before her. Actors milled about like nervous pigeons, scripts clutched in their hands, whispering lines under their breath.  One, a lanky young man named Finnigan, tripped over his own feet while juggling props, sending a cascade of fake daggers and plastic skulls across the stage floor. Ellie sighed, her lips twitching into a weary smile.
+
+This was opening night, the culmination of months of rehearsals, blood, sweat, and tears poured into bringing Arthur Miller's "Death of a Salesman" to life in this historic yet crumbling theatre nestled on the fringes of New Orleans. The building itself seemed to mirror the play's themes:  grandiose in its past, struggling against the weight of time and memories, clinging desperately to a fading glory. Ellie, however, refused to let either the building or her production fade into oblivion. She believed in this play, in these actors, and in the power of live theatre to illuminate the human experience, even in its darkest corners. 
+
+
+This was her chance to prove it.  

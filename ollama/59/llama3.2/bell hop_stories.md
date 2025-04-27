@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+It was a drizzly autumn evening in 1955, and the neon signs of the local diners and jazz clubs seemed to cast a gaudy glow over the deserted streets of downtown Los Angeles. Amidst the hum of the city, 25-year-old Emmett Wesley "Em" Thompson stood outside the Grand Hotel, his worn suit jacket slung over one shoulder and a worn fedora clutched in his hand. As the bellhop at the esteemed hotel, Em had seen it all - from high-society matrons to gangster molls, each with their own secrets and scandals. But tonight was different. Tonight, Em had received an unusual request from a mysterious client, one that required him to slip into the shadows and retrieve a valuable item with no discernible connection to the hotel's esteemed guests.
+
+As he scanned the deserted lobby, the soft glow of the chandeliers casting eerie shadows on the walls, Em couldn't shake the feeling that something was off. The air was heavy with anticipation, like a storm brewing just beneath the surface. And yet, as he gazed out at the rain-soaked streets, Em felt an inexplicable thrill of excitement - after all, tonight was going to be one night that would change everything.
+
+(Note: Emmett Wesley "Em" Thompson is the main character, a bellhop at the Grand Hotel in 1955 Los Angeles.)

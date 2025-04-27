@@ -1,0 +1,5 @@
+The air in the Oakhaven Public Library hung heavy with the scent of aged paper and dust motes dancing in the afternoon sunbeams that slanted through the arched windows. Eleanor Beatrice Hawthorne, or Ellie as everyone called her, meticulously dusted the spines of first editions lining the shelves, her fingers tracing the faded gold lettering like a lover's caress.  She hummed softly, a gentle melody lost to the quiet rustle of turning pages and the muffled murmur of patrons scattered throughout the cavernous space. 
+
+Oakhaven was a sleepy town nestled in the heart of Vermont, where time seemed to move at its own leisurely pace.  The library, built in 1923 with donations from grateful townsfolk, stood as a testament to the community's love for knowledge and storytelling. It was Ellie's sanctuary, a haven filled with whispered secrets held within countless volumes, each one waiting to be discovered. But today, amidst the usual symphony of rustling pages and hushed voices, something felt different. A prickle of unease danced along Ellie's spine, a feeling she couldn't quite place. 
+
+

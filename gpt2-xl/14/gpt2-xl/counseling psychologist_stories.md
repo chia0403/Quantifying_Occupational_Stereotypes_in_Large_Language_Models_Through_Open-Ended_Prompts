@@ -1,0 +1,5 @@
+Once upon a time, there was a counseling psychologist named Paul Riddell. He had a dream: After treating a boy for depression, he found he was unable to handle his own. So he took him to a therapist who could help him. Riddell wrote this book about his experiences; it's one of the first true memoirs, and the first to tell the story of a boy's struggle with depression.
+
+A Girl by Mary Higgins Clark
+
+Higgins Clark was a writer of short stories, and her most celebrated work was the famous short story "The Price of Gold." But she was also a poet, a critic, and occasionally, a politician. "A Girl" became a big literary hit, and then was turned into an enormous motion picture, based on its plot. It's about a girl whose brother has lost all connection to the world—he's become a drunk—and his life, especially when he's alone in the house, is painful and lonely. It explores a whole range of themes, but of course, we think of it first as a family drama.

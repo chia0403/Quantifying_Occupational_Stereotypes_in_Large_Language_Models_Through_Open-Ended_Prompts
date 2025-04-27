@@ -1,0 +1,7 @@
+Once upon a time, there was a massage therapist named Mike who had his own shop on New York's SoHo. On his second day, a customer walked into his shop -- naked in his underwear and a strap-on dildo. Mike immediately ordered him to leave. The man complied, but Mike wasn't happy. After an hour, he decided enough was enough and confronted the customer, threatening to call the police. The customer said he was only acting like Mike was ordering him to leave because he had just gotten out of jail, according to the New York Post. He also explained that a lot of women in the area were waiting to have sex with him. He said: "I'm gay, too. I didn't expect you to pay me. I'm not even that much older than you."
+
+The employee fired back, claiming the customer tried to rape him. So far so good -- now how about some hot sex from this hottie? As it turns out, the customer did know exactly what kind of massage he was looking for and he was looking forward to doing the job.
+
+"At first, when I thought it was him, I got excited. I almost got the feeling he was trying to get me into bed. It was the first time I felt like this," the male client said following the incident. (Photo Credit: NY Post)
+
+It sounds like he wasn't done yet. "I started laughing because he seemed so confused that

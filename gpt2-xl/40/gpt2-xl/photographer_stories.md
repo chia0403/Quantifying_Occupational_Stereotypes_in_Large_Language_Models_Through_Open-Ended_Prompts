@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Paul Zacks (you can buy posters and prints that bear his name). The way I'm making this up, it was at Zacks's urging that a young photographer named Mike Murphy put him in touch with his future business partner, Steve Case.
+
+The first thing you notice about Murphy – his haircut. He was so skinny you could almost walk straight up and down a row of his teeth without touching any of his eyebrows, especially his lower (the lowermost for the upper teeth is his left). He had big, dark eyes (no eyelashes), curly hair that was in constant fashion, and, of course, a smile that I always imagined was born from the pain of a lifetime's suffering. He was the ultimate dork.
+
+Murphy and Case first met in 1982. They were friends, and as it happened the then 26-year-old Murphy wanted to go to college and wanted to make a career in photography, and Case knew how to help him. Case talked to two magazine publishers, put Murphy on the cover of Playboy, and got him started shooting pictures. And, when he wasn't working for Case, he was hanging out with his friends in Beverly Hills.
+
+As you probably know, for a time, Murphy was the hottest magazine-cover model in the country. In fact, if you remember the cover photo from the March 1983 issue of New York Magazine, which Murphy also photographed, then

@@ -1,0 +1,7 @@
+Once upon a time, there was a interior decorator named David Gumpel. He had a lovely job, but he also had a lot of time on his hands. He enjoyed looking at house and room interiors, and was very good at it.
+
+One day, he visited a family's house and was amazed to find a room full of boxes and crates full of empty glass jars and jars with clear liquids in them. Curious, he lifted the jars out of their original packaging, and found that they were filled with what he recognized as brandy. He wondered if the family had ever stored brandy in their house, and decided to investigate more closely.
+
+He got a bottle and began examining his sample. He found a clear, light orange liquid inside. His eye quickly detected a spicy smell, but he decided that this was a blend of various spirits of varying alcohol content. His first thought was "wine". Later, he noticed that the bottle's labels said Made in Scotland. To the average person, that would only sound like a rumor, but to the cognoscenti, it is simply impossible to imagine a bottle of Scotch mixed with brandy being shipped to Canada, with a label that states "Made in Scotland." He noticed that the bottle bore the label of the distillery which owned the brandy.
+
+Gumpel didn't find any proof that the brandy had been transported for sale, but he did notice a tiny, thin glass cap

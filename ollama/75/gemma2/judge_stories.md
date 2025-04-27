@@ -1,0 +1,6 @@
+The air in Judge Eleanor Vance's chambers was thick with anticipation, not unlike the humidity clinging to Miami on a summer afternoon. Sunlight streamed through the floor-to-ceiling windows, illuminating dust motes dancing in the stale air. The mahogany desk, worn smooth by decades of deliberations and the weight of countless legal tomes, stood sentinel at the center of the room. 
+
+Eleanor herself was a study in contrasts. Her tailored power suit, crisp white blouse, and perfectly coiffed silver hair projected an image of stern authority, but her eyes, a piercing blue that hinted at both wisdom and weariness, held a flicker of something softer – perhaps a hint of sympathy, or maybe just the fatigue of a long day navigating the tangled web of human emotions laid bare in her courtroom.  
+
+
+The late afternoon sun cast long shadows across the plush carpet as she sat, reviewing the case file one last time before calling the next witness. A murder trial - always the most difficult kind. This one, though, felt different. The victim, a young artist named Lily Diaz, had left behind a legacy of vibrant murals that adorned the city's underbelly, transforming neglected alleyways into bursts of color and hope.  Now, her life was reduced to a cold file on Eleanor’s desk, and it weighed heavily upon her soul. 

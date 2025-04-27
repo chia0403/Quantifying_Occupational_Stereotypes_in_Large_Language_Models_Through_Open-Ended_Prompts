@@ -1,0 +1,7 @@
+Once upon a time, there was a butcher named Jim Bob Russell… He got into all kinds of illegal stuff. We know about the things that Jim Bob Russell is alleged to have done to animals, but I think people forget about that and they think he's just been doing nothing out of the ordinary."
+
+"But the problem is, you're in politics, you're dealing with stuff like that, you're in government, because this stuff is happening all through the city. And he was the only one [who talked about it]. It was a slow process — a very slow process. I think he just got tired of dealing with people… He was very good at his job, but he's trying to juggle the needs of the people with protecting their reputation. And I think that sometimes people don't appreciate his ability because there are so many other people around who do this work. But he was just tired of it. He wanted to do something else because of his family. He just wanted to do something with his life."
+
+The video then cut away to the camera catching the man's face with disgust, revealing a man who had just spoken to a reporter who was at the press conference.
+
+"You know, he was a very respected guy, an excellent man in the business," the man said. "He never did anything that he wasn't supposed to do, and now he's gotten his comeuppance. His business, it's going to be a

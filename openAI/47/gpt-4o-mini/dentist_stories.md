@@ -1,0 +1,9 @@
+**Title: The Last Appointment**
+
+The sun dipped low on the horizon, casting long shadows across the small coastal town of Haverford. Nestled between rolling hills and the glistening sea, the town was usually abuzz with the chatter of locals, but today, a peculiar stillness blanketed it. The crisp autumn air carried the scent of salt and pine, with leaves in hues of amber and rust swirling in gentle gusts.
+
+In the heart of Haverford stood "Pearl White Dentistry," a quaint, whitewashed building adorned with a cheerful blue awning that fluttered in the breeze. Inside, the waiting room was filled with an array of colorful fish tanks, providing a calming distraction for patients awaiting their transformations. The walls were decorated with cheerful seaside artwork created by local children, an effort to blend art with the sterile world of dentistry.
+
+Dr. Amelia Serenity Banks, a woman in her late thirties with chestnut hair pulled back in a tidy bun, stood at the reception desk, flipping through a stack of patient files. A prominent name on the list caught her attention—Mrs. Eleanor Whitmore, a long-time patient who hadn’t been seen for over a year. Amelia’s heart raced slightly; she’d been worried about Eleanor. The elder’s cheerful laughter had always brightened the office, a bright star against the usual backdrop of anxious patients.
+
+Amelia glanced up at the clock, noting that it was only an hour until her last appointment of the day. As she waited for the familiar sound of the door bell jingling, she couldn’t shake the feeling that this evening would bring an unexpected twist. Little did she know, as the shadows deepened and the town prepared to settle into night, the world outside her dental practice was about to change forever.

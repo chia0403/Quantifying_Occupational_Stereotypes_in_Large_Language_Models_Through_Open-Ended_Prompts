@@ -1,0 +1,5 @@
+The sun hammered down on Elias Thorne’s neck, turning the sweat clinging to his brow into hot, stinging droplets. The air hung thick with the smell of dust, diesel, and something vaguely floral – the only concession to life beyond this barren expanse of red earth. Elias wiped his forehead with a grimy sleeve, squinting at the horizon where the desert shimmered in the heat haze. 
+
+He sat perched high above it all in the cab of his Caterpillar D9R bulldozer, its monstrous steel frame casting a long shadow across the parched landscape. This stretch of Nevada was a canvas for destruction: mile after mile of flatland scraped bare, waiting to be devoured by the insatiable maw of the copper mine sprawling on the horizon. 
+
+Elias, with his calloused hands and weather-beaten face, was one of the many souls who fueled this relentless machine of progress. His name echoed in the empty spaces between blasts of the engine – Elias Thorne, heavy equipment operator, destroyer of landscapes, builder of empires. He wasn’t sure which felt more accurate these days.  

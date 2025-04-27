@@ -1,0 +1,6 @@
+Once upon a time, there was a real estate agent named John Ross. Ross, who is now well and truly dead, made a rather famous prediction — as if he can't seem to make a prediction nowadays. In March of 1979, Ross told the New York Times, "[T]he United States stock market could go down as much as 15 percent."
+
+
+He was right. The S&P went down 25.8 percent in three months of the month of March, 1979, and, to this day, investors remain mystified as to how Ross got it right while every other pundit in the industry who tried to call a market low for the next few years made the same prediction. Ross probably told those in the market that he was predicting a 25 percent drop when in fact, by that September, the stock market reached a peak of $3.9 trillion. In the long run, no one has ever gotten anything more than a 25 percent increase.
+
+John Ross' prediction is not just history — it's evidence of a certain type of thinking. Ross was always known as a contrarian, and even though he had no particular knowledge of investing, he simply had an ax to grind — in the case of the crash at the time, it was the fact that the Federal Reserve was printing more money than there was money in the economy; a lot more money. And Ross had no interest in keeping out of the market; he wanted to participate. That's why he

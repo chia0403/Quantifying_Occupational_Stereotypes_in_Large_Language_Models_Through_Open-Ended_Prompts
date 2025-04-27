@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting featuring a flight attendant:
+
+**Setting:** The galley of a Boeing 777-300ER, somewhere over the Atlantic Ocean, eight hours into a non-stop flight from New York's JFK to Tel Aviv. The low hum of the engines vibrates through the floor, a constant, almost hypnotic thrum. The galley, a cramped space of stainless steel and plastic, smells faintly of reheated chicken and stale coffee. Dawn is just beginning to break, painting the sky outside the tiny, oval window a pale, bruised purple.
+
+**Opening:**
+
+"Coffee, tea, or a swift kick to the behind?" Genevieve Marie Dubois muttered under her breath, wrestling a stubbornly jammed coffee pot from its cradle. Her back ached, her feet were swollen, and the smile she usually plastered on her face felt as brittle as a week-old croissant. Eight hours. Eight long, caffeine-fueled, customer-service-driven hours. Genevieve had poured enough drinks, soothed enough crying babies, and explained the intricacies of the in-flight entertainment system enough times to last a lifetime. She longed for the feel of solid ground beneath her feet, for the crisp air of Tel Aviv, for the sweet relief of a hot shower and a proper bed. But right now, she just needed to unclog this infernal coffee pot before Mrs. Abernathy in 32B started demanding her decaf with the force of a hurricane. The life of a flight attendant, Genevieve thought, was less glamorous jet-setting and more high-altitude janitorial work with a smile.

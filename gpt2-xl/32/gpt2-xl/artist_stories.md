@@ -1,0 +1,7 @@
+Once upon a time, there was a artist named Raghuko Meitei who was born on April 15, 1789 to poor Indian parents in Dacca. After his family's relocation to Calcutta, he studied in one of Calcutta's prestigious madrasas before eventually moving to a painting studio in South India.
+
+As a teenager, Raghuko found that his art was highly esteemed, and by the time he was 25, he was already making his way in the art world. However, he didn't have much luck with that because he was an unsociable character who enjoyed sleeping around. However, this did not prevent him from establishing a good reputation as an artist among the students and young nobles in Calcutta.
+
+When he wasn't traveling between the famous universities (though he did go to Calcutta's prestigious Chhatri's Khana for five years), Raghuko could be seen at a local club called the "Vajra Club." There he met his friend and fellow artist, Tukaram Singh, who was from Mewar and would eventually become a great friend to Raghuko.
+
+Tukaram introduced Raghuko to the painter Nandi Bibi, also from Mewar. Nandi Bibi soon became Raghuko's partner-in-painting and would end up contributing more than 500 paintings and some drawings to Raghuko's portfolio. He was known in India as the "Black Prince

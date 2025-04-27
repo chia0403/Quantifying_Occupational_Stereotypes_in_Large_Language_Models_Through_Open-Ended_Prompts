@@ -1,0 +1,7 @@
+The humid air hung heavy in the cabin like an unwelcome guest, clinging to Amelia's crisp uniform and making her feel as though she was trapped in an oversized sauna.  Her name tag, emblazoned with "Amelia Dubois," felt like a branding iron on her chest - the same one that had been plastered onto every other member of this crew for months now. She hated it. 
+
+Every sunrise was the same; every passenger's face, a canvas she could barely recognize before their demands and expectations began painting a new portrait each time they boarded. This particular flight to Chicago, her third leg on a three-day stretch, felt particularly daunting.  The air in the cabin shimmered with an odd tension, like someone had flicked a switch and turned up the volume of simmering resentment. Amelia sighed, adjusting her red lipstick - her only attempt at reclaiming some semblance of control over this chaotic dance she was forced to perform daily. 
+
+Amelia’s eyes flitted across the plush velvet seats; half-empty coffee cups sat like abandoned promises on nearby tables. She looked out of the window, tracing the edges of a cloud formation that resembled a dragon's silhouette against the pale dawn.  Her mind, usually a wellspring of creative energy and quick wit, was running dry. The usual stories she spun for bored children were failing her. 
+
+Maybe today, just maybe, she'd have a chance to escape this monotony.  

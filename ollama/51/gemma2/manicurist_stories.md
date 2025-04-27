@@ -1,0 +1,6 @@
+The scent of acetone and lavender hung heavy in the air, a familiar perfume to Esme Beatrice Lavender.  Her small salon, nestled between a laundromat and a bakery on Maple Street, hummed with the quiet murmur of gossip and nail clippers. Through the window, sunlight filtered through the dust motes dancing in the afternoon heat, illuminating rows of colorful polishes lining her shelves like tiny jewels. Esme loved this time of day, when the city's rush subsided and the afternoon brought a calm lull before the evening's chaos descended.  She found solace in the rhythmic rasp of files against nails, the gentle swirl of brushes across skin, transforming tired fingers into canvases for stories whispered through color and design. 
+
+But today, a story was brewing outside her usual realm. A woman sat nervously in the chair, her face etched with worry lines that seemed to contradict the vibrant pink polish she'd chosen.  Her name was Amelia, Esme learned as she gently pushed a cuticle back, and her eyes held a secret, something beyond the mundane anxieties of chipped nail beds and deadlines. 
+
+
+"It's not just my nails," Amelia murmured, her voice catching on unspoken words. "It's...well, it's a whole lot more than that."

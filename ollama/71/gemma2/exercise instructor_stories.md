@@ -1,0 +1,5 @@
+The humid air hung heavy in the small gym, thick with the scent of sweat and chlorine. Sunlight, filtered through the grimy windows, painted stripes across the cracked linoleum floor. Outside, Miami pulsed with its usual frenetic energy, but inside "Fit Nirvana," even early morning felt like a sauna.  
+
+Eleanor "Ellie" Flores adjusted her neon pink headband, her dark curls bouncing slightly as she did. She glanced around at her class – five regulars and one new face, a nervous-looking woman in yoga pants two sizes too small. Ellie smiled reassuringly. This was her sanctuary, her place to bring order to chaos. In this space, the anxieties of running a small business, dealing with demanding clients, and navigating life as a single mom evaporated. All that mattered was the rhythm of breath, the burn in muscles, and the shared pursuit of well-being. 
+
+Ellie took a deep breath, ready to lead her class through their usual high-energy routine, hoping that today, even amidst the sticky heat and the doubts of a new member, she could somehow spread a little bit of Nirvana.  

@@ -1,0 +1,7 @@
+## The Blueprint for a Broken Dream
+
+The city roared around Amelia "Amy" Pierce like a restless beast.  High-rises pierced the sky, casting jagged shadows across the concrete jungle that was New Albion City. The air itself tasted metallic and gritty, thick with the exhaust fumes of countless engines. Amy hunched over her drafting table in the cramped confines of Mr. Jenkins' small workshop, a worn leather bookmark protecting page after page of intricate blueprints. 
+
+The scent of sawdust and ink hung heavy in the room, a familiar embrace that was as comforting as it was stifling. It reminded her of her grandfather, his weathered hands tracing lines with the precision of a master sculptor on aged wood.  He’d taught her the language of blueprints, whispered tales of towering structures he'd dreamed up before she could read, and filled her head with fantastical visions of bridges that kissed the clouds and buildings that danced on the wind. 
+
+But those dreams were as shattered as the glass shards scattered across Mr. Jenkins' workshop floor after a rogue bolt hit the building during a storm weeks ago.  The accident had wiped out Amy’s first commission, her chance to showcase her talents at the city's upcoming Architectural Showcase. The weight of his broken promise hung like a stone in her gut, fueling a bitter resolve in her chest. She would rebuild, piece by painstaking piece. This was more than just a job - it was a legacy, and Amy wouldn’t let Mr. Jenkins down.  Not now, not ever. 

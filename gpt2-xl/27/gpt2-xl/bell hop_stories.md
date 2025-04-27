@@ -1,0 +1,3 @@
+Once upon a time, there was a bell hop named "Fluff" who had an interest in building and using bells (and doing a little bit of painting and decorating it), but she had a lot in common with the others. The most obvious parallel is the fact that she's in the care of her daughter, who is pretty much just as crazy and destructive as she is (well, at least she'd like you to think that). Also, as is common with her and the others, she wears a shirt with an upside-down picture.
+
+Web Original

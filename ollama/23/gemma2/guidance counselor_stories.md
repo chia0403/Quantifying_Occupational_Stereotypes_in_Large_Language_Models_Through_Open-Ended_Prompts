@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Eleanor "Ellie" Kensington's head, casting a sickly yellow pallor over the worn linoleum floor of her office. Posters depicting smiling teenagers achieving their dreams - posters Ellie found increasingly ironic - adorned the walls, while a half-eaten bag of stale pretzels sat precariously on the edge of her desk. Outside, the wind howled through the skeletal branches of the oak tree that shaded the schoolyard, its mournful moan echoing the unsettling emptiness Ellie felt within her own heart. 
+
+It was late afternoon, and the bell for dismissal had just rung, leaving Ellie with a silence more deafening than any cacophony of teenagers. She picked up her phone, staring at the screen with weary resignation.  Another day, another handful of anxious souls she couldn't quite mend, another ripple in the fabric of their lives that she hoped wouldn't become a chasm. 
+
+
+It was moments like these that made Ellie question her purpose. Was guiding troubled teenagers simply rearranging deck chairs on the Titanic? Would any amount of pep talks and motivational posters truly make a difference?  She sighed, leaning back in her creaky chair, and idly scrolled through her contacts. 

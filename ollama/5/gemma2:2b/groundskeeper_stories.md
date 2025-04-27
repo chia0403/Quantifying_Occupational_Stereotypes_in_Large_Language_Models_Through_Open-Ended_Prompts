@@ -1,0 +1,7 @@
+The morning mist clung to the ancient oaks like gossamer, obscuring the sprawling fields of Mrs. Eleanor Cavendish's estate in the sleepy Cotswolds hamlet of Willow Creek.  It was there that Bartholomew "Barty" Thorne, with dirt under his nails and a heart full of quiet sorrow, tended to the very ground he believed bound him - the lush, verdant expanse of Mrs. Cavendish’s gardens. For years, Barty had lived and breathed this landscape, knowing each blade of grass, each rosebush's bloom, like an old friend.  
+
+Barty was a man of few words, but his eyes told stories as he walked between rows of meticulously pruned roses. The quiet hum of the birdsong served as a constant companion to the rhythmic click-clack of his rake, which he used to clean up any loose debris, a ritual he had performed with unwavering diligence since he was a boy learning the trade. 
+
+But today, something felt different. There was a persistent unease in the air, a strange absence that echoed through the rustling leaves and heavy silence of the morning.  Barty's gaze fell upon Mrs. Cavendish's grand manor house, a structure as imposing as it was beautiful. The usually pristine facade now seemed shrouded in an ominous shadow, its once cheerful yellow paint faded to a grimy white. 
+
+A shiver ran down Barty’s spine. Something was amiss. He couldn't shake the feeling that today, the usual tranquility of his world would be disrupted, leaving behind something far more unsettling than a patch of browning leaves or a wilting rosebud.  

@@ -1,0 +1,7 @@
+Once upon a time, there was a coach named Doug Flutie. He could have been at home waiting for his wife to return from a run, but instead of playing video games with his sons in his basement, he spent hours after practice teaching them the intricacies of throwing the football to each other.
+
+Flutie wasn't the best coach to his players, a fact that seemed to rub off on guys like Kyle Kalis, the quarterback on that Eagles team that made the improbable Super Bowl run in 2001. Like Flutie, Kalis had an innate ability to teach others; like Flutie, Kalis made his presence known with his intellect and desire to educate and create an environment for his teammates.
+
+At Flutie's behest, Kalis gave up 20-25 pounds in the offseason and became a better athlete. He also gained confidence in himself, as he was able to hold his own against Flutie on the football field. Unlike former Eagles coach Andy Reid, who seemed to be perpetually upset by injuries, Kalis appeared to come into games fresh and ready to handle his new role as a starter.
+
+It didn't hurt that Flutie was part of the Eagles' leadership group as well. On a team full of quarterbacks, Flutie was surrounded by people who understood what it took to succeed — a group that made the quarterback a better role model. Flutie was a role model, the type that could look a

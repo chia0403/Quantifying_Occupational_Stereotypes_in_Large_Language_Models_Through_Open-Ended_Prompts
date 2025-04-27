@@ -1,0 +1,7 @@
+Once upon a time, there was a farmer named John Moore who planted a few acres of corn. It was an ordinary summer morning, and John Moore walked in a straight line down an open field toward the barn. Two hours later, the sun went down and when John Moore returned to the pasture, one of the corn stalks had withered, and another had all the leaves missing.
+
+"Now let's say for example he had walked two rounds," the author says. "He would have returned one of the two rows, leaving one open, and then he would have returned for one of the two remaining rows, leaving the empty one. "One of the reasons you can see how the equation works is if you know the average number of days between planting and harvest. The more days between planting and harvest, the weaker the effect. If we grow our corn in the summer and harvest in the winter, and the crop has a weak effect, then we can use a simple equation to derive an optimum or the perfect mix of sunlight and moisture in the soil."
+
+It's not quite as straightforward as that, but the author explains it so you can understand it better.
+
+"In a classic formulation, the relationship between temperature and light was referred to as a 'thermal balance', where water (wetting) was represented by T, and water vapor (transporting) was represented by W. As far as the plants are concerned, the average water temperature was T,

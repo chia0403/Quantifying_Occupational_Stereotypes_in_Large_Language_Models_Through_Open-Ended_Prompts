@@ -1,0 +1,9 @@
+In the quiet coastal town of Havenport, where the scent of saltwater mingled with the crisp morning air, Alicia Bennett unlocked the doors of Bennett's Apothecary, a family-run establishment nestled on the corner of Main Street and Lighthouse Lane. The bell overhead jingled softly, echoing like a familiar song through the shelves stacked with amber bottles and boxes of remedies.
+
+Sunlight streamed through the large front windows, casting a warm glow across the polished wooden floors. Alicia, with her auburn hair tied neatly in a bun and clad in a crisp white lab coat, moved with practiced grace behind the long oak counter. Her emerald eyes flickered over the pharmacy, ensuring everything was in its rightful place before the first customers of the day arrived.
+
+Outside, seagulls cawed and swooped over the harbor where boats bobbed gently on the waves. The rhythm of the distant ocean was a constant companion, a reminder of the ebb and flow of life in Havenport. The town, with its weathered buildings and cobblestone streets, held stories as old as the sea itself, and Alicia had grown up listening to every one of them.
+
+A third-generation pharmacist, Alicia took pride in knowing the people she served, from the old mariners with weather-beaten faces to the young families who settled in the town, drawn by its picturesque beauty and whisper of history. She cherished the role she played in their lives, offering not merely prescriptions but a comforting presence in a world that often felt too rushed.
+
+As she stocked the shelves and prepared for the day, Alicia couldn't shake the feeling that something was about to change. Perhaps it was the way the morning light seemed to dance differently across the counter, or the peculiar restlessness in the air. But whatever it was, Alicia Bennett's intuition, honed over years of tending to aches both physical and emotional, told her that Havenport's cadence might soon shift in unexpected ways.

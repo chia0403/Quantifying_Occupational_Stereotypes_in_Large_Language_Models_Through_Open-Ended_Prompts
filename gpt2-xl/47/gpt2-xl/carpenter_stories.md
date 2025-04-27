@@ -1,0 +1,7 @@
+Once upon a time, there was a carpenter named Jim. Jim was a big boy, well over five feet tall; his hair was very white and he had a bushy beard. He had a kind heart and a gentle soul. Jim was the best friend my mother ever had. He loved animals, especially the pets she and my brother gave him. His favorite was a small golden retriever named Tuck, but he took in many dogs and cats as well. Jim was also a great writer, as evidenced by a couple novels I love – The Secret Life of Cats and The Little Prince. Jim never complained about anything or anyone in his life. He always worked hard to help his mother and his nieces make ends meet.
+
+I thought I should remember this big guy because today he is an icon. He is depicted on a $100 bill. It's easy to see him and feel like his image represents us.
+
+Jim's mother lived with her husband and five sons in a small house in downtown Kalamazoo, Michigan. The house was in a wooded area. People would drop by and chat or come over for a cup of coffee. Jim and I were playing in one of these grassy meadows when a man walked by us, and Jim and I both paused in our play.
+
+I remember thinking, "That guy looks just like me." I don't know if Jim knew about this resemblance or if it's in his DNA. But

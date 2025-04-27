@@ -1,0 +1,5 @@
+The late afternoon sun, a hazy orange smear through the grimy windows, did little to illuminate the cavernous space of the abandoned textile mill. Dust motes danced in the shafts of light, swirling around the stacks of forgotten machinery and the skeletal remains of weaving looms. It smelled of mildew, metal, and something vaguely floral, like potpourri buried alive.
+
+Penelope Ainsworth, her linen blazer already dusted with grime and her signature oversized spectacles perched precariously on her nose, stepped carefully over a pile of shredded fabric. She breathed through her mouth, trying to filter out the worst of the air. This place was… challenging. Even for her.
+
+"Challenging" was Penelope's favorite euphemism for "utterly terrifying, but potentially glorious." Her business, aptly named "Penelope's Palette," had been built on taking the unloved and undesirable and transforming them into spaces that sang. And this derelict mill, tucked away in the forgotten corner of the town of Havenwood, Massachusetts, was destined to sing. At least, that was the plan.

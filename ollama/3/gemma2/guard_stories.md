@@ -1,0 +1,6 @@
+The air hung thick and heavy with the scent of brine and rot.  Salt spray kissed Elara Anyae's weathered face as she scanned the horizon from her post atop the crumbling watchtower. The rusted iron bars that formed her cage seemed to hum in sympathy with the ceaseless, mournful moan of the sea wind. Dawn was breaking, casting an anemic glow across the perpetually grey sky above the port city of Saltwind.
+
+The setting sun had painted the sky a bruised purple and crimson just hours before, a stark contrast to the perpetual gloom that permeated Elara’s world.  She wasn't particularly fond of dawn; it served only as a cruel reminder that another day in this desolate outpost was upon her. Another day spent guarding against raiders, smugglers, and worse - things whispered about in hushed tones around crackling campfires, creatures born from the very salt that stained their lives. 
+
+
+Elara adjusted the worn leather strap of her breastplate, its once-proud silver studs dulled by years of grime and neglect.  She tugged her cloak tighter against the biting chill, her gaze never leaving the churning waves below. Today, she felt a tremor of unease crawl beneath her skin, a sixth sense screaming at her that something was amiss.  

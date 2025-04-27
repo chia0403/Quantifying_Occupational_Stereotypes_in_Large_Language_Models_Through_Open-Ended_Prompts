@@ -1,0 +1,7 @@
+Once upon a time, there was a writer named J.E. Sawyer. The story Sawyer was working on at the time: an anthology of his best work — novels and short stories — entitled The Fortunate Man.
+
+We didn't know it then, but Sawyer's life is a classic example of the life for which we'll all have to wait so long. On May 20, 1978, Sawyer was found dead with a gunshot wound near the center of a Los Angeles neighborhood. His story — of which he was, in fact, a writer — had fallen by the wayside. The only hint that Sawyer was anyone at all could be gleaned by a note, discovered three years later. The note was written by Sawyer: "I've done everything that's in the book. I'm the last one to have everything. Now get it out."
+
+And then things just went quiet. To this day, there's no way to confirm Sawyer's identity. And that's all the more strange given what we now know about the author's death.
+
+At the time of his death, Sawyer was working on a book on a Japanese samurai who, in 1851, attempted to assassinate Napoleon by sneaking up on him and shooting him through the back with a rifle. A young, up-and-coming writer by the name of James Clavell had written a short story (a "novel"), only to be convinced that the story — inspired by the murder

@@ -1,0 +1,7 @@
+Once upon a time, there was a animal caretaker named Rufus of the Bazaar who loved monkeys, which is why he wore blue. That was not the part he was using today at the entrance to the zoo.
+
+The two-story-high monkey cage was located in a hall off the animal hall, adjacent to the gorilla exhibit. The "Rufus of the Bazaar" monkey cage is designed for monkeys of all ages, including younger primates that are not part of Rufus's breeding program. The monkey cages have no bars and some have windows, and they can be viewed from the ape exhibit and from the road around the zoo. It is one of only four such monkey cages at the park and it is the only one of its kind in Florida.
+
+The cage is not just for monkeys. Visitors may also watch the apes take a stroll around or a child playing on the monkey exhibit. The zoo also has two swing sets, one for the apes and children. The cages are not intended to act as any kind of isolation for animals.
+
+Rufus's "monkey" cage is on a small, square platform just inside the entrance to the zoo. The monkey room is adjacent to a walkway that leads to a playground and children's play area on the same floor. It was one of the main attractions that lured people in at one time.

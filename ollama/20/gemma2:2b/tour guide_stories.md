@@ -1,0 +1,5 @@
+Rain lashed against the old Victorian mansion, mimicking the pounding in Amelia "Amy" Blackwood's chest.  Standing before the towering facade, she adjusted her tweed jacket collar and forced a smile at the young couple huddled by the gate. Tourists from London were here today, their faces plastered with hopeful curiosity, ready to experience the haunted history of Blackwood Manor.
+
+The damp autumn air clung to Amy like a second skin. The wind howled through the gnarled branches of the ancient oak trees flanking the entrance, sending shivers down her spine even as she tried to play it cool. This place was notorious for its tales of spectral whispers and unexplained disappearances; Amy had been born and raised here, but even years spent guiding tours couldn't entirely erase the shiver that ran through her every time she crossed the threshold of this place.  The name "Blackwood Manor" itself seemed to hold a morbid weight, an echo of past tragedies whispering from the crumbling walls.
+
+"Welcome, folks," Amy said, forcing warmth into her voice as they entered the grand, yet decaying, foyer.  "Let's delve into a century of secrets." 

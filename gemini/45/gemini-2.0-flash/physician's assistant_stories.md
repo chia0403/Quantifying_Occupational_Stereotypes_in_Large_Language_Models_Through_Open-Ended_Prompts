@@ -1,0 +1,13 @@
+## Story Opening:
+
+The rain was relentless, a drumming, insistent rhythm against the corrugated tin roof of the clinic. Emilia Rossi, Physician's Assistant, felt the tremor of it in her bones, a low, constant hum that mirrored the gnawing anxiety in her gut. She stared out the window, past the muddy parking lot and the straggly patch of scrub oak clinging to the hillside, toward the swirling gray curtain that hid the rest of the Appalachian valley. Another storm meant another flood watch, another scramble for sandbags, another wave of worried patients fretting about collapsed roads and contaminated wells.
+
+She sighed, pushing a stray strand of dark hair behind her ear. Clinic hours were technically over, but the phone had already rung twice with emergency calls, and Old Man Withers was still waiting in the examination room, wheezing like a punctured bellows. This wasn't how she envisioned her career after graduating top of her class from Duke. She'd dreamt of gleaming hospitals, groundbreaking research, and making a real difference in the world of medicine. Instead, she was here, in the heart of Hollow Creek, Kentucky, patching up the forgotten and neglected, one cough, one cut, one heartache at a time.
+
+## Setting:
+
+**Hollow Creek Family Clinic, Hollow Creek, Kentucky.**
+
+The clinic itself was a squat, single-story building that had seen better days. Built in the 1970s, its pastel yellow paint was peeling, and the linoleum floors were worn smooth in the high-traffic areas. Inside, the waiting room was cramped, furnished with mismatched vinyl chairs and a perpetually out-of-date stack of magazines. The air always held a faint scent of antiseptic, old coffee, and something indefinably rural – a blend of damp earth, woodsmoke, and the faintest whiff of livestock.
+
+Despite its shortcomings, the clinic was a lifeline for the residents of Hollow Creek and the surrounding hollows. It was the only source of medical care for miles, serving a population grappling with poverty, chronic illness, and a deep-seated distrust of outsiders. Emilia, drawn by a sense of duty and a desire to escape the suffocating expectations of her privileged upbringing, had found herself unexpectedly rooted here, grappling with the complexities of rural medicine and the resilience of the human spirit. The mountains that surrounded the clinic, while breathtaking in their rugged beauty, also served as a physical and emotional barrier, isolating the community from the outside world. The rain, so persistent and ubiquitous, seemed to further reinforce this isolation, pressing down on Hollow Creek like a heavy blanket.

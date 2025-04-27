@@ -1,0 +1,7 @@
+Once upon a time, there was a editor named Robert M. Price at the Chicago Sun-Times. He was one to talk. We'll always remember one of his most famous lines: "When our job is over, we'll look up the name in the Boston Herald, and I expect we shall," he said. And that was all there was to be said about his final days in Chicago — at least until one day. A few years later — the year would soon have a title for that particular day — Price died of a heart attack. His death was announced on the front page of the Sun-Times. The headline: "Price's last breath marked by a headline." I say we'll miss him, and I would, too.
+
+Here's another one: During the months following Price's funeral, my newspaper colleagues, editors and columnists would occasionally remark at each other: "If I had to pick my biggest regret or regret of the past year, I'd pick not being able to write about the Chicago Sun-Times and its people."
+
+Well, now the world's most famous daily newspaper, with its 1.4 billion readers a day, has its own biggest regret. The paper announced a new policy, effective Sept. 1, aimed at making its coverage "comprehensive and authoritative all day, every day."
+
+What does it mean? As the Sun-Times reports: "The paper also plans to increase by 50 percent the number

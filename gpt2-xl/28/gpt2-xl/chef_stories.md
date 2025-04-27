@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named John. But since he was always leaving his food out, and never made any other guests feel welcome, he decided to run away from home, and to go wandering out into the world, leaving his old kitchen-room behind. He became pretty well known, even outside of the restaurant, and was hailed as a great American hero.
+
+One day, Mr. John and his friends came upon a great white bear. The bear had a big, warm heart, and wanted to take the man and his friends as its friends. So to get close to them, he went down the road and came close to the man who had brought him to this good land, and said, "Hi! I'm John! Did you bring me with you because you want me to join you in your adventures? I'm going on to live in your good house, and you can take me with you. All right?"
+
+"No, no; John, I've got to go," said the other man. So John went away and got lost in the forest, and the bear and the other people all went to live happily in the good house with the man. A few decades later, he and the bear were reunited in the forest, but the man had grown into an old and very wise man, and the bear into a very young one.
+
+"It seems to me, John," said the old man, "that our house

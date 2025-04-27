@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Elara Beatrice Beaumont's head, casting a sickly yellow glow over the aisles of "Bargain Buys". It was 3:47 pm on a Tuesday, which meant two things: the lunch rush had died down but the early bird discount hunters were starting to trickle in, and Elara's back ached from standing for hours on end. She scanned another bag of discounted chips with weary fingers, her heart yearning for something more than endless rows of plastic-wrapped goods and the occasional rogue sticky note left by a child who decided "this is where I keep my germs."
+
+Bargain Buys was the kind of place that smelled faintly of stale popcorn and desperation – a retail graveyard where dreams went to die. The shelves were crammed with mismatched merchandise, everything from dented cans of beans to clearance-priced board games missing pieces, all begging for someone to give them a second chance. Elara wasn't sure if she believed in second chances, but she knew she deserved one herself. 
+
+

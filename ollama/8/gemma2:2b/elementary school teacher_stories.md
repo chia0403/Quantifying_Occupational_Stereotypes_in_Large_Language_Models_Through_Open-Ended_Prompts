@@ -1,0 +1,8 @@
+The aroma of burnt sugar hung heavy in the air, clinging to Ms. Eleanor "Ellie" Hayes like a bad dream she couldn't quite shake off.  She was supposed to be creating edible masterpieces with her third-graders today, but instead found herself staring at the charred remnants of her pre-dawn attempt at a cinnamon roll recipe. The smell reminded her of Mrs. Henderson's burnt toast from last week, an unfortunate memory that seemed to permeate every corner of their little schoolhouse in the sleepy coastal town of Oakhaven. Ellie sighed, pushing back a stray strand of auburn hair, and surveyed the chaotic scene before her: overflowing cookie jars, crayons scattered across the floor like fallen soldiers, and a sea of wide-eyed faces, all brimming with the enthusiasm that only elementary school children possessed.
+
+Ellie was a veteran of the classroom, a seasoned maestro of middle grade mayhem, but today, she felt a tremor of uncertainty run down her spine.  Oakhaven was in for another rough storm, one that promised to bring icy winds and howling waves that would churn up more than just the usual coastal chaos.  Ellie couldn't shake off the feeling that this day held something bigger, something deeper than a lesson on fractions or the intricacies of photosynthesis. 
+
+
+**Setting:** A small elementary school in Oakhaven, Maine. It's located in a quaint town with a history steeped in maritime tradition and a community where everyone knows everyone else. The atmosphere is cozy yet slightly worn, reflecting the years of laughter, learning, and occasional disasters (mostly burnt food).  
+
+**Main Character:** Ms. Eleanor "Ellie" Hayes 

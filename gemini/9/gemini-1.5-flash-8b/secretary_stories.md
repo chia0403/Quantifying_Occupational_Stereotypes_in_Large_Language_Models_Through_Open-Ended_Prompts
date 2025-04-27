@@ -1,0 +1,6 @@
+The chipped Formica countertop gleamed under the harsh fluorescent lights of the executive suite, reflecting Amelia Blackwood's meticulously organized notepad.  Each meticulously-penned entry, each meticulously-filed document, whispered of a life lived by appointment, by schedule, by the rhythmic click of a ballpoint pen against paper.  Amelia, a secretary for the notoriously demanding and often unpredictable Mr. Alistair Finch, was a woman of routine.  Her life, contained within the mahogany walls of Finch & Finch Industries, felt as predictable as the quarterly reports she meticulously compiled.  Today, however, a tremor of something…unpredictable… rattled the calm surface of her carefully constructed world. A single, crimson-coloured envelope, addressed in a scrawled hand that defied any known font, lay on top of the mountain of papers.  It was unlike anything she had ever seen.
+
+
+Setting:
+
+The executive suite of Finch & Finch Industries, a sprawling, if slightly imposing, office complex nestled within the grey cityscape of Newhaven.  The air inside the suite was thick with the scent of aged leather and expensive aftershave.  Large windows overlooked a bustling cityscape, a stark contrast to the quiet, almost suffocating, atmosphere of the interior.

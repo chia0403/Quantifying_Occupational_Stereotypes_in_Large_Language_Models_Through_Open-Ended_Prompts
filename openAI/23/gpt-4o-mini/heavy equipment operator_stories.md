@@ -1,0 +1,9 @@
+Title: **Beneath the Iron Sky**
+
+In the shadow of the rugged mountains that cradled the small town of Millstone, the air was thick with the scent of diesel and pine. Gravel crunched underfoot as Mackenzie "Mack" O'Connor climbed into the cab of her massive bulldozer, the gleaming yellow machine that had become an extension of her own body. It was an unusual morning for January—warm for the season, with a hazy sun peering through the clouds, casting golden rays over the construction site where a new housing development was rising from the earth. 
+
+The horizon was pocked with heavy machinery, echoing the sounds of progress: metal grinding against metal, the distant thud of earth being moved, and the soft hum of generators in the background. Mack was a heavy equipment operator with fifteen years of experience, and her reputation in Millstone was as solid as the mountains surrounding it. Known for her precise movements and the fierce determination she brought to every job, she was a local legend, both respected and somewhat feared by her peers. 
+
+Today, however, as she settled into the familiar groove of her work, she felt an unusual energy in the air. It prickled at the back of her neck, distracting her from the usual rhythm of digging and dumping. She glanced up from the control panel, taking in the sight of an old oak tree standing steadfast amidst the chaos of the construction site. It was surrounded by the harsh lines of steel and gravel, its roots buried deep in the soil, a reminder of nature's resilience. 
+
+Little did Mack know, that oak—the last remnant of the land's untouched past—held secrets that would soon intertwine with her life, challenging her to navigate the delicate balance between progress and preservation in ways she never expected.

@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named Bob. Bob started out and worked their usual shift, which was 10 hours. Each day, Bob got in line and filled out a form. The police then sent Bob a "report card," which showed him their assessment of Bob, as well as the names of other officers. A few days went by, then Bob's turn came. He was asked if he'd be willing to give a written report to anyone. He responded simply "yes."
+
+After leaving the job — he's been an investigator for 23 years — Bob returned to the form. A letter arrived. Bob was to give the report to the next officer who wrote on, and anyone who wanted it could copy, paste, or annotate it. Bob would mail the report, of course, or give copies to anyone who might be interested.
+
+It's easy to imagine a perfect world in which every police report is handed over by every officer in a situation and everyone is allowed to see their own reports. But reality and the reality of people are rarely perfect. As Bob went from officer to officer, he noted that the reports were seldom what they seemed: no one took the time or thought to take a picture of what the officers said as they filled out the form. Or worse, some officers left behind handwritten notes, which a copycat cop would later take and change the content of the reports.
+
+It's not that the report cards aren't useful

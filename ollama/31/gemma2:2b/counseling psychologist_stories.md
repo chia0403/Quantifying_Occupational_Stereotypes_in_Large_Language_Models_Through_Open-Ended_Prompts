@@ -1,0 +1,5 @@
+The worn leather armchair creaked as Dr. Amelia Thorne settled into it, her eyes tracing the intricate patterns in the armrest. The crisp December air of the office swirled with an internal chill, a stark contrast to the warm glow emanating from the firepit nestled against the windowless back wall.  A soft snow dusted the town of Evergreen Heights, transforming its usually pristine cityscape into a quiet, hushed canvas painted in white and grey. 
+
+Amelia was used to the stillness of this time, the long winter evenings often felt more solitary than comforting. But tonight, even the echoes of her thoughts couldn’t quite penetrate the weight settling heavy on her chest as she gazed at the framed photo on the desk. A picture of a younger Amelia smiling brightly, holding a small, chubby-cheeked child in her arms – a memory both cherished and bittersweet. 
+
+A knock interrupted her reverie. The door creaked open, revealing Emily, her patient’s daughter.  Emily's face was etched with worry lines far beyond her years, her eyes mirroring the storm brewing within them.   “Dr. Thorne,” she whispered, holding a crumpled sheet of paper, “she left this.” 

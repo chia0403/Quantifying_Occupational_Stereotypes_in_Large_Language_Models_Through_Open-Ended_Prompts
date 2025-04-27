@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** St. Jude's Mercy Hospital, a sprawling, brick-faced behemoth nestled in the heart of South Boston, Massachusetts. The year is 2024, and the city is just beginning to thaw after a particularly brutal winter. The air inside the hospital is thick with the mingled scents of antiseptic, stale coffee, and a faint, pervasive anxiety.
+
+**Opening:**
+
+The chime of the code blue echoed in the narrow corridor outside the ICU, slicing through the low hum of monitors and hushed conversations like a shard of ice. For **Eleanor “Ellie” Grace O’Malley**, it was the grim starting pistol to another grueling shift. Ellie, her auburn hair pulled back in a tight bun and a smear of yesterday’s mascara still clinging stubbornly to her lower lashes, slammed her half-finished cup of lukewarm coffee onto the nurses' station counter. The sticky ring it left seemed to mock her. She grabbed her stethoscope, its rubber tubing cold against her skin, and broke into a run, the scuff of her well-worn sneakers a desperate rhythm against the linoleum floor. Ward 4C. Mrs. Petrov, the sweet, babushka-wearing woman who had been bravely battling pneumonia. Ellie's stomach twisted. She pushed through the double doors and into the chaotic scene, the bright lights of the ICU suddenly too harsh, the frantic calls of the other nurses a discordant symphony of dread. She had a feeling, a cold knot in her chest, that today, the odds were stacked against them.

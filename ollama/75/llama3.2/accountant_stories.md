@@ -1,0 +1,5 @@
+Here's a potential story opening:
+
+As the last rays of sunlight faded from the office windows, casting a warm orange glow over the rows of fluorescent lights, Emily Jane Wilson sat hunched over her desk, staring blankly at the spreadsheet in front of her. The numbers and figures blurred together as she tried to focus on the tax return for Smithson & Co., one of the company's largest clients. It was 8:45 PM on a Wednesday evening, and Emily had just finished working a long day of crunching numbers and balancing books, but still there were more ledgers to reconcile and more deductions to calculate.
+
+Emily was an accountant at the firm of Smithson & Co., a mid-sized accounting firm located in downtown Los Angeles. She had graduated from Cal State LA with a degree in Accounting and had been working for the firm since 2005. Over the years, she had worked her way up the ranks, earning a reputation as one of the most detail-oriented and meticulous accountants at the firm. Despite her dedication to her work, Emily couldn't shake the feeling that something was off about this particular tax return...

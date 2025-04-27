@@ -1,0 +1,5 @@
+The fluorescent lights hummed overhead, casting a sterile glow on Amelia Grace Hawthorne's meticulously organized desk.  Stacks of legal briefs rose like miniature skyscrapers, each one a testament to the relentless churn of lawsuits engulfing the prestigious firm she worked for: Lawson & Sterling.  Outside, Chicago winter raged - icy winds whipping down Michigan Avenue, turning the lake into a churning, steel-grey beast. Inside, Amelia's world was warm and contained, filled with the soft click of her keyboard and the rustling of legal pads. 
+
+Amelia, a paralegal for five years, was as comfortable in this predictable chaos as a fish in water.  She thrived on the intricate puzzle pieces of each case, finding satisfaction in meticulously piecing them together. But today, something felt different. A tremor of anticipation, laced with a hint of dread, pulsed beneath her skin. This morning, the senior partner had summoned her to his office – an unprecedented event for someone in her position.  What could it be? Amelia sipped her lukewarm coffee, steeling herself for whatever storm was brewing. 
+
+

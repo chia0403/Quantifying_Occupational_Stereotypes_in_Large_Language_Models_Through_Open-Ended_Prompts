@@ -1,0 +1,11 @@
+Title: **Whispers of Hearth and Home**
+
+Setting: In the quaint, coastal town of Willow Brook, where the salty breeze mingles with the scent of blooming lilacs, stands the grand yet slightly weary Duval Manor. Its ivy-clad walls tell stories of generations past, and the creaking floorboards echo with secrets. The sprawling estate, with its lush gardens and a panoramic view of the ocean, holds an air of faded elegance. Inside, delicate chandeliers hang from the high ceilings, and dust motes dance in the shafts of sunlight that filter through tall, arched windows.
+
+Opening: 
+
+Elena Mae Lindell stood at the threshold of the Duval Manor’s kitchen, her apron tied tightly around her waist, a symbol of her unwavering commitment to the duties that lay ahead. Morning light streamed through the leaded glass windows, casting intricate patterns on the worn tile floor, yet the beauty was lost on her, as she focused on the lists in her head. 
+
+“Dust the library, polish the silver, check the pantry…” she murmured, her voice barely above a whisper. Having been the housekeeper here for nearly a decade, she was both a fixture and a ghost in this sprawling estate, moving seamlessly from room to room as if she belonged to each space. Though the manor was full of life—grand events, bustling guests, laughter echoing through hallowed halls—Elena's existence often felt overshadowed, punctuated by the demands of her role and the weight of unspoken histories.
+
+It was here, in the heart of the manor, that secrets nestled in the corners of rooms dimly lit by age, waiting for her curious heart to uncover them. Today, however, she sensed something different in the air, a tension that prickled against her skin as she gathered her supplies. Perhaps it was just the weather, thick with the promise of an impending storm, but as she stepped into the silver-glinting kitchen, she felt the stirrings of a story waiting to unfold beneath the worn, leather-bound books and untouched dinner plates of the Duval family.

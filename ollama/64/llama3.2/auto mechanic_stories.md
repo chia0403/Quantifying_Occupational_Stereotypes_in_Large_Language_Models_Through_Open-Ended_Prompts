@@ -1,0 +1,5 @@
+Here's a story opening:
+
+The sun had just set over the small town of Redemption, casting a warm orange glow over the dusty streets and crumbling buildings. In a tiny garage on Main Street, 32-year-old August "Augie" Thompson wiped the sweat from his forehead as he tinkered with the engine of a beat-up old Chevy pickup truck. The sound of revving engines and shouting customers filled the air as Augie's garage came alive after hours. It was just another Friday evening in Redemption, where everyone knew each other's names and the only thing more abundant than the oil spills on the pavement was the town's secrets.
+
+Augie had always been a fixer, content to get his hands dirty under the hood of whatever car or truck needed fixing. He took pride in being able to diagnose even the most obscure problem with ease, and his reputation as one of Redemption's top auto mechanics had earned him a loyal customer base. But tonight was different. Tonight, Augie had a mystery on his hands - a mysterious note that had arrived at the garage earlier today, with a cryptic message scrawled on it in red ink: "Meet me at the old mill at midnight. Come alone."

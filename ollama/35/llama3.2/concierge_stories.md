@@ -1,0 +1,5 @@
+As the last wisps of twilight dissolved into the Parisian night sky, Étienne-Louis Dupont, a soft-spoken yet meticulous concierge at the esteemed Hôtel de la Paix, began his nightly routine. With a quiet efficiency that belied his years, he methodically checked the rooms, ensuring each guest's needs were met and their stay was nothing short of extraordinary.
+
+The hotel, nestled on the left bank of the Seine, had been Étienne-Louis's home for nearly two decades. Its grand foyer, adorned with intricate moldings and crystal chandeliers, was a testament to the city's rich history and his own dedication to its preservation. As he poured himself a cup of strong coffee from the thermos in the staff room, he couldn't help but feel a sense of pride and belonging among the hotel's storied walls.
+
+Tonight, however, something felt off. The usually well-heeled clientele seemed more subdued than usual, their conversations hushed and their eyes darting nervously towards the hotel's entrance. Étienne-Louis's instincts told him that tonight would be no ordinary night in the City of Light...

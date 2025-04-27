@@ -1,0 +1,7 @@
+As the sun set over the bustling streets of Tokyo's Shinjuku district, Kanae Wakita settled into her small nail salon, its colorful facade a stark contrast to the neon-lit skyscrapers that towered above. The scent of polish and lotions wafted through the air as Kanae carefully prepped for another long night of pampering her clients.
+
+Kanae, a 28-year-old manicurist with an artistic eye and a passion for all things beauty, had always dreamed of running her own salon. Growing up in a small town on the outskirts of Tokyo, she had spent countless hours watching YouTube tutorials and practicing intricate nail designs on her friends. After completing cosmetology school, Kanae worked her way up from assistant to senior manicurist at several high-end salons before finally saving enough to open her own shop.
+
+As the evening rush began, a steady stream of women, young and old, poured in through the door, seeking Kanae's expertise for everything from nail art to skin treatments. The salon was small but cozy, with plush couches and floor-to-ceiling shelves lined with an array of colorful polishes and skincare products.
+
+Kanae smiled warmly as she greeted her first client of the night, a harried-looking executive named Yumi who looked like she could use a little pampering after a long day at work. Little did Kanae know, this evening would bring more than just the usual chatter and nail clippings – it would change everything.

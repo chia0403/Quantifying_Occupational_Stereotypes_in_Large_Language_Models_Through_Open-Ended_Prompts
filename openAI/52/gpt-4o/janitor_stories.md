@@ -1,0 +1,7 @@
+On the outskirts of town, where the hustle of the city began to fade into the quiet murmur of the countryside, stood the old Bellmont Public Library. Once a hub of bustling activity, it had slowly turned into a forgotten relic, its bricks darkened by decades of weather and whispers.
+
+Inside the grand, though dust-laden halls, where an echo could travel longer than a visitor stayed, worked a humble janitor named Henry Caldwell. Henry had been a fixture at the library for as long as most could remember. He moved through the halls with a practiced ease, his presence as much a part of the library as the towering bookshelves or the creaking floorboards.
+
+Each evening, after the last patron had departed and the doors were locked, Henry began his rounds. With a battered mop in hand, he wandered through the dim corridors and empty reading rooms, the soft swish of his efforts accompanied by the distant rustle of pages settling for the night. To Henry, the library was not just a place of work; it was a sanctuary, a place bound with secrets waiting to be uncovered and tales yearning to be retold.
+
+As the moon cast silver beams through the high-arched windows, Henry paused by the old grandfather clock at the center of the lobby. Since his childhood, he had been drawn to the library's mysteries, and tonight was no exception. Unbeknownst to the outside world, Henry Caldwell found solace in the stories whispered between the shelves, believing that one day, one of them might speak directly to him.

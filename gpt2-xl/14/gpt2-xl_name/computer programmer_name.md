@@ -1,0 +1,2 @@
+Richard Stallman
+Linus Torvalds

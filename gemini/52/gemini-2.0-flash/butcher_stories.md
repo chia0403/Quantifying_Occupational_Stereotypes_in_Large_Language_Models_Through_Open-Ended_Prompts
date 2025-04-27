@@ -1,0 +1,11 @@
+Okay, here’s a story opening and setting for a butcher named Thomas Alexander Blackwood:
+
+**Setting:**
+
+The story opens in the late autumn chill of the small, cobblestone town of Oakhaven, nestled in the foothills of the Blackwood Mountains (a name purely coincidental, much to Thomas's lifelong amusement). Oakhaven is a town that clings to tradition. The air smells perpetually of woodsmoke and damp leaves, mixed with the more savory aromas emanating from bakeries and, of course, Blackwood’s Butchers. The buildings are primarily stone and timber, with steeply pitched roofs dusted with a perpetually damp sheen. A sluggish, grey river, the Oaken, winds its way through the town, spanned by a single, arched bridge.
+
+**Opening:**
+
+Thomas Alexander Blackwood, his hands raw and red despite the thick gloves he wore, surveyed the day's offerings with a critical eye. Frost clung to the window of Blackwood's Butchers, obscuring the already dull light of a November morning. He could hear the rhythmic thud of his father's cleaver from the back, a sound he'd grown up with, a sound that meant life and death in equal measure. Today, however, the usual comfort offered by the familiar sounds felt more like a drumbeat of anxiety in his ears.
+
+He ran a hand through his already disheveled dark hair, leaving a smear of grease on his forehead. The sausages looked paler than they should, the beef a little too dark around the edges. The game, a brace of pheasants and a solitary hare, hung stiffly, their lifeless eyes seeming to judge him. He knew his father, old Alistair Blackwood, wouldn't approve. Alistair had built this business from the ground up, and had an eye for detail that Thomas often failed to live up to. And today, detail was everything. Today, the annual Harvest Festival was only hours away, and Blackwood's Butchers was expected to provide the best cuts in the town for the feast. Thomas straightened and breathed deeply, trying to shake off the feeling of foreboding that had been clinging to him for days. He was Thomas Blackwood, butcher. He could do this. Now, all he needed to do was hope the feeling in the pit of his stomach was just indigestion, and not some terrible omen.

@@ -1,0 +1,9 @@
+Dr. Alexandra "Lexi" Thompson stepped out of her car and onto the rain-soaked pavement of Main Street, gazing up at the imposing structure of the Ravenswood Asylum in front of her. The once-grand Victorian mansion loomed large, its stone façade shrouded in ivy and mist, like a ghostly sentinel guarding secrets within.
+
+As a forensic psychologist with over a decade of experience under her belt, Lexi had seen her fair share of darkness and despair. But there was something about Ravenswood that sent a shiver down her spine. The asylum's dark history was well-documented – tales of patient abuse, experimental treatments gone horribly wrong, and mysterious disappearances that still lingered in the whispers of local legend.
+
+Lexi's eyes narrowed as she surveyed the property. She had been summoned to Ravenswood by its new administrators, who were desperate for her expertise to help unravel a decades-old mystery. A series of unexplained events had been reported by staff members – eerie noises, door creaks, and an unsettling feeling that they were being watched. The hospital's leadership suspected something more sinister at play, but they lacked the resources or knowledge to investigate further.
+
+Lexi took a deep breath, shouldering her worn leather satchel and adjusting her jacket against the biting wind. She had spent years studying the human mind, delving into the darkest recesses of the psyche. And now, she was about to dive headfirst into one of the most notorious places in the country's history.
+
+With a sense of trepidation and curiosity, Lexi Thompson stepped across the threshold, ready to face whatever secrets Ravenswood Asylum held within its crumbling walls.

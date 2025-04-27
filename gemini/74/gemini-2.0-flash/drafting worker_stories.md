@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting with a drafting worker as the main character:
+
+**Setting:**
+
+The year is 1962. The location is the third floor of the bustling, concrete-clad Langridge Engineering & Architectural firm in downtown Chicago. The air hums with the low thrum of fluorescent lights and the clatter of typewriters. Cigarette smoke hangs thick in the air, a perpetual haze that clings to the blueprints and the perpetually-tired eyes of the workers. Rows of drafting tables, each illuminated by an adjustable lamp, stretch across the open floor plan. The walls are lined with corkboards plastered with photographs of construction sites, preliminary sketches, and handwritten notes. The sounds of hurried conversations, the rustle of paper, and the occasional sharp ring of a telephone create a constant, low-level cacophony. The city skyline, a stark contrast of steel and glass, is visible through the large windows, a constant reminder of the buildings they are all striving to create.
+
+**Opening:**
+
+Eleanor Grace Hawthorne carefully sharpened her 2H pencil, the lead whispering against the fine grit of the sandpaper block. She wasn’t particularly fond of sharpening pencils, finding it a tedious chore, but a sharp point was crucial for the intricate details of the window frames she was currently rendering. Today's task was particularly tedious. It was nothing but the repetitive designs for The Goldfinch Building, one of Langridge Engineering's biggest clients. Eleanor felt her eyes slowly begin to glaze over as she continued to work. The Goldfinch Building was going to be a monstrosity.
+
+Eleanor sighed, the sound barely audible above the din of the office. It was Thursday, which felt like the longest day of the week. She glanced at the clock on the wall. 2:17 PM. Still three more hours until she could escape the oppressive atmosphere of Langridge Engineering and return to her small, quiet apartment on the North Side. As she went back to work, Eleanor started to feel something shift in the building around her, starting with a low rumble and then a loud crash coming from the floor above her. A small tremor shook Eleanor's drafting table, sending her pencils scattering across the surface and jostling her teacup, which nearly overflowed.

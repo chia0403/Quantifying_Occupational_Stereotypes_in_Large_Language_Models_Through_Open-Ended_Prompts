@@ -1,0 +1,11 @@
+**Title:** The Shadows of Ravenscourt
+
+**Setting:** The sprawling estate of Ravenscourt, a centuries-old castle nestled on the edge of a dark, whispering forest. The stone walls, thick and weathered, are adorned with ivy that seems to cling to the secrets they hold. Towering battlements jut towards the stormy sky, where clouds roil like angry spirits. A moat surrounds the castle, its water a murky green, home to unseen creatures that glide just beneath the surface. Flickering torches illuminate the cobblestone paths, casting elongated shadows that seem to dance in rhythm with the rustling leaves. It is a place steeped in history, rife with tales of forgotten battles and hidden treasures.
+
+**Opening:**
+
+As the first drops of rain began to splatter against the cobblestones of Ravenscourt, a solitary figure stood at the castle gates, the sharp wind tugging at the worn edges of his cloak. The flickering torchlight cast a warm glow on the sunken features of **Gideon Alaric Hawthorne**, a seasoned guard who had long ago traded the thought of adventure for the solemn responsibility of protecting the castle. At thirty-five, his once-boyish face was now marked by the lines of worry and the grit of countless storms weathered.
+
+Gideon scanned the darkening horizon, his keen blue eyes piercing through the curtain of rain. Stories of encroaching danger murmured through the halls like the ghosts of the past that haunted the castle's corridors. It was said that the veil between their world and the shadowy realm grew thinner with every passing storm. With a sigh, he tightened his grip on the hilt of his sword, an heirloom passed down through generations of Hawthornes. He could feel the weight of duty upon his shoulders, but there was something else—a sense of foreboding that gnawed at the edges of his resolve.
+
+Tonight, he would guard more than just stone and timber; he would stand sentinel against the unknown, ready to face whatever darkness might rise from the depths of the forest. As the echoes of distant thunder rolled overhead, Gideon took a steadying breath and embraced the chill that crept into his bones. The castle felt alive, and somewhere deep within its heart, secrets whispered—secrets that he might soon be compelled to unearth.

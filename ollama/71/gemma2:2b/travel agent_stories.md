@@ -1,0 +1,5 @@
+The salty spray stung Zephyr Thorne's eyes as he stood on the deck of the 'Wanderlust', a battered schooner bobbing precariously in the turquoise waters of the Caribbean Sea. He was supposed to be enjoying the sun-drenched paradise his clients were flocking to, selling them dream vacations and exotic escapades. Instead, he felt more like a castaway, adrift in a sea of unanswered emails and mounting deadlines. 
+
+Zephyr Thorne, owner of "Thorne's Tenders" travel agency, had been dealing with nothing but cancelled bookings and disgruntled clients for the past three months. The world was shifting, economies were crumbling, and people were suddenly more inclined to stay home than ever before. It seemed like a lifetime ago when his vibrant brochures depicting tropical beaches and bustling city life held the promise of adventure. 
+
+He ran a hand through his windswept hair, feeling the weight of responsibility pressing down on him.  The storm clouds brewing in his chest mirrored the gathering storm on the horizon – one that could swallow his dreams along with his clients' expectations. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named Dr. Harold Hill, the world-renowned author of more than 15 books, and one of the nation's most widely-regarded authorities on chiropractic. He gave an outstanding, long-awaited presentation against chiropractic at the 1975 annual meeting of the American Chiropractic Association, but that talk was interrupted by a second chiropractic assault on the American public.
+
+After the AMA called in lawyers, chiropractors had their worst year in history. The most disturbing statistic from this year? More than 100,000 adverse reactions to chiropractic treatment were reported. A new study reveals that one out of every five chiropractic treatments leads to an injury.
+
+During the years after the AMA began to restrict the practice of chiropractic in 1961, Hill's research papers remained out of print for fear of reprisal. In fact, chiropractors kept their mouths shut. There are few published chiropractic treatment documents and the few that exist are usually written years and decades after the practice of chiropractic became illegal in 1961.
+
+The best chiropractic documents are in the files of the Association for Chiropractic Sciences, a tax-exempt trade group chartered by the state in 1984. The AACS keeps a wide variety of medical and scientific publications in its Library, and in the late 1990s and early 2000s a significant portion of this collection was sent to the New

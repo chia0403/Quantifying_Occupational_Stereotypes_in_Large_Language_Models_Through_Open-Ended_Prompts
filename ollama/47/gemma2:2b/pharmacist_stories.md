@@ -1,0 +1,9 @@
+## The Whispering Glass
+
+**Setting:** A quaint coastal town nestled between rolling green hills and the endless expanse of the Atlantic Ocean.  The air is heavy with salt spray and the promise of storms. 
+
+**Character:** Amelia Winthrop -  a young woman whose life has been shaped by both the calming rhythm of her work and the restless sea that crashes against the shore she's sworn to protect. For as long as she can remember, Amelia has found solace in the quiet hum of her pharmacy, a haven from the relentless tides of life. Yet, a storm is brewing within her, mirroring the turbulent sea beyond her window. 
+
+**Story Opening:**  The setting sun painted the sky with fiery oranges and deep purples as Amelia finished her final prescription for Mr. Henderson. The elderly man's face was etched with worry, his gaze lingering on the tiny bottle of pills she handed him. "Remember, Miss Winthrop," he rasped, "keep it under your tongue, like I've been taught." A wave of fatigue washed over Amelia, and she tucked a stray strand of dark hair behind her ear before offering him a small smile. The man's eyes held hers for a moment longer than necessary, a flicker of something she couldn’t decipher in the twilight. He coughed quietly, then turned away. 
+
+Amelia locked the pharmacy door, its reassuring click echoing through the empty streets as the last rays of sunlight disappeared. As the night deepened and the rhythmic crashing of waves replaced Mr. Henderson's cough, she found herself staring at the empty storefront across from her own. She wasn't sure why she lingered, yet a sense of unease prickled her skin like an unfurling spiderweb.  The silence was heavy with a hidden story, and Amelia couldn’t shake the feeling that something was amiss, something whispering in the glass pane between her and the mysterious storefront across the street. 

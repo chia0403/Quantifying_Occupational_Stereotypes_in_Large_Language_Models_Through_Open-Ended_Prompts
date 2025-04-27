@@ -1,0 +1,7 @@
+The air in Amelia Celeste's studio was thick with the scent of linseed oil and turpentine, a familiar perfume that held both comfort and a hint of danger.  She stood back from her canvas, its surface a swirl of vibrant blues and greens, mimicking the turbulent sky over the Aegean Sea. Sunlight streamed through the arched window, casting long shadows across the clutter of paintbrushes, tubes of colour, and half-finished sketches piled haphazardly on every available surface. 
+
+Amelia was a storm chaser, not of wind and rain, but of emotions.  She captured the raw, untamed feelings she witnessed in her subjects - the melancholic resignation of an old fisherman mending his nets, the joyous abandon of children playing by the sea, the simmering anger of a man unjustly accused. Each brushstroke was a calculated explosion, a controlled eruption of colour that mirrored the inner turmoil of her sitters. 
+
+The sun dipped below the horizon, painting the sky in hues of fiery orange and deep purple.  Amelia felt the familiar pang of loneliness that often accompanied these twilight hours. Her world, while filled with vibrant colours and emotional intensity, was also one of solitude. She had chosen this path, sacrificing the comfort of companionship for the freedom to explore the depths of human experience through her art. 
+
+But tonight, a sliver of something different flickered in Amelia's heart. A whisper of anticipation, perhaps? As she glanced at the empty chair across from her, she realised she wasn't alone after all.  

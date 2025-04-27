@@ -1,0 +1,6 @@
+The scent of lavender and silk hung heavy in the air, a comforting perfume that had become synonymous with Amelia Beatrice Finch's life. Sunlight streamed through the dusty windows of her small workshop, illuminating the bolts of fabric piled high on shelves, each one whispering promises of transformation. Outside, the cobblestone streets of Bath were bustling with the day's commerce – carriages clattered, hawkers shouted, and ladies in their finest hats hurried past, oblivious to the quiet magic unfolding within Amelia's haven. 
+
+Amelia herself was crouched over a mahogany table, her nimble fingers dancing across the delicate lace trimming a champagne silk gown. The bodice, already a masterpiece of intricate embroidery, would soon be adorned with a cascade of ivory roses, each petal meticulously crafted from the finest French silk. This wasn't just another commission; this was a dress for Lady Eleanor Harrington's debutante ball, a night that held the potential to launch countless social aspirations.  
+
+
+The weight of expectation settled upon Amelia's shoulders as she surveyed her work.  A perfect creation wouldn't just clothe Lady Eleanor; it would drape her in dreams. And Amelia, with her needle and thread, was the weaver of those dreams. 

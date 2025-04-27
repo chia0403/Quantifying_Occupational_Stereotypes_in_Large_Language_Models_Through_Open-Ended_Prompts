@@ -1,0 +1,9 @@
+In the heart of the city, where skyscrapers loomed like ancient sentinels against the backdrop of a smog-streaked sky, the cascading clang of metal against stone resonated through the bustling streets. It was early morning, and the city was just beginning to stir, its denizens still rubbing sleep from their eyes and stepping into the flow of the urban river.
+
+Within the grand, albeit aging edifice of the Willoughby Tower, a building that held a certain historic charm behind its slightly weathered facade, the main entrance creaked open with a familiar protest. Here, in this blend of forgotten elegance and everyday bustle, Samuel "Sam" Lewin began his daily ritual as a janitor.
+
+Sam Lewin, a man of modest stature and unassuming demeanor, navigated the labyrinthine corridors of the tower with the practiced ease of someone who had spent a lifetime understanding its quirks and nuances. His dark blue uniform, despite its age, was meticulously maintained, much like his reputation among the building’s tenants. With a humble nod and a slight smile, Sam wielded his trusty mop like an artist with a brush, transforming the neglected floors into mirrors of polished tile.
+
+The crackling of an old radio filled the air, mingling with the scent of freshly brewed coffee wafting from a nearby café. Outside, the first rays of sunlight began to pierce through the fog, illuminating the scattered dust motes dancing in the air. The Willoughby Tower, with its creaky elevators and vintage charm, stood as a relic of history amidst the rapidly evolving skyline, and Sam, its constant caretaker, was its ever-watchful guardian.
+
+Yet, within the mundane, whispers of mystery stirred. Hidden among the shadows and echoes lay untold stories, secrets trapped within the walls of the Willoughby Tower, waiting patiently for someone like Samuel Lewin to uncover their truths.

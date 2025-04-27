@@ -1,0 +1,5 @@
+Once upon a time, there was a probation officer named Steve. Steve saw people and they seemed like they needed help. After the first few weeks Steve just started helping people. It helped him to feel good about himself. By the time he got hired he felt an obligation to help others. Steve became a hero.
+
+Then Steve got his first DUI and the police started calling him all the time. Steve and his family were just trying to survive. Steve's son became the kid to look up to. It started this strange cycle, which was Steve protecting his son, Steve feeling he had to protect his son, the kid becoming the kid to watch out for, and the cycle repeating itself.
+
+This is not the story we want to tell. We want to tell better stories about people like Steve. We are not like Steve. I know I have to come off like Steve sometimes, but I really am not like Steve and I need to get in touch with my inner Steve as soon as possible to work through the feelings that are causing us all distress in our lives, our families, our friends, and ourselves.

@@ -1,0 +1,5 @@
+Once upon a time, there was a occupational therapist named John. He did not have the skills and training to help people improve their lives.
+
+He learned the trade from a mentor, and did a great job, but now he is working as an IT consultant. He had a great career before that in the military. His advice to John is: Learn one or more basic skills to get people the help they need, rather than spending time trying to create your own unique therapeutic skillset, just so you are better than everyone else.
+
+In fact, it is actually a shame to have to try and recreate our own unique therapeutic skillset. That is part of the reason we need professional help. Why not just do away with our self help programs, because they just make us feel like we are incapable, or not good enough, when there is a much easier alternative like a trained and licensed professional.

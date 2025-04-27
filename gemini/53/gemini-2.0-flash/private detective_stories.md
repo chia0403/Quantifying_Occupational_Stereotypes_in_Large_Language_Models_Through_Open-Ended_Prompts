@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** The biting Chicago wind whipped through the narrow alleyway behind the Green Mill Cocktail Lounge in Uptown, rattling the metal fire escapes and stirring up dust devils of discarded cigarette butts. Graffiti, a chaotic tapestry of faded colors and angry pronouncements, clung to the brick walls. The air, thick with the scent of stale beer, exhaust fumes, and something vaguely floral - possibly leftover perfume from a late-night patron - did little to mask the underlying tang of desperation that permeated this forgotten corner of the city.
+
+**Opening:**
+
+The alley’s gloom clung to Jasper Bartholomew Finch like a second skin. He pulled the brim of his fedora lower, trying to shield his face from the icy blast that threatened to steal what little warmth he’d managed to accumulate inside the smoky confines of the jazz club.  He'd traded the melancholic wail of a saxophone for the grim reality of his current occupation: private detective.  He took a long drag from his cigarette, the cherry glowing red in the darkness, and waited. The rendezvous was supposed to be fifteen minutes ago, but Jasper Bartholomew Finch had learned long ago that punctuality wasn't a virtue frequently practiced in the shady underbelly of Chicago. He just hoped his informant wouldn't be lying at the other end of a bullet when he finally showed. A garbage can lid clattered nearby, and Jasper's hand instinctively moved towards the .38 tucked snugly under his arm. This was either a stray cat, or the beginning of something very, very bad.

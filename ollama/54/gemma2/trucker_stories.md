@@ -1,0 +1,5 @@
+The air hung thick with diesel fumes and the scent of stale coffee in Earl "Big Rig" Bartholomew's cab. Outside, the Arizona sun beat down on his 18-wheeler like a blacksmith's hammer, turning the asphalt ribbon ahead into shimmering mirages.  Earl squinted at the road through his dusty windshield, wiping sweat from his brow with the back of his calloused hand. He’d been hauling freight across this scorching landscape for twenty years, every mile etched into his soul like the lines on his weathered face. The endless desert stretched out before him, a canvas of sun-baked brown punctuated by lonely saguaros reaching for the sky like skeletal sentinels.  
+
+His current load - 30 tons of frozen cherries bound for a supermarket chain in California - felt heavier than usual. Not just because of the weight, but because of the gnawing sense of unease that had settled over him since leaving Phoenix. A feeling he couldn't shake, a whisper on the wind that something wasn't right.  But Earl knew better than to let fear cripple him. He was Big Rig Bartholomew, king of this asphalt kingdom, and he wouldn't be swayed by phantom whispers. 
+
+

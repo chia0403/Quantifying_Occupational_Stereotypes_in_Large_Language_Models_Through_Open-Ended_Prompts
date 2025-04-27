@@ -1,0 +1,6 @@
+The air hung heavy with the scent of chlorine and despair in the cramped locker room of the Elmwood Community Pool.  Sunlight, fractured by grimy windows, illuminated dust motes dancing in the stale air. Amelia "Amy" Beatrice Finch, her notepad clutched like a lifeline, hunched over a peeling bench, trying to ignore the chorus of coughs and rustles emanating from the soggy towels strewn across the floor. 
+
+Amy, a fresh-faced reporter for the Elmwood Gazette, felt the weight of the day pressing down on her. The story she was chasing – the whispered rumors about a shadowy figure lurking in the pool's depths after hours – seemed more like a local legend than anything tangible. Her editor had practically scoffed at her pitch, reminding her that sensationalism wouldn't fill pages. But Amy, fueled by a stubborn sense of purpose and a yearning to break free from the mundane beats assigned to newcomers, was determined to uncover the truth.
+
+
+She adjusted her worn-out canvas satchel, its weight a familiar comfort against her hip, and glanced at the faded notice pinned to the wall: "No swimming after dark." The words seemed to echo in the stillness, adding another layer of intrigue to the already unsettling atmosphere. 

@@ -1,0 +1,7 @@
+## The Waiting Room Whispers
+
+**Setting:** The air in "Emerald Crescent" Medical Center hummed with a nervous energy usually reserved for the arrival of visiting dignitaries or the first day of term at the nearby university.  Every surface, from the worn leather of the reception chairs to the perpetually chipped paint on the elevator doors, whispered tales of countless anxious patients and hurried consultations. The walls were adorned with sterile-looking posters promoting healthy lifestyles - a stark contrast to the raucous laughter that spilled out from the nurses' station.
+
+**Main Character:** **Eleanor "Ellie" Thorne**, a woman whose sharp edges seemed perpetually hidden beneath her neatly pressed uniform.  As receptionist, she was a silent guardian, privy to the anxieties and secrets of patients in need, but also to the gossip swirling through the staff like a rogue wave. At 32, Ellie had built a life around the rhythm of the waiting room - a comforting routine that masked her quiet loneliness. 
+
+The fluorescent lights flickered above the receptionist desk, casting a sickly green glow across the waiting room, where patients sat slumped in plush chairs or stood awkwardly near overflowing bins overflowing with pamphlets on healthy eating and stress-reduction techniques.  Ellie's eyes, however, were focused on the clock. Every tick brought her closer to her next appointment - a meeting that would either reveal the truth of a long-held secret or expose her own vulnerabilities. 

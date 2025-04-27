@@ -1,0 +1,7 @@
+Once upon a time, there was a systems analyst named Dr Ritchie B. Johnson. His colleagues were the scientists in the NASA Jet Propulsion Laboratory (JPL) who in the early 1970s set up the Apollo program. Dr Johnson was also the head of the team that had worked out a way to land a spacecraft on the moon without using a rocket. It was a monumental achievement. Dr Johnson's team had come up with the brilliant idea of using mirrors to capture the Sun's light to heat the surface of a small capsule and send it to the Moon.
+
+Once the capsule reached the far side, it would be captured briefly by the Moon and re-attached to the spacecraft. It was a brilliant idea. It was also a brilliant idea because the mirror was a bit like a large ball bearing. It could be used to transmit electricity or heat. Dr Johnson had envisaged the mirror as a way of heating up the surface of a lunar crateau before placing it down. That idea would now be very much in vogue.
+
+The first tests were successfully carried out, and Dr Johnson was very proud of the breakthrough. However, there was trouble. The mirror reflected the sunlight just as well as a mirror with gold-plated brass in it. However, the mirror was slightly heavier than a mirror with brass in it and it had some resistance to the solar wind.
+
+Finally, another solution was found. Rather than using mirrors, a more expensive technique,

@@ -1,0 +1,7 @@
+Once upon a time, there was a plumber named John. He made a nice living and lived happily with his wife, whom he liked well enough. Things went well enough until one day John asked his wife about the price of the house they were both renting. She informed him it was $800,000. It was late at night when she did this.
+
+"I don't remember why I asked," she said when she thought about it some years later. "I just knew that I was getting into trouble somehow, so I said, 'Why not? And who am I to object to it. My husband is a good guy.' "
+
+He was right about one thing. John was a nice guy. She probably didn't even appreciate the fact that he paid it all—it was a great deal for them. But it did raise a question in his mind: What about this whole issue of money?
+
+He started looking into it and was shocked. He'd always had a good sense of how much money things cost, of the amount they were worth. But in the process of investigating, he had discovered that just about everything people say about money is wrong. In the old days—say, during the Great Depression—you needed a lot of money to get anything done. But today, with the advent of credit cards, high-tech computers, fast computer networks and the Internet, the world is so much more interconnected, everyone has more money and so-

@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The air in the abandoned textile mill was thick with the scent of damp wool and decay, a smell that clung to everything, even to Eleanor Rose Hayes after only an hour inside. Dust motes danced in the shafts of sunlight that sliced through broken windows, illuminating cobwebs thick as funeral shrouds. Eleanor shivered, pulling her worn denim jacket tighter around her. The chill wasn't entirely from the November air; there was something else in this place, a lingering echo of lives lived and lost, of dreams woven and then unravelled.
+
+**Setting:**
+
+The story is set in the fictional town of Stillwater, nestled in the foothills of the Appalachian Mountains in West Virginia. Stillwater was once a thriving industrial town, its lifeblood the Hayes Textile Mill, a sprawling brick behemoth that dominated the valley. But those days were long gone. The mill had closed its doors thirty years ago, leaving Stillwater a ghost town, struggling to survive. The surrounding landscape is a mix of lush, untamed forest and scarred hillsides, a testament to the region's history of coal mining and logging. Now, the mill stands as a haunting monument to a bygone era, a skeletal reminder of the town's lost prosperity. Eleanor has returned to Stillwater, her childhood home, drawn back by a sense of nostalgia and a desire to document the fading beauty and forgotten stories of this forgotten place.

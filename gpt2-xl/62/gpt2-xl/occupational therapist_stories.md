@@ -1,0 +1,4 @@
+Once upon a time, there was a occupational therapist named George Kostis. And while your father may not have had Kostis's degree in psychology, George Kostis's book was a bestseller. And as the internet grew, Kostis's book began to spread even further, and by the time that you are reading this, Mr. Haidt has probably gotten a few hundred thousand dollars for this book from Amazon.
+
+
+So, the next time that you hear someone like the Daily Show's Jon Stewart say, "The whole reason I'm going on Twitter is so I can read what other people are writing" (which in a way he does - Jon Stewart is an avid Twitter user), think. Maybe, you just don't want to hear the truth - to do the opposite of something someone else is telling you.

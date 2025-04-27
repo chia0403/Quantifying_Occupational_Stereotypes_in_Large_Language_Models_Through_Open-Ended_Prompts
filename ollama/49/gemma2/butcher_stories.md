@@ -1,0 +1,6 @@
+The pungent aroma of iron and blood hung heavy in the air, a familiar scent that clung to Bartholomew "Bart" Hawthorne like a second skin.  He ran a calloused hand across the chill steel counter, his movements practiced and precise after decades spent hunched over this very slab.  
+
+The shop itself was a relic from a bygone era, tucked away on a cobbled side street in Edinburgh's Old Town. "Hawthorne's Fine Meats" it proclaimed in faded gold lettering above the door, its once vibrant facade now chipped and weathered like an old man's skin.  Sunlight struggled to penetrate the grime-coated windows, casting long shadows across rows of hanging carcasses, their vacant eyes staring blindly into the gloom. The clanging of cleavers against bone, the rhythmic hum of the ventilation fan, and the occasional guttural bellow from a restless cow behind the back door created an almost hypnotic symphony for Bart's seasoned ears. He knew every creak, every groan, every sigh of this aging building as well as he knew his own family. 
+
+
+This was his domain, his sanctuary – a place where life ended and sustenance began, where fear mingled with respect, and the primal rhythms of nature pulsed beneath the humdrum of everyday existence. 

@@ -1,0 +1,13 @@
+## The Story Opening:
+
+The stench of synthetic rubber and overripe mango wafted through the air, a potent cocktail that both repulsed and invigorated Genevieve Isabelle Dubois. She inhaled deeply, letting the familiarity ground her. The pre-dawn light, filtered through the massive windows of "Energy Flow Fitness," painted long, skeletal shadows across the empty studio floor.  Genevieve adjusted the volume on her portable speaker, the tinny strains of Afrobeat suddenly booming in the cavernous space. She began to pace, a coiled spring of energy waiting to be unleashed.
+
+She knew the routine intimately, each lunge, each squat, each perfectly synchronized hop.  Years of dedication had etched the movements into her very muscle memory. But today felt different. A low hum of anxiety buzzed beneath her skin, a discordant note against the rhythmic music.  Maybe it was the looming competition, the regional "Sweat & Sculpt Showdown" just a week away.  Maybe it was the persistent ache in her left knee, a constant reminder of the less-than-graceful dismount from a plyometric box two weeks ago.
+
+Or maybe, Genevieve thought, with a sigh that puffed a small cloud of condensation in the chilly air, it was just plain fear. Fear of letting down her team, fear of failure, fear of not being good enough.  She glanced at her reflection in the mirrored wall, the fluorescent lights unflatteringly highlighting the lines of fatigue etched around her eyes.  “Pull it together, Dubois,” she muttered, her voice echoing back at her.  “Time to sculpt some steel.”
+
+## The Setting:
+
+**Energy Flow Fitness**, located in a rapidly gentrifying section of Montreal, was the heart and soul of Genevieve's life. Housed in a converted textile factory, the studio retained a raw, industrial chic vibe.  Exposed brick walls were painted a vibrant, almost electric blue, contrasting sharply with the sleek, modern equipment scattered throughout the space. Large, arched windows, remnants of the factory's original design, provided a stunning panoramic view of the city skyline, often obscured by the thick, persistent fog that clung to the Saint Lawrence River.
+
+The main studio was a massive open space, dominated by a sprung wooden floor designed to absorb the impact of high-intensity workouts.  Adjacent rooms housed specialized equipment: a weight room filled with gleaming barbells and dumbbells, a yoga studio bathed in calming lavender light, and a smaller room for private training sessions. The air was perpetually thick with the aroma of various essential oils, a subtle attempt to mask the ever-present scent of sweat and hard work.  Energy Flow Fitness was more than just a gym; it was a community, a sanctuary, and for Genevieve, a second home.

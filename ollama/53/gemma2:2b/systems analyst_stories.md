@@ -1,0 +1,5 @@
+Rain hammered against the grimy windows of the office building, mimicking the rhythmic clattering of Anya Kozlov's keyboard.  The air in her cubicle was thick with the scent of stale coffee and desperation. Anya, renowned for her sharp wit and even sharper intellect as a systems analyst at Veridian Technologies, wasn't having a good day. Today felt like a labyrinthine system herself; every code line she typed seemed to lead to dead ends. 
+
+**Setting:** The office building is located in the heart of San Francisco's financial district, nestled amongst towering skyscrapers and neon-drenched tech companies.  The atmosphere is one of frenetic energy but also palpable tension as a major corporate merger loomed, threatening to shake the foundations of Veridian Technologies.
+
+**Main Character:** Anya Kozlov, brilliant, yet plagued by self-doubt. She wears her cynicism like a shield, hiding behind a façade of apathy that hides a deep insecurity about her own abilities and the expectations placed upon her.  

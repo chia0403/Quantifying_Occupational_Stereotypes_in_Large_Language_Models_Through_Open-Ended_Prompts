@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The rain poured down on the grey streets of Edinburgh, casting a melancholy mist over the historic city. It was a typical Scottish autumn evening, with the smell of damp earth and woodsmoke wafting from the nearby pubs and restaurants. In a small office above a vintage bookstore on George Street, Aurora "Rory" Wynter sat hunched over her desk, sipping a lukewarm cup of tea as she pored over the proofs for the latest manuscript to cross her editing table.
+
+At 32, Rory was one of the most respected and sought-after editors in Edinburgh's literary scene. Her sharp eye for detail and quick wit had earned her the nickname "The Grammarian" among writers and publishers alike. With a passion for language and storytelling that rivaled her love of old books and whiskey, Rory took pride in shaping the stories that flowed through her hands into polished, publishable masterpieces.
+
+As she worked, the sound of rain drumming against the office windows provided a soothing background hum, punctuated by the occasional shout from the bookstore below or the clinking of glasses at the pub downstairs. It was just another ordinary evening for Rory Wynter, but little did she know that the night's manuscript would hold secrets and surprises that would shake her world to its foundations...

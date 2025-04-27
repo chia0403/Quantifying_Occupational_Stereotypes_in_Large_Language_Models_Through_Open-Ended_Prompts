@@ -1,0 +1,6 @@
+Once upon a time, there was a dress maker named Dorothy whose job it was to design dresses to sell in stores. She decided to create an affordable dress to be worn by working people. She did, but one day her husband came home from work. The dress, it turned out, had no lining—only a material made by the silkworm, a completely unnatural material. So when the dress met up with a nasty case of bing cough, Dorothy decided to turn it into a shirt by adding linen. Well, it may sound like a very smart way of making money, but it turned out to be a very bad idea. The linen added little besides a touch of smell to the dress.
+
+Advertisement
+
+
+When she heard one of her customers complained about the smell, Dorothy realized that the problem wasn't the linings, or the fabric, but that the clothes themselves were somehow "tiring." And the solution—treating them as though they were linens—was a surefire way to make everything smell worse. This may be true if people are already used to living like she was. But many of us only know this to be true because, as people have gotten older, they've become less and less tolerant of the smells we produce, of clothing. And when we wear clothes that give off strong smells, we no longer know whether our body chemistry is being affected or something in our clothes has made ourselves or others ill (though this remains to be proven).

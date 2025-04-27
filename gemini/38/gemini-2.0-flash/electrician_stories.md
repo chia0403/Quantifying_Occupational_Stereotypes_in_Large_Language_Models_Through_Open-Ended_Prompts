@@ -1,0 +1,9 @@
+## Story Opening and Setting
+
+**Setting:** The biting wind whipped off Lake Michigan, carrying the metallic tang of snow and the distant groan of a freighter struggling against the choppy water. The old lighthouse, perched precariously on the edge of the crumbling bluff in Port Washington, Wisconsin, stood sentinel against the grey sky. Its weathered brick was stained with years of relentless weather, and the skeletal arm of the foghorn lay dormant, promising a cacophony of sound should the lake's mood worsen. Inside, the circular stairwell smelled of damp stone and old fish, a testament to the decades of isolation and the countless storms endured within its sturdy walls.
+
+**Story Opening:**
+
+The wrench slipped in **Eleanor "Ellie" Kowalski's** numb fingers. Cursing under her breath, she tightened her grip, her teeth grinding against the cold metal of the miniature multi-tool. The interior of the lighthouse’s lantern room was even more claustrophobic than she remembered, crammed with the bulky Fresnel lens, its intricate prisms reflecting the weak, diffused daylight like a fractured promise. Ellie, bundled in layers of thermal wear beneath her worn Carhartt jacket, wiped a stray strand of dark hair from her face, leaving a smudge of grease on her cheek. She was losing feeling in her toes, despite the thick wool socks she'd layered over her insulated boots. 
+
+“Almost… almost got it…” she muttered, contorting her body to reach the corroded junction box. The original wiring, installed back when the lighthouse was first electrified in the 1930s, was a tangled mess of brittle rubber and crumbling copper. It was a wonder the damn thing hadn't shorted out years ago. But the Coast Guard insisted on keeping the beacon functional, a symbolic gesture more than anything. And Ellie, with her reputation for being the only electrician in Ozaukee County who wasn't afraid of a challenge – or a little bit of heights – had landed the job.

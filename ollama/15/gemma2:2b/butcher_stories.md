@@ -1,0 +1,6 @@
+The rhythmic clang of meat cleavers against aging bone echoed through Elias Thorne’s small butchershop. Steam rose from the freshly butchered hams hung over reclaimed wood beams, their pungent aroma mingling with the tangy scent of aged sausage casings. The street outside buzzed with a life that had been muted for years; the town square now stood abandoned, save for a lone scarecrow perched precariously on its edge, its straw hat tilted towards the sun. 
+
+Elias Thorne was a man sculpted from both the meat he handled and the grit of his surroundings.  His face, weathered by sun and work, bore the marks of years spent shaping life and death with equal skill – a legacy that had earned him the title “Whisperer of Meat” within the town’s tight-knit community. He was as much a fixture of their everyday lives as the stone-faced church steeple across the street, though many whispered he knew more about death than life. 
+
+
+His gaze drifted towards the empty square, his thoughts echoing the quiet rhythm of the shop – until, finally, the clang of the door's lock and a voice, laced with urgency, startled him from his reverie: "It’s happening again!" He turned, his brow furrowed, to find a young boy standing at his doorway. The boy’s eyes were wide, mirroring the apprehension in the air.  

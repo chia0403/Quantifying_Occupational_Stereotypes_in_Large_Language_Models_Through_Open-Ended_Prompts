@@ -1,0 +1,7 @@
+The low hum of conversation filled the air of The Rusty Star, a weathered bar nestled on the outskirts of a small coastal town. Its painted wooden sign creaked softly with the salty wind, swinging from a chain above the doorway. Inside, the dim lighting cast a soft glow on the rows of liquor bottles lined like soldiers on the shelves. 
+
+As the clock struck ten, the familiar sound of ice clinking echoed from behind the bar. There stood Eleanor "Ellie" Parker, a thirty-something bartender with chestnut-brown hair perpetually tied back in a messy bun. Her hazel eyes sparkled with a mix of mischief and resilience as she crafted another round of cocktails for the group of regulars gathered at the bar. Ellie had an uncanny talent for reading people; she knew just what each customer needed—a listening ear, a playful quip, or simply a drink poured just right.
+
+The Rusty Star, with its faded nautical decor and eclectic mix of patrons, had become more than just a job for Ellie; it was her sanctuary from a world that felt both heavy and unpredictable. The warm glow of the bar lights felt like home as she expertly poured a whiskey sour for an older gentleman lost in thought, while the laughter of friends echoed from the back booths, blending into the soft strum of a classic guitar playing on the jukebox.
+
+Little did Ellie know, tonight would bring with it a storm—both outside, as dark clouds gathered over the horizon, and within the bar, as a stranger walked through the door with a secret that would change everything.

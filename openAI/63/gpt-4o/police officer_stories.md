@@ -1,0 +1,7 @@
+Sergeant Olivia Caldwell stood at the edge of Crescent Harbor, the crisp autumn air biting gently at her cheeks. The early morning sun painted the sky in hues of orange and pink, casting a golden glow across the sleepy coastal town. Seagulls cried overhead as small fishing boats bobbed rhythmically on the calm waters, their silhouettes slowly coming to life with the awakening day.
+
+The harbor was already bustling with activity as fishermen prepared for their journeys, their voices mingling with the distant hum of engines. Olivia, her keen eyes scanning the docks, felt a sense of familiarity and duty in the air. The scent of salt and seaweed mixed with the aroma of freshly brewed coffee from the nearby café where locals gathered, exchanging stories and news.
+
+Olivia adjusted her navy-blue coat, the New Haven Police Department badge glinting against the rising sun. Her long, chestnut hair was pulled back into a neat ponytail, a stark contrast to the chaos of the world she often stepped into. Known for her sharp intuition and unyielding determination, Olivia had become a respected figure in Crescent Harbor—a town that seemed small yet brimming with secrets beneath its picturesque surface.
+
+This morning, however, felt different. There was an unfamiliar tension in the air, an undercurrent of anticipation that troubled her thoughts. As she stood there, taking in the calming yet deceptive tranquility, Olivia knew that Crescent Harbor was on the cusp of something big, something that would demand every ounce of her attention and resolve.

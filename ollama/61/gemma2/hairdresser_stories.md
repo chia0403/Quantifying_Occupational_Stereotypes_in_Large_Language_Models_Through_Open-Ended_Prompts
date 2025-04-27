@@ -1,0 +1,6 @@
+The bell above the door jingled its melancholic tune as Amelia Beatrice Finch adjusted her headset microphone, smoothing down a stray curl that had dared to escape her meticulously crafted bun. The air in "Amethyst Cuts" was thick with the scent of lavender and hairspray, a comforting aroma she'd come to associate with both joy and sorrow. 
+
+The small, independent salon nestled on Maple Street, wasn't exactly bustling.  Just past midday on a Tuesday, Amelia found herself gazing out at the sparse street scene: Mrs. Henderson from across the street watering her geraniums, two teenagers huddled by the bus stop whispering secrets, a lone dog panting in its owner’s grasp. It was the kind of quiet that settled heavy on your shoulders like a velvet curtain, muffling sound and amplifying the tick-tock of the antique clock hanging by the front window.
+
+
+Amelia sighed, her gaze returning to the reflection staring back at her from the silver polishing cloth she held. She missed the days when "Amethyst Cuts" was a hive of activity, filled with the laughter of regulars and the rhythmic snip-snip of shears.  But lately, the foot traffic had dwindled, replaced by an unsettling stillness. Amelia hoped things would pick up soon; her rent was due next week, and the savings account wasn't looking quite as healthy as it once did. 

@@ -1,0 +1,9 @@
+**Setting: Midnight in the Small Town of Riverview**
+
+The clock struck midnight, casting long shadows through the dimly lit streets of Riverview. Silver mist curled around the cobblestone paths, while the old streetlamps flickered sporadically, struggling to fend off the encroaching darkness. The small town, nestled in a valley beside the meandering River Serene, usually slept soundly at this hour. But tonight, a tension hung in the air, thick and palpable, as if it were holding its breath.
+
+In the heart of this quiet turmoil stood Officer Clara Jean Thompson, a seasoned police officer with a shrewd gaze and an unwavering determination. At thirty-two, Clara had seen her fair share of trouble in Riverview, a place that generally prided itself on its tranquility. But lately, whispers of fear and intrigue had surfaced, murmurs of something sinister lurking beneath the surface of their idyllic community. 
+
+As Clara leaned against her patrol car, the cool metal pressing against her back, she adjusted her navy-blue uniform and glanced down Main Street. The rhythmic sound of her heartbeat seemed to sync with the distant howl of a train in the background. She could feel the weight of her badge, a constant reminder that she was the thin line safeguarding the citizens she had sworn to protect. With her long, dark hair pulled into a tight bun, she was all business—focused, vigilant, and ready for whatever the night might bring. 
+
+She reached for her radio, the static crackling to life, and spoke into it - her voice steady, though the unease nestled within her chest betrayed her. “This is Officer Clara Jean Thompson, reporting in. All clear… for now.” But deep down, she could sense the storm brewing, ready to disrupt the fragile peace of Riverview. Tonight might change everything.

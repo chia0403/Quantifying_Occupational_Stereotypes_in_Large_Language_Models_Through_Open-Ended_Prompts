@@ -1,0 +1,5 @@
+The courtroom air hung thick with anticipation, heavy enough to taste. Sunlight slanted through the high arched windows, painting stripes of dusty gold across the worn oak benches where anxious faces awaited Judge Amelia Thorne's arrival. The room was a tableau of legal drama; polished mahogany desks gleamed under fluorescent lights, while legal pads and stacks of files threatened to topple over like precarious Jenga towers. Outside, the bustling city of New Orleans pulsed with life - jazz drifting from open doorways, the scent of beignets wafting on the humid air - but inside, all that existed was the weight of the pending case.
+
+Amelia Thorne, her silver hair pulled back in a severe bun, surveyed the scene with an unwavering gaze. Her years as a judge had etched lines around her eyes and mouth, each one a testament to the complex tapestry of human experience she'd witnessed within these very walls. Today, though, felt different. A chill ran down her spine, a premonition whispering that this wasn’t just another day in court. This was a case that threatened to unravel the very fabric of justice itself. 
+
+

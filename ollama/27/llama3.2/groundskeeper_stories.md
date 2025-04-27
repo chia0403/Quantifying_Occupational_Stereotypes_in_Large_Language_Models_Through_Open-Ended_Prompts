@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The misty dawn broke over the sprawling estate of Ravenswood Manor, casting an eerie gloom over the meticulously manicured lawns and gardens. Groundskeeper Emilia Fothergill stirred to life in her small cottage on the edge of the property, the sound of gravel crunching beneath the wheels of her old van outside serving as a gentle reminder that another day had begun. As she sipped the bitter tea she'd brewed the night before, Emilia gazed out the window at the rows of perfectly aligned hedges and the carefully pruned topiaries, their frost-kissed branches etched against the pale morning sky like skeletal fingers.
+
+Emilia's thoughts were already turning to the day ahead, as they often were. She had a long list of tasks to attend to - from trimming the roses to repairing the irrigation system - but it was the mysterious letter that had arrived at her cottage just after midnight that had truly set her mind abuzz. The creamy white envelope, adorned with the crest of Ravenswood Manor, had been sealed with a black wax stamp bearing the image of a snarling lion's head. Emilia had no memory of sending such a letter - and yet, there was something about it that felt disturbingly familiar.
+
+As she finished her tea, Emilia set aside the cup and made her way to the cottage door, wondering what secrets lay hidden behind the imposing façade of Ravenswood Manor. Little did she know, today would be a day like no other, one that would shatter the carefully constructed world of order and routine that had been hers for so long.

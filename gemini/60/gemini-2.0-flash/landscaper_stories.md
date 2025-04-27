@@ -1,0 +1,9 @@
+## Story Opening:
+
+The relentless Georgia sun beat down on Elias Theodore Campbell’s neck, turning the sweat already plastered to his skin into a shimmering, uncomfortable film. He swore, not for the first time that morning, that he was melting. He paused, pushing the unruly strands of auburn hair from his forehead with a dirt-caked glove. Before him, the sprawling lawn of the Reynolds Estate shimmered like a mirage in the oppressive heat. It was manicured perfection, a green carpet stretching towards a white-columned mansion that seemed to sneer down at him. He sighed, a puff of hot air that did little to alleviate the discomfort. Another two hours of edging, weeding, and meticulously placing impatiens, and he could finally escape this humid hellhole. This was the price of beautiful lawns in Savannah, Georgia: slow, agonizing death by perspiration.
+
+## Setting:
+
+**The Reynolds Estate, Savannah, Georgia - Mid-July, 2024.**
+
+Imagine Spanish moss dripping languidly from ancient oak trees, casting dappled shadows across perfectly manicured lawns. The air hangs thick and heavy with the scent of salt, jasmine, and freshly cut grass. The Reynolds Estate is a sprawling plantation-style mansion, a monument to Southern elegance and wealth. The pristine white paint gleams in the sun, contrasting sharply with the deep green of the meticulously maintained gardens that surround it. Statues of cherubs and mythical creatures peek out from behind vibrant azaleas and camellias. The rhythmic hum of cicadas and the distant cries of seagulls fill the air, a constant reminder of the coastal location. But beneath the beauty and the history lies a palpable tension, a silent hum of secrets buried deep within the Savannah soil. The Estate itself feels watchful, as if the very stones remember a past that refuses to stay silent.

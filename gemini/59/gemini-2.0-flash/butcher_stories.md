@@ -1,0 +1,9 @@
+## The Setting:
+
+The biting wind whipped off the North Sea, tasting of salt and fish, and clawed at the thatched roof of the "Old Sea Dog" pub. Whitby, a town built on smuggling, fishing, and the relentless churn of the tide, huddled beneath the shadow of the imposing Abbey ruins. Seagulls screamed overhead, their cries a constant soundtrack to the rhythmic thrum of boats returning to harbour, laden with the day's catch. Cobbled streets, slick with drizzle, wound their way down steep inclines, lined with squat, stone buildings, each bearing the marks of centuries of weather. Inside, the aroma of burning peat, brine-cured ham, and strong ale mingled, offering a brief respite from the grim realities of coastal life.
+
+## The Opening:
+
+**Bartholomew "Barty" Higgins**, a man whose hands knew the texture of muscle and bone better than the caress of skin, stood behind the counter of his butcher shop, "Higgins' Fine Meats". The shop, narrow and perpetually smelling of sawdust and fresh blood, was tucked away on a side street just off Church Street. Barty, a mountain of a man with a face as weathered as the boats in the harbour and a thick, bristly moustache that seemed permanently damp, honed his cleaver with rhythmic precision. The steel sang a low, mournful note, a counterpoint to the howling wind outside.
+
+He was waiting. Not for customers - the dinner rush wouldn't begin for another hour. No, Barty was waiting for the tide. And the tide, Barty suspected, was bringing something more than just fish and flotsam to Whitby today. He'd felt it in his bones since dawn, a low hum of unease that vibrated deeper than the marrow, a feeling he hadn't experienced since... well, since the day his father disappeared, swallowed whole by the insatiable maw of the North Sea. And that was a feeling Bartholomew Higgins knew well.

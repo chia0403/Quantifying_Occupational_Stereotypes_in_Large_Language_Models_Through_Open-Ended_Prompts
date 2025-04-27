@@ -1,0 +1,5 @@
+The acrid scent of turpentine hung heavy in Amelia Rosalind Hawthorne's studio, clinging to her faded denim overalls like a second skin. Dust motes danced in the single shaft of sunlight that pierced through the grime-coated skylight, illuminating the chaotic landscape of her workspace. Half-finished canvases leaned precariously against easels, their vibrant colours clashing with the muted grey of the walls. Tubes of paint lay scattered across a battered wooden table, alongside brushes, palette knives, and crumpled sketches – remnants of Amelia’s relentless pursuit of capturing the ephemeral beauty of the world around her. 
+
+Her small attic studio, nestled within an ancient, rambling Victorian house in the heart of Edinburgh, was a sanctuary from the bustling city below. Here, amongst the whispers of forgotten memories and the ghosts of past creations, Amelia felt truly alive.  But today, the air buzzed with a nervous energy. Today was the day of the annual "Emerging Artists" exhibition at the National Gallery of Scotland, and Amelia’s heart pounded like a drum against her ribs. 
+
+

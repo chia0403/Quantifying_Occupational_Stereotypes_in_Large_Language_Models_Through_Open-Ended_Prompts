@@ -1,0 +1,6 @@
+The rhythmic clang of cleaver against steel echoed through The Butcher's Block, drowning out the low hum of conversation from the few customers scattered around the worn wooden tables.  A thin film of grease shimmered on the countertop beside Barnaby Alistair Finch, his name etched in bold letters above a rusted cash register that wheezed with every transaction. 
+
+Barnaby, his apron stained with years of blood and bone marrow, wiped a bead of sweat from his brow. The midday sun beat down through the grimy shop window, turning the air inside thick and heavy. Outside, the bustling streets of New Albion hummed with life – horse-drawn carriages rattled past, hawkers bellowed their wares, and children chased stray dogs through the mud-slicked cobblestones. But inside The Butcher's Block, time seemed to move slower, governed by the steady, deliberate rhythm of Barnaby’s work. 
+
+
+The smell of raw meat hung heavy in the air – a pungent blend of iron, musk, and brine that was both familiar and repulsive to most. But Barnaby relished it, finding comfort in the primal scent of life and death. He knew every cut, every muscle, every bone in the carcasses laid out before him like silent giants waiting for their final reckoning. 

@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The fluorescent lights overhead cast an unforgiving glare over the drab, beige walls of Ravenswood High School's maintenance wing. Amidst the dusty corners and forgotten lockers, Emmet Tyler Jameson swept his mop with a rhythmic cadence, his eyes scanning the space for any signs of mess that might have escaped his notice. It was a job he'd done countless times before, but one that still felt like a necessary sacrifice to keep the school running smoothly.
+
+As he worked, Emmet's mind wandered back to the day he'd started at Ravenswood as a janitorial staff member, fresh out of high school with a dream to make a name for himself in the world. Now, five years later, he was still stuck in this same role, his ambitions dwindling like the faint scent of disinfectant that clung to everything.
+
+Outside, the late autumn sun cast long shadows across the empty parking lot, and the distant hum of the school's speakers carried a faded announcement about the upcoming Homecoming game. Emmet's thoughts, however, remained firmly anchored in the drab reality of his existence – until the phone on his desk rang, shrill and insistent, cutting through the silence like a cold wind.

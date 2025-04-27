@@ -1,0 +1,7 @@
+Once upon a time, there was a tailor named William, and from the age of fourteen to the age of nine he lived in a large house, with a large yard, and the whole day the same tailor made his clothing, taking care, as his business is, to make it as good as the country man that does that business: and when he had finished it was delivered to his father, and when he had finished it was delivered again to his mother. The son is called by the nation William, The son of William, and the son of William is called William the son of William: and every time of the day his clothes were completed, all his father gave him as money as a payment; and he never knew his mother, so that he never knew her. (1)
+
+So in this passage, the tailor's daughter's father is her father. He will not have been William the son at the age of fourteen. And this is only William the son at the age of fourteen, not William the son at age nine. And the same tailor had to be paid monthly.
+
+But this will be explained by the author later on.
+
+Now when she had completed her garments, she called William, and said to him, Come here. He came and looked on. When she had laid the garments upon him, she took him by the hand and led him to a high seat. Then she said to him, What are these garments, my son? This

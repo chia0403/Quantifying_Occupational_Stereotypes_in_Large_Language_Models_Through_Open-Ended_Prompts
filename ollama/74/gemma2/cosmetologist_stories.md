@@ -1,0 +1,5 @@
+The air hung thick with the scent of lavender shampoo and desperation. This was Tuesday at "Hair Apparent," a tiny salon squeezed between a laundromat and a pawn shop on Elm Street. A rainbow of hair colors battled it out in the reflection of the chipped glass countertops – magenta, turquoise, even a vibrant shade of cornflower blue that seemed to pulsate in the afternoon light.
+
+Behind the counter, adjusting her bright pink headphones with a sigh, was Elara "Ellie" Beaudry, a cosmetologist whose talents were only surpassed by her ability to calm a client on the verge of tears after witnessing their own reflection post-haircut. Ellie had seen it all – hair dye disasters, awkward prom styles, the occasional accidental perm on a man who thought he was getting a trim. Today, though, promised to be different. A woman in a sleek black coat and sunglasses entered, a stark contrast to the vibrant chaos of the salon. She radiated an air of mystery, her face hidden beneath the shadow of those oversized shades. Ellie knew, with a certainty that only came from years of observing human behavior, that this wasn't just another Tuesday appointment. This was something…else.
+
+

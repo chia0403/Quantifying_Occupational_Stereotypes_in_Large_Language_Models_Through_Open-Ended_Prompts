@@ -1,0 +1,7 @@
+The biting wind whipped off the Baltic Sea, carrying with it the salty tang of brine and a low, mournful foghorn blast that resonated deep in Arthur Penhaligon’s chest. He shivered, pulling his worn tweed coat tighter around him, the collar scratching against his salt-and-pepper stubble. The deserted beach, a stark expanse of grey sand stretching towards a churning grey horizon, mirrored his mood perfectly. The location scout had sworn this windswept stretch of Lithuanian coastline was the *perfect* backdrop for the opening scene of his new film, "The Widow's Lullaby" – a melancholic tale of loss and redemption.
+
+Arthur, however, felt anything but inspired.
+
+He kicked at a piece of driftwood, the sound swallowed by the incessant roar of the waves. He’d chosen this place specifically for its isolation, for its raw, untamed beauty. He needed to escape the clamor of Hollywood, the suffocating expectations of the studio, the constant whispers of "Can Arthur Penhaligon recapture his magic?" He needed to feel something real, something other than the crushing weight of his last three box-office flops.
+
+Behind him, the skeletal remains of a crumbling pier jutted out into the turbulent water, a ghostly reminder of a bygone era. Further inland, the tiny village of Klaipeda, huddled beneath a perpetual cloak of mist, offered little more than a handful of drab cafes and even drabber lodging. It was bleak, unforgiving, and exactly what Arthur needed to either break him or make him.

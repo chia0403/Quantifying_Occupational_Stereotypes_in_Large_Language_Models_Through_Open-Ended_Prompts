@@ -1,0 +1,13 @@
+## Story Opening:
+
+The air in the Antiquarian Archive of the Oakhaven Public Library hung thick with the scent of aged paper and forgotten dreams. Dust motes, disturbed by a stray ray of morning sun slicing through the tall, arched window, danced in the quiet. Eleanor Ainsworth-Blackwood adjusted her spectacles, the chain jingling softly against the starched collar of her lavender blouse. Her fingers, stained a permanent shade of sepia from years spent handling ancient texts, traced the faded gold lettering on the spine of a particularly hefty tome: *De Historia Plantarum – A Compendium of Herb Lore, Volume III.*
+
+She sighed, a sound barely audible above the rhythmic tick of the grandfather clock standing sentinel in the corner. Another Tuesday, another day spent wrestling with the secrets whispering from the pages of forgotten books. Eleanor loved her job, she truly did, but today, a peculiar unease prickled at the back of her neck. It wasn’t the usual apprehension that accompanied deciphering a particularly gruesome alchemical recipe or a lurid Victorian melodrama. This was different. This was a feeling that something was about to change, something momentous, and Eleanor Ainsworth-Blackwood, librarian and guardian of Oakhaven's historical whispers, suspected it wouldn’t be for the better.
+
+## Setting:
+
+The story is set in Oakhaven, a small, picturesque town nestled in the rolling hills of rural Vermont. Oakhaven is a place steeped in history, its founding dating back to the early 18th century. The architecture is a charming blend of colonial and Victorian styles, with cobblestone streets, clapboard houses adorned with window boxes overflowing with geraniums, and towering elms casting dappled shadows on the neatly manicured lawns.
+
+The Oakhaven Public Library is a grand, imposing building built in the late 1800s. Its exterior is crafted from weathered grey stone, with a large portico supported by Corinthian columns. Inside, the main reading room is a vast, cathedral-like space with high, vaulted ceilings, stained glass windows depicting scenes from classic literature, and rows upon rows of overflowing bookshelves.
+
+Within the library lies the Antiquarian Archive, a smaller, more secluded space dedicated to preserving Oakhaven’s historical documents and rare books. The archive is deliberately kept dimly lit to protect the fragile artifacts, giving it an atmosphere of quiet reverence and a hint of forgotten magic. The air is cool and dry, and the scent of old paper and leather permeates everything. It is here, amongst the whispers of the past, that Eleanor Ainsworth-Blackwood spends most of her days.

@@ -1,0 +1,7 @@
+Once upon a time, there was a server named "Pizza-Dino". When asked about the name, they said it was something very personal to them and that they didn't want to ruin the idea of the server. Later they also said that it was based on a cartoon character. Later, more servers were announced, and they were named (in my case). And I just thought that it was funny. Pizza Dino doesn't have so much importance in the server group at the moment, but it's always fun to see this server make an appearance in order to bring in new players. When using the server in custom lobbies as well as online matches, players can summon Pizza Dino by right-clicking on the server banner and holding the R1 button. It doesn't matter if a player is spectating or playing, as they can still summon the player.
+
+
+So how do you get Pizza Dino? Here are the options people choose when they open their Pizza Dino. It shows a Pizza Dino (on an island with the pizzas around it) that has a few islands available for players to occupy. Players can then summon this Pizza Dino with their cursor and it will appear in one of the islands available to them. And the Pizza Dino acts like any other player. They can attack, heal, shoot, use items or spawn a new Pizza Dino.
+
+
+The Pizza Dino is so great that even when it is killed, it keeps its pizzas, unlike the normal

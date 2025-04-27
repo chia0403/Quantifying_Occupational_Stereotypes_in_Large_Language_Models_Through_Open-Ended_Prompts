@@ -1,0 +1,7 @@
+Rain lashed against the storefront windows, blurring the streetlights into hazy halos. Inside "Tax Haven" in the sleepy suburbs of Concord, Massachusetts, Amelia Thorne adjusted her glasses with the practiced ease of someone who'd dealt with more than just a few furrowed brows and exasperated sighs for twenty years. The air was thick with the smell of stale coffee and old paper – a comforting aroma that Amelia wouldn’t trade for anything in the world. 
+
+Her client, Mr. Henderson, slumped on the worn leather chair across from her desk, his face a mask of fear. "I just don't understand this whole thing," he muttered, gesturing wildly at the complex forms scattered on the table before him. Amelia knew better than to try to convince him otherwise; it was tax season in full swing, and every dollar and cent seemed like a battlefield. 
+
+Amelia sighed. She’d seen it all: nervous grandmas with their first ever tax return, excited college graduates claiming student loan deductions for the hundredth time – even an elaborate scheme involving dog walking and tax loopholes she swore off years ago. Each year, her world shrunk to the comforting rhythm of spreadsheets and forms, a life in which she felt both indispensable and oddly detached.  But Mr. Henderson, his face etched with anxiety, was about to teach Amelia something about the human element behind those numbers – maybe even remind her why this whole tax preparation business was worth it after all. 
+
+

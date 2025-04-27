@@ -1,0 +1,7 @@
+Once upon a time, there was a flight attendant named Maryanne. She lived up in Vancouver. On a daily basis, when she went to work, she would do her very best to keep her customers happy. She had to drive a lot of long hours to work, and when she came home at the end of her shift—she'd never have a moment to herself.
+
+However, one day she was on her way to the airport and came to a stop between two rows of seats on an airline. There were some really cute girls sitting at each flight attendant seat. What kind of terrible job did you have to do to meet these girls? You spend three hours at a time standing in the cold, but you sit next to them. When she came back to work, she had this idea. If she just waited for the time when the girls were about to arrive, that would be enough for her to find them in the waiting room. It was an idea that was so silly in retrospect: if she waited just one moment longer, she'd miss the girls, and they wouldn't be there.
+
+Maryanne didn't wait long, and soon there was a whole row of them waiting to be called up to the galley. Maryanne looked down at her watch and smiled. The girls were coming. It was perfect. She took a deep breath, and ran into the galley with a loud holler: "Oh my God!"
+
+She'd arrived at

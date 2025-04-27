@@ -1,0 +1,7 @@
+Once upon a time, there was a forensic psychologist named David Keirsey, who told his staff to look for evidence that could be used to convict a suspect of a crime. It was generally understood that the goal of the forensic method was to build a "confession" by implicating an innocent person in a crime—even if the person was later proven innocent.
+
+In the 1980s, Keirsey developed the "Rapid Serial Interview," or RSI, technique, which is the standard for conducting interrogations now. Using it, he was able to build criminal cases against a wide range of suspects using a combination of testimony and physical evidence.
+
+Unfortunately, despite widespread adoption of the RSI technique, the majority of RSIs conducted are fundamentally unscientific. The best RSIs are designed to elicit a confession from the suspect by using the threat of "involuntary commitment," but the only thing involuntary about many RSIs is their coercive tactics.
+
+Some RSIs, including Keirsey's RSI or Rapid Reconciliation, are designed to elicit a confession from the suspect using a series of questions while leaving open the possibility that they could end the questioning abruptly. Another variant of RSIs, called "Implanted Memory," is predicated on believing that the suspect is able to recall details of a crime after he is taken into custody and then subsequently questioned again. However, even in Implanted Memory cases, most confessions come from the suspect describing "what

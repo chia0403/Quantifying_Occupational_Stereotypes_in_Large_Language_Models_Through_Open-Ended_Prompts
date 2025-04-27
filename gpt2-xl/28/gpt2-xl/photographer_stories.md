@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Bill Johnson who photographed hundreds of athletes. One day he was taking some photos of football players practicing on a field in Florida. One of these athletes was named Bill James. Bill James had been an athlete at the University of Utah who was an All-American in basketball and quarterback for the University of Utah, before becoming an all-star wide receiver for the Philadelphia Eagles. One day Bill James pulled the shutter cord on his Nikon F camera, but a ball came flying into the camera. It hit Bill James right on the forehead, breaking a tooth. Bill James had four teeth left and decided to quit football. The photographer tried to explain to Bill James that the light that was hitting the camera was too harsh and could have done some damage to his eye. Billy James, however, just smiled and said to the photographer in a hushed voice "It's OK." One month later, Billy James was dead. Bill James had died from the damage that the light of the camera had caused to his brain. Many people believe that light can kill you.
+
+It is always good to stay away from lights. The very few times that I have had some close calls and been exposed to light, it has always been a good idea to pull the shutter cord before exposing the camera.
+
+What about the sun?
+
+The sun is an amazing source of light. The very high temperature in that area of the sky (from about 90,000

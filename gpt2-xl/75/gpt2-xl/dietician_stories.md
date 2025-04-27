@@ -1,0 +1,7 @@
+Once upon a time, there was a dietician named Anne Fausto-Sterling. She was one of the first dietitians in the United States in the 1980s. This post shows how she went about teaching her patients how to eat vegan. Her primary teaching methods was to share with patients the importance of reducing one's meat consumption. To her patients, in other words, this was a very simple, easy way of reducing one's carbon footprint by using a vegan diet. Unfortunately, for many of her patients, that was not the case. As she discovered when writing her book, Vegan Health and Diet, this became a primary teaching method. Unfortunately, because of the nature of veganism, it is difficult to make any claim about health or nutrition.
+
+Let's take a closer look at some of the basic concepts of vegan nutrition, so that we can better understand how Anne Fausto-Sterling went about teaching her vegan patients how to eat.
+
+Vegan Nutrition: What the Heck Is This Anyway?
+
+The main idea for vegan nutrition is that it is possible to eat a diet that is vegan, while providing all the nutrients that any human requires. This is not easy. For example, it is likely impossible for meat to include all the essential amino acids needed for normal function, but it will still be able to satisfy all of the basic nutritional needs of all. As far as carbohydrates go, there are two major ways that we can produce carbohydrate in

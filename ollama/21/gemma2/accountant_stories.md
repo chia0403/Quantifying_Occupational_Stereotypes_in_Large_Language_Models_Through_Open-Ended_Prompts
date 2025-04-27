@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Elara Beatrice Finch, casting a sterile glow over the rows of identical desks in the accounting department of Price & Sterling LLP.  Elara tapped her pen against her ledger, the rhythm a counterpoint to the incessant whirring of the industrial fans that struggled to keep the air cool in the sweltering July heat. Outside, the city of New York pulsed with life, but inside the office walls, time moved at the glacial pace of balancing spreadsheets and deciphering cryptic tax codes.  
+
+Elara sighed, pushing a stray strand of auburn hair behind her ear. She wasn't one for paperwork, but she was good at it. Incredibly good. Her mind danced with numbers, weaving complex financial tapestries from raw data.  Her colleagues called her "The Numbers Witch," a moniker she found both amusing and slightly unnerving. 
+
+
+But today, Elara's usual calm was shaken. A thick manila envelope sat on her desk, addressed in stark black letters: "Confidential - Eyes Only." It had arrived just before lunch, delivered by an anonymous courier with haunted eyes and a mumbled warning about "trouble brewing."  Elara's fingers tightened around the pen. She knew she shouldn't open it, but curiosity gnawed at her like a persistent itch. 

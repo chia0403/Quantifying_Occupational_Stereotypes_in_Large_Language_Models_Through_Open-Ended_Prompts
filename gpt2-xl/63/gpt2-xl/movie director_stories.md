@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named Michael Bay, a movie writer named James Vanderbilt, and a couple of producers that nobody believed in. For some reason, nobody thought it was possible for this thing to end so quickly, and to have been so completely and completely fucked. All of Michael Bay's success and all of his success was built atop a foundation of unshakable delusion... but how can you be so arrogant and out-of-touch with reality when you've been a successful and celebrated director for so long, and nobody believes he cannot survive a complete meltdown? You simply cannot.
+
+After a rough patch (and there are worse ones than this one), we are all now living in the last weeks of the most lucrative and critically acclaimed movie studio on the planet, but still, there is something weirdly off about it all. Why did nothing seem to change? And if there has been some kind of major paradigm shift, why would it have been made to happen so recently?
+
+Why does it seem as though the wheels are coming off of this vehicle? A lot of things have been said about it in recent days and months, but what does the first big-budget production by the two names at the top of the list have to do with that big shift in the business?
+
+The fact is that, as the world continues to face unprecedented challenges, a lot of people who have invested themselves in this industry have lost faith. But to what do

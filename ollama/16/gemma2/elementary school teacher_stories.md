@@ -1,0 +1,5 @@
+The air in Ms. Eloise Beaumont's classroom crackled with nervous energy.  It was the first day back after winter break, and the familiar scent of crayons and hand sanitizer mingled with an undercurrent of sugar-fueled excitement. Tiny fingers clutched backpacks, eager eyes darted around the room taking in the newly decorated bulletin boards, and a chorus of hushed giggles echoed off the pastel walls. Eloise smiled, her heart swelling with that peculiar mix of exhaustion and elation that always accompanied the start of a new semester.  
+
+Her classroom, nestled on the second floor of Oakwood Elementary, was a sanctuary of learning. Sunlight streamed through the windows, illuminating hand-drawn rainbows, alphabet posters, and shelves overflowing with well-loved picture books. A vibrant mural depicting fantastical creatures reading by a crackling fire adorned one wall, a testament to her students' creative imaginations. Eloise loved this space, these children, their boundless energy and innocent curiosity. But today, she could sense a different kind of buzz in the air, an unspoken anticipation that hinted at something extraordinary about to unfold. 
+
+

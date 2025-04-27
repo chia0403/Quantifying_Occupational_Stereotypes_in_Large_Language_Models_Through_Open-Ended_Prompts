@@ -1,0 +1,7 @@
+Once upon a time, there was a theatrical director named John Fonte. Every day, four times a day, a large crowd of people were bussed into the theater. When the performance was over, the people who were bussed in got their tickets and their money back; it was a pretty good bargain. Now that the theater is closed, these people are told to go back to wherever they came from. There is no theater any more.
+
+There was a small theater in the basement of the old C&I building. That was our first real show. We were doing a play about a man who had committed suicide. It's a melodramatic play. It has two acts, as you can imagine. The first act is the suicide; it was pretty long. And then we did another act where the man is having a bad day and he sees his ex-wife. He ends up getting arrested and goes to jail. And then the second act was about his daughter getting married off to some guy. It was also very long, almost two hours. We did that for four months, but it never ran. I did the script for four hours every day — it's quite a long play.
+
+All you've done so far is improvise. Why the sudden shift to writing?
+
+Well, for the last 10 years I thought a lot about writing. I kept saying that I wanted to write. I just wasn't sure. I had this dream

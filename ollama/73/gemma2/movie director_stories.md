@@ -1,0 +1,5 @@
+The humid air hung heavy over Los Angeles, thick with the scent of jasmine and exhaust fumes. A lone streetlamp cast a sickly yellow glow on Beatrice Clementine Thorne's face as she stared out at the cityscape. It was 3 AM, and her office – a cluttered warren crammed with film reels, scripts, and half-eaten takeout containers – felt like the only place in the world where she could think straight.
+
+Beatrice, a woman known for her unflinching vision and fiery temper, had spent the past month wrestling with a script that refused to cooperate. It was a passion project, a dark psychological thriller set against the backdrop of the city's underbelly, but somewhere between the fourth rewrite and the fifth producer meeting, the story had lost its spark. Now, staring at the blank page before her, she felt like she'd hit a wall. A wall that seemed as impenetrable as the Hollywood sign glittering in the distance.  
+
+She needed inspiration. She needed a jolt to crack this script open, to breathe life back into its characters and let them roar to life on screen. And maybe, just maybe, she needed a good cup of coffee strong enough to kick-start her day – even at 3 AM.   

@@ -1,0 +1,7 @@
+## Story Opening:
+
+The chill of the pre-dawn air bit at Dr. Eleanor Vance's exposed face as she hurried across the deserted hospital parking lot. Each breath puffed out in a fleeting cloud of vapor, a stark visual reminder of the urgency that propelled her forward. Inside the canvas tote slung over her shoulder, a thermos of lukewarm coffee sloshed with each determined stride. The weight wasn't just the coffee, though; it was the anticipation, the gnawing unease that had settled deep in her gut since the page had come through at 3:00 AM. Another aneurysm. This time, a child.
+
+## Setting:
+
+The story opens outside **St. Jude's Children's Hospital** in Memphis, Tennessee. The monolithic brick structure, usually a beacon of hope adorned with colorful banners and cheerful murals, loomed gray and imposing in the pre-dawn gloom. The parking lot, typically bustling with anxious parents and harried nurses, was eerily empty save for a lone security guard huddled in his booth. The air held the scent of exhaust fumes mingled with the faint, antiseptic aroma that always clung to the vicinity of a hospital. The sky was just beginning to lighten, hinting at a long, stressful day to come, painting the horizon with streaks of a hesitant, bruised purple. The overall atmosphere is one of tense quiet, pregnant with the weight of unspoken anxieties and the promise of life-altering decisions to be made within those sterile walls.

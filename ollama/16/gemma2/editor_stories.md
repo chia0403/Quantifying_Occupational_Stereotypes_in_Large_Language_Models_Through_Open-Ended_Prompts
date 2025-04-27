@@ -1,0 +1,6 @@
+The stale scent of coffee clung to Amelia Blythe's cardigan like a second skin. She inhaled deeply, hoping the caffeine would kick in soon and sharpen her already frayed focus. Outside, the London sky was bruised purple, mirroring the state of her mind. It was 3:47 am,  and she was staring at a manuscript titled "The Whispering Walls," its pages spread across her worn oak desk like fallen leaves. The story, a gothic horror set in an ancient Scottish castle, should have been gripping, but Amelia felt utterly adrift in it. The prose was clumsy, the plot riddled with clichés, and the dialogue sounded more like Shakespearean actors on amphetamines than real people.
+
+Amelia sighed, rubbing her weary eyes. She'd poured over this manuscript for weeks, trying to salvage something from its gothic wreckage. This was supposed to be her big break – a chance to prove herself as an editor at Crimson Quill Publishing. Instead, it felt like she was drowning in a sea of purple prose and melodramatic twists. 
+
+
+The only sound in the quiet apartment was the rhythmic ticking of the grandfather clock in the corner, each tick a reminder of time slipping away. The deadline loomed like a hungry beast, and Amelia knew she needed to make a decision – salvage this story or let it crumble into oblivion.  

@@ -1,0 +1,4 @@
+The air in "Arthur's Apex" hung thick with the scent of bay rum and freshly-shaved skin. Sunlight streamed through the dusty front window, illuminating motes dancing above the worn linoleum floor. Arthur Finchley, his silver hair neatly combed back from his forehead, sharpened his scissors against a steel strop with practiced precision. His calloused fingers moved with the grace of a conductor leading an orchestra, each swipe bringing a melodious whine that filled the quiet barbershop. Outside, on Maple Street in sleepy Oakhaven, life hummed along at its usual leisurely pace, unaware of the storm brewing within Arthur's heart. 
+
+
+He glanced at the chipped porcelain clock hanging beside the mirror, its hands frozen at half past ten. He hadn't had a customer all morning.  Oakhaven was a town where gossip travelled faster than stray cats, and the whispers following his sudden departure from the barbershop association were as unwelcome as flies in summer. 

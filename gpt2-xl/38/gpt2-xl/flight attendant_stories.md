@@ -1,0 +1,7 @@
+Once upon a time, there was a flight attendant named Pam Brown, who traveled the skies for a private company but was fired from it when she refused to travel with a husband in order to serve his gay partner. But because she was not fired for that reason, she is now suing her former employer and the company that hired her for sexual orientation discrimination. Brown, who is a transgender woman and a lesbian, claims that the American Family Association, which is based in Oklahoma City, discriminated against her when it allowed David Hochberg and Tim Wildmon to fly with her on their commercial airline, Continental Airlines, but did not allow Brown to accompany that same man on his business trip to Europe.
+
+Advertisement
+
+In one of the lawsuits filed by Brown, the American Family Association stated, "The male Plaintiff [Hochberg] is a homosexual who enjoys the activity with the female Plaintiff [Brown] at all times." According to Brown, she refused to be "part of a male-only program," which she believes amounted to gender discrimination. The suit contends that Continental, an air carrier, cannot deny travel to customers based on their sexual orientation. Hochberg, as a female, does not enjoy the same privileges afforded and denied to Brown as a male employee.
+
+While this is an important legal victory for Brown, in the long run, she may have more limited legal recourse for her employment woes. According to the American Psychiatric Association, gender identity is a fundamental part of one

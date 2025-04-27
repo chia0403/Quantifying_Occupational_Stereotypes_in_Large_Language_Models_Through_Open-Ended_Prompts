@@ -1,0 +1,6 @@
+The bell above the door chimed, announcing another customer to "Shear Delight," Amelia Rose Butterfield's haven amidst the chaos of bustling downtown Denver. Rain lashed against the windows, blurring the city lights into an impressionistic smear. Inside, the air hummed with the gentle whir of hair dryers and the fragrant steam of chamomile tea, a soothing contrast to the tempestuous weather outside. Amelia, perched on her usual stool behind the counter, surveyed the scene with a practiced eye. Her auburn ponytail was pulled back neatly, revealing a face framed by delicate silver streaks at her temples.  Years of wielding shears had etched lines around her eyes that hinted at both laughter and the weight of countless whispered secrets she'd held within these walls. 
+
+
+Amelia ran a hand through her braid, a familiar motion born from years of counting seconds between clients. She glanced at the clock - it was just after five, prime time for last-minute touch-ups before dinner dates and evening events. The scent of freshly baked pumpkin bread drifted from the oven in the corner, where a plate of steaming slices awaited any tired souls who needed a little extra comfort.  
+
+The chime rang again, and Amelia looked up to greet her next customer, bracing herself for whatever story life had brought them through the door today. 

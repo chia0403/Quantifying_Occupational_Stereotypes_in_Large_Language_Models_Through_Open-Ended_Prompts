@@ -1,0 +1,7 @@
+In the small coastal town of Harbor Heights, where the sea mist mingled with the whispers of towering pines, the morning sun cast a gentle glow on the red brick facade of Maplewood Elementary. Already alive with the distant laughter of children and the rhythmic echoes of a janitor's broom, the school seemed a world unto itself, nestled between the craggy cliffs and the endless expanse of the ocean.
+
+Dr. Eleanor Whitfield stood at her office window, gazing thoughtfully at the playground where students chased each other through the autumn leaves, their vibrant jackets little bursts of color against the gray morning sky. As the school's psychologist, Eleanor had come to understand that each child who walked through her door carried stories that were as complex and varied as the tides that lapped at the shores of their town.
+
+Eleanor's office, cozy and cluttered with books and posters of encouraging words, was a haven she had cultivated over the years—a place of safety and understanding. On her desk, scattered among reports and notepads, was a small collection of seashells that she often used to calm anxious hands and distracted minds.
+
+With a soft sigh, she turned away from the window and prepared for the day ahead. As the first bell rang, echoing through the halls, Eleanor Whitfield knew that each day brought new waves, and with them, the opportunity to help her students navigate the often tumultuous waters of growing up.

@@ -1,0 +1,5 @@
+The smoky haze hung low in The Rusty Mug, clinging to the threadbare velvet curtains and swirling around Amelia Rose Nightingale's ankles as she adjusted the microphone. She wasn't used to this kind of dive bar. Usually, her voice graced grand concert halls with their polished marble floors and expectant audiences, not cramped spaces smelling faintly of stale beer and desperation. But lately, the symphony orchestra had gone on indefinite hiatus, and Amelia had found herself scraping by, taking any gig she could get. 
+
+The patrons, a motley crew of regulars and lost souls, were more interested in their drinks than her melancholy ballad about a love lost at sea. Amelia, however, poured every ounce of heartbreak into each note, her voice soaring above the clinking glasses and murmured conversations. Tonight, under the flickering neon sign casting long shadows across the worn wood stage, she wasn't just Amelia Rose Nightingale, renowned opera singer. She was a storyteller, a weaver of emotions, and she would not let these rough-around-the-edges souls escape her spell. 
+
+

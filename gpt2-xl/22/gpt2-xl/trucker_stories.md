@@ -1,0 +1,6 @@
+Once upon a time, there was a trucker named Jeff who was on his way to Kansas and had all the money in his wallet and he'd had to steal $75 just so he could get a new shirt. One night, he was driving and a car pulled up next to him. The man got out, slapped his dick and went to piss in the truck. Jeff, pissed, got out of the truck and jumped into the car for the piss and the man kept going, then he went back to the fucking truck. And that's how he caught us! Jeff and I had a relationship pretty much for the rest of our lives. I think he got the idea from the scene in the movie 'Pumping Iron' where there's a guy that had never driven and I think it was John Wayne or something. He had probably never done all those tricks we were doing. We had this one truck. He just had to get the hell outta there. I think this is the only time I've ever been chased by a human being."
+
+
+On the song "I See" from his first EP:
+
+"I had been looking for something to write for my album. All my music up to then had been about the ups and downs of all my relationships. I was a kid when I was in the Air Force. I was one of the first people that did really well in a military academy. I'd finished high school in '95. I came out for

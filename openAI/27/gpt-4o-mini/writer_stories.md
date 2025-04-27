@@ -1,0 +1,9 @@
+**Title: Whispering Shadows**
+
+**Setting:**  
+In the heart of Eastwick, a small coastal town shrouded in a perpetual mist, the old Echo Point Lighthouse stood sentinel over the jagged cliffs. With each candescent wave that crashed against the rocks below, the lighthouse’s beam swept across the darkened waters, a lonely guide to those who ventured close. The town gave off an aura of a forgotten world, where time seemed to stand still, and the cobblestone streets whispered secrets of old. Quaint shops lined the main square, their signs swaying gently in the sea breeze, while the salty air mingled with the scent of aged wood and stories waiting to be told.
+
+**Story Opening:**  
+On a dreary Tuesday morning, when the sky dripped with the soft melancholy of impending rain, **Thalia Harper**, a reclusive novelist known for her hauntingly beautiful prose, sat nestled in her favorite armchair. The chair, an overstuffed relic, bore the weight of countless hours spent lost in thought, and now it cradled her as she stared out of the bay window. Her fingers hovered above the keyboard of an antique typewriter, the keys gleaming like forgotten treasures. 
+
+Thalia had always sought solace in the quiet companionship of her stories, but today felt different. The fog outside clung to the lighthouse like a shroud, an omen perhaps, that something was about to unravel. For months, she had been mired in the limbo of writer’s block, struggling to breathe life into her new manuscript, a tale of the lost and the searching. As the distant, rhythmic chime of the lighthouse bell echoed through the air, Thalia could almost hear the stories of the past beckoning her to listen, to uncover the mysteries that lay hidden beneath the surface of Echo Point. Little did she know, the secrets she was about to unveil would intertwine her life with the very heart of the town’s history, leading her down a path she never anticipated.

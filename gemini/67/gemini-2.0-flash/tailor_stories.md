@@ -1,0 +1,11 @@
+## Story Opening & Setting:
+
+**Story Opening:**
+
+Elias Thorne adjusted his spectacles, the late afternoon sun glinting off the gold rims. He held the swatch of midnight blue silk up to the window, the light revealing the almost imperceptible sheen of silver threads woven within. It was exquisite, a fabric worthy of a queen, and it would become the lining for the coat that had occupied his thoughts, and quite frankly, kept him up nights, for the past three weeks. He sighed, a small puff of breath that momentarily fogged the glass. He had been a tailor for forty years, forty years of meticulous stitches and whispered measurements, and yet, sometimes, the weight of creation felt as heavy as the bolts of wool stacked in the back.
+
+**Setting:**
+
+Elias Thorne's workshop, "Thorne & Son, Fine Tailoring" (the "Son" having sadly passed away ten years prior and the sign never being changed), was a haven of organized chaos nestled on the second floor of a brick building on Pennyfeather Lane in the heart of New Bellingham. The city, a bustling port town on the coast, was a vibrant mix of sailors, merchants, and artists. Pennyfeather Lane, however, was a quieter, more established street, known for its antique shops, bookbinders, and the comforting aroma of freshly baked bread wafting from Mrs. Higgins' bakery across the way.
+
+The workshop itself was crammed. Bolts of fabric in every imaginable colour and texture lined the walls, stacked high and threatening to topple. Spools of thread in a rainbow array sat neatly organized on shelves, each labeled with a meticulous hand. Elias’s workbench, a sturdy oak behemoth scarred with years of use, dominated the center of the room. It was littered with half-finished projects, scraps of material, and a collection of tools – scissors sharpened to a razor’s edge, measuring tapes worn smooth with handling, and a collection of needles that Elias treated as if they were precious jewels. Sunlight streamed through the large, grimy windows, illuminating dust motes dancing in the air and casting long, distorted shadows across the cluttered space. It was a space steeped in history, imbued with the scent of beeswax, oiled leather, and the quiet hum of creation. It was Elias's world, a world he both cherished and felt increasingly isolated within.

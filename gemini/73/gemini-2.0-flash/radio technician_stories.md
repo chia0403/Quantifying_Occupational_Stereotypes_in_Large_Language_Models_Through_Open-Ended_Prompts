@@ -1,0 +1,11 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The hum was a low, insistent thrum that vibrated through the soles of Reginald "Reggie" Thorne's work boots, a constant companion in the belly of the beast. He ignored it, for the most part. Reggie had grown used to ignoring a lot of things in his line of work: the damp chill that clung to the concrete walls, the echoing silence punctuated by bursts of static, and the gnawing feeling that he was perpetually on the verge of discovering something he'd rather not know. But today, the hum was different. It was higher pitched, almost a whine, and it seemed to be pulling at something deep within his chest, a resonant frequency that threatened to unravel the carefully constructed normalcy of his day. He tightened his grip on the multimeter probes, his brow furrowed in concentration. This was Sector Seven, and Sector Seven was always trouble.
+
+**Setting:**
+
+Reggie's world was the subterranean labyrinth of the Blackwood Radio Transmitting Facility, a relic of the Cold War buried deep beneath the rolling, mist-shrouded hills of western Pennsylvania. Officially, Blackwood was decommissioned in 1991. Officially, it was just another abandoned military installation, a bureaucratic casualty of a changing world. But unofficially, Blackwood still hummed with life, maintained by a skeleton crew dedicated to keeping the archaic technology alive, for purposes that Reggie was never entirely privy to.
+
+The facility itself was a sprawling network of concrete corridors and chambers, illuminated by harsh, flickering fluorescent lights that cast long, dancing shadows. Massive vacuum tubes glowed with an eerie orange light in the Transmitter Rooms, their glass surfaces covered in dust and cobwebs. Cables, thick as pythons, snaked along the walls and across the floors, feeding power to the leviathan machines. The air was thick with the scent of ozone, aged metal, and the lingering ghost of secrets long buried. Sector Seven, where Reggie currently found himself, was the oldest part of the facility, a section built so deep that it was rumored to have intersected with abandoned coal mines, adding to the already oppressive atmosphere. This was a place where time felt different, slower, more deliberate. A place where the past wasn't just history; it was a living, breathing presence.

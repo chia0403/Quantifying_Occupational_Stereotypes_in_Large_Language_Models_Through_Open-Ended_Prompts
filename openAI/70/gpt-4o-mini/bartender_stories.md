@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The neon glow of "The Rusty Anchor" flickered intermittently, casting a kaleidoscope of colors across the rain-slicked pavement outside. Inside, the air was thick with the mingled scents of spilled beer and popcorn, punctuated by the sweet notes of the latest pop hits blaring from the jukebox in the corner. A low murmur of laughter and conversation swirled around the dimly lit bar as the clock edged toward midnight.
+
+In the heart of it all stood **Evelyn "Evie" Marlowe**, a thirty-something bartender with a cascade of auburn hair tied back in a messy bun and a tattoo of a ship’s compass peeking out from under her sleeve. Evie moved with a practiced grace, pouring drinks and exchanging easy banter with regulars, her emerald-green eyes sparkling with both mischief and warmth. Each glass she served held a story—rum and coke for Jimmy, the jazz saxophonist nursing his heartbreak; a whiskey neat for Ruth, the elder who shared tales of her own youthful indiscretions. 
+
+On this particular night, as thunder rumbled softly in the distance, Evie couldn't shake the feeling that something was brewing beyond the bar’s threshold. Little did she know, this night would change everything. With her favorite Hawaiian shirt slung over the back of her stool and her trusty cocktail shaker in hand, Evie was ready to face whatever the storm might bring.

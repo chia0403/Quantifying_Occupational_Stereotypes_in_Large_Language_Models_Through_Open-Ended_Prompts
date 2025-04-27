@@ -1,0 +1,7 @@
+Okay, here's a story opening with the requested elements:
+
+**Opening & Setting:**
+
+The biting wind, laced with grit from the quarry dust, whipped at Silas Thorne’s thick beard as he stood before the half-finished arch. It was dawn, the sky a bruised purple bleeding into a watery grey above the jagged peaks of the Grimfang Mountains. The entire village of Aethelgard clung to the mountainside, a collection of sturdy, grey-stoned houses huddling together for warmth against the relentless elements. Aethelgard was a village built by stone and for stone. Every dwelling, every wall, every path owed its existence to the very substance Silas and his brethren wrestled from the earth. And this arch, meant to span the entrance to the new market square, was his most ambitious project yet.
+
+He ran a gloved hand along the cool, unforgiving surface of a keystone, his fingers tracing the faint outline of a griffin he was slowly coaxing to life. The air was so cold he could practically taste it, metallic and sharp. Above the incessant wind, he could hear the distant rhythmic clang of hammers from the lower quarries, the mournful cry of a mountain hawk circling overhead, and the rhythmic thud of his own heart, a steady drumbeat against the coming day. Today, Silas Thorne would finish the keystone. And if the gods were willing, today, the arch would stand. But the mountain was a fickle master, and stone a stubborn servant. He knew that better than most.

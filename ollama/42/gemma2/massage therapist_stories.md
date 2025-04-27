@@ -1,0 +1,6 @@
+The scent of lavender and eucalyptus hung heavy in the air, clinging to Amelia Rose Hawthorne like a second skin.  She inhaled deeply, letting the calming aroma soothe her frayed nerves. Her small massage therapy practice, tucked away on a quiet side street in Beacon Hill, was usually her sanctuary, a place where she could melt away the city’s anxieties and focus on easing her clients' aches and pains. 
+
+Today, however, felt different. A palpable tension hummed beneath the usual peaceful atmosphere. The clock ticked relentlessly towards five o'clock, the time of Amelia’s last appointment – with Mrs. Eleanor Beaumont, a woman known for her volatile temper and a penchant for drama.  Amelia wasn’t sure what to expect, but a knot of anxiety tightened in her stomach as she prepared for the session. 
+
+
+She glanced at the framed photograph on her desk: a smiling young Amelia, radiating confidence amidst stacks of massage textbooks. A reminder of a time before Eleanor Beaumont had become a fixture in her schedule, demanding deep tissue massages and unleashing a torrent of complaints about everything from the weather to the price of kale.  Amelia hoped today would be different. She needed it to be.

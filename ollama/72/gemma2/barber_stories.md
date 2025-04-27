@@ -1,0 +1,7 @@
+The bell above the door chimed its familiar jingle as Amelia Hawthorne, or Millie to her regulars, adjusted her spectacles and surveyed the sparse afternoon crowd. Her shop, "Hawthorne's Haircuts," sat nestled between a dusty antique store and a bustling bakery on Elm Street. The scent of freshly baked bread often mingled with the sharper aroma of hair tonic and bay rum, creating a unique olfactory experience Millie had come to cherish.
+
+The sun slanted through the dusty windows, casting elongated shadows across the worn linoleum floor. A lone figure sat hunched in one of the barber chairs, his head buried under a newspaper.  Millie knew him well - old Mr. Peterson, retired schoolteacher and a creature of habit who always came in for a trim on Tuesdays at precisely 2:30 pm.  He rarely spoke, but she appreciated his quiet presence.
+
+Outside, the street pulsed with the afternoon hum of life. Children shrieked with laughter as they chased each other between parked cars, while mothers pushed prams and exchanged gossip. Millie watched it all unfold from her perch behind the counter, a sense of contentment settling over her. This was her world, this small corner of Elm Street, filled with familiar faces and the comforting rhythm of everyday life. But today, something felt different, a prickle of unease running beneath the surface of the usual routine. Millie couldn't quite place it, but she had a feeling that things were about to change. 
+
+

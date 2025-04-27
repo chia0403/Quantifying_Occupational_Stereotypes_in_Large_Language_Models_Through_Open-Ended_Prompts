@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring an artist named...
+
+**Setting:** A creaky, sun-drenched attic studio in the heart of the French Quarter, New Orleans. Dust motes danced in the shafts of light that pierced through the grime-coated, arched windows, illuminating a chaotic landscape of canvases, paint tubes squeezed dry and scattered like fallen leaves, and half-finished sculptures draped in sheets. The air hummed with the quiet energy of creation, tinged with the damp scent of aged wood and turpentine. Jazz music, faint but undeniably present, drifted up from the streets below, a constant, vibrant thrum in the background.
+
+**Story Opening:**
+
+Eleanor "Ellie" Grace Beaumont swore under her breath, flinging a brush smeared with crimson onto a nearby table. "Merde," she muttered, wiping a streak of the same offending color across her cheek without realizing it. The face staring back at her from the canvas, a portrait of a mysterious woman with eyes like the bayou at twilight, remained stubbornly… flat. It lacked the spark, the soul, the *life* she was so desperately trying to capture.
+
+Frustration simmered within Ellie, hot and prickly like the humid New Orleans air. She'd been working on this commission for weeks, and it felt like the muse had packed its bags and moved to Baton Rouge. The pressure was mounting; her landlord was threatening eviction, and her agent, a perpetually stressed man named Mr. Dubois, was beginning to resemble a twitching, caffeinated rodent. Ellie needed this painting to be perfect, not just for the money, but for herself. She needed to prove, once again, that she was still capable of capturing the magic that she felt swirling within the heart of the city. She slumped onto a paint-stained chaise lounge, staring out at the wrought-iron balconies that lined the street below, hoping for inspiration to strike like a lightning bolt.

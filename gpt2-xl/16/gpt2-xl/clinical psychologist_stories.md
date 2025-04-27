@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Dr. Luella Goldsteiner who was a pioneer in the use of psychoanalytic techniques. Dr Goldsteiner was born in 1910- a daughter of a rabbi–and she was raised in a very religious, Jewish home.
+
+In a very early age, the Goldsteiner's moved to California. There, she learned about the psychoanalytic methods and began her schooling. At the age of twenty, she obtained her Certificate of Psychology degree from a private university. She soon followed the footsteps of the great Freudian psychoanalyst in a new field of medicine. She went on to obtain her Ph.D. from the University of California at Berkeley in 1935. Within a couple of years, she had gained renown in the field of neuropsychiatry.
+
+In 1940, she made a move to her dream location in Paris, France. The move was planned, but could not be completed. She did however attain a professorship in the department of anthropology at the prestigious School of Psychology under the guidance of the great French psycho-cinematographer, Paul Tassinier. Following Tassinier, Goldsteiner studied the work of Albert Soral.
+
+During these years, Goldsteiner continued to work on her psychoanalytic studies. Her work on the subject of personality gave her particular prominence. Her works included numerous works on how certain personalities manifested themselves in the lives of others

@@ -1,0 +1,5 @@
+The aroma of stale coffee clung to Amelia Thorne like a second skin, mingling with the lingering scent of desperation that permeated the dingy office building on Elm Street.  Amelia, known for her unflinching pursuit of truth, usually found solace in the whirlwind energy of a bustling city life, but not today. Today, she was drowning in a sea of unanswered calls and a pile of unopened emails that threatened to engulf her like the rising tide.
+
+**Setting:** The dilapidated newsroom of "The Sentinel", a local newspaper known for its scrappy fight against corporate apathy, housed on Elm Street in the heart of the city. 
+
+**Main Character:** Amelia Thorne, a tenacious reporter with eyes as sharp and quick as the rhythm of the city streets and a voice that could charm or intimidate depending on how she wielded it.  She had dedicated her life to exposing injustice and holding the powerful accountable, but lately, even her usual cynicism seemed to be wearing thin under the weight of unanswered calls and missed deadlines. 

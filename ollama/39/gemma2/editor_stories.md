@@ -1,0 +1,5 @@
+The stale scent of coffee and desperation hung heavy in the air of Penelope Clementine Beaumont’s office. Outside, rain lashed against the windows of the fifth-floor suite, mimicking the frantic drumming of her fingers on the worn oak desk. Spread across its surface was a chaotic landscape: crumpled pages, half-empty mugs, and a tangle of brightly colored sticky notes that resembled abstract art gone wrong. Penelope, her dark hair pulled back into a tight bun that did little to tame the wild frizz, squinted at the manuscript before her. It was due tomorrow, the author’s debut novel, a fantastical tale set in a land of whispering trees and fire-breathing dragons. Except, right now, it read more like a particularly bad dream, filled with clichés, awkward dialogue, and plot holes that could swallow a small village whole. 
+
+This wasn't how Penelope envisioned spending her Friday night. A proper editor, she believed, should be savoring the quiet satisfaction of a well-polished manuscript, not wrestling with dragons made of clichés. This was New York City after all - land of dreams and deadlines, where even editors had to fight for their sanity. 
+
+

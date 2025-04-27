@@ -1,0 +1,7 @@
+Liam O'Hanlon wiped the last traces of spilled whiskey from the wooden counter, the amber liquid darkening the worn mahogany ever so slightly. As the clock above the bar ticked past midnight, the hum of the small town of Ashwick began to fade, leaving Behind the Pines, the tavern nestled at the edge of the sprawling forest, alive with the gentle murmur of its final patrons. 
+
+The air was infused with the comforting scent of aged oak and the fading echo of laughter, while old records spun softly on the jukebox in the corner. It was an intimate haven, its walls lined with photographs and memorabilia reflecting decades of whispered stories and clanging toasts. 
+
+Liam had been tending the bar for nearly fifteen years, a local fixture as much as the worn barstools and dimly lit hanging lamps. He had a knack for making newcomers feel like old friends, offering a quiet presence that invited conversation—or solitude, if that was what one preferred. His eyes, a striking shade of gray, seemed to hold the secrets of Ashwick, quietly observing the comings and goings with a discerning warmth.
+
+Outside, the night was deep and still, the towering pines casting shadowed fingers over the gravel parking lot. Inside, the sense of refuge was palpable, where time slowed and the rest of the world found a moment’s pause. For Liam O'Hanlon, this was more than a job; it was a calling, a place where stories began and ended every night, woven into the very fabric of Behind the Pines.

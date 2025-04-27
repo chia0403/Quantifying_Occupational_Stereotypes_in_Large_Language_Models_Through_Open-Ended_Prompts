@@ -1,0 +1,7 @@
+Okay, here’s a story opening and setting:
+
+**Setting:** The oppressive, fluorescent-lit interior of "Tax Solutions & More," a strip mall office sandwiched between a nail salon and a vape shop in a suburb of Minneapolis, Minnesota. It’s late March, the air thick with the cloying scent of cheap air freshener struggling to mask the lingering aroma of stress and stale coffee. Outside, a slushy mix of melting snow and road salt coats the parking lot, reflecting the grey, perpetually overcast sky.
+
+**Opening:**
+
+Beatrice Eleanor Quirk, her fingers stained faintly yellow from years of handling W-2 forms, sighed into the receiver. "Yes, Mr. Henderson, I understand it *seems* like a lot to pay in self-employment tax, but..." She trailed off, pinching the bridge of her nose. She could practically *hear* the man's blood pressure rising over the phone.  This was her seventh call of the morning, and all of them had been some variation of the same complaint: disbelief, anger, and the ever-present, underlying fear that they were being cheated. It was the price of working in taxes, especially during the last few weeks of the season. She glanced at the wall calendar, a cartoon featuring a grinning anthropomorphic dollar bill, its eyes hollow and mocking.  April 15th loomed, a giant, tax-shaped meteor hurtling toward them all.  "Let's go through the deductions again, shall we?" Beatrice said, forcing a cheerfulness she definitely did not feel.

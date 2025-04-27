@@ -1,0 +1,7 @@
+## The Ghost in the Grid
+
+**Setting:**  A rain-slicked alleyway nestled between towering skyscrapers in downtown Seattle. Neon signs paint the wet pavement in hues of blue and red, reflecting off the damp concrete like fractured rainbows. 
+
+**Character:** Evelyn "Evie" Sinclair is a woman consumed by lines of code, her fingers flying across a keyboard as she navigates the treacherous landscape of a complex digital network. Evie lives for the thrill of solving problems, for finding that hidden algorithm that could revolutionize how we all live and work. But tonight, something feels off.  A nagging sense of unease clings to her like the chill rain clinging to the alley walls. 
+
+**Opening:** "Static," a low hiss emanates from Evie's laptop. The screen flickers, its usually crisp interface distorted into a chaotic kaleidoscope of colors and symbols. For the first time in years, she feels truly lost.  The intricate code that had once been her comfort now swirls before her eyes like an angry storm cloud.  A single line of text blinks out from the chaos - 'Access Denied.' A shiver runs down Evie's spine. This wasn't just a glitch; something was blocking access to something crucial, something vital to her work and perhaps even more personal than she realizes. The door at the end of the alley creaks open, revealing only a dim streetlight and a chilling silence that echoes her own growing fear. 

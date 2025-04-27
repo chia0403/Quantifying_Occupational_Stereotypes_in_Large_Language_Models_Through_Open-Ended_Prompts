@@ -1,0 +1,5 @@
+The courtroom clock ticked with agonizing slowness, each second reverberating through Judge Eleanor Vance's skull like a hammer blow. Her gaze rested on the worn mahogany railing that separated her from the gallery, where the defendant’s family sat hunched and silent. The air hung heavy with anticipation, thick as the Virginia humidity that pressed against the courthouse windows. 
+
+Eleanor’s eyes darted to the open file on her bench, its contents a tangled web of accusations and defenses. This case, the murder trial of young Elijah Carter, had consumed her thoughts for weeks. It wasn't just the gravity of the charges - the brutal stabbing of a beloved local baker - but the conflicting testimonies that left Eleanor wrestling with doubt. The prosecution painted Elijah as a callous killer driven by greed, while his defense attorney argued for an act of self-defense, fueled by fear and desperation. 
+
+Outside, the late summer sun beat down on Richmond, Virginia, casting long shadows across the cobblestone streets. But within these four walls, the air crackled with tension, waiting for the judge's gavel to fall and unleash the storm.  

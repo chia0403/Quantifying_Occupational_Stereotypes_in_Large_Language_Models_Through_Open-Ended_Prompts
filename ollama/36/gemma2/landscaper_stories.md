@@ -1,0 +1,5 @@
+The July sun beat down on Elias Bartholomew Hawthorne’s back as he wrestled a particularly stubborn rhododendron into submission. Sweat stung his eyes, but he pressed on, muttering curses under his breath that were lost in the drone of cicadas buzzing through the overgrown gardens of Mrs. Davenport's stately manor.
+
+Elias ran his hand over the rough bark of the ancient oak tree towering above him, its branches casting welcome shade over a patch of lavender struggling to survive amidst the rampant weeds. This once-magnificent garden had been neglected for years, swallowed by nature’s relentless green tide. Mrs. Davenport, a woman of refined tastes and even more refined isolation, hired Elias specifically because he was known for bringing order to chaos, for coaxing beauty from the wilderness. 
+
+He sighed, wiping his brow with the back of his hand. He wasn't just fixing a garden; he was restoring a piece of history, a lost memory whispering through tangled vines and forgotten pathways. And perhaps, just perhaps, he’d find a little bit of himself in the process.  

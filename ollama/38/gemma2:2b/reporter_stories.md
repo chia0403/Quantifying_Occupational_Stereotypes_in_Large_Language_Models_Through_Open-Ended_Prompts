@@ -1,0 +1,7 @@
+Rain lashed against the grimy windowpane, blurring the neon-tinged city lights into streaks of orange and purple.  Within the cramped newsroom of "The Sentinel," Amelia Pierce slammed her pen down on her desk, the sound echoing in the silent room.  Her weary eyes scanned a chaotic jumble of crumpled papers, each one another piece in the growing puzzle she was trying to solve. 
+
+Amelia was no stranger to chasing stories. She'd spent years at The Sentinel, building an arsenal of grit and tenacity honed by countless nights wrestling with her typewriter and sleepless hours scouring the city for the truth.  Tonight, though, something felt different. A palpable tension hummed beneath the surface of this storm-ridden night. The air was thick with the unspoken fears and whispered rumors of a case that had consumed everyone in the office: the disappearance of renowned musician, Ezra Thorne. 
+
+Amelia’s gut twisted as she pictured the face of the young prodigy, known for his ethereal melodies that seemed to resonate with the very city's pulse. He had vanished without a trace - just gone from his plush penthouse apartment onto the wind one stormy night.  The police shrugged, claiming they couldn't find any evidence, but Amelia knew there was something more. The pieces were simply not fitting together. 
+
+Tonight, she would uncover what truly lay beneath the surface of this city, and unravel this mystery before it swallowed them all whole.

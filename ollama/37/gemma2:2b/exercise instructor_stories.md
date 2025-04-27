@@ -1,0 +1,3 @@
+The salty wind whipped at Eloise Thorne's scarlet workout uniform as she led her class on the rocky beach. The rhythmic crashing of waves against the tide pools was a constant symphony in this seaside town called Havenwood, where every sunrise seemed to paint the sky with vibrant hues of orange and pink. 
+
+Eloise adjusted the microphone strapped to her chest, a reassuring smile spreading across her face despite the chilly morning air. "Alright team, let's hit that incline!" she yelled, urging her clients towards their daily dose of cardio on the jagged cliffside trails. The setting sun cast long shadows as the group climbed, each step echoing against the weathered rocks, their breaths rising in unison with the exertion.  

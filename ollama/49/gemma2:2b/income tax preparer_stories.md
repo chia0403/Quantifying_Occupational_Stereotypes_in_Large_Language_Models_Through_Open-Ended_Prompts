@@ -1,0 +1,7 @@
+Rain hammered against the windows of "Tax Haven," blurring the neon "Open" sign into a smear of red and green. Inside, dust motes danced in the golden light from the desk lamps scattered across the worn-leather chairs.  **Amelia Thistlewaite**, her brow creased with an uncharacteristic frown, watched the storm rage outside while hunched over a stack of tax forms that seemed to grow taller by the minute.  Her usually tidy office was in chaos - pens lay splayed like fallen stars on the counter, coffee mugs overflowed with forgotten dreams, and the aroma of stale printer paper hung heavy in the air. 
+
+Amelia's gaze fell upon a new form, the crisp white sheet seeming to mock her weary eyes. "Form W-4," it proclaimed in bold black letters.  Her heart sank as she read the instructions: **This is your income tax return.**  A single tear escaped Amelia's eye and traced a path down her cheek before landing on the coffee stain, just like yesterday.
+
+The storm outside raged on, mirroring the tempest inside Amelia's soul. The deadline loomed, but the prospect of filing another year's worth of paperwork for the same handful of struggling families felt more daunting than usual.  She rubbed her eyes and glanced at the worn calendar hanging crookedly on the wall, each day marked with a hastily scribbled date before being covered in coffee stains that seemed to mock her efforts at staying organized. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a guard named Terry Allen, who was assigned to guard the entrance to the Prison's infirmary. This was his first journey into the Prison, and it would prove to be the least interesting experience. Although Terry's assignment was to simply look after the entrance, it quickly escalated into something much darker than he could have ever expected.
+
+For much of the time, Terry had been alone and without backup. He had to face off against a very intelligent and well-armed prisoner, who was also a very skilled thief. Although Terry had managed to stay ahead and keep the prisoner from gaining access to the infirmary and thus steal the medicine for the guards, the fight left him feeling extremely weak. On top of this, he was not only completely alone in battle, but was also caught between a desperate prisoner and a deadly monster. As the two clashed against each other, Terry finally became a victim to both the monster and the disease.
+
+Terry's last act was to fight valiantly against this vile monster. However, all that was left for Terry was to make sure not a single breath could be lost in this brutal battle. However, even though Terry had lost himself in this battle, he still was not able to leave the infirmary alive. After a horrific battle between Terry and the monster, the monster had finally been driven in to the wall where he lay dead for hours.
+
+Terry had been injured but he did manage to

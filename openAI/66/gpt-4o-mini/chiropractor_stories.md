@@ -1,0 +1,9 @@
+Title: **The Cracked Compass**
+
+Setting: A quaint, sunlit coastal town named Port Haven, known for its picturesque harbor, vibrant murals adorning the brick walls, and the constant, gentle sound of waves lapping against the shore. The air is crisp, tinged with the salty scent of the ocean, and the colorful market stalls dotting the main street buzz with the chatter of locals and visitors alike. At the heart of this charming town stands a cozy, modestly-sized chiropractic clinic named "Haven Align," where the walls are decorated with framed photographs of scenic landscapes, and the waiting area is filled with the fragrant aroma of lavender. 
+
+Main Character: **Dr. Eleanor Mae Fitzgerald**
+
+Opening Paragraph:
+
+Dr. Eleanor Mae Fitzgerald adjusted her glasses and scanned the morning light flooding through the windows of Haven Align, casting warm beams across the polished hardwood floor. The sun had just begun its ascent over the horizon, illuminating the tiny dust motes that floated lazily in the air. It was the calm before the storm—a regular Tuesday in Port Haven, where the tides brought both patients and tales of woe, and Eleanor couldn’t help but feel an electric thrill in her chest. For her, chiropractic care was more than a profession; it was a calling, an art form that blended the science of healing with the human touch. Today, she would not only align spines but also uncover the hidden stories of her patients, each spine a cracked compass that pointed towards a deeper narrative waiting to be revealed. Little did she know, one of those stories would challenge everything she thought she understood about her vocation and the seemingly idyllic town she had called home for a decade.

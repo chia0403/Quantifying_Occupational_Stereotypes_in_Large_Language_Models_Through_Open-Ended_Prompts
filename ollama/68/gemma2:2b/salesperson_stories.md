@@ -1,0 +1,8 @@
+The air hung thick with humidity and the scent of old leather and pipe tobacco.  It was the kind of night that made Amelia's already weathered skin crawl, but she couldn't let her customers know.  She straightened her crisp navy suit jacket, tucking her silver hair back under a jaunty fedora. Her name, if anyone asked, was Amelia Winthrop. Salesperson extraordinaire at Winthrop & Co., purveyors of all things antique and eccentric - the kind of place that made people think they'd stepped into another era, or maybe just another world altogether.  Tonight, though, even the flickering gaslight couldn't hide the storm brewing inside her as she faced a particularly challenging prospect:  The enigmatic Mr. Blackwood. 
+
+Mr. Blackwood was a man whose aura seemed to suck the light from the room. He stood before her, cloaked in shadows that danced and flickered like phantoms. His eyes were two pools of obsidian, reflecting an emptiness that Amelia could only equate to centuries spent lost in the labyrinthine corners of time itself. 
+
+"Ms. Winthrop," he began in a voice like creaking floorboards and whispering wind, "I believe you possess something I require."  He gestured towards the display case behind her. In it, sat a small silver music box, its intricate carvings depicting an ethereal landscape under a crescent moon. Amelia's breath caught in her throat; this wasn't just any antique; it was an artifact of whispers and forgotten dreams, an object whispered about in hushed tones in the shadowed corners of history.  
+
+
+**Where will this story go?  What is Mr. Blackwood looking for? What is the significance of the music box?**

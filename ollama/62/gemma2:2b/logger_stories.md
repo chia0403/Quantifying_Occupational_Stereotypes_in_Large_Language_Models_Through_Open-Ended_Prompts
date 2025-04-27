@@ -1,0 +1,5 @@
+The morning mist clung to the towering pines like damp shrouds, hiding the sun behind a veil of grey that mirrored Elias Blackwood's own mood. He shifted his weight from one foot to the other, the worn leather of his boots creaking against the rough bark of the ancient Douglas Fir he leaned against.  He'd been on this logging road for days, the rhythmic drone of the truck and the scent of damp earth a familiar symphony in his ears. He was Elias Blackwood, third-generation timberman, inheritor to his grandfather’s legacy – a legacy now shrouded in dust and doubt. 
+
+His small cabin nestled in the heart of Redwood National Forest looked like an oasis amidst the verdant chaos, but even its familiar comfort failed to soothe the turmoil inside him.  The forest, once a sanctuary of peace, now felt oppressive. His father had died last month, leaving behind not just his silence, but also a mountain of debt and dwindling timber reserves. Today's haul was crucial: if he didn't meet quota, the weight of legacy would crush him even harder. 
+
+

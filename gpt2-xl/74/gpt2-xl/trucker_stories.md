@@ -1,0 +1,7 @@
+Once upon a time, there was a trucker named Jeff. He was a huge fan of the New York Yankees. When Yankees left fielder George Adams was pulled from the game early in a game, one of the first things Jeff made sure to do was drive up to the Yankee Stadium press box to see if the veteran Yankee was OK. Unfortunately, Jeff was informed that Mr. Adams was dead and there was a mass grave in Queens waiting for him. The first thing Jeff did was call the cemetery and they told him that there was no way that the man had been hurt. That, Jeff was quite clearly confused about. He then drove off in his truck to find out for himself. While making his way to Queens, however, Jeff and his wife got lost.
+
+
+We don't know if that would have been a significant part of his day to day life, but when they eventually stopped trying to find their way, that's when Jeff made it happen: He took a break from his post and decided that he'd just sit around and sip a beer and see how things went down there. Maybe, he thought, he could help, maybe all this talk about death was a bit of a joke. Or maybe, just maybe, death is really not a thing. Jeff probably figured that there was something going on here.
+
+
+After some time passed, Jeff started to feel like things were starting to move in the 'wrong way.' He noticed that his wife wasn't paying attention.

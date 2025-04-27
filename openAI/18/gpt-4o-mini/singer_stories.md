@@ -1,0 +1,7 @@
+The dimly lit club, a hidden gem nestled in the heart of New Orleans, pulsed with the soft hum of jazz spilling from a corner stage. Shadows danced along the exposed brick walls, flickering in time with the candlelight on each small table, where patrons leaned in, captivated by the music that filled the air. 
+
+At the center of it all, silhouetted against a backdrop of velvet curtains, stood Delilah Mae Avery. Her full name swirled through the whispers of the crowd, rich with intrigue. Delilah, with her honey-tinged voice and a presence that commanded attention, was known for weaving tales of heartbreak and hope with every note she sang. 
+
+Tonight, she wore a vintage black dress that clung to her curves, its fabric shimmering like the night sky above the Mississippi. A single silver locket gleamed at her throat, a reminder of the tumultuous journey her life had taken. As she stepped closer to the microphone, a breathless hush fell over the audience, their eyes fixed on her, waiting for the magic to unfold. 
+
+With a deep breath, Delilah glanced briefly at the old wooden floorboards, worn smooth by years of footsteps and memories. It was here, in this intimate space filled with the soulful echoes of a city steeped in history, that she would bare her heart once more, letting the music carry her past the walls she'd built around her soul.

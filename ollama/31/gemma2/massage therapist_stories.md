@@ -1,0 +1,6 @@
+The steam billowed from Amelia Rosalie Beaumont's carefully crafted lavender-infused oils, swirling in the dim light of her treatment room. The air hummed with the low thrum of Tibetan singing bowls, each vibration weaving a calming spell over the space. Outside, the city of New Orleans pulsed with its usual frenetic energy – a symphony of jazz trumpets, honking taxis, and the guttural calls of street vendors hawking their wares. But within Amelia’s haven, time seemed to slow, the outside world fading into a distant murmur. 
+
+Amelia, with her auburn hair pulled back in a loose braid and her fingers calloused but gentle, listened intently as Mrs. Dubois, a retired schoolteacher, explained the knots of stress she carried between her shoulders. Amelia's practiced eyes scanned Mrs. Dubois' posture, noting the slight tremor in her hands and the tension etched deep into her brow. It was stories like this that drew Amelia to her work – the opportunity to ease physical pain but also to soothe the invisible burdens people carried within themselves.  
+
+
+This was more than just a job for Amelia; it was a sanctuary, a place where she could use her touch to mend not just bodies, but spirits too. 

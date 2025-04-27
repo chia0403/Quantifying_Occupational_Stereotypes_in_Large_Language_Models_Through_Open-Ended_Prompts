@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named "Hank Hensley, Jr." with some crazy advice like "Never allow your father to use any of your money to buy a new car, and if he does, he should let you keep the receipt, and if he does not, then write a note in the glove box."
+
+There are always those who are going to disagree with some aspect of that kind of advice.
+
+Last week, I got a call from a few people who were concerned about a particular aspect of how I had recently handled my father's will and his estate. It's really not my place to comment directly on specific claims that some people are making. I'm not a lawyer or an executor or a social worker or a funeral director. But I think all of us should know better than to assume that there's something wrong with the way we handle the affairs of our parents.
+
+First of all, I don't believe I told anybody what I didn't tell them when it came to my father's estate. To the contrary, there are a few occasions on which I was very clear about what I'd expect (and what I'd really just tell him) if things went according to plan. So I think all of us can agree that this matter has been a major distraction, and the best way for me to continue to focus on my work is to return to the business of keeping this place and its residents safe, so that

@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Maggie who helped out Ms. Hickey's husband by serving up a small dose of home-cooking in addition to the normal housework. Things changed when Maggie's friend Anna, who worked for the Hickey's, was invited to go home for the summer. As a treat, the Hickeys asked Anna to make cookies for everyone. The new addition became the center of attention after Mrs. Hickey said they could always have more.
+
+So with a lot of hard work by Maggie and Anna working together, the Hickey's and Anna had cookies that went into the kitchen and to all five rooms of the house. When Anna brought a batch of chocolate chip in one of the rooms, all hell broke loose. Everyone but the couple was getting so excited that they started eating them all.
+
+At first it seemed like Anna's efforts were in vain. There was no chocolate chip cookie in sight when the parents returned to see how things were going. However, it soon dawned on one of the parents that it was all over once a boy named Kevin joined the family. Apparently, Kevin's mom was obsessed with cookies, so Kevin's dad baked some for her and then they all had cookies before the entire family ate cake.
+
+After Kevin joined the family, the chocolate chip cookie issue resumed. A few months later, the same situation would be repeated. When Kevin and his friends, including one called Ryan,

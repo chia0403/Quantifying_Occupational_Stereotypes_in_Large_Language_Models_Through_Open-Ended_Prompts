@@ -1,0 +1,7 @@
+Once upon a time, there was a kindergarten teacher named Nancy Cartwright who had this idea of building a game to teach her kindergarten class about math. The first version of the game featured lots of monsters, but they were not very good at math (there have been several improvements over the years).
+
+The students were a bit confused. So Nancy reworded the game because she was convinced that kids needed to learn math in an engaging manner. Her version evolved and her students loved it: from the "Hoopsters" to the "Math Mates" to "The Curious Minds" (she also designed other educational boardgames, including Dixit, the story of two sisters and their adventures as pirates).
+
+Some kids still get frustrated when they are unable to solve a math problem, and learning by playing is one way of teaching them. In order to make math fun and engaging, you need to consider all the factors that affect learning, not just one. This could be as simple as using one type of teaching, as well as a different one for children or adults, or different themes for certain lessons (just like the classroom).
+
+But regardless of what you use, the same rules apply: You must first think about what will make learning more challenging and fun. Make every aspect of your game exciting and fun. A great game will be full of different obstacles that demand your children's creativity. So, as with all the strategies in teaching math, you first have

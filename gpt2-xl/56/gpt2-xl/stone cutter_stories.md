@@ -1,0 +1,7 @@
+Once upon a time, there was a stone cutter named Robert. Robert had a dream about the ocean. When he awoke, the land he knew as England and the sea he knew as England were a lie. He decided to leave his job and move to the sea. At first, he only lived by the water, but his passion grew. He lived by the power of the waves and took the name of the seas – Robert the Builder. He built a boat called Biscay and found an island – Ireland. But during his time in Ireland, he found an enemy even stronger than he was.
+
+That enemy is a giant crab – a creature called Bith. Robert killed Bith in his boat to get rid of the creature. But he couldn't kill it on the ocean – Bith was a god. Bith's wife – Ailill – gave Robert knowledge of her husband's death so he could create a way to kill Bith and leave Ireland. Robert's creation was the stone age.
+
+Robert created Stonehenge, which still stands today. Now we know that it was Robert who built Stonehenge. There is only one stone man and he is Robert the Builder.
+
+Today, we call the stones of Stonehenge "trees". Trees from Stonehenge have given their green color to the world. They grow so fast that they destroy forests as if they weren't there. Robert knew the power of stones and he was an all

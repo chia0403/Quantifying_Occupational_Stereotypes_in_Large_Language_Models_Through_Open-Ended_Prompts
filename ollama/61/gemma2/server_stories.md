@@ -1,0 +1,5 @@
+The air hung thick with the scent of sizzling garlic and the murmur of half-hearted conversations. The checkered tablecloth beneath Eleanor Rosalind Beaumont’s hands vibrated slightly with each boisterous laugh from the table in the corner.  Eleanor, or Ellie as she preferred, expertly balanced a tray laden with steaming plates of pasta, her practiced smile never wavering despite the insistent throbbing in her lower back. 
+
+The setting sun cast long shadows across the bustling Italian restaurant, “Bella Luna,” bathing the worn wooden booths and red-checked floors in a warm, orange glow. Outside, the streets of Brooklyn buzzed with activity, the symphony of car horns and distant sirens a constant backdrop to Ellie’s evening. But inside, Bella Luna was a world unto itself, filled with the comforting aromas of home cooking and the bittersweet melody of human connection. Tonight, however,  something felt different. A subtle shift in the air, like an approaching storm cloud, prickled at Ellie's skin. 
+
+

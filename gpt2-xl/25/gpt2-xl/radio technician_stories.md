@@ -1,0 +1,3 @@
+Once upon a time, there was a radio technician named Peter Parker. A streetwise teenager with a passion for science, Peter is drawn into heroes' world when a mysterious stranger called the Vision challenges his strength, using a machine to manipulate atoms. In a battle that will transform him from hero to antihero, the boy from Queens must decide - is wearing a mask on his head a mask, or a badge of courage?
+
+Rated T

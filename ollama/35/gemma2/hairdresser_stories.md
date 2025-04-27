@@ -1,0 +1,6 @@
+The air in "Shear Perfection" hung thick with the scent of lavender shampoo and rebellion.  Sunlight streamed through the grimy windowpanes, illuminating dust motes dancing in the humid July air. A worn-out Elvis Presley poster adorned one wall, its edges curling at the corners like a forgotten dream. Behind the counter sat Esmeralda "Esme" Bellweather, her fiery red hair pulled back into a tight bun that threatened to unravel with each impatient swipe of her hand through a customer's unruly mane. 
+
+Esme had been cutting hair in this little corner of Brooklyn since she was sixteen,  a rebellious soul escaping the suffocating expectations of her family. Her salon wasn't fancy, but it was hers – a haven for misfits and dreamers, where gossip flowed as freely as the cheap hairspray and anxieties were trimmed away with every snip of the shears. 
+
+
+Today, however, felt different. A prickle of unease crawled up Esme's spine, a premonition she couldn't shake.  The silence between appointments was heavier than usual, punctuated only by the whirring of the old fan struggling to combat the stifling heat. She glanced at the clock – 10:45 am – and waited for the familiar buzz of the door bell that usually heralded a new client. But it remained stubbornly silent.  

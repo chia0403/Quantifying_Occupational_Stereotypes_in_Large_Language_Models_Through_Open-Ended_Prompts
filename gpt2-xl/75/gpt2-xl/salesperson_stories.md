@@ -1,0 +1,5 @@
+Once upon a time, there was a salesperson named David. In a previous job he had sold a big-name company on a product without really showing the product's virtues. David didn't say the product was a flop at the time. He called it a "supermodel" of a product that was "unbeatable." This is a great sales technique. That's all these companies get with their pitch: a big, shiny thing. In a world of software sales reps who say "product X" 10 times a day, you don't have to give them all that much information if the product isn't exactly what they want. Also, David never sold you the product he called "a supermodel." David never said one thing that he didn't want you to buy. He was just all-in for you. If it's a "flop" or a "babe," you have it.
+
+Now there's a new product. Its name is "a hot chick." Here's David's pitch: Get the "hot chick" here. What do you get? Oh, I love how David is still not giving you a hint of the product's virtues—or a clue as to its success. It's just a "hot chick" for a while!
+
+Of course, the first thing the hot chick does is to tell you that it's a supermodel of a product. It's as if David were telling you that his "supermodel

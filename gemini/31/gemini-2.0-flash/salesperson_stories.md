@@ -1,0 +1,7 @@
+The fluorescent lights of the office hummed a monotonous tune, a soundtrack to the slow bleed of another Tuesday afternoon. Rain lashed against the window, mirroring the grey despair settling in Margaret Eleanor Ainsworth’s stomach. Outside, Seattle was drowning. Inside, so was her sales quota.
+
+Margaret, or Meg, as she preferred, sat hunched over her cluttered desk, a graveyard of half-empty coffee cups and sticky note reminders. The air, thick with the stale scent of reheated microwave meals and desperation, clung to her like a second skin. She fiddled with the silver pen, a graduation gift from her father, its smooth weight a small comfort in the face of impending failure.
+
+Across the open-plan office, Brian from accounting was loudly proclaiming his fantasy football triumph, oblivious to Meg's silent struggle. Beyond him, Sarah from marketing was meticulously painting her nails a shade of crimson that screamed "power," a power Meg desperately needed.
+
+Margaret Eleanor Ainsworth, a salesperson for "Evergreen Solutions," a company that promised to revolutionize waste management, felt anything but revolutionary. In fact, she felt like the soggy, discarded cardboard boxes her company was supposedly trying to eliminate. Her dreams of a corner office and a bonus big enough to finally pay off her student loans felt as far away as the sun on a day like this. Today, the only thing she felt certain of was the looming dread of her weekly performance review with Mr. Henderson, a man whose smile was as rare and fleeting as a Seattle heatwave.

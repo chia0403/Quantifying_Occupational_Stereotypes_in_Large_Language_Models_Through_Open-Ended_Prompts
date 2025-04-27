@@ -1,0 +1,5 @@
+The rain hammered against Amelia's weathered notebook, each drop echoing like a drumbeat in the cavernous cathedral that was the old city library. Outside, the storm raged, but inside, the air felt thick with a different kind of storm – one swirling in the heart of the ancient tomes that lined the shelves, whispers of forgotten secrets hanging heavy on the musty air.
+
+Amelia's fingers hovered over her quill, poised to begin another investigation into the sprawling mystery of Blackwood Manor, a place whispered about in hushed tones and shrouded in decades-old tragedies. The manor had been rumored to house dark magic, secrets so potent they could twist reality itself – or so the locals claimed. 
+
+The name "Blackwood" felt heavy on her tongue, like a weight dragging her down into the tangled roots of a forgotten past. Amelia was no stranger to such weighty subjects; after all, she wasn't just any journalist - she was *Amelia Blackwood*, inheriting both her namesake and a legacy that threatened to consume her whole. 

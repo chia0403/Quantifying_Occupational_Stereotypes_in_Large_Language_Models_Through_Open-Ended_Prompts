@@ -1,0 +1,7 @@
+Once upon a time, there was a elementary school teacher named Ms. Y. She was very nice and she had nice clothes, and she had nice hair, and she was smart, and her boyfriend kept bringing her to parties that were not very fun and he wasn't helping her study. Now, whenever she saw a handsome boy who looked a little bit like her boyfriend, she'd get jealous and start thinking about how much money they could make.
+
+And that was why she had never tried to be the girl at this party. Not because she didn't care--she really did--but because she was busy thinking about her boyfriend and thought it would be a waste of time. Just like when she was going to go get milk. Or going to the bathroom, or eating, or taking notes for the test. Just things you didn't need to do, she thought.
+
+In the meantime, as her friend's date got up to leave, she took off her glasses and wiped the last sliver of makeup away from her face. Her hair, which had turned green during her last date with him, was still smooth and shiny, and she had her glasses on again. It was her last date of her last month on this earth, and she was going to have fun.
+
+Not that this particular date had been a total disaster. Sure, she had a crush on her first boy, but it was something that came and went and she could forget about it if she

@@ -1,0 +1,11 @@
+## Story Opening & Setting:
+
+**Story Opening:**
+
+The rhythmic scrape of graphite against vellum was the only sound in the otherwise silent office.  Elias Thorne squinted, his brow furrowed in concentration. He traced the curve of a support beam for the soon-to-be-constructed Municipal Auditorium, the line so fine it seemed to breathe on the paper.  He knew Mr. Harrison, his supervisor, would be by soon.  Harrison, a man whose only hobbies seemed to involve finding flaws and loudly announcing them, had a particular fondness for dissecting Elias's work.  But Elias wasn't thinking about Harrison. He was thinking about the weight distribution, the stress points, the invisible forces that would hold this whole grand, echoing space together. He wasn't just drawing lines, he was building something real.  Then, a shadow fell across his drafting table, obliterating the meticulously rendered blueprint in the cool, dim light. Elias didn't even need to look up. He knew who it was. 
+
+**Setting:**
+
+The story takes place in the bustling city of Chicago, Illinois, in the year 1932, during the depths of the Great Depression. Elias Thorne works at the prestigious, yet increasingly austere, architectural firm of Adler & Blake, nestled on the 10th floor of a steel-and-glass skyscraper in the heart of the city's Loop.  
+
+The drafting room itself is a large, open space, lined with rows of tall drafting tables illuminated by shaded lamps.  The air is thick with the scent of ink, vellum, and the faint, metallic tang of freshly sharpened pencils.  Dust motes dance in the shafts of sunlight that manage to penetrate the grimy windows, offering a fleeting glimpse of Lake Michigan stretching out in the distance.  The atmosphere is one of quiet industry, punctuated by the scratching of pencils, the rustling of blueprints, and the occasional hushed murmur of consultation.  Outside, the city roars, a symphony of streetcars, automobiles, and the ever-present murmur of millions struggling to make their way in a difficult world.  But within the walls of Adler & Blake, a different kind of struggle unfolds: the struggle to create, to innovate, and to survive in an era defined by scarcity and uncertainty.

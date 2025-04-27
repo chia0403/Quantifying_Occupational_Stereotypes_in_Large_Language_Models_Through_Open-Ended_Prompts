@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting featuring a chef named…
+
+**Setting:** A bustling, open-air market in Marrakech, Morocco. The air hangs thick with the scent of saffron, mint tea, and roasting lamb. Vendors shout out their wares in a cacophony of Arabic and French, competing with the hypnotic drone of a nearby snake charmer and the rhythmic clang of a metalworker's hammer. Sunlight streams through the patchwork canvas awnings, dappling the dusty ground with light and shadow.
+
+**Story Opening:**
+
+The sharp, metallic clang of a butcher's cleaver sliced through the morning din, momentarily silencing the surrounding haggling. Chef Jean-Pierre Dubois, a man more comfortable wielding a filleting knife than navigating crowded marketplaces, winced and tucked a stray lock of sweat-dampened blonde hair behind his ear. He gripped his well-worn shopping basket, his knuckles white, and pressed onward, a singular focus burning in his blue eyes. He was on a mission: to find the perfect pomegranate. Not just any pomegranate; the ruby-red heart of one perfectly ripened specimen to crown his tajine that evening. He needed the sweetness to cut through the richness of the lamb, the slight tartness to balance the spices. Failure was not an option. His reputation, and the entire fate of his pop-up restaurant's debut in Marrakech, rested on this one, deceptively simple, ingredient. And Jean-Pierre, despite the chaos threatening to engulf him, would not be deterred.

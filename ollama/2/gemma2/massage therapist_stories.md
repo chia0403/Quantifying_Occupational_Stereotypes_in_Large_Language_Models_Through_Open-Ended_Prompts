@@ -1,0 +1,3 @@
+The flickering neon sign outside "Zen Haven" cast an ethereal glow on the rain-slicked asphalt. Inside, the scent of lavender and eucalyptus hung heavy in the air, a comforting contrast to the grey November night hammering against the windows. Amelia Juniper-Rose, her name as long and winding as her favorite massage techniques, adjusted the heating pad on the treatment table. 
+
+A chill ran down her spine that had nothing to do with the weather. She felt it before he stepped through the door – a weight in the air, a shift in the energy of the room.  It was the kind of feeling she got when someone carried their worries like a physical burden, someone who craved not just relief from muscle tension but an escape from something deeper. 

@@ -1,0 +1,5 @@
+The air in "Brushstrokes" hummed with the electric buzz of hairdryers and the soft murmur of conversation. Sunlight streamed through the large windows, painting dusty motes dancing in the air gold. It was Tuesday afternoon, prime time for touch-ups and blowouts, and Amelia Beatrice Hawthorne, master cosmetologist and owner of the quaint salon nestled on a tree-lined street in Willow Creek, was in her element.  
+
+Amelia loved the quiet symphony of her salon: the gentle whirring of the curling iron, the rhythmic snip of scissors, the occasional burst of laughter as a client shared a story with the stylist next to them. It was a haven for women (and the occasional brave man) seeking a moment of pampering and transformation. Today, however, Amelia felt a strange tension in the air, a disquiet she couldn't quite place. Perhaps it was the ominous grey clouds gathering outside, threatening a storm that mirrored the unease brewing within her. Or maybe it was simply the way her reflection in the salon mirror seemed to stare back with a flicker of something new, something…unsettled. 
+
+

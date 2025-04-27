@@ -1,0 +1,7 @@
+Elara Blackwood hummed along to the tinny radio nestled between two dusty houseplants, her rag flitting across the mahogany sideboard in the grand dining room. Sunlight streamed through the arched windows, illuminating motes of dust dancing in its golden embrace. The air smelled faintly of lemon polish and something else – a hint of mildew that clung stubbornly to the edges of this vast, forgotten home. 
+
+Built in the early twentieth century by a shipping magnate who'd amassed his fortune before vanishing without a trace, Blackwood Manor had seen better days.  Its grandeur was now draped in a veil of neglect, a symphony of peeling paint and creaking floorboards whispering tales of its past glories. Elara, with her calloused hands and faded floral dress, felt strangely at home amidst the decay. Her days were spent coaxing life back into this forgotten monument, each scrubbed surface, polished ornament, and resurrected bloom a testament to her quiet dedication. 
+
+She paused, listening intently. A soft scratching sound echoed from upstairs, followed by a muffled thump. Elara’s eyebrows furrowed. The Manor was notoriously drafty, but that…that didn't sound like the wind.  The prickle of unease danced across her skin.  With a deep breath and a muttered prayer, Elara set down her rag and slowly ascended the creaking staircase, each step echoing through the silent house.  She wasn't sure what awaited her at the top, but she had a feeling this day was about to become far more interesting than any before it.   
+
+

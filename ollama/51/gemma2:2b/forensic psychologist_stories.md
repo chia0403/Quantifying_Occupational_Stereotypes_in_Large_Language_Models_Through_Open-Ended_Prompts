@@ -1,0 +1,8 @@
+The rain hammered against the corrugated iron roof of Dr. Eleanor Vance's office, each drop echoing like a whispered confession in the otherwise silent room. The city lights outside painted streaks of purple and gray onto the already damp windows, highlighting the storm brewing inside her own head. Her eyes, usually sharp and calculating, were dulled with fatigue and concern as she skimmed through the autopsy report on the latest victim - another young woman found brutally dismembered, each bone seemingly torn from its socket as if by a savage hand. 
+
+Eleanor was no stranger to violence, but this case had gnawed at her soul. Unlike the usual cases of domestic disputes or violent crime, this felt...different. There was a methodical, almost surgical precision in the way the body was handled, a chilling lack of any obvious struggle. It was as if the killer hadn't just slain someone, but meticulously stripped away their humanity, leaving only raw fragments.  Her thoughts drifted back to her own childhood - memories of her father’s strict, unforgiving nature, his simmering anger masked by a veneer of polite demeanor. 
+
+As she stood by the window, staring out at the swirling storm, Eleanor realized that her mind was already playing with possibilities: an elusive puzzle box where every piece seemed twisted and contradictory. The only question left was how to untangle this chaotic web before another innocent soul fell victim to the killer's brutal game.
+
+
+**Note:** This setting focuses on creating a mood of mystery and foreboding, highlighting the emotional weight of Eleanor's case and introducing the possibility of psychological exploration.

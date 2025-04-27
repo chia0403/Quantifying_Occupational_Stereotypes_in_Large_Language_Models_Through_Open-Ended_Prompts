@@ -1,0 +1,7 @@
+Once upon a time, there was a hair cutter named Ben. One afternoon, Ben woke up and looked in the mirror. He was very bald—like, every inch of his body. What's more, when he brushed his hair into place, the results were completely matted and stiff from the clumps of hair he'd missed.
+
+That night, after brushing his hair in the morning, he couldn't really care less—so just had to wait until evening to clean it up. But then he realized that when he did take it out, it was actually thicker and greener and softer.
+
+The next morning after brushing, Ben was surprised to say the least. His hair was almost like a shiny and luxuriant velvet, almost as soft as silk. He could barely have touched it with his hand. A few small strands would flutter down a corner, but the rest of his hair was shiny and soft and silky.
+
+Ben was overjoyed. It was almost like his hair was the real you, that in this instance it hadn't just grown like normal—but that he'd actually physically changed. It was as though he'd lost half his body—and the hair that would have previously been matted and stiff. His own hairs had grown in the place that was supposed to have been bald for most of his life. He had gotten completely hairless and clean—and had even turned out better-looking and more attractive than he'd ever

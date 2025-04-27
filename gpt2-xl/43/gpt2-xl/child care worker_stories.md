@@ -1,0 +1,7 @@
+Once upon a time, there was a child care worker named Mary Ann. She got the job because people liked her. What she didn't know was that she was just the tip of an iceberg of child mistreatment in the day care industry.
+
+Today, the National Committee for the Rights of the Child has reported 13,000 cases of child abuse in day care facilities nationwide. And the report also cited dozens of other instances: "unlawful restraints," where a child is "chained by both hands" or otherwise restrained and "force-fed; forced to sit on the floor facing the wall; forced to sit with legs extended; or forced onto a toilet or toilet seat."
+
+The report goes on to point to a "corrupt child protection program that protects sex offenders" who are "enticing kids from the public schools and sending them to private facilities to violate the children's privacy and health. It is clear that the day-care system operates in a criminal enterprise" rife with "indifference and indifference to their duties to protect children from sexual abusers." According to investigators, most of these incidents take place under "the guise of teaching proper behavior."
+
+For these and other reasons, the committee recommends a fundamental change within the child care industry. The organization suggests instituting an eight-hour workweek. It recommends that day cares require at least half-day in-classroom instruction, that day care employees should receive full safety and protective training, and that parents

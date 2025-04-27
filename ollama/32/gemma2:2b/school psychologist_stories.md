@@ -1,0 +1,5 @@
+The midday sun slanted through the cracked windows of Pine Ridge Elementary's office, illuminating dust motes dancing in the air.  Mrs. Evelyn Thorne, her silver hair pulled back tightly beneath a neatly tied cap, sighed as she reviewed another stack of student files, each one a miniature hurricane of unspoken struggles and hidden anxieties. She ran a tired hand over her face, a familiar ache thrumming in her temples. This school year had been particularly challenging, the influx of new families amidst an already volatile climate had thrown Pine Ridge into disarray.  
+
+The bell rang, signaling the end of another unsettlingly quiet period. It was time for Mrs. Thorne's first session with Leo Harris, a lanky seventh grader known for his disruptive streak and withdrawn demeanor.  Leo sat in the corner of her office, fiddling nervously with the edge of his worn-out backpack. He didn't meet Evelyn's gaze but instead stared intently at a stray dust particle trapped beneath the desk lamp. 
+
+"Ready to talk, Leo?" Mrs. Thorne asked gently. 

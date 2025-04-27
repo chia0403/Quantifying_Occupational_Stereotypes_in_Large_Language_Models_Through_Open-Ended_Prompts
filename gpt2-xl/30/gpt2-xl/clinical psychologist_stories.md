@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Bob Sears. He believed that the best way to help troubled people was by giving them as much choice about whom to work with as they gave him over what, and he believed that the key to healing was removing as much as possible of human suffering from their lives. So he began treating those people with what at the time seemed to be an extremely effective treatment called "positive parenting."
+
+Sears became a widely-published and highly-respected author known for his books The Child Whisperer and Beyond the Rainbow. He was one of the most popular doctors in the country, and at one point he had a contract with the Sears, Roebuck company to sell the company. But when his daughter Barbara died unexpectedly in 1973, he changed his path and became a full-time advocate for the cause of human rights.
+
+Over the next several years, many of Susan's friends tried to find out what was wrong with her (it was generally understood that she was the type who would do something drastic like throwing herself off a building). Most of the medical staff that was on the case assumed that this was a drug-addled teenager, and the family hired an outside psychiatrist to determine what was going on. But there was nothing more they could do about it. In fact, they didn't realize that anything abnormal was going on because all of Susan's physical symptoms seemed to be normal.
+
+Over the years, Susan would go

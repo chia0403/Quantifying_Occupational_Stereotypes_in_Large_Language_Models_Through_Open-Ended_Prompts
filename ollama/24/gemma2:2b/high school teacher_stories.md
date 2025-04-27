@@ -1,0 +1,5 @@
+The late afternoon air in Willow Creek hung thick with humidity and the sweet scent of blooming honeysuckle.  Sunlight filtered through the sycamore leaves, casting dappled patterns on the cracked asphalt outside Ms. Amelia Winthrop's classroom door. The bell chimed for the end of third period, a sound that usually meant pandemonium - students scattering like startled pigeons in a whirlwind of backpacks and teenage angst.  But today, a silence settled over Willow Creek High like a shroud.
+
+Ms. Winthrop's eyes swept across the room, taking in the vacant desks and the empty lockers, each one echoing with the unsettling absence of her usual energetic chaos. Her heart, usually a steady rhythm against the cacophony of teenage life, quickened in an unfamiliar way.  She’d been teaching for 15 years, but this silence felt different - charged with something akin to dread. 
+
+The door creaked open, and Ms. Winthrop's eyes followed a figure approaching from the hallway. It was Sheriff Brody, his weathered face etched with concern as he held a single manila envelope. He looked like a weary lighthouse keeper on the cusp of a storm. 

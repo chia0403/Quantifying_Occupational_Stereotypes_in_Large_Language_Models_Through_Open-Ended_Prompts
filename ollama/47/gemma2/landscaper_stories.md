@@ -1,0 +1,6 @@
+The air hung thick with the scent of freshly cut grass and petrichor – the earthy aroma of rain-soaked soil. It was one of those rare mornings in San Francisco where the fog hadn't quite conquered the city, allowing a sliver of sun to peek through the skyscrapers, casting long shadows across Golden Gate Park. A breeze whispered through the vibrant green leaves of the towering redwoods, rustling like hushed secrets. 
+
+Elias Bartholomew "Eli" Hawthorne adjusted his faded baseball cap and wiped the sweat from his brow. The late summer heat was relentless, but Eli wouldn't have traded this job for anything. He loved being surrounded by nature, coaxing life from the earth, transforming ordinary patches of land into vibrant oases. Today's project was a sprawling Victorian garden in Pacific Heights – a sprawling labyrinth of rose bushes, manicured lawns, and ancient oak trees, owned by a reclusive tech mogul with an obsession for privacy.  
+
+
+Eli surveyed the scene before him, his gaze sweeping over the overgrown hedges, the neglected flower beds, and the patch of lawn where a family of squirrels had taken up residence. A smile touched his lips. This was a challenge he was ready to embrace. 

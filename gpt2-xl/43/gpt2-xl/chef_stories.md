@@ -1,0 +1,5 @@
+Once upon a time, there was a chef named Kenji Kosaka who ran a place called the Kenji Food & Spirits in the Sakaizawa neighborhood in Chiba Prefecture. Since this was in the 1960s, we can't really pinpoint how old it must be, but it looks like it's well maintained in the photos. They have the classic sushi-bar vibe with wooden bar stools and booths, and you can even get sake and wine here. If you're looking for something a little more up their own alley, Chef Kenji serves dishes of kamaboko, an old-school style fish used in Japanese cuisine, in the sushi bar. So if you ever want to try sushi, come by.
+
+Hiroshima's most famous restaurant has since closed, but you can still get kaki-e, or kaki-e noodles with a spicy soy sauce sauce mixture for an extra dash of flavor, at the nearby Minato-dori. If you're feeling an adventurous cook, head to Kyuoto to have a look at a tiny and unassuming kanko-yakiniku, a small-scale restaurant that serves a variety of local specialties.
+
+Kyushu is home to the best dango in the entire world. If you're in the area, visit Tokoyo, whose name literally means "Kun" in Japanese. This small shop, where dango is made, is located on the

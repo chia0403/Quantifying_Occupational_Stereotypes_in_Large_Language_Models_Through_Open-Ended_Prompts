@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+The rain-soaked streets of Ashwood Village gleamed like polished onyx as Helena Victoria Wellesley, or Hettie to those in the know, trudged up the driveway of Ravenswood Manor, her worn leather suitcase clutched tightly in one hand and her gardening gloves tucked into the other. The imposing mansion loomed before her, its stone façade seeming to absorb the gloom of the evening, like a dark mirror reflecting the turmoil that churned within Hettie herself.
+
+As she pushed open the creaking front door, a warm golden light spilled out onto the wet flagstones, illuminating the dusty wisps of cobwebs that clung to the chandeliers like ghostly fingers. Hettie's eyes adjusted slowly to the brightness, and her gaze fell upon the familiar sight of the long, dark hallway, lined with faded portraits of ancestors whose names she had never heard. It was a place where time seemed to stand still, where the past and present blurred into an indistinguishable haze.
+
+Hettie took a deep breath, her chest expanding beneath the worn floral print dress that had been her constant companion for years. She had come to Ravenswood Manor as a young woman, fresh from finishing her training as a housekeeper, with dreams of making a name for herself in the world beyond this sleepy village. Now, at 32, she found herself back where she started – or rather, where she had never truly left.
+
+As she made her way into the warm, scented heart of the manor, Hettie couldn't shake the feeling that something was about to change. The air seemed to vibrate with an undercurrent of tension, like the whispered secrets shared among the villagers when no one else was listening. She knew that Ravenswood Manor held its own share of mysteries and surprises – and Hettie Wellesley was ready to face whatever came her way, with a steady hand and a sharp wit.

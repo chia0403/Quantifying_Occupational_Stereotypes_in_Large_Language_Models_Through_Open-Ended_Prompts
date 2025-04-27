@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named John who knew his way around the law. Once upon a time, there were two Johns, they had two sons, one of whom was named John. John liked to use his family name when communicating but when he heard about the new accountant that was coming to the town, he decided he would keep his family name for a while longer. One day, John came running into the law office with a letter in front of him. This was an invoice from a new business that needed John's business' services and John would be required to deliver an additional package of items. John quickly wrote the invoice for the additional package and said "Here is the invoice. John".
+
+He ran in to his business partners and said "Oh, how much has that cost? $20,000? $50,000 in total?" And he said "No, John! Please, I'm sorry. I didn't realize that you would want me to deliver these packages. Is it OK now? Is there anything else I can do for you?".
+
+And the partners said "No, no, if it's alright with you then please be our new John. We will have you do whatever we say and we will let you know what is required of you at the end of the contract".
+
+So John signed the contract with the new accountant but he could not deliver the packages because he didn't have enough time in that brief time with the

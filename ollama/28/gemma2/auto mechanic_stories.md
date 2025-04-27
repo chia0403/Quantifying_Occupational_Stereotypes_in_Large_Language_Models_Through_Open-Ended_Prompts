@@ -1,0 +1,6 @@
+The smell of burnt oil and ozone clung to Elias Thorne like a second skin. Grease stained his forearms in intricate patterns, a roadmap of the countless engines he'd wrestled with over his thirty years as a mechanic at Thorne’s Auto Repair. 
+
+His shop sat on the edge of Harmony Ridge, a forgotten town nestled in the foothills of the Appalachian Mountains. The once bustling hub had dwindled to a handful of weathered houses and businesses clinging to life like wildflowers on a barren hillside.  Elias's garage, with its faded neon sign flickering erratically above the dusty window, was one such survivor.  Inside, tools hung from pegboards, engine parts lay strewn across workbenches, and the air hummed with the low drone of machinery.  A radio crackled in the corner, spewing out country music that Elias barely registered anymore. He was too focused on the sputtering four-cylinder engine before him, its rhythmic cough a puzzle he needed to solve. 
+
+
+Harmony Ridge held its secrets close, and Elias, despite his years, still felt like an outsider, never truly belonging. But there was something about this town, something in the stubborn resilience of its inhabitants and the raw beauty of its surroundings that kept him tethered. 

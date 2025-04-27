@@ -1,0 +1,7 @@
+Once upon a time, there was a heavy equipment operator named Joe who made a living by building a wood-framed store on the ground floor of an older building next to the school fieldhouse. His work was never the same after he discovered a mysterious, invisible object about 15 feet above him. The object weighed about eight pounds, and it had a large circular opening just above its tip. Joe later claimed to have seen the object's tail at the rear of the object, so it might have been an upside-down car or truck. The object moved in a narrow ellipse, moving toward the ground very slowly in a circular pattern.
+
+The "whistling noise" was audible, however, and Joe's co-workers described the object as having "an eerie humming sound... a steady vibration, slightly like an air conditioner," and "the sound was so faint that you could almost hear it without getting a stereo system."
+
+The first documented sighting of UFOs took place in 1919, when a pilot named John J. Young (later in life the only United States citizen to ever have become an astronaut) sighted a huge, "triangular" object flying very fast over the lake near his home in Chicago. The pilots estimated the object to be about five miles in diameter and hovering ten feet above the lake.
+
+This "UFO" was most likely an oil slicks from the nearby "Big Lake" oil field and was probably a cloud

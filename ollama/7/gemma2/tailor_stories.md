@@ -1,0 +1,5 @@
+The air in Elias Bartholomew Finch's workshop hung thick with the scent of cedarwood and fresh linen. Sunlight slanted through dusty panes, illuminating motes of dust dancing around him as he meticulously stitched a crimson lining onto a silk doublet. Outside, London throbbed with its usual cacophony: hawkers shouting their wares, carriages rumbling over cobblestones, laughter spilling from tavern doors. But within the confines of his shop on Spittlefields Market, Elias found solace in the quiet rustle of fabric and the rhythmic click of his shears. 
+
+Elias wasn't just any tailor; he was a craftsman of exquisite skill, renowned for his ability to conjure garments that seemed to breathe with life, each stitch telling a story, each fold whispering elegance. His clientele ranged from wealthy merchants to struggling actors, all drawn to his keen eye for detail and his uncanny knack for understanding the soul of a person through their clothing. Today, however, Elias wasn't working on a commission for some noble lord or aspiring stage performer.  He was creating something entirely different – something born out of desperation and driven by an unspoken promise. 
+
+

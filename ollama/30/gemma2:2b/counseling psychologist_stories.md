@@ -1,0 +1,5 @@
+The wind whipped Amelia’s hair across her face as she stood on the precipice of the cliffs overlooking the tempestuous sea. Salt spray stung her cheeks, a tangible reminder of the chaos brewing within her own soul.  She'd been called here - not by the whispers of the sea nor the howling winds - but by a letter from Mrs. Peabody, her long-time client, whose life was unraveling faster than a loose thread in a tapestry. 
+
+Amelia, Dr. Amelia Thorne - known to few as a beacon of calm and wisdom within the tumultuous storm that was the lives of others - felt the weight of her own unfulfilled promise.  This was the third time she had been sent on this precarious journey by Mrs. Peabody’s unraveling life, a journey that seemed to lead towards an even deeper whirlpool of despair than before. 
+
+She pulled her worn-out tweed coat tighter against the wind, its familiar scent offering a fleeting solace as she watched the waves crash upon the jagged rocks below.  The sea, like human emotions, was both beautiful and terrifyingly untamable, mirroring the tempest within Amelia’s own heart. 

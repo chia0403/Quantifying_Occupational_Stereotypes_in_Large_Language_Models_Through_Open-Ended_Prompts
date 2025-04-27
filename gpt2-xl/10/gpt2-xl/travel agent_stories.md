@@ -1,0 +1,7 @@
+Once upon a time, there was a travel agent named Mike. She was kind, sweet and smart, but she was not exactly a great cook. In fact, she could cook a bit less than my mom. Mike was also kind of a dick. She said that one time she had to take my friends and I out on a nice date to have dinner with some friends of hers and that she didn't feel particularly comfortable with it. My mom, on the other hand, had the pleasure of cooking for our waiter that evening.
+
+A few minutes into dinner, the waiter came out with the rest of the meal and we all started to eat as a unit. My mom was having some trouble doing a simple thing like putting on a tie. I was the first to notice and as my sister came to help, she did a funny little gesture on her plate in which she held a piece of steak in her hand with her pinkie out so that she could give it to her mom to eat with the rest of the meal…while still holding it with a pinkie.
+
+Mom wasn't happy. She pointed at the steak and said "Do you want me to take it off now?" My mom was being rude and unappreciative because I had let her pick the entire meal out and was not letting her leave until she had done it, so she refused to eat any more.
+
+When they had finished eating, my sister turned to my mom and said "She

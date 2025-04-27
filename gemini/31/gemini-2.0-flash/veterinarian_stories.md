@@ -1,0 +1,9 @@
+Okay, here's a story opening, including the setting and the full name of the main character, who is a veterinarian:
+
+**Opening:**
+
+The biting November wind clawed at the door of the clinic, rattling the "Open" sign like a desperate plea. Dr. Eleanor Rose Harding, a woman whose own face mirrored the windswept plains surrounding Havenwood, Montana, barely registered it. She was too engrossed in the tiny creature nestled in her hands: a shivering, mud-caked robin, its wing at an unnatural angle. Eleanor carefully palpated the delicate bones, her brow furrowed in concentration. A clean break. Not good. Outside, the first snowflakes of the season, fat and heavy, were beginning to fall, promising a winter that Havenwood residents knew would be long, unforgiving, and beautiful in its own harsh way.
+
+**Setting:**
+
+The story takes place in Havenwood, Montana. It's a small, isolated town nestled in a valley surrounded by rolling plains and the foothills of the Rocky Mountains. The population is primarily ranchers, farmers, and a scattering of retirees who sought the peace and quiet. The town's main street consists of a general store, a post office, a diner, and Eleanor's veterinary clinic, "Havenwood Animal Care." The clinic itself is a small, single-story building, painted a faded white with a cheerful red door. Inside, it's a cozy but functional space, smelling of disinfectant, dog biscuits, and a hint of something wilder - the lingering scent of horses or cattle, depending on Eleanor's last patient. The decor is simple: a few framed photos of Eleanor with various animals over the years, a corkboard covered with appointment reminders and local announcements, and a well-worn waiting room couch where nervous owners fidget while their pets receive care. The overall feel is one of practicality and genuine compassion, a reflection of Eleanor herself.

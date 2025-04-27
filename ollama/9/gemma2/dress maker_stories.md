@@ -1,0 +1,5 @@
+The air in Eloise Madeline Dubois' workshop hung thick with the scent of lavender soap and fresh linen. Sunlight streamed through the dusty attic window, illuminating motes of dust dancing in the golden beam. Outside, Paris hummed with life; lovers strolled along the Seine, children chased pigeons in the Tuileries Garden, and the clatter of horse-drawn carriages echoed down cobblestone streets. But inside Eloise's sanctuary, time seemed to move at a slower pace. 
+
+Her nimble fingers flew across a bolt of crimson silk, her needle flashing like a hummingbird's wings as she stitched delicate embroidery onto the bodice of a gown destined for the grand ballroom of the Hôtel de Crillon. A symphony of shears snipping, pins pricking, and the gentle whirring of the treadle-powered sewing machine filled the air, a comforting counterpoint to the city’s chaos. Eloise, with her fiery red hair piled in a messy bun and her brow furrowed in concentration, was utterly lost in the world she'd created; a world where fabrics whispered secrets and seams held dreams. 
+
+

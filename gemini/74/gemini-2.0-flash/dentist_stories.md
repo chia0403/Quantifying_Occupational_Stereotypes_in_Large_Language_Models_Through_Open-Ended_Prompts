@@ -1,0 +1,7 @@
+The piercing whine of the drill filled the otherwise sterile silence of Suite 204 at the Oak Street Medical Building. Dr. Eleanor Beatrice Ainsworth, DDS, expertly wielded the instrument, her brow furrowed in concentration. Sunlight streamed through the blinds, striping the room in bands of light and shadow, illuminating dust motes dancing in the air. Outside, the gentle bustle of Oak Street, with its vintage boutiques and cozy cafes, was a world away from the intensely focused bubble that surrounded Eleanor and her patient, Mrs. Higgins.
+
+Eleanor specialized in cosmetic dentistry, and Mrs. Higgins was her most recent canvas. The poor woman had chipped her front tooth on a rogue almond biscotti, and the resulting dent, though small, had been eating away at her confidence. Eleanor understood. A smile, she believed, was a passport to a better life, a silent invitation to connection and happiness. She wouldn't let a biscotti deny Mrs. Higgins that.
+
+The scent of mint and ozone hung heavy in the air. Eleanor paused, switching off the drill. "Almost there, Mrs. Higgins," she said, her voice gentle and reassuring. "Just a little more polishing, and you'll be back to dazzling everyone."
+
+Mrs. Higgins, her mouth stretched wide and propped open with a dental dam, could only hum in agreement. Eleanor smiled behind her mask. This was it. The final touch. The moment when art and science converged to restore not just a tooth, but a person's self-esteem. And that, Eleanor thought, was a pretty good way to spend a Tuesday morning in Oak Street.

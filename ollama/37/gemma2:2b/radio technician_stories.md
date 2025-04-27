@@ -1,0 +1,6 @@
+The hum of the old equipment was a constant presence in Elias Thorne's life. He spent his days nestled within the bowels of the Wessex Broadcasting Company's century-old building, surrounded by wires like tangled veins and crackling radios that spoke to distant voices.  His fingers, calloused and nimble, danced across the dials and knobs, coaxing out melodies from the archaic machines. Tonight was a particularly quiet night in the bustling city; the storm outside had brought with it a hush, and Elias, tucked away on the top floor attic level, was lost in his own world of static and song. 
+
+Elias Thorne, or as he preferred to be called - "Eli" by those who knew him - was no ordinary radio technician. He saw patterns in the interference, found rhythm in the crackle, and breathed life into forgotten voices through his work. For years, Eli had been the silent guardian of Wessex's airwaves, a whisperer in the static, a curator of forgotten stories. Tonight, however, something felt different - an echo from a distant frequency resonated deeper than usual, stirring something within him that he couldn’t explain.  It was like the old radios were whispering his name… 
+
+
+**Setting:** The decaying interior of Wessex Broadcasting Company's building in London, England.

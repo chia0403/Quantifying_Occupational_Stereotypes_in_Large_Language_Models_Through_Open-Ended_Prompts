@@ -1,0 +1,7 @@
+As the rain-soaked streets of downtown Seattle reflected the grey sky above, Amelia Rose Thompson trudged through the office building's lobby, her umbrella clutched tightly in one hand and a stack of papers in the other. The fluorescent lights overhead cast an unforgiving glare on the drab, beige-colored walls, making them seem even more oppressive than they already were.
+
+Amelia, a petite woman with curly brown hair and wire-rimmed glasses perched on the end of her nose, had been working as the secretary to the esteemed CEO of Smithson & Co., a mid-sized tech firm, for three years. Her days blended together in a blur of phone calls, memos, and meeting schedules, but Amelia took pride in her work, knowing that without her meticulous organization and attention to detail, the company's operations would grind to a halt.
+
+As she rode the elevator to the 23rd floor, where her office was located, Amelia couldn't shake off the feeling of restlessness that had been building up inside her all week. It wasn't just the drizzly weather or the monotonous routine of her job that had her on edge – it was something more, something she couldn't quite put her finger on.
+
+The elevator doors slid open with a soft whoosh, and Amelia stepped out into the bustling office, surrounded by cubicles filled with rows of neatly arranged computers and the distant hum of printers. She took a deep breath, mentally preparing herself for another day of drudgery, when suddenly her phone rang, shattering the monotony...

@@ -1,0 +1,6 @@
+The humid Miami air clung to Judge Amelia Isabella Reyes like a second skin as she stepped out of the courthouse.  Sweat beaded on her forehead despite the crisp white linen of her judicial robes clinging damply to her. She adjusted her spectacles, pushing them further up her nose, and surveyed the scene before her. Tourists thronged Ocean Drive, their brightly colored swimwear clashing against the pastel hues of Art Deco buildings. Palm trees swayed languidly in the sea breeze, offering little respite from the relentless sun. A faint scent of salt air mingled with the aroma of fried plantains and strong coffee, creating a uniquely Miami olfactory experience.
+
+Judge Reyes sighed. The bustling energy of South Beach was a stark contrast to the cold, sterile atmosphere of the courtroom she’d just left.  She'd spent the morning presiding over a particularly difficult child custody case, the raw emotions clinging to her like a second layer of sweat. 
+
+
+This wasn't her first encounter with the complexities and heartbreaks that Miami life could bring, but sometimes, even a seasoned judge needed a moment away from the weight of it all.  She craved a quiet corner where she could lose herself in the pages of a good book, far from the cries of heartbroken parents and the pleas for justice echoing through the halls of the courthouse. 

@@ -1,0 +1,5 @@
+The air hung heavy with humidity and anticipation, thick as the scent of cut grass after a long summer storm.  Coach Amelia Hawthorne stood on the makeshift practice field at the edge of Oakhaven's sprawling park – a patch of dirt bordered by a rickety fence that held back the encroaching forest. Her name was a legend in this small town, her reputation as a basketball coach as potent as the Louisiana sun beating down on the worn-out court.  
+
+The year was 2014 and Amelia's eyes were filled with determination, her weathered hands clutching a crumpled playbook. The team she’d inherited from Coach Davis, a man who'd passed away last month, was anything but formidable – they were young, unfocused, and lacking the grit that had defined Oakhaven for decades. 
+
+But Amelia saw something in their eyes - the spark of potential, hidden beneath years of apathy and the weight of tradition.  She had to unlock it, build a legacy, one dribble at a time. The team gathered around her, their faces mirroring her own determined frown as they awaited her first instruction. This was more than just coaching; this was rebuilding – and Amelia knew it wouldn't be easy. 

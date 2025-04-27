@@ -1,0 +1,5 @@
+The air in Miss Evangeline Winthrop's office hung thick with the cloying scent of lilac perfume and old ambition. Sunlight streamed through the dusty blinds, illuminating motes dancing in the air like fallen stars. Outside, the city throbbed with the energy of a million lives, but inside the pristine confines of the executive suite, time seemed to have ground to a halt. 
+
+Evangeline Winthrop, her perfectly manicured fingers tapping out a steady rhythm against her worn leather desk blotter, felt a familiar weight settle in her chest. It wasn't the responsibility that came with being Mr. Hawthorne's secretary – though she was accustomed to it. It was the suffocating expectation of the life she’d been thrust into at age 18, a life defined by silent servitude and an ever-present hunger for something more.  
+
+Miss Winthrop had never found solace in the opulent confines of her employer's penthouse, nor in the endless string of social events that Mr. Hawthorne orchestrated like clockwork. The world beyond his mahogany doors felt distant, as if she were trapped in a gilded cage with only the faintest sliver of hope for release. 

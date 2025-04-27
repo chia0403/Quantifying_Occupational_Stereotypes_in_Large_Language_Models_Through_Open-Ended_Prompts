@@ -1,0 +1,6 @@
+The air in Mrs. Evelyn Thistlewick's office was thick with the scent of stale coffee and teenage angst. Sunlight streamed through the dusty window, illuminating motes dancing in the stillness. A single potted fern, its fronds drooping sadly in the corner, seemed to mirror the state of the students who frequently found themselves within these walls. Outside, the bustling hallways of Bayview High School pulsed with the energy of youth – a cacophony of locker slams, hurried conversations, and the occasional snort of laughter. 
+
+Evelyn, her silver hair pulled back in a tight bun, sat behind her desk, patiently flipping through a file labelled "Johnson, Michael." Her glasses perched precariously on the bridge of her nose, she sighed. Michael was the third student today to express a desire to drop out. This wasn't unusual for Bayview – with its declining funding and overcrowded classrooms, many felt adrift, their dreams slipping away like sand through their fingers. Evelyn, however, refused to let them drown. 
+
+
+She believed in these kids, even when they didn't believe in themselves.  Even when the system seemed determined to crush their spirits, she would be their anchor, their lighthouse guiding them back to shore.  This was her mission, her calling – to help them find their way, one hesitant step at a time. 

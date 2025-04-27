@@ -1,0 +1,6 @@
+The salty air whipped Amelia Thistlewood's auburn hair across her face as she squinted at the churning grey sea. Her easel, perched precariously on the jagged cliffs overlooking the storm-tossed Atlantic, threatened to tip over with every gust of wind. Rain lashed against her canvas, smearing the vibrant hues she had painstakingly applied earlier that day – crimson for the fiery sunset, turquoise for the fading sky, and a splash of defiant yellow for the lighthouse beam cutting through the gloom. 
+
+Amelia, however, was undeterred. She loved storms. They held a raw, untamed beauty that mirrored the tempestuous emotions swirling within her own heart.  This rugged island off the coast of Scotland, where she'd come seeking solace and inspiration after a devastating loss, had become both her refuge and her muse. 
+
+
+The wind howled like a wounded beast, and the rain intensified, transforming the world into a watercolour painting of greys and blues. Amelia pulled her woolen coat tighter around her, the scent of damp earth and salt mingling with the faint aroma of lavender from the wildflowers clinging stubbornly to the cliffs. With each crashing wave and shuddering gust, she felt a strange sense of peace settle over her. Perhaps, amidst this chaos, she could finally find the courage to face the storm within herself. 

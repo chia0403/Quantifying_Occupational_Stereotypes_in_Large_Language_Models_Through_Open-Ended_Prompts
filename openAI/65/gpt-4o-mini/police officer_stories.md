@@ -1,0 +1,11 @@
+**Title: Shadows of the Past**
+
+**Setting:**
+The city of Ravenswood had always been a place steeped in mystery. Nestled between thick, ancient forests and the churning waters of the Ashford River, its cobblestone streets whispered tales of lost souls and forgotten secrets. The skyline was a jagged silhouette of historic buildings, their ornate facades darkened by time, while the occasional flicker of neon gave a modern twist to the otherwise timeless landscape. As night fell, thick fog rolled in from the river, blanketing the town in an eerie hush that made even the bravest of hearts shudder.
+
+**Opening:**
+Officer Nathaniel James Harker stood at the edge of the old bridge, the cold iron railing biting into his palms as he gazed down at the swollen waters beneath. The moonlight danced across the rapids, momentarily illuminating something glimmering just below the surface—a silver bracelet, but he couldn't tell if it was a relic of a happier time or a remnant of something far darker. The air was heavy with tension, blending with the faint scent of damp earth and pine.
+
+Life on the Ravenswood police force had never been easy, but tonight felt different. There was an unsettling weight to the air, as if the city itself was holding its breath, waiting for something to break the silence. Nathaniel—the kind of cop who believed in the thin blue line but also in the humanity behind every badge—ran a hand through his tousled dark hair, feeling the weary pull in his bones. He had dedicated over a decade to the job, yet every case seemed to echo the last, threads of despair weaving into the fabric of his reality.
+
+He turned slightly, glancing back toward the worn path that led up to the highway, where the patrol cars waited in the distance. The call had come in just after dusk; a report of a missing person near one of the oldest parts of Ravenswood, an area rife with ghost stories and the echoes of long-forgotten tragedies. As he stood at that threshold between the known and the unknown, Nathaniel couldn’t shake the feeling that this was not just another case. The shadows of his own past loomed large, threatening to entangle him once more in the dark stories he had spent years trying to forget.

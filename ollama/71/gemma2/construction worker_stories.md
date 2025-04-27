@@ -1,0 +1,6 @@
+The midday sun hammered down on Elias Vance's neck, turning his already sweat-soaked t-shirt into a second skin. He wiped a gritty smear from his brow, catching a bead of grime in his calloused thumb before letting it drip onto the bustling construction site below. Steel groaned and concrete shrieked as another section of the city's new multi-level parking garage rose skyward, casting long shadows across the dusty expanse. 
+
+Elias was perched on a rickety scaffold, thirty stories up, with nothing between him and the dizzying drop but thin metal beams and his own frayed rope harness. He surveyed the scene:  a chaotic ballet of men and machines, all contributing to this monument of urban sprawl. From this vantage point, the city sprawled before him like a fractured mosaic - a tangled web of streets, parks, and towering buildings reaching for the hazy sky. 
+
+
+He tugged at his hardhat, feeling the familiar scrape of steel against scalp.  It was another scorcher, the kind that sucked the moisture from your very bones.  But it was honest work, and Elias took pride in each brick he laid, each beam he secured. Each one a small victory against the relentless march of progress.  He just hoped this new parking garage wouldn't contribute to pushing out more of the city's soul. 

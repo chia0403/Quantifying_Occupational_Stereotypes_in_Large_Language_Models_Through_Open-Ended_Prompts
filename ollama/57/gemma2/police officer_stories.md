@@ -1,0 +1,6 @@
+The rain hammered against Detective Alistair Finch's trench coat like a thousand frantic fists. The streetlamps cast an anemic glow on the slick asphalt, illuminating nothing but puddles reflecting the city's grimy underside.  He tugged his collar tighter, the damp chill seeping through to his bones. This was the kind of night that made you wonder what lay beneath the grime - something ugly, probably, something waiting to be uncovered.  
+
+Alistair stood before a derelict warehouse on the edge of the Docks district, its boarded-up windows like vacant eyes staring into the storm. A faint, sickly sweet smell hung in the air, mixing with the tang of salt and diesel. This wasn't just any crime scene; this was where the city's dark secrets festered, whispered between the shadows and the crumbling brick. 
+
+
+He surveyed the scene: yellow tape fluttering like a dying flag, forensics clad in white suits swarming over something inside, their faces illuminated by the harsh glare of flashlights. Alistair took a deep breath, steeling himself for what he knew awaited him within those walls. The city's heartbeat might be erratic and often cruel, but Detective Alistair Finch was here to keep it from falling apart entirely.  

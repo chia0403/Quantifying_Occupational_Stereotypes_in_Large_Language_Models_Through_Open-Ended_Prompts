@@ -1,0 +1,5 @@
+The mahogany bar gleamed under the dim, amber glow of the Edison bulbs strung across the ceiling of The Rusty Mug. It was past midnight, the hour when shadows stretched longer and secrets whispered louder.  A steady hum of conversation filled the air, punctuated by the clink of glasses and the occasional boisterous laugh. Behind the polished bar stood Elara Beatrice Blackwood, her silver hair pulled back in a loose braid, eyes surveying the scene with an almost feline intensity. 
+
+Elara wasn't just any bartender; she was known as "The Whisper" for her uncanny ability to listen without judgement and dispense advice as potent as the whiskey she poured. Tonight, however, even The Whisper felt a tremor of unease ripple through the familiar warmth of The Rusty Mug. A stranger had entered, his face obscured by the deep shadows of his fedora. He sat alone at the end of the bar, his gaze fixed on something beyond Elara's line of sight, sending a shiver down her spine that had nothing to do with the chill settling in from the open window. 
+
+

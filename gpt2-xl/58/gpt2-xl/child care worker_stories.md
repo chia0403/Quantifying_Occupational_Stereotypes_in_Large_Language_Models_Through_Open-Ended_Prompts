@@ -1,0 +1,7 @@
+Once upon a time, there was a child care worker named Laura O'Brien, who had been in the care of the state for 15 years, when she began to develop severe symptoms of cancer that began to show up after a routine mammogram. As my colleagues have written before, Laura's plight—and a number of others'—is part of a very disturbing trend of child abuse in Michigan and in other states across the nation, in which vulnerable families are often put at risks because of low expectations about the job they can find and the quality of care they can get.
+
+Today, O'Brien is a mother of four, all with learning disabilities. She finds herself in "a very dark place," says her mother, Lori Breslin. Laura's story has drawn national attention, and many people have offered support for the O'Brien family. There's also a crowdfunding effort to help them pay for the medical bills they've incurred.
+
+Meanwhile, the state does not recognize a legal distinction between childhood abuse and child neglect, says Dr. Daniel S. Kohn, a doctor of pediatrics at Children's Hospital and a professor at the University of Michigan's medical school. "The word that appears in every insurance form is 'neglect,'" he adds.
+
+Laura, the nurse who treated O'Brien, became part of an unusual lawsuit against the state and its officials when she sought disability benefits in 2016. Since then, she and her family have faced an

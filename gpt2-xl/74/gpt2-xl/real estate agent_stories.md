@@ -1,0 +1,7 @@
+Once upon a time, there was a real estate agent named Mary K. and she owned property on The Mall. The Mall, or as it's known by a certain local dialect, the "malla," had never been as vast and busy as now, so Mary K. had no problem selling the property and moving on. It was her husband Paul who became the ultimate figurehead of the Mall's once-elegant, if not downright decrepit, design.
+
+Not too long after the Ks moved away, some friends of a friend put the real estate on the market. Paul and Mary K.'s son, David (Drew) was interested. With the $2,500 he made working at Home Depot, David bought the real estate and brought home the real architect, a man named Jim Clark. A year or so later, they were able to sell the house and move on.
+
+For David, the real estate was a godsend, but it wasn't exactly a dream come true. On the rare occasion David traveled to the Mall, he'd just duck into the parking lot to wait until everyone cleared the path. There's a reason for that. The real estate wasn't too expensive for a college student at the time, even given the recent economic recession of 2008. But it wasn't the most desirable area either.
+
+The new developers (along with their new condos) had a change of heart. "When you don't have a

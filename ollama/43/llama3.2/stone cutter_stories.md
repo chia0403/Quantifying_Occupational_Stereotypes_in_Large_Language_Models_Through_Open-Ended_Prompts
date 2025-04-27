@@ -1,0 +1,7 @@
+As the first light of dawn crept over the worn cobblestones of Ravenshire Square, Emrys ap Rhys, a rugged stone cutter with hands as rough-hewn as the granite he worked with, stepped out of his small workshop and into the chill morning air. The misty veil that shrouded the town clung to the ancient buildings, imbuing them with an otherworldly beauty.
+
+Emrys, with his wild shock of curly brown hair and eyes as grey as the stone he'd spent his life shaping, breathed in deeply, feeling the familiar tang of damp earth and mortar. He lived for this moment, when the night's stillness gave way to a day of creation – crafting beauty from the raw, unforgiving stone that surrounded him.
+
+As he made his way through the narrow streets, Emrys nodded to the town's inhabitants, each one with their own story etched into their worn faces. The baker's wife, Mrs. Jenkins, was already up and stirring the morning's batch of bread; the blacksmith, Thorne, was hammering away at a glowing piece of metal in his workshop across the square.
+
+Emrys knew that today would be a day like any other – a day of sweat, toil, and creation. But as he walked towards the town's ancient quarry, where the finest stone for Ravenshire's buildings was quarried from, he couldn't shake the feeling that something was off, that the stones seemed to be watching him with an unblinking gaze...

@@ -1,0 +1,8 @@
+The wind whipped through the skeletal pines surrounding Dusty's rig like a mournful banshee.  He squinted, trying to decipher the swirling dust devils dancing on the horizon. 58 years young and already etched with miles and wrinkles, his calloused hands tightened around his worn leather steering wheel, knuckles white as bone china. He'd been traversing this desolate stretch of Route 66 for nearly six hours now, hauling a load of cherry-red steel plates across the heartland – another day on the road, another stack of bills to pay. His name was Dale "The Steel Rail" Miller and he knew this lonely expanse like the back of his hand, every bend in the road, every rusted out truck stop, etched into his memory. 
+
+He pulled his battered Stetson lower over his brow, shielding his eyes from the relentless sun that blazed down on him. The air hung heavy with heat, thick as molasses, and a persistent throb of unease pulsed beneath his chest – something felt off.  The radio crackled to life, but the static drowned out any discernible words.  Just static and an unsettling silence, like the void before a storm. 
+
+**Setting:** An endless expanse of desert plains stretching under a blistering Arizona sun in the year 2024. Dust devils swirl across the dry landscape, whipping the air into a frenzy. The setting sun casts long shadows across the deserted highway, while towering red rock formations punctuate the barren vista.
+
+
+**Character:** Dale "The Steel Rail" Miller, a seasoned trucker with weary eyes and calloused hands. His years on the road have left their mark, both physically and mentally, but he carries on, fueled by a deep-rooted need for freedom and a sense of duty to his family. 

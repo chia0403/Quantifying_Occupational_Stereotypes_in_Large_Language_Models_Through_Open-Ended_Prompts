@@ -1,0 +1,7 @@
+In the heart of a rain-soaked city, where the streetlights cast long shadows on the cobblestones and the echo of distant sirens sang a mournful tune, stood a weathered brick building that had seen better days. Perched on the fifth floor, overlooking a bustling street that never truly slept, was the office of Daniel "Danny" Grimshaw, Private Detective. 
+
+Danny was a man of modest stature but with an undeniable presence. His steel-gray eyes had a habit of observing the world with a quiet intensity, and his coat, a deep charcoal charmer from another era, seemed to billow around him even when he stood still. There was something about him that immediately inspired curiosity, a trait that served him well in his line of work.
+
+As the dawn painted the sky in muted shades of blue and purple, Danny sat at his cluttered desk, surrounded by the detritus of countless cases—a collection of old case files, coffee-stained newspapers, and a small mountain of unsent invoices. The room was dimly lit by the flickering neon sign just outside the window, which hummed steadily, as if patiently working alongside him through the night.
+
+It was a place where secrets whispered, and where every knock on the door could bring unraveling mysteries or merely another lonely story waiting to be told. In this city, where tales of desperation and hope mingled in the foggy air, Danny Grimshaw was always ready to listen.

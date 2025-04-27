@@ -1,0 +1,5 @@
+Rain lashed against the windows of Dr. Amelia "Amy" Croft's small clinic, blurring the already dim streetlights into shimmering halos. The air hung heavy with the scent of wet earth and disinfectant, a familiar cocktail to Amy, but tonight it felt especially thick. It was past midnight, and her usual quiet solitude had been punctuated by the frantic calls from panicked owners, each one carrying a new thread of worry in their voice - a stray cat lost in the pouring rain, a whimpering puppy with a strange limp, a terrified bird brought in after its cage door flew open.  
+
+Amy knew this was the time for calm hands and steady nerves. It had always been her calling - not just treating animals but understanding them on a deeper level; seeing the fear mirrored in their amber eyes or the silent pain conveyed through whimpers. She ran a hand over the fur of a shivering dog, his ribs poking out through thin skin.  "Just a little bit longer, champ," she murmured, her voice laced with soothing warmth. The clinic was an island of hope amidst the storm outside - a haven for injured and scared souls, all waiting for their turn in Amy's capable hands. 
+
+

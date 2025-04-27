@@ -1,0 +1,7 @@
+The biting wind whipped across the obsidian plains, carrying with it the scent of salt and something else, something metallic and unsettling. A shiver ran down Sergeant Alaric Thorne's spine as he tightened his grip on his spear. He hated these nights, when the moon was swallowed by the perpetual storm clouds that shrouded their outpost, Fort Umbra, leaving the world in an oppressive twilight. The only illumination came from the flickering torches lining the perimeter wall, casting long, dancing shadows that seemed to writhe with unseen life.
+
+Fort Umbra itself was a hulking fortress of gray stone, its jagged towers piercing the gloom like skeletal fingers. Built centuries ago by forgotten hands, it stood guard against the ever-shifting sands of the Arid Expanse and the whispered horrors that lurked within. The Expanse was a desolate wasteland where even the wind seemed to sigh in sorrow, choked with dust and dotted with the bleached bones of long-dead creatures. Thorne knew its dangers intimately; his father had been one of the many guards lost to the relentless sun, the bone-chilling nights, or whatever else stalked those barren lands.
+
+Tonight, however, something felt different. A prickling tension hung in the air, a palpable sense of unease that went beyond the usual anxieties of guarding Fort Umbra. Thorne scanned the desolate landscape, his eyes straining against the gloom.  He saw nothing but swirling sand and the faint flicker of torches along the wall.  Yet, he couldn't shake the feeling that they were not alone. 
+
+

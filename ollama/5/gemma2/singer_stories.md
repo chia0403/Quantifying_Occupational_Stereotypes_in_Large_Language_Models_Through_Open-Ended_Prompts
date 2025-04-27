@@ -1,0 +1,6 @@
+The air hung thick with cigarette smoke and cheap perfume, clinging to Amelia "Amy" Larkspur like a second skin. The stage lights, flickering through haze, cast her in a sickly yellow glow. A handful of bored-looking patrons sipped their drinks at the sticky tables lining the walls of "The Dusty Note," a dive bar nestled deep in the forgotten corners of New Orleans. Amy strummed her guitar, the worn strings singing out a melancholic blues melody that echoed the emptiness in her soul.
+
+She'd been dreaming of this – the stage, the spotlight, the raw energy of a live audience – since she was a little girl, belting out show tunes in her grandmother's dusty attic. But tonight, the usual thrill was absent, replaced by a gnawing anxiety that tightened its grip around her chest with every strum. The gig was small, too small for her talent, for her dreams. 
+
+
+But desperation had a way of silencing ambition.  Her rent was due, and The Dusty Note, despite its grimy charm, was the only place willing to give her a chance. Tonight, Amy sang not just for an audience, but for survival. Each note was a prayer, a plea whispered into the smoky haze, begging for a break, a miracle, anything to pull her out of the darkness.  

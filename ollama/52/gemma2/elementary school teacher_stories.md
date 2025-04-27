@@ -1,0 +1,5 @@
+The bell shrieked, its piercing cry echoing through the cluttered hallways of Elmwood Elementary like a siren announcing the end of another day. Amelia Rose Thornton sighed, pushing her unruly auburn curls out of her eyes as she gathered stray crayons and construction paper from the floor of her third-grade classroom.  
+
+Elmwood was a school carved from history, its brick walls whispering tales of generations past. Sunlight streamed through dusty windows, illuminating faded murals depicting heroic scenes from American literature on one wall, while a whimsical alphabet chart covered with brightly colored handprints adorned the opposite. A half-finished banner reading "Welcome Back to School!" hung limply above the chalkboard, a reminder of the optimism that had faded with each passing week. 
+
+Amelia loved Elmwood. Loved its quirks, its imperfections, the way it held onto memories like a worn, well-loved book. But this year, something felt different.  A weariness clung to her like a second skin, the energy she usually poured into her lessons seeming to dwindle with every passing day. 

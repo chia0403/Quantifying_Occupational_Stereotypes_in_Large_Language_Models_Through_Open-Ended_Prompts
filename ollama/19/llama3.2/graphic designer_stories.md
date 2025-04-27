@@ -1,0 +1,7 @@
+As the first light of dawn crept over the sleepy streets of Portland, Oregon, Emily Jane Wilson sat hunched over her computer, her eyes bloodshot from a late night spent perfecting the font choices for her latest design project. The soft hum of the city's coffee shops and indie music venues filtered through the open window of her tiny studio apartment, mingling with the sweet scent of freshly brewed coffee wafting up from the kitchen below.
+
+Emily, a 28-year-old graphic designer with a passion for typography and a penchant for all things vintage, had spent the previous evening working on a new campaign for a local boutique clothing store. Her client, the owner of which was Emily's friend Rachel, wanted to create a cohesive brand identity that reflected the store's eclectic mix of bohemian chic and sustainable fashion.
+
+As she clicked through her design portfolio on her computer screen, Emily's mind began to wander to her own creative projects. She had always dreamed of launching her own design firm one day, where she could focus on working with clients who shared her values of sustainability and social responsibility. But for now, she was content to work solo, taking on freelance gigs and building a reputation in the city's thriving design scene.
+
+Just as Emily was about to take a break and grab a cup of coffee, her phone buzzed with an incoming text from Rachel. "Hey Em, just got your designs back from my sister - she loved them! But I have some news that might change everything..."

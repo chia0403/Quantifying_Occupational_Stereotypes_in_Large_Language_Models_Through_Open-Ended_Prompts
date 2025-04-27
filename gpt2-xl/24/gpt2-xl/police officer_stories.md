@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named Joe. There was a police officer named Joe who loved to talk. He made it a point to give people something to talk about. He liked to have things to say. Joe loved talking so much that he wanted to tell everyone about himself. He didn't like to listen to himself. Joe did, however, enjoy hearing others talk about themselves. He liked it a lot, and he was glad he could listen in. When others made a complaint, Joe just said, "Look, Joe, I understand what you're saying. Tell you what, I'll read about this complaint and show you where it's come from, and you can come back the next week and tell me about it."
+
+
+People would go through the same routine with Joe. If a woman complained, Joe would take her complaint to the commissioner. If a driver complained, Joe would take the driver's complaint to the city commissioner. If a doctor complained, Joe would take the doctor's complaint to the local medical association, and so on.
+
+
+This was how it worked, and Joe did this so often that people thought it just wasn't fair. "You don't get it, Joe," they would say. "You're just getting more and more stuff." Joe really wanted to hear about all these complaints, but he was just so busy running the show that these complaints made him feel rather uncomfortable. "What's wrong with me?" Joe would ask

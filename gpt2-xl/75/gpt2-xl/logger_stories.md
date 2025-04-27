@@ -1,0 +1,7 @@
+Once upon a time, there was a logger named Davey that wrote an addon called lols. That addon featured in one of the most popular addons ever released and it was considered an icon of the 90's. The addon was an extremely detailed log. Everything you needed about your game. Every kill, every action, every item in your backpack etc. Everything. The addon was absolutely packed with info, one would need an eye for detail to fully use it.
+
+A lot of the times these days, the developers of addons can't even look past the point of "fun" when making changes to their addons, they either make too many changes or not enough. There is no level of care from a plugin developer in this case. This addon is so deep, that it's impossible that someone could find it, and not use it. So many different features and details, that if someone did want it, they would have to spend hours looking for it, then even find a way to use it.
+
+There are many versions of the addon available, and no two are the same. There are even different models and models within the addon in different parts of the addon. However, it is all related to helping log players. Not just kills, but everything that can be used as information, and they are tied together so tightly the only way to get to anything else is via the log.
+
+There are a lot of different plugins out on the market which help

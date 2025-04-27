@@ -1,0 +1,5 @@
+The air in Beatrice Anya Jones' studio was thick with the scent of old coffee and cheap printer ink, a fragrance she’d come to associate with inspiration. Sunlight slanted through the dusty skylights, illuminating motes dancing in the air and casting long shadows across her cluttered workspace. Posters advertising past projects – a vegan bakery, a local indie band, a rather unfortunate rebranding attempt for a plumbing company – were plastered haphazardly on the walls, competing for space with sketches, mood boards, and half-eaten takeout containers.
+
+Outside, the rhythmic rumble of construction echoed through the open window, a constant reminder that even this gritty corner of Brooklyn was slowly being gentrified. But inside Beatrice’s studio, time seemed to stand still. She hunched over her laptop, eyes narrowed in concentration as she wrestled with a particularly stubborn design for a new coffee shop called "The Grind".  Her muse had abandoned her for the day, leaving her staring at a blank screen, willing inspiration to strike. 
+
+

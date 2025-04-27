@@ -1,0 +1,10 @@
+## Opening: The Ghost Doctor
+
+**Setting:** The sprawling Victorian mansion known as Blackwood Manor sits perched on a windswept cliff overlooking the churning Atlantic Ocean. Rain lashes against the windows, blurring the view into an impressionistic dance of grey and white. It’s the kind of place that whispers secrets in every creak of floorboards and rustle of curtains.
+
+**Main Character:** Dr. Anika Patel, a fiercely intelligent and dedicated Physician's Assistant with a sharp wit and even sharper eyes. Despite her pragmatic life in the bustling city clinic where she primarily deals with common ailments,  Blackwood Manor pulls at her like a hidden current. The estate holds a dark history that whispers on the wind – a past she’d only glimpsed in the worn leather-bound journals of her grandfather's extensive collection. Tonight, the air is thick with an unsettling energy, as if the ghosts themselves are stirring within these walls.
+
+**Story Opening:** Anika had been invited to Blackwood Manor by Mr. Thornton, the estate's enigmatic owner, for a consultation - something about a "rare case of melancholia" he insisted needed her expertise. As she entered the grand ballroom, the opulent room seemed even more solemn than usual, illuminated only by flickering gas lamps and a single window with an aged tapestry that depicted a figure shrouded in shadow. A shiver ran down Anika's spine as she realised Mr. Thornton wasn’t alone; faint, ethereal music echoed from unseen sources, each note resonating within her very being like a phantom heartbeat. The air was heavy with the weight of unspoken stories, and Anika felt an icy dread grip her heart. 
+
+
+This opening sets the stage for mystery, intrigue, and possibly even something supernatural. Anika's initial skepticism against the "ghostly melancholia" quickly morphs into a genuine concern as she encounters deeper mysteries within Blackwood Manor. As she delves into the house's history,  the lines between reality and ghost stories blur, leaving Anika questioning what is real and what is simply playing tricks on her mind. 

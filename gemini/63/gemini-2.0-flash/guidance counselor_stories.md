@@ -1,0 +1,13 @@
+## Story Opening:
+
+The fluorescent lights of Northwood High hummed a monotonous drone, a sound Beatrice Eleanor Ainsworth had grown so accustomed to she barely registered it anymore. It was the sound of teenagers, potential, and paperwork, all buzzing under the same institutional roof. Today, though, the hum was a little louder, a little more insistent, mirroring the anxious flutter in Beatrice's own chest. It was the first day back after winter break, and that meant the inevitable flood of post-holiday existential dread, college application meltdowns, and the ever-present whisper of unfulfilled resolutions.
+
+Beatrice leaned back in her ergonomic chair, the faux leather squeaking in protest. Outside her window, the bare branches of the old oak tree clawed at the grey January sky. She took a long, deliberate sip from her lukewarm Earl Grey tea, the floral aroma doing little to soothe the knot forming in her stomach. On her desk, a stack of student files loomed like a bureaucratic Everest. She knew what was coming: Sarah's sudden pronouncement of wanting to drop out and become a competitive eater, David's renewed struggle with algebra and his overbearing father, and probably, just probably, another awkward conversation with Mrs. Henderson about her son, Chad, and his questionable future in slam poetry. 
+
+Beatrice sighed. Time to face the music. Time to put on her best reassuring smile and navigate the labyrinth of teenage angst, one student at a time. Because that was Beatrice Eleanor Ainsworth, and that's what guidance counselors did.
+
+## Setting:
+
+**Northwood High School, a sprawling, brick-built institution nestled in the affluent suburb of Meadowbrook, Connecticut.** While outwardly picturesque, with manicured lawns and a state-of-the-art gymnasium, the school held its own secrets and pressures beneath the polished surface.
+
+**Beatrice Ainsworth's office was located in a quiet corner of the guidance wing.** It was a small, almost cozy space, deliberately designed to feel less intimidating. The walls were painted a calming shade of pale blue, adorned with inspirational posters featuring photos of diverse students achieving various goals – studying abroad, playing sports, performing arts. A comfortable armchair sat opposite her desk, ready to receive tearful confessions and hesitant career aspirations. On the windowsill, a small collection of succulents thrived, a silent testament to Beatrice's nurturing nature. Despite the carefully curated atmosphere, the sheer volume of paperwork constantly threatened to overwhelm the space, a tangible reminder of the endless demands placed upon her.

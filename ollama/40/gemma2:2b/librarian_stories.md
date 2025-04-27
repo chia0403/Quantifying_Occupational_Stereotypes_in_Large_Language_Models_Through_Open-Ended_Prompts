@@ -1,0 +1,7 @@
+The musty scent of aging paper and leather hung heavy in the air, swirling around Amelia Thorne like a whispered secret as she navigated the labyrinthine shelves of the Grand Central Library. The library's grand clock chimed twice, the sound echoing through the hushed halls with an unsettlingly lonely resonance. Amelia, her spectacles perched precariously on the bridge of her nose, ran a callused hand across the spine of a worn copy of "Wuthering Heights."  It felt familiar, comforting, as if she could hear Emily Brontë's voice whispering from its pages, even in the stifling silence of this grand institution. 
+
+The year was 1928. Amelia had spent her life amidst the whispered stories and forgotten histories within these walls – a quiet observer to lives lived and lost.  But lately, a disquieting stillness had settled upon the library like fog. The once vibrant energy of patrons seemed absent, their usual chatter replaced by an unsettling emptiness. Even the normally boisterous staff seemed strangely subdued. 
+
+Amelia, her gaze fixed on the weathered tome in her hands, felt a creeping unease settle over her heart. Tonight was the night she would finally face the unknown - the reason behind the library's inexplicable silence. She had long dismissed it as mere superstition, but now, with every hushed sigh of the wind through the grand arched windows, a strange foreboding clung to Amelia like a phantom limb.  
+
+She felt a shiver run down her spine as she heard a faint, rhythmic tapping sound from one of the empty reading rooms on the upper floor. 

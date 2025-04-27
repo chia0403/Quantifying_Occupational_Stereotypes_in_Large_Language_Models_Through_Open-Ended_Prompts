@@ -1,0 +1,7 @@
+Once upon a time, there was a kindergarten teacher named Mr. Bumble. It wasn't his fault that he had to do everything by himself because a kid named Sandy didn't want to go to school at all — especially when the teacher was a mean old man named Mr. Mumble, and Mr. Mumble had a terrible temper.
+
+The only two people able to help Mr. Bumble and Sandy get things under control were Mrs. Bumble and her little son, Mr. Mumble Jr., named so because he had the uncanny ability to predict anything that Mr. Mumble was going to say. It was always the same thing — and it always worked — and if the bad things Mr. Mumble was going to say happened to be about Sandy and her dad (and if they weren't, Mr. Rumsfeld) it was always Mr. Mumble's fault.
+
+One day Mr. Bumble gave a lesson about Mr. Bumble's daughter, Bumbleley. Ms. Bumble said that because Mr. Bumble's daughter was the prettiest in class, everyone knew that their child was really a boy. She said that in case the teachers had any questions or need to get involved, she should mention that it was her son Sandy's idea to say anything at all.
+
+Ms. Bumble knew that Mr. Mumble would immediately blame her. She knew Mr. Mumble would say something like, "Oh no, that

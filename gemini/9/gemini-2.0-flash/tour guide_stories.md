@@ -1,0 +1,9 @@
+## Story Opening:
+
+The humid air, thick with the scent of frangipani and diesel fumes, clung to Elias Thorne like a second skin. He tugged at the collar of his freshly laundered guide shirt, already damp after only ten minutes outside the air-conditioned sanctuary of the cruise terminal. The relentless sun, reflecting off the turquoise waters of the St. Lawrence Seaway, made him squint. He adjusted his microphone headset, the plastic digging uncomfortably into his temple. Across the bustling pier, a phalanx of elderly tourists, their faces a mix of sunburn and apprehension, shuffled off the mammoth cruise ship, the "Queen of the North Wind." This was his cue.
+
+Elias cleared his throat, projecting his voice above the clamor of dock workers and chattering seagulls. “Bonjour! Welcome, mesdames et messieurs, to beautiful Quebec City! I’m Elias Thorne, and I’ll be your guide today on our historical tour of the Old City. Get ready to step back in time!” He pasted on his most welcoming smile, the one he practiced in the mirror every morning, and prayed this group wouldn’t be the ones who complained about walking too much or taking too few bathroom breaks. He knew the drill. He’d been doing this for five years.
+
+## Setting:
+
+The story opens in the modern-day cruise terminal of Quebec City, Canada. The terminal itself is a sprawling, utilitarian structure of steel and glass, a stark contrast to the historic charm of the city it serves. Beyond the terminal, the mighty St. Lawrence Seaway stretches out towards the horizon, a constant flow of commercial traffic and recreational boats. Looming in the distance, the iconic skyline of Quebec City is visible, dominated by the majestic Fairmont Le Château Frontenac, a symbol of the city's rich history and enduring grandeur. The air is filled with a mixture of salty sea air, the sweet fragrance of blooming flowers, and the distinct aroma of fresh-baked bread wafting from nearby bakeries.

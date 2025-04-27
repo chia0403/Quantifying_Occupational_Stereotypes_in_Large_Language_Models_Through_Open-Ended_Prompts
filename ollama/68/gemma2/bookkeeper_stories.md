@@ -1,0 +1,6 @@
+The air in Eleanor Thistlewood's office hung thick with the scent of stale coffee and disappointment. Sunlight filtered through the dusty blinds, casting stripes across her cluttered desk, illuminating the chaos of invoices, receipts, and crumpled tax forms. Outside, London throbbed with life, a symphony of sirens and distant laughter that felt worlds away from the quiet despair settling in Eleanor's gut. She tapped her pencil against a particularly thorny problem: Mr. Bartholomew Finchley's accounts for the past quarter were a tangled mess of dubious expenses, missing receipts, and an unnervingly high number of donations to "The Society for the Preservation of Rare Teacups."  Eleanor sighed, wondering if perhaps she should have taken up pottery instead. 
+
+Perhaps then she wouldn't be drowning in a sea of numbers, desperately trying to make sense of the financial machinations of eccentric Londoners. Then again, perhaps she would just be drowning in clay.
+
+
+The year was 1938, and Eleanor Thistlewood, a woman with a nose for accuracy and a heart that yearned for adventure, found herself firmly planted in her father's dusty bookkeeping business, surrounded by paperwork and the ghosts of past clients.  

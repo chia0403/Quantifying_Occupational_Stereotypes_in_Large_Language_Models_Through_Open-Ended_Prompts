@@ -1,0 +1,7 @@
+As the sun set over the vast expanse of the open road, Jack "Hawk" Hawkins adjusted his worn leather seatbelt for what felt like the hundredth time that day. His 18-wheeler, affectionately dubbed "Bertha," rumbled to life beneath him, ready to tackle another long haul from Chicago to Los Angeles. The highway stretched out before him like a serpent, disappearing into the darkness of the night sky.
+
+Hawk had been on the road for nearly two decades, earning his nickname among fellow truckers for his uncanny ability to navigate the most treacherous routes with ease and precision. His rugged features, weathered skin, and wild tangle of gray hair only added to his tough-guy persona, but Hawk knew that beneath his gruff exterior lay a deep sense of loneliness and wanderlust.
+
+As he steered Bertha onto I-80, the neon lights of the truck stop's convenience store blurred together like a kaleidoscope, casting a mesmerizing glow over the deserted landscape. The night air was alive with the hum of engines, the distant rumble of thunder, and the faint scent of diesel fuel that seemed to cling to every inch of his worn denim shirt.
+
+With a flick of the switch, Hawk's CB radio crackled to life, broadcasting a hushed voice from the other side of the country: "Breaker one-nine, this is Big Rig Betty. If you're headed west, watch out for the storm brewin' in Arizona..."

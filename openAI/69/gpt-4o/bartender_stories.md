@@ -1,0 +1,7 @@
+On a dimly lit corner in the heart of Holloway's End, where cobblestone streets glistened with a fresh layer of rain, there stood a tavern known only by the flickering neon sign above its door: "The Lantern’s Glow." The once-vibrant paint on its wooden exterior had long since chipped away, leaving behind a rustic charm that beckoned weary travelers and local residents alike.
+
+Inside, the comforting hum of conversation mixed with the soft clinking of glasses created a symphony that was familiar and inviting. The air was thick with the scent of aged oak and the faint hint of smoke, remnants of the crackling hearth that never seemed to fully burn out.
+
+Behind the polished mahogany bar, Emily Hartwell deftly crafted drink after drink, pouring spirits with practiced ease. Her presence was magnetic; patrons shifted at the counter just so they could watch her work, her every movement deliberate and graceful. At thirty-two, Emily was known not just for her skill in mixing the perfect cocktail, but also for her knack for listening to the stories of the souls who wandered through The Lantern's Glow.
+
+Tonight, as the rain continued its gentle patter against the windows, Emily noticed a new face, an unfamiliar figure seated at the end of the bar. He looked like someone from a different time, his coat slightly too heavy for the season, and a worn fedora casting a shadow over his eyes. With a welcoming smile, Emily approached, ready to offer both a drink and a safe space for whatever story he carried through the door.

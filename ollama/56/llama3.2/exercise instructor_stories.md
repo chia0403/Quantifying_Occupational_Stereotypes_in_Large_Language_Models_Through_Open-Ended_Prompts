@@ -1,0 +1,7 @@
+As the sun rose over the small coastal town of Tidal Cove, casting a warm glow over the sleepy streets, Exercise Instructor Emilia Rose Thompson was already in motion. Her bright pink yoga mat and matching scrunchie were laid out on the porch of her beachside bungalow, awaiting the arrival of her first clients for the day.
+
+The sound of seagulls filled the air as Emilia stepped outside to take a deep breath of the salty ocean scent, feeling invigorated by the new day ahead. With a gentle smile, she tied back her long, curly brown hair and began to prepare for another busy day of leading fitness classes and helping her clients achieve their health goals.
+
+Tidal Cove was a haven for those seeking relaxation and rejuvenation, with its picturesque beaches, scenic hiking trails, and laid-back atmosphere. It was the perfect place for Emilia to call home, where she could share her passion for exercise and wellness with the community that had welcomed her with open arms.
+
+With a spring in her step, Emilia headed inside to start getting ready for her first class of the day – a group session of Pilates on the beach. The sound of waves crashing against the shore and the cries of seagulls filled the air as she made her way to the door, eager to share her enthusiasm with her students and help them find their inner strength.

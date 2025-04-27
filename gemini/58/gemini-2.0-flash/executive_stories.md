@@ -1,0 +1,12 @@
+## Story Opening:
+
+The choked, strangled sigh that escaped Eleanor Vance’s lips was barely audible above the incessant drumming of rain against the floor-to-ceiling windows of her office. Manhattan glittered below, a dizzying sprawl of ambition and concrete, but tonight, all Eleanor saw was a blurry, distorted reflection of her own weariness. Another deal gone south. Another potential merger imploding. Another sleepless night fueled by lukewarm coffee and the gnawing anxiety that she wasn't good enough, that the house of cards she'd built at Vance & Sterling was about to come tumbling down.
+
+She swiveled her leather chair away from the rain-streaked panorama, the low hum of the air conditioning offering little comfort. The mahogany desk, usually meticulously organized with pristine files and a single, perfect orchid, was now littered with crumpled blueprints and half-eaten takeout containers. Her fingers, usually adorned with carefully chosen rings that reflected her professional power, were bare, picked raw around the cuticles. Tonight, Eleanor Vance was simply... broken.
+## Setting:
+
+Eleanor Vance's office occupies the entire 47th floor of the Vance & Sterling Tower, a sleek, modern skyscraper in the heart of Midtown Manhattan. The decor is a carefully curated blend of power and sophistication. Walls are painted a muted grey, showcasing modern art pieces that are both aesthetically pleasing and conversation starters. The furniture is primarily dark wood and leather, exuding an air of timeless elegance. Large, abstract sculptures sit strategically placed in corners, hinting at Eleanor's refined taste.
+
+The west wall is entirely glass, offering a panoramic view of the city stretching towards the Hudson River. During the day, the sunlight floods the space, creating an atmosphere of success and vitality. At night, the city lights twinkle like scattered diamonds, providing a constant reminder of the relentless energy and competition that define Eleanor's life.
+
+A separate, soundproofed conference room sits adjacent to the main office, equipped with state-of-the-art technology for presentations and meetings. A small, discreetly placed wet bar caters to late-night negotiations. There is also a hidden, private bathroom with a shower, an indication of the long hours Eleanor often dedicates to her work. Despite its opulence, the office feels sterile and impersonal, reflecting Eleanor's carefully constructed facade and the sacrifices she's made to reach the pinnacle of corporate success.

@@ -1,0 +1,4 @@
+The humid Mississippi air clung to Elara Vance like a second skin as she stepped out of her beat-up Ford onto the cracked asphalt of Harmony Grove's main street.  A rusted "Welcome to Harmony" sign creaked in the breeze above her, its faded paint barely visible against the peeling wood. This small town, nestled deep in the heart of the Delta, was known for two things: its sweet peaches and its unsettling silence. Elara had come seeking answers, not fruit. 
+
+
+The disappearance of young Sheriff Thomas Harper a week ago had left Harmony Grove shrouded in a nervous tension thicker than the summer heat.  The local paper had already run out of words - "Missing," "Searching," "Unsolved" – echoing Elara's own growing sense of frustration. This wasn't a simple case of a teenager running away. Something was deeply wrong, and Elara, with her sharp wit and relentless pursuit of truth, was determined to uncover it. 

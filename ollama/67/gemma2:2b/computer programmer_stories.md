@@ -1,0 +1,8 @@
+The flickering fluorescent lights hummed an unsettling tune in Ethan Carter's ear as he hunched over his keyboard, fingers flying across the keys. He was surrounded by the sterile white walls and muted blue glow of his cubicle at Quantum Systems Inc., a company that felt more like a prison than a workplace.  He dreamt of coding away on his own terms, building something real, not just churning out line after line for algorithms designed to predict the future of human interaction. 
+
+Ethan had spent years crafting his dream project in the quiet corners of his room - "Project Aurora," an AI-powered social network aimed at fostering genuine connections and community through shared experiences instead of passive consumption. But every time he tried to pitch it to his superiors, the response was a polite, yet utterly uninspiring, "no." Quantum Systems had no interest in something they deemed "too idealistic."  
+
+But today, Ethan felt different. A wave of inspiration washed over him as he worked on a new algorithm that could analyze facial expressions and body language in real-time - an idea gleaned from his friend's impromptu dance demonstration at a bar earlier that week. 
+
+
+Ethan’s eyes met the faint reflection of the fluorescent light in his coffee, dark rings forming around his pupils. The clock ticked past midnight, each second reminding him of the weight of time and the looming deadline for Quantum Systems’ latest quarterly report. Could he risk it all? Tonight, Ethan was about to defy not just Quantum Systems' limitations but also his own self-doubt – and that could change everything.

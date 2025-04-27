@@ -1,0 +1,7 @@
+Once upon a time, there was a singer named David Bowie. (He was also a painter and musician.) His career is not what it once was—but he was and is one of the most successful living rock stars. His songs, and albums, are still in heavy rotation on many radio stations across the globe, as well as on TV and DVDs in countries all over the world. (Not a bad gig!) With an estimated net worth of around $60 million and an estimated fame rating of 83.33, he's one of the world's wealthiest and most popular celebrities, and one of the most high-profile survivors of the September 11th attacks.
+
+The singer's new album, The Next Day, is also the title of his 20th studio album in more than a decade and includes seven chart-toppers and a couple of hits.
+
+Bowie may not have been able to afford the millions spent to keep up the name and image of Bowie, but his music still sells, and is still enjoyed by fans worldwide. Many claim to remember seeing him perform live in the 1980s back in London. In fact, Bowie was able to retain the public's respect and adoration on numerous occasions by turning down offers from record labels. He famously once told Billboard magazine,
+
+"I would say to labels, 'I don't consider myself a pop star. I refuse to call myself a pop star. I only want to be seen as a classical artist in a

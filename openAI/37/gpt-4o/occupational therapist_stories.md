@@ -1,0 +1,9 @@
+On a crisp autumn morning in the heart of Wellington, New Zealand, the sky was painted in delicate hues of orange and purple as the sun hesitantly peeked over the horizon. The city was slowly coming to life, with the scent of fresh coffee hanging in the air and the gentle hum of early commuters making their way to work.
+
+Amelia Bennett stopped for a moment on the steps of the old brick building that housed the Wellington Rehabilitation Centre, taking a deep breath and letting the brisk air clear her thoughts. As an occupational therapist, she found her role both challenging and profoundly rewarding, helping her patients discover new ways to navigate their world and regain independence. 
+
+The centre was nestled on a tree-lined street in Thorndon, surrounded by historic homes with their Victorian façades and a scattering of boutique shops. It was a place of transformation, where hope and resilience flourished among the countless stories of recovery and perseverance.
+
+Amelia's morning began like most others, with a review of her appointments for the day and a quiet moment of reflection in her cozy, plant-filled office. But today held a certain promise, a chance to witness the breakthrough of one of her long-term patients, Clara, who was steadily rebuilding her life after a severe stroke. Amelia’s heart brimmed with anticipation and a touch of nervousness, knowing that each small victory would lead to new horizons for Clara.
+
+As Amelia tidied her desk, she glanced at a small photo taped to her computer screen. It was of her and a group of smiling children from a community project she’d led years ago. It reminded her why she had chosen this path—an unwavering belief in the human spirit’s ability to heal and thrive against the odds.

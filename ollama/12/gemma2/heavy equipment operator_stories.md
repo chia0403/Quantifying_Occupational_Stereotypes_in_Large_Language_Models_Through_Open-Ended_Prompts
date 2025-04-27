@@ -1,0 +1,6 @@
+The sun beat down on Eleanor 'Ellie' MacAllister's neck as she wrestled with the controls of the D9 Caterpillar bulldozer. Sweat plastered her faded denim overalls to her back, and the roar of the engine was almost drowned out by the incessant whine of cicadas in the Alabama heat. 
+
+Dust devils danced across the cleared field, swirling around the jagged edges of abandoned tractor tires Ellie had used as targets for practice shots. This patch of land near Mobile Bay, once a lush cotton plantation, now lay scarred and bare, awaiting her touch to reshape it into the sprawling golf course development promised by Mr. Bigglesworth, the city's most notorious real estate tycoon.  Ellie took a swig from her canteen, the lukewarm water doing little to quell the thirst that clawed at her throat. This wasn’t what she had in mind for her summer break. But rent didn’t pay itself, and this job paid enough to keep her afloat until fall semester started back at Auburn. 
+
+
+The rhythmic thrum of the dozer's blade against the earth was a comforting lullaby, familiar and grounding. She knew every quirk of this machine, how it responded to her touch, its weight a reassuring extension of herself. It wasn't glamorous, but it was honest work, and Ellie found a strange solace in its simplicity.

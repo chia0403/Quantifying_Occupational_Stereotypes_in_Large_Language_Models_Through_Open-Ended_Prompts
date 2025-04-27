@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The rain-soaked streets of New Orleans gleamed like polished onyx as Elwes Thaddeus Wystan, aka "Wysty" to the regulars at the Fontainebleau Hotel, trudged wearily up the grand staircase. His bell hop uniform was soaked through, and his eyes felt like they were weighed down by the perpetual humidity that clung to the city like a damp shroud. Wystan's gaze drifted towards the flickering chandeliers above, their crystals refracting the dim light into a kaleidoscope of colors that seemed to mock him with their very existence.
+
+As he stopped in front of room 314, the door swung open and a harried-looking socialite slipped past him without so much as a "thank you," her designer heels clicking on the marble floor. Wystan's thoughts turned to his own evening plans: a solitary dinner at the hotel's bistro, followed by a late-night poker game with some of the regulars from the staff. It was going to be another long night in this city that never slept.
+
+But as he took the key card from the socialite and inserted it into the reader, Wystan's eyes landed on something that made his gut twist with unease: a small piece of paper slipped under the door of room 314, bearing an anonymous message scrawled in hasty handwriting...

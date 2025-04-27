@@ -1,0 +1,9 @@
+As the last wisps of sunlight faded from the small coastal town of Tidal Cove, Nurse Alexandra "Lexi" Thompson made her way through the quiet hospital corridors, her footsteps echoing off the worn linoleum floors. The smell of disinfectant and stale air clung to her like a shroud, a reminder that even in this seaside community, medical drama was always just around the corner.
+
+Tidal Cove Hospital had been her home for five years, ever since she'd traded in her city life for a chance to experience small-town medicine. Lexi had chosen this path carefully, drawn by the slower pace and genuine relationships forged between patients and caregivers. But despite its charm, Tidal Cove was also a place where old wounds ran deep, and secrets lurked beneath the surface of every patient's story.
+
+Lexi stopped at the nurse's station, her eyes scanning the charts on the clipboard in front of her before coming to rest on the first shift schedule for the night. She took a deep breath, mentally preparing herself for the long hours ahead. The next few days would be critical – the hospital was expecting an influx of patients following a recent storm that had ravaged the coast.
+
+As she began to review the incoming patients' files, Lexi's gaze caught on one name in particular: Emily Wilson, a young mother who'd been airlifted from her rural farmhouse just outside of town. The details of Emily's condition were hazy – the hospital had received word that she was experiencing severe abdominal pain and nausea, but the exact nature of her injuries remained unclear.
+
+Lexi felt a shiver run down her spine as she gazed at Emily's chart. Something about this case didn't add up. And yet, as she delved deeper into the patient's file, she couldn't shake the feeling that there was more to Emily Wilson's story than met the eye...

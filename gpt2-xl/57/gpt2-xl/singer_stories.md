@@ -1,0 +1,5 @@
+Once upon a time, there was a singer named Mariah Carey. She became one of the most important female artists of our time and one of the best-selling artists in the world. She sang about being real and caring and it just sounds so right. And now there's a woman who's singing about the real feelings of a woman: that she doesn't have to be perfect all the time. I'd almost call her asexual."
+
+On what it's like to be famous for being asexual:
+
+"It's very hard actually. It means that you have the reputation of being asexual, particularly if you're going to date. Some people, they say to me, 'You sure aren't a date,' or even to the boys. And I always say, yes, I am single. I'm in my 30s, I don't need to date. It's actually really difficult being asexual. I don't want to be romantic. I don't want to experience anything. And I know a lot of people who are, and they're out there, and they're being recognized. But I don't want to deal with the people who don't know how to deal with it or the people who don't know about it. You have to deal with one of two of these situations. And I'm not going to deal with the third."

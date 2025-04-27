@@ -1,0 +1,7 @@
+The light of the early morning sun streamed through the large windows of The Maple Grove Café, casting a golden glow on the rustic wooden tables and hand-painted coffee mugs lining the shelves. The warm aroma of freshly brewed coffee wafted through the air, mingling with notes of cinnamon and the faintest hint of maple syrup. It was a cozy establishment nestled in the heart of Willow Creek, a small town known for its tight-knit community and charming brick-lined streets.
+
+At a corner table, a young woman named Amelia Grace Thompson meticulously folded a stack of napkins, her fingers dancing gracefully over the linen as she prepared for the day’s rush. With raven-black hair pulled back in a loose bun, she wore a crisp white shirt beneath her dark apron, the fabric slightly wrinkled from the long hours spent serving breakfast and lunch to a loyal clientele. Amelia’s bright hazel eyes sparkled with a mix of determination and warmth, a reflection of her passion for her work and the connections she forged with each customer.
+
+“Morning, Amelia!” called out Sam, the café's gruff but good-hearted chef, as he shuffled past her toward the kitchen. “You ready for another day of coffee and chaos?”
+
+She chuckled, nodding as she glanced around the café, still quiet save for the soft hum of the espresso machine. Little did she know, today would be anything but ordinary. As she poured the first cups of coffee, the bell over the door jingled, heralding the arrival of a familiar face—and the beginning of a day that would change everything.

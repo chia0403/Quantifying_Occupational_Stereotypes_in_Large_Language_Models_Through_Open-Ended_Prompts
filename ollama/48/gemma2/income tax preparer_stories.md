@@ -1,0 +1,4 @@
+The fluorescent lights hummed over Agnes Bethany Butterfield's head, casting a sickly yellow glow across the cluttered desk piled high with receipts, crumpled W-2 forms, and half-empty coffee mugs.  Her tiny office, tucked away in a strip mall on the outskirts of Tulsa, Oklahoma, smelled faintly of stale donuts and desperation – the intoxicating aroma of tax season. Agnes, a woman whose salt-and-pepper hair was perpetually pulled back in a tight bun, tapped her well-worn calculator with a sigh. The clock ticked past 8:00 PM, another long day at "Butterfield's Books & Brackets," battling a mountain of paperwork and the anxieties of those who feared the IRS more than death itself.
+
+
+As Agnes reached for a fresh cup of coffee, the bell above her door jingled, announcing the arrival of her next client –  a young man with anxious eyes and a nervous tremor in his hand. 

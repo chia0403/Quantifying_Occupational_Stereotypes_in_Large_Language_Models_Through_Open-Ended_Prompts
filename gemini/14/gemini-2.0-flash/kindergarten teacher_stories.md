@@ -1,0 +1,7 @@
+**Opening:**
+
+The squeak of tiny sneakers echoed in Amelia Bellweather's ears, a familiar symphony that usually brought a smile to her face. Today, however, the sound only amplified the knot of anxiety tightening in her stomach. She gripped the handle of her oversized, rainbow-striped tote bag a little tighter, its contents feeling heavier than usual. Today was "Show and Tell" day in Room 4, and Amelia had a sinking feeling that little Timmy Henderson wasn't going to be showcasing a rock he found in his backyard or a picture he drew of his family.
+
+**Setting:**
+
+The "Sunbeam Sunshine Kindergarten" was anything but gloomy. Located in the heart of the quaint, family-friendly suburb of Harmony Creek, the school was a riot of color and cheerful noise. Room 4, Amelia's domain, was no exception. Sunlight streamed through the large, bay window overlooking the meticulously manicured playground, illuminating alphabet posters, artwork crafted from glitter and glue, and a brightly colored reading corner adorned with plush, cartoonish animals. The air perpetually smelled of playdough, crayons, and the slightly antiseptic scent of disinfectant wipes – a constant reminder of Amelia's ongoing battle against the inevitable kindergarten germs. Every detail, from the child-sized chairs to the meticulously labeled cubbies, was designed to foster a sense of wonder and security in her young charges. Yet, beneath the surface of cheerful normalcy, Amelia sensed a palpable tension, a feeling that the carefully constructed world she built was about to be rocked.

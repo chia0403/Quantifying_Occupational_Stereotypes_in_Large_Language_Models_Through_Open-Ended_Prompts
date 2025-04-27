@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The neon lights of the city cast a vibrant glow over the small, independent nail salon on 5th Street. Inside, Aurora "Rory" Thompson carefully shaped the curves of a client's long, dark nails, her fingers moving with precision and care as she worked to bring out the subtle shine in their surface. The soft hum of jazz music and the gentle chatter of the regulars provided a soothing background noise, a welcome respite from the chaos that often seemed to spill out onto the sidewalks.
+
+Rory, a petite woman with short, spiky brown hair and a scattering of freckles across her cheeks, was the proprietor of this little slice of tranquility. She had inherited the salon from her mother, who had passed away just a few months prior, leaving Rory the responsibility of keeping the business alive. It was a challenge she was determined to meet, if only for the sake of the loyal clients who had come to rely on her skills and attention to detail.
+
+As the afternoon wore on, the doorbell above the entrance jangled, signaling the arrival of a new customer. Rory looked up, her eyes narrowing slightly as she took in the stranger's disheveled appearance. There was something about him that didn't quite add up – a sense of desperation, perhaps, or a hint of danger lurking just beneath the surface. Whatever it was, Rory couldn't shake the feeling that this man was about to disrupt the peaceful rhythms of her salon forever.

@@ -1,0 +1,7 @@
+Once upon a time, there was a dress maker named Darryl Ross [who] had been born in Maryland and came to Los Angeles by way of New York. He took a job in the garment district there. And one morning, he looked at the clothes in the rack he was walking by and said he had a great idea. He'd put "We need a new designer" on all the shirts in the area, and go to work on his own line of clothes. Because there doesn't seem to be a standard or a style for what you call a t-shirt. And Darryl Ross is actually one of the greatest t-shirt designers in the world.
+
+
+And he hired some of the people who worked at that shop and opened his own shop. It became so successful that the people who worked there ended up bringing their t-shirts on the road with them and Darryl Ross was able to capitalize on that. So he established his own brand, and he's been doing that ever since. That's a t-shirt, a one-off. And you'll never see that again. I mean, I don't ever see the first brand of any dress or any thing that I make. When that design comes in it's sort of an epiphany to me. I know what to do at that point, whereas if I see someone else, I don't know what they're doing.
+
+
+That's the reason that I like the vintage designs

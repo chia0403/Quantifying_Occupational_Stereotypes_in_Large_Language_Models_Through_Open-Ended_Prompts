@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named Robert Reynolds who owned a large ranch in the Santa Ynez Valley, a small town which sits roughly 40 miles from San Diego, CA. This particular rancher died in 2008 and left behind a lot of gold when he died and the "prosperity-type wind" which made him wealthy and made him happy.
+
+When he died, no one had actually discovered the bull gold. This is why it was not discovered until a couple years after the rancher's death. The San Diego Union-Tribune reported on the bull (see video here) in December of that year.
+
+Robert and several other gold seekers set out with the goal of finding the gold and bringing it back to San Diego on a gold train. At least part of the train set out during the summer and part of it set out in the fall, before winter. The train set out in 2005. At the time, however, few had any idea how close they were to the bull. One of the group was Robert's son Brian. At the time, Brian was also an apprentice metal detectorist and was just getting into the hobby of gold-hunting.
+
+But on November 16, 2005, Brian found the bull. On February 4, 2006, Brian reported the discovery of the bull to Robert to which he asked if the bull was good as silver for a future find. Robert responded that it was. Then he asked if

@@ -1,0 +1,4 @@
+The air hung thick with the scent of lavender and old silk in Eloise Rosalie Tremblay's atelier. Dust motes danced in the shaft of sunlight piercing through the grimy window, illuminating the chaotic beauty of her work space: bolts of fabric spilling from overflowing drawers, half-finished gowns draped over chairs like sleeping beauties, and spools of thread clinging to every available surface. Eloise herself was a flurry of motion, her nimble fingers stitching the delicate lace collar of a crimson ball gown with the practiced ease of a seasoned artist. 
+
+
+The year was 1927, Paris pulsated around her, a symphony of honking automobiles and chattering crowds, yet within the confines of her modest apartment on Rue de Seine, Eloise existed in her own world, a world of fabric and thread, where whispers of silk replaced the city's clamour.  This was where she found solace, where she poured her heart and soul into each creation, stitching not just garments, but dreams. 

@@ -1,0 +1,8 @@
+The wind whipped around Daniel "Sparky" Lawson's face, carrying with it the acrid scent of burning cedarwood and a gritty tang that always reminded him of the fight for survival.  He squinted against the glare, his eyes settling on the flickering plume of orange and red against the backdrop of an unforgiving twilight sky.  The mountains beyond the small town of Havenwood were shrouded in mist, their peaks seeming to bleed into the encroaching darkness.  He adjusted his helmet's chin strap, a worn leather relic from years spent battling blazes both large and small. 
+
+Tonight, however, was different. Tonight, it wasn't just another wildfire that demanded his attention. There was an unsettling stillness in the air, a chilling silence that felt as ominous as the flames themselves.  The usual chatter of crickets had faded into an almost unnatural quiet, replaced by a bone-chilling hum emanating from the heart of the inferno. It wasn’t the roaring flames that troubled Sparky, but the strange, distorted whispers he heard coming from within the monstrous blaze. 
+
+
+**Scene:** A remote mountain valley in the Cascade Range, Washington state, where wildfire is raging through a dense stand of towering pines and Douglas firs.  The air is thick with smoke and ash.
+
+**Character:** Daniel "Sparky" Lawson – A seasoned firefighter with years of experience battling blazes from across the Pacific Northwest. Known for his quick thinking and unwavering determination in the face of danger, Sparky's bravery and empathy are known throughout his small town community. He carries a deep-rooted connection to nature, as seen in his fondness for exploring and camping amongst the mountains.  

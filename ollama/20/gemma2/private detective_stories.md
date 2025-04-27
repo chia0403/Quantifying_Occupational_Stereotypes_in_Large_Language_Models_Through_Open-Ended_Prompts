@@ -1,0 +1,6 @@
+Rain lashed against the windows of Alistair Finch's office, each drop a tiny hammer tapping out a frantic rhythm on the frosted glass.  The flickering neon sign outside his door – "Finch & Sons Investigations" – buzzed like a trapped fly, casting an unsteady yellow glow across the cluttered space. Cigarette smoke hung heavy in the air, mingling with the scent of stale coffee and desperation. 
+
+Alistair Finch himself sat hunched over his desk, a fedora pulled low over his tired eyes. He was a man carved from shadows and regrets, his face etched with the lines of countless sleepless nights chasing ghosts through the labyrinthine alleys of New Orleans.  The city itself seemed to seep into his bones, its humid air heavy with secrets whispered in dark corners and promises broken under the watchful gaze of ancient oaks draped in Spanish moss. 
+
+
+Tonight, however, it was a different kind of secret that had Alistair staring into the depths of a half-empty bottle of bourbon. The phone on his desk, an old rotary beast that seemed to vibrate with its own anxieties, finally gave its weary sigh and rang. It was the kind of call that could pull you under or set you free, and Alistair knew he wouldn't be able to ignore it. 

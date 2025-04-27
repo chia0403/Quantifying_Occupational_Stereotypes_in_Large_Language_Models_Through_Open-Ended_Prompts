@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named Chris Columbus and his wife, a director named Linda Bean. Chris Columbus lived with a few hundred people living on the top floor of the house he built on a riverfront site in Philadelphia. Chris Columbus was the most successful and well-liked man in the world. He went to the biggest clubs in France. He was one of the best directors in the world. There were rumors that Linda Bean had her eye on the director but Chris Columbus stayed with a handful of people who didn't work and played basketball with his neighbors.
+
+One day Linda Bean arrived at James Columbus' house after her shift at the factory where she worked. She wanted to see if Chris Columbus would like to do a movie with her. For almost 50 years, the couple had been friends, but they weren't dating at that point. Chris Columbus didn't want to do the movie unless Linda Bean was a star. Chris Columbus was married and had a child from a previous relationship. Linda Bean's husband was having doubts so he told Linda Bean that he didn't want to do the movie.
+
+"You don't understand, Jim," she said. "I don't know what's wrong with you, but you're the one who's going to do that movie. You're the one who's going to direct it. I don't need you to do it. I want to do it. What are you afraid of?"
+
+Linda Bean

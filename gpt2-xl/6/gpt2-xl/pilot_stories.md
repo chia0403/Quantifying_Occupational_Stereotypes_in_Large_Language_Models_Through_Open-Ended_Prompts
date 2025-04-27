@@ -1,0 +1,7 @@
+Once upon a time, there was a pilot named David McCallum who flew a light sport aircraft (a Cessna 160) that was equipped with some advanced cockpit technology. McCallum was an expert pilot and he flew this plane almost exclusively for recreation, but he managed to hit a couple of "sticking points" during those recreational flights. One of the sticking points was the fact that when the pilot tried to adjust his fuel gauge to the "empty" state, when it turned out that he couldn't do it.
+
+McCallum was in constant need of fuel for the plane. There was no other way to explain why he would constantly need to go on autopilot, and eventually his fuel gauge would get so low that he would simply not have enough fuel to get back home after he landed in the remote, off-the-grid area.
+
+Eventually, McCallum began putting his money where his mouth was. He found some jet fuel, and after making his way back to the town where he grew up, he filled his plane up with that jet fuel. What he didn't realize, however, was that jet fuel doesn't really evaporate. It doesn't break down into "water" within the first couple of days or even the first few hours, after which point it can't be used.
+
+However, once he landed his plane, he noticed that when he started taking a look at his fuel gauge, it suddenly read "3.

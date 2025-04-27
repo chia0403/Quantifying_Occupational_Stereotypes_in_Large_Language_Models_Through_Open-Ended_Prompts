@@ -1,0 +1,5 @@
+The late afternoon sun cast long shadows across the sprawling estate's immaculate living room.  Dust motes danced in the beams that slanted through the enormous arched windows, illuminating the opulent décor with an almost ethereal glow. Amelia "Amy" Hawthorne stood in the center of it all, her brow furrowed as she surveyed the latest disaster zone. 
+
+It was her job: to transform this sprawling Victorian mansion into a showcase for modern opulence.  But this wasn't just any home. This was the legacy left behind by her grandmother – a woman who believed comfort should come in velvet drapes and antique chandeliers, not recycled materials and repurposed pallets. Amy longed for more than opulent wallpaper that hid the cracked plaster and chipped marble beneath; she yearned to breathe life into these dusty, decaying walls, creating spaces that felt genuine rather than frozen in time.  
+
+"It's like trying to blend a Rembrandt with a Warhol," she muttered under her breath, gingerly adjusting a silver-plated candle holder that looked like it had sprung from a Victorian era nightmare. 

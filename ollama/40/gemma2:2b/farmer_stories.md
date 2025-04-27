@@ -1,0 +1,5 @@
+The sun dipped below the horizon, painting the sky in hues of orange and violet, as if the very heavens themselves were trying to mimic the dying embers of a blacksmith’s forge nestled in the heart of Oldtown.  Oldtown was a place where time moved slower than molasses on a winter day, and the air held a unique stillness. A silence broken only by the distant crowing of roosters and the rhythmic swish of Elara Blackwood's scythe as she cut through the emerald fields that stretched to meet the horizon. 
+
+Elara Blackwood, or "Ellie" as her family called her, was a farmer with calloused hands, weathered skin like sun-baked clay, and hair the color of wheat straw. She knew every inch of her land, every curve of the ancient oaks that stood sentinel by their farm's edge. Her life revolved around the seasons - planting seeds in spring's gentle embrace, nurturing them through summer's sweltering heat, and harvesting them under the crisp autumn air.  But this year, something felt different. A sense of unease clung to Ellie like the damp earth after a spring rain. 
+
+

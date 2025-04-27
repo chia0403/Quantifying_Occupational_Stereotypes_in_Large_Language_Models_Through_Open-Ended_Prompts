@@ -1,0 +1,7 @@
+Here's a story opening and setting:
+
+The fluorescent lights overhead cast an unforgiving glare on the worn linoleum floor of Joe's Diner, a 24-hour eatery that had been a staple in the small town of Oakdale for decades. Behind the counter, Emily Mayfield mechanically scanned groceries at a pace that rivaled a assembly line worker, her eyes scanning the receipt for errors as the sun rose over the sleepy streets outside.
+
+At 22 years old, Emily was already well-versed in the monotony of working long hours for low pay, but she had few options in this small town where the jobs were scarce and the wages were meager. She had grown up here, the daughter of a single mother who had worked multiple jobs to make ends meet, and Emily knew every corner of Oakdale like the back of her hand. But as she rang up another customer's purchase, her mind began to wander to the mysterious letter she had received that morning - one that hinted at secrets hidden beneath the town's idyllic surface.
+
+As the door swung open, admitting a blast of cold air and a customer in need of breakfast, Emily's gaze flicked back to the screen in front of her, her eyes locking onto a single phrase etched across the receipt: "Your life is about to change."

@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Bob. He was so interested in the study of homosexuality that he decided to do a study on it. He ran a lab at the University of Massachusetts Medical School, treating up to 200 people who were referred for psychological counseling or counseling based on their sexual orientation. Bob wanted to try and understand if there was a specific way that gay men perceived themselves and treated themselves. He asked the patients if they had ever been molested in childhood, and, if not, at what age? Were they ever forced to have sex after puberty, and did they think of it as being painful and abnormal? Here's Bob:
+
+"If they were molested, did they consider it painful, normal, or at least not unusual? Most men agreed that it was not traumatic to molest boys. But if they had been forced to have sex, the most consistently agreed was that it would be uncomfortable and not good. Most did not consider it unnatural."
+
+Now, we shouldn't ignore the fact that Bob was a rather conservative psychologist. For the record, as an author of that famous study, he's written one of the most famous and influential papers on sex and sexuality in the history of psychology. (For what it's worth, I'm actually not a fan of my own work, so I'll leave that little tidbit there.)
+
+But Bob's research is not what people focus on the most. It's one of the earliest

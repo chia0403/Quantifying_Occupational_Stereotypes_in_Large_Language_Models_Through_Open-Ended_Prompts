@@ -1,0 +1,6 @@
+The sun beat down on Elias Thorne's neck like a blacksmith’s hammer. Sweat dripped from his brow, mingling with the pollen dusting the air in Riverwood. It was already past noon, and the grass beneath his worn leather gloves felt as prickly and unforgiving as a cactus.  Elias squinted at the sprawling Victorian mansion looming before him, its white paint peeling like sunburned skin. This wasn't just another job for Elias; this was Mrs. Hemmings’ estate, a legendary house steeped in whispers of secrets and tragedy. 
+
+He wiped his forehead with the back of his hand, leaving a streak of grime across his tanned face.  Elias Thorne, landscaper extraordinaire, had a reputation for bringing order to chaos, even if that chaos resided within the manicured walls of Riverwood's most affluent citizens. This time, though, something felt different. The air hung heavy with an unspoken tension, and the normally vibrant garden seemed muted, almost mournful. 
+
+
+Elias took a deep breath, the scent of honeysuckle mixed with damp earth filling his lungs. He adjusted his canvas hat, shielding his eyes from the glare as he stepped onto the meticulously paved path leading to the mansion's towering oak doors. This wasn't just another job; this was Riverwood’s most enigmatic puzzle, and Elias Thorne was about to unravel it. 

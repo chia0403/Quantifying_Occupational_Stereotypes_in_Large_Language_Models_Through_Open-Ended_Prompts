@@ -1,0 +1,6 @@
+The hammer swung with practiced grace, echoing through the cavernous workshop.  A shower of grey dust erupted from the rough block of granite under Elara Briarwood's chisel. Sunlight streamed through the dusty skylights, casting long shadows across the cluttered space and illuminating the intricate veins running through the stone. Elara wiped the sweat from her brow with a grimy rag, her calloused fingers instinctively tracing the pattern of the vein. 
+
+She wasn't just shaping granite; she was coaxing life out of it, revealing the hidden beauty slumbering within its depths. Each tap of the hammer, each precise stroke of the chisel, was a conversation between her and the stone, a delicate dance of force and finesse. Elara Briarwood, Master Stone Cutter of Willow Creek, understood this language better than most.
+
+
+The workshop itself was a testament to her craft: a sprawling room nestled deep within the heart of Willow Creek, an ancient mining town clinging precariously to the side of a mountain shrouded in mist. The air hung heavy with the scent of stone dust and wood smoke, punctuated by the rhythmic clang of hammers and the occasional hiss of steam from the forge at the back. Outside, the wind whistled through the gaps in the crumbling walls, carrying with it the promise of a storm brewing on the horizon. 

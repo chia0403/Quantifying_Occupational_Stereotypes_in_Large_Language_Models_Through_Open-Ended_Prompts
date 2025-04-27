@@ -1,0 +1,9 @@
+## Story Opening:
+
+The rain hammered against the corrugated iron roof of my office, a relentless drumbeat that mirrored the pounding headache brewing behind my eyes. Cigarette smoke, stale coffee, and the lingering ghost of desperation clung to the air like a shroud. Another Tuesday. Another day where the only excitement came from the ever-present threat of the ceiling collapsing on my head. I swirled the amber liquid in my glass, the lukewarm whiskey doing little to soothe the knot tightening in my gut. Then, the bell above the door jingled, a tinny, discordant sound that sliced through the oppressive silence. I sighed, resigned. Business was business, even if business usually meant more trouble than it was worth. "Come in," I grumbled, the word barely audible above the storm.
+
+## Setting:
+
+**The Office of Augustus "Gus" Finch, Private Investigations:**
+
+Gus's office, nestled on the second floor of a dilapidated brick building on the less-than-glamorous side of Havenwood, was a testament to his dwindling fortunes and even more dwindling desire to maintain appearances. The walls were a sickly shade of yellow, peeling in places to reveal patches of bare plaster underneath. A single, flickering fluorescent light fixture buzzed overhead, casting long, uneven shadows across the room. A battered oak desk, inherited from his grandfather, dominated the space, piled high with files, unpaid bills, and half-empty coffee mugs. A threadbare Persian rug, faded and stained, covered most of the warped floorboards. A single, dusty window offered a grimy view of the rain-soaked alleyway below, the only hint of the outside world reaching the interior. The only item that seemed remotely functional was a black rotary phone, sitting stubbornly on the edge of the desk, a relic from a bygone era that Gus stubbornly refused to replace.

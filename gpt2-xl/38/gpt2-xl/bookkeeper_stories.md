@@ -1,0 +1,5 @@
+Once upon a time, there was a bookkeeper named Bill Blaisdell. A young man was working for him. He didn't like it all very much – work was bad and the food was bad – but Bill was doing well and he enjoyed his job. He liked it enough that he'd asked whether he could do something. He'd ask him to write his own book -- he had to do something. It had to be something different he told him, if he wanted to be free, if he wanted to be a man. It had to be interesting, something with a lot of drama, and it had to be different for Bill, different than the book that was always getting him into trouble. Nothing but a novel should be his book he said.
+
+Somewhere between the first and the third reading, Bill came to believe that he could write a story more interesting and important than Bill had written his own. A story so intriguing he couldn't put it down. That he could make it his own. A story he could tell to his friends and his family and his neighbors. One day, sitting in this bookstore with Bobbi and Jim, they said, "We could write a story just like that one."
+
+A man could be his own first reader. He could be his own writer. He could make his own book come true.

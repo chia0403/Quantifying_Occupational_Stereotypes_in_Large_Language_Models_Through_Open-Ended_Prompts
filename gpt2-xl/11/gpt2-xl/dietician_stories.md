@@ -1,0 +1,7 @@
+Once upon a time, there was a dietician named Gwen Sanger. It all began in 1848, when she created the standard method of treating smallpox and became a key figure in the development of the first modern immunology school. In 1862, she founded Woman Suffrage. In 1883, she was named one of the first honorary medical professors at Mount Sinai. She was the first woman elected to the British Medical Association. In 1899, following her advocacy for equal suffrage, she became the first woman elected to Parliament. She was still one of the leading authorities and pioneers of the modern treatment of smallpox when she passed away as the widow of General Lord Atkin, in 1937.
+
+In the 20th century, the field of small pox research improved markedly. By the mid-20th century, new molecular techniques allowed for precise gene detection, and many researchers made advances in the diagnosis and treatment of smallpox. More recently, a variety of diagnostic tests that involve the detection of a viral protein have been developed to detect smallpox and confirm positive diagnosis. But still, there's more work to be done, particularly in the area of the molecular detection of smallpox virus.
+
+When we spoke to George Weigel about the possibility of the discovery of the genetic material of the human smallpox virus, he said,
+
+I think it's possible to go for the whole genome even though you only find bits and pieces that are related. In other words,

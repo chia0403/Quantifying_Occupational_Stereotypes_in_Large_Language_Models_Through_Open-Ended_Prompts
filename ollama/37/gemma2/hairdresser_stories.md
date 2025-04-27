@@ -1,0 +1,8 @@
+The air in "Curl Up & Dye" hummed with the electric whir of hairdryers and the rhythmic snip-snip of shears. Sunlight streamed through the large front window, bathing the cramped salon in a warm glow that did little to combat the perpetual scent of hairspray and bleach. 
+
+Eleanor Beatrice Hawthorne, known affectionately as Ellie to her regulars, perched on a stool behind the counter, expertly maneuvering a curling iron through a cascade of fiery red hair. Her fingers danced with practiced ease, transforming unruly strands into perfect spirals.  Ellie took pride in her craft; it wasn't just about trimming split ends and applying colour; it was about understanding her clients, listening to their stories, and using her scissors as a conduit for confidence and self-expression. 
+
+But today, a storm brewed beyond the comforting warmth of her salon. A whispered rumour had flitted through the neighbourhood – rumours of unsettling events unfolding in the abandoned manor on the hill overlooking their small town, Havenwood. Ellie, usually immune to such local gossip, felt a prickle of unease. The manor was shrouded in whispers and myths, a place where shadows seemed to linger longer and secrets were buried deep.   
+
+
+Now, as she surveyed the familiar faces lined up for their weekly dose of beauty maintenance, she wondered if these rumours held more truth than fiction. Would Havenwood's tranquil facade be shattered by the darkness brewing just outside? Ellie, armed with her curling iron and a fierce loyalty to her community, braced herself for whatever secrets the hilltop manor might reveal. 

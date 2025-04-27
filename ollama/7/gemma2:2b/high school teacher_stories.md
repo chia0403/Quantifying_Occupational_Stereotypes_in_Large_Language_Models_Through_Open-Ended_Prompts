@@ -1,0 +1,5 @@
+The scent of stale coffee clung to Mrs. Evelyn Hawthorne's classroom like a tired ghost.  The late October air in Willow Creek High was crisp and biting, sending chills down even the thickest sweaters. Outside, leaves whirled in a frantic dance around the library windows, mimicking the erratic beats of her heart as she stared at the stack of disciplinary letters on her desk. 
+
+Evelyn Hawthorne, with her unruly silver hair pulled back into a tight bun and her ever-present lavender-scented hand lotion, was no stranger to conflict.  But this time it felt different, like a storm brewing in the otherwise peaceful life that seemed so perfectly curated for her. She took a deep breath, trying to steady her nervous tremors as she picked up a letter, addressed in an unfamiliar spidery handwriting. 
+
+Willow Creek High's hallowed halls echoed with gossip and whispered rumours.  They had begun circulating about Mrs. Hawthorne's recent decision to allow a student named Amelia Thorne to join the school newspaper. A move that was seen by some as a progressive act of inclusivity, while others saw it as a reckless gamble against the traditional boundaries of their town. 

@@ -1,0 +1,6 @@
+The bell above the door chimed softly as Elara Rosewater wiped down her last client's cuticles. The scent of lavender hand lotion hung heavy in the air, mingling with the faint aroma of freshly brewed jasmine tea that always simmered on the stove in the corner. Outside, a steady drizzle painted the world outside in shades of grey, but inside "Rosewater & Polish," Elara’s quaint little nail salon nestled within a bustling neighborhood, the warmth and soft chatter created an island of tranquility. 
+
+Elara leaned back against her polished cherry-wood desk, her eyes taking in the pastel-toned walls adorned with delicate floral prints, each brushstroke echoing the meticulous care she took with her clients' nails. A gentle sigh escaped her lips as she surveyed the scene – the calming blue nail polish drying on a nearby tray, the fluffy towels neatly stacked in the corner, and the small pot of ferns flourishing on the windowsill, their emerald leaves shimmering with raindrops. 
+
+
+It was moments like these that Elara cherished, the quiet lull before the next customer would step through the door, bringing with them a story waiting to be heard – a whispered secret tucked away under layers of red polish or a shared dream painted onto each nail tip.  

@@ -1,0 +1,7 @@
+Once upon a time, there was a heavy equipment operator named Steve who worked for a company that had been contracted by a company that owned the nearby cement yard. For some reason, the cement company wanted to build a road in the same place. The situation was complex, because it was impossible to get a contract of any kind from either the company or the cement company because all the money in the world wasn't enough for a local contract to be awarded.
+
+So, the company was not able to get a contract and instead went out into the market and struck a deal with a local cement company which hired them to build a road. Both companies paid Steve a little more than he was making. But they weren't getting paid for that. Instead, they were paying him to lay the asphalt, which was being paid for by the cement company.
+
+The fact that both companies paid Steve for working without pay turned him against both of them. Steve said that every day on his way home from work he would see drivers driving the cement with no license to begin with. He began driving around in some of those cars to let everyone know that he was disgusted by both of them for doing the same thing.
+
+Steve would stop those drivers, pull them out of their cars, ask them if they thought they were getting a good bargain when they could be looking around and not driving the cement with no license and ask them if they knew that this was illegal? If they said yes, he'd

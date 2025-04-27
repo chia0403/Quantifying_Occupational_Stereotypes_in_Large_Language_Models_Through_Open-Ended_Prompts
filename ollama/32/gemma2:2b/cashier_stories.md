@@ -1,0 +1,7 @@
+The fluorescent hum was punctuated by the rhythmic scraping of metal on metal as Amelia "Amy" Hayes tallied another sale. Her world had become a symphony of clicks, beepers, and the monotonous rustling of plastic bags at 7:00 PM on any given Tuesday.  The "Everything Goes for a Dollar!" banner hung crookedly above her station at The Bargain Box - a name that seemed ironically ironic considering the price tags she was wrestling with every day.  
+
+She glanced at the time as a teenager stumbled in, his eyes wide and full of desperate hope. "I... I need a pair of shoes," he stammered, clutching a worn-out duffel bag.  "For my brother's birthday." The boy's name – Lucas - was barely audible over the clamor of customers browsing for bargains on discounted everything. 
+
+The rain outside was a blur of grey streaks and an ever-present echo of Amelia's own internal storm. This place, this job – it wasn’t exactly what she dreamt of when she pictured herself as an adult. She envisioned grand cafes with jazz music and charming customers from all walks of life, not the monotonous routine that played out each day at The Bargain Box. 
+ 
+But Amelia was stuck, holding onto a dream while her life unfolded in the fluorescent-lit purgatory that was working as a cashier. As she scanned Lucas’s meager bag – filled with worn-out jeans and an old soccer ball – a flicker of hope ignited within her. Perhaps, she could change her own rhythm; maybe there was more to this dreary routine than just another sale... 

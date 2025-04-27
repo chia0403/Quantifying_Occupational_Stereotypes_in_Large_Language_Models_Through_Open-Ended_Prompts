@@ -1,0 +1,7 @@
+The biting wind, laced with the scent of wet concrete and exhaust fumes, whipped around the scaffolding, stinging Daniel James O'Connell's cheeks. He squinted, pulling his worn-out Carhartt beanie lower, trying to shield his eyes from the swirling snow. Even through his thick gloves, the steel of the rebar he gripped was shockingly cold.
+
+He was perched high above the icy Hudson River, a precarious dance of steel and grit against the backdrop of the perpetually gray New York City skyline. Below, the ceaseless roar of traffic on the West Side Highway was a muffled hum, a distant reminder of the teeming life he was temporarily removed from.
+
+This was his world, this latticework of metal and muscle. Daniel, or Danno as everyone called him, was a foreman on the "Freedom Tower West" project. A sprawling complex of luxury apartments and offices meant to revitalize the western edge of Manhattan, it was a monument to ambition, built brick by back-breaking brick. Today, they were pouring the concrete foundation for the 42nd floor, a crucial step in the race against the rapidly approaching winter.
+
+He took a deep breath, the icy air burning in his lungs, and surveyed his domain. From this height, the city looked like a sprawling Lego set, a chaotic jumble of lights and angles. He loved it, this dizzying height, the feeling of creating something tangible, something solid, in the face of such overwhelming chaos. But today, a nagging unease settled in his gut, a premonition as icy as the wind cutting through him. Something felt… off.

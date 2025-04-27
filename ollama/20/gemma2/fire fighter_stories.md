@@ -1,0 +1,5 @@
+The wail of the siren sliced through the pre-dawn quiet, its piercing scream a stark contrast to the gentle lapping of the waves against the harbor. Amelia "Amy" Rosewater gripped the steering wheel, knuckles white as she navigated the winding streets of Oakhaven.  Her heart hammered in her chest, not from fear, but from the familiar rush of adrenaline that always accompanied a call. 
+
+Oakhaven was a sleepy seaside town where the biggest drama usually revolved around the annual Lobster Fest and the occasional rogue seagull stealing someone's fish and chips. But Amy knew better than to underestimate the unpredictable nature of fire. The salty air carried the acrid tang of smoke, confirming that this wasn't a false alarm.  As they sped towards the heart of town, past quaint cottages with their brightly painted doors and fishing boats bobbing gently in the harbor, Amy scanned her dashboard. 
+
+The flashing red lights cast an eerie glow on her face, highlighting the determined set of her jaw. She had to get there fast. Lives were at stake.  This wasn't just another day at the firehouse for Amy Rosewater; this was her calling, her purpose. 

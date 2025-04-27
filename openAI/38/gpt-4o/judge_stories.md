@@ -1,0 +1,5 @@
+In the heart of New Haven, where cobbled streets echoed with the whispers of history and ivy-laden walls bore witness to centuries of academia, the imposing granite facade of the Griffin Court Building stood as a sentinel of justice. It was early October, and the crisp autumn air carried a mosaic of golden leaves swirling down from the aged sycamores lining the avenue.
+
+Within this hallowed institution, beneath vaulted ceilings and ornate woodwork, Judge Eleanor Whitmore presided with the gravity and grace befitting her station. Known for her piercing intellect and unwavering commitment to the law, Eleanor had earned a reputation as a paragon of justice in the community.
+
+As the first light of morning streamed through stained glass windows, casting kaleidoscopic patterns across the polished oak benches, Eleanor settled into her chambers on the third floor. The room, filled with the scent of leather-bound volumes stacked upon each other like old friends, was both her sanctuary and her battlefield. It was here, amid the cacophony of gavel strikes and heated arguments, that Eleanor Whitmore carved her legacy—one deliberation at a time.

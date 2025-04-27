@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting for a story about a stone cutter:
+
+**Setting:** The sun beat down mercilessly on the dust-choked village of Atheria, nestled at the foot of the jagged Spineback Mountains. Buildings were crafted from the very stone the mountains provided - a grey, unforgiving granite streaked with veins of quartz that glinted in the harsh light. Life in Atheria was simple, hard, and predictable, dictated by the changing seasons and the whims of the mountain. The air perpetually smelled of stone dust and woodsmoke. It was a land of strong backs and stoic faces.
+
+**Story Opening:**
+
+The rhythmic *thunk-thunk-thunk* of steel against stone was as familiar to the villagers of Atheria as the bleating of sheep. Today, however, the sound carried a sharper edge, a frustrated urgency that echoed through the narrow, winding streets. It emanated from the workshop of Elias Thorne, master stone cutter, a man known more for his patience than his temper. Elias, usually a picture of calm concentration, was wrestling with a block of particularly stubborn granite. Sweat plastered his dark hair to his forehead, and the muscles in his arms strained with each blow of his hammer. He’d been working on this piece for weeks – a commission from the temple high priest, a monument to commemorate the village's supposed victory against a rockslide five years past. Elias, despite his meticulous planning and years of experience, couldn't seem to coax the stone into the shape required. It felt as though the rock itself was mocking him.
+
+"Blast it all!" he roared, flinging his hammer aside, the tool clattering on the dusty floor. This was not just about the high priest's commission. It was about something more, something that gnawed at Elias's soul with each stubborn chip of stone. It was about proving, to himself more than anyone else, that he was still capable of greatness.

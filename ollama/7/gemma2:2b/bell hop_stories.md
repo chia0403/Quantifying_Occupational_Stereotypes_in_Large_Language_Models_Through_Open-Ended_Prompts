@@ -1,0 +1,7 @@
+The neon "Grand Majestic Hotel" sign cast a sickly green glow on Elara Blackwood's face as she surveyed her territory - the bustling entryway leading into the opulent yet undeniably dingy hotel lobby.  It was 1932, and the city, like the Grand Majestic itself, held a weary sheen beneath the layer of glamour. The air hung thick with cigarette smoke, sweat, and the promise of cheap gin cocktails.  Elara sighed, pushing back her perfectly coiffed hair, and took her place under the worn-out velvet canopy at the luggage stand. 
+
+Her name was Elara Blackwood - a moniker she’d never understood until recently. “Blackwood” had always felt like a weight, a legacy of secrets she hadn't been privy to, but lately, it seemed strangely fitting in this city teeming with hidden stories.  After years of working for the Grand Majestic, Elara was its unofficial historian, able to glean whispers from weary travelers and gossip from the staff. Tonight, though, her ears were tuned for something more than just another traveler's tale. 
+
+The hum of activity felt like a constant melody beneath the cacophony of voices, each a song of its own -  a longing for escape from the city’s grime, a desperate hope for love, or maybe just a quiet solace in a stolen hour. Elara, with her silver bell tucked behind her ear and a smile as sharp as a diamond ring, was merely an observer, yet somehow, she felt strangely drawn into these stories unfolding under the Grand Majestic's watchful eyes. 
+
+

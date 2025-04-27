@@ -1,0 +1,7 @@
+Once upon a time, there was a executive named Charles Smith who, at the height of his power, oversaw a vast enterprise known as Blackwater of Ramstein.
+
+Smith owned Blackwater from its founding in 2001 until his February 2007 resignation, when he pleaded guilty to fraud and conspiracy charges in front of a federal grand jury and agreed to become the first of several Blackwater executives to surrender from the company. In that same time span, Blackwater's global reputation was at or near death. Smith was a divisive figure, blamed for the deaths of seventeen unarmed unarmed civilians—some of whom were American—resulting from Blackwater's "guns for hire" missions in Iraq and Afghanistan since he took over the command for the United States' most notorious mercenary firm in 2003. When Smith's resignation was official, the Wall Street Journal called his resignation "the most dramatic turnaround in Blackwater's history."
+
+Smith had no problem with America arming Iraq insurgents in the first place, his "guns for hire" contracts had gone on for years and included the killing or capture of over ten thousand Iraqis. If Blackwater employees, such as Private First Class Dustin Heard and Captain Brian Reynolds, went as far as to murder Iraqis—which, as we now know, they did—he was fine with that, and defended them, saying that he could defend his life in such circumstances. It was, rather, Blackwater's reputation in Iraq that Smith had a problem with.
+
+Smith had his

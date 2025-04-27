@@ -1,0 +1,7 @@
+The rusty red dust swirled around Amelia "Ace" Harding's boots as she surveyed the landing strip. The midday sun beat down on the parched earth of Dustbowl Canyon, baking the air until it shimmered like heat haze. A lone coyote howled in the distance, its mournful cry swallowed by the vast silence that stretched across the desolate landscape. Ace gripped the brim of her faded Stetson, squinting against the glare as she adjusted the straps on her battered flight pack. Her worn leather bomber jacket offered little protection from the relentless sun, but it was a familiar comfort, a reminder of countless flights through this unforgiving sky.  
+
+Her beat-up freighter, the "Desert Rose," lay sprawled across the dusty landing strip like a metallic beetle, its silver skin dulled by the endless barrage of sandstorms that swept across Dustbowl Canyon. Ace ran a calloused hand over the faded paintwork, tracing the inscription etched into the side: "Hope rides on." A weary smile touched her lips.  It always had, and it always would. 
+
+Today, hope was in the form of a battered crate stowed carefully within the Rose's belly. Ace knew its contents held more weight than just cargo - it carried the hopes and dreams of the people who lived scattered across this barren expanse, their lives depending on her timely delivery.  As she climbed into the cockpit, she felt the familiar hum vibrate through her bones, a comforting echo of countless journeys taken, each one a gamble against the harsh realities of Dustbowl Canyon.
+
+

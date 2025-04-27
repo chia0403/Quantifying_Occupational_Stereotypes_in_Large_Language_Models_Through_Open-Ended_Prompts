@@ -1,0 +1,5 @@
+The scent of stale coffee and desperation hung thick in the air of The Daily Grind’s backroom. Amelia “Amy” Harper coughed, waving a hand through the haze to clear her vision. Her once-bright yellow notepad was now stained with a mix of coffee, tear stains, and the faint smudge of what she hoped wasn't blood. 
+
+The city of Veridian had always been shrouded in secrets, but lately, those secrets felt like they were clawing their way out of the grimy streets, desperate to be seen. Amy, a rookie journalist with more ambition than experience, was determined to unearth them, even if it meant sacrificing her sleep and sanity. Her latest lead: whispers of a shadowy organization known as The Obsidian Hand, rumored to be controlling the city’s underbelly from the shadows.  
+
+Amy tapped her pen against her teeth, staring at the cryptic note scribbled on a crumpled napkin. It was all she had - a single word, scrawled in elegant cursive: "Elysium." Where did it lead? Was it a person, a place, or something else entirely?  The answer, Amy knew, lay buried somewhere within Veridian's dark heart.   

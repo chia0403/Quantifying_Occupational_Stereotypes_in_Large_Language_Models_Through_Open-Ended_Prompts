@@ -1,0 +1,7 @@
+Once upon a time, there was a massage therapist named Dr Joseph Mercola. Mercola is famous even for what he doesn't do. His most famous claim is that he has cured cancer. This claim is based on an experiment of one, Dr. Weston Price, the founder of a whole food plant-based plant-based diet and a physician at Massachusetts General Hospital. Mercola also has two million followers on social media and his own website, The Food Babe. He is also an American naturopath and "healer."
+
+Dr Price's experiment proved that the "detox" diet did not cause people to have a significant drop in their immune systems.
+
+Dr Weston Price had four thousand dollars invested in an experimental anti-cancer treatment by a Japanese doctor called Dr. Iwasa Hayakawa. It included a four-year treatment with a diet of wheatgrass grass, oats, and squash. The treatment was never tested, no one was ever certified as a trained "detox" doctor and no scientific evidence was published about it. Dr Hayakawa claimed that the diet cured his cancer and that he could remove his tumors with no side effects. Yet during this experiment, two hundred and forty people had deaths resulting from a combination of heart disease, cancer, and autoimmune diseases. Dr Price's experiment proved that the "detox" diet did not cause people to have a significant drop in their immune systems.
+
+In this article, we show that several supplements

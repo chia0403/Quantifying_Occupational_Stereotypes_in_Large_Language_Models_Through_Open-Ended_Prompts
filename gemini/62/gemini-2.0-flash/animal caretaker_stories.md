@@ -1,0 +1,13 @@
+## Story Opening:
+
+The screech of a hawk cut through the thick morning mist clinging to the valley, a sound Amelia Rose Hawthorne knew as intimately as her own heartbeat. She paused, her breath puffing out in white clouds, and leaned on the worn wooden fence of the raptor enclosure, her calloused fingers gripping the smooth surface.  The hawk, a magnificent red-tailed beauty named Icarus, perched restlessly on a thick branch, his sharp, intelligent eyes fixed on something moving beyond the confines of the Sanctuary.  
+
+Amelia sighed, a sound swallowed by the vastness of the Montana wilderness.  Icarus had been particularly agitated this morning, and she suspected it had something to do with the distant rumble she’d felt in her chest before dawn.  Earthquakes weren’t uncommon in this part of the country, but something about this one had felt…different.  More than that, a strange unease had settled over the entire Sanctuary, a palpable tension that seemed to radiate from every creature in her care.
+
+She straightened, pulling her thick woolen scarf tighter around her neck.  Ignoring the lingering chill in the air, Amelia began her rounds, the rhythm of her boots on the frosted grass a familiar comfort against the unsettling silence that had replaced the usual dawn chorus of birdsong.  She had a lot of hungry mouths to feed, and a feeling she couldn't shake that today, more than any other day, they were counting on her.
+
+## Setting:
+
+The story is set in the **Hawthorne Wildlife Sanctuary**, nestled deep within a remote valley in **southwestern Montana**. The Sanctuary is a sprawling haven for injured or orphaned animals, primarily native to the region.  It's a mix of fenced enclosures that blend seamlessly into the natural landscape, and rustic, log-built buildings housing veterinary facilities, food storage, and living quarters for Amelia and a small staff.
+
+The terrain is rugged and beautiful, characterized by rolling hills, dense pine forests, and crystal-clear streams fed by snowmelt from the towering, snow-capped mountains in the distance. The climate is harsh, with long, cold winters and short, intense summers. Wildlife abounds, from deer and elk grazing in the meadows to bears and mountain lions roaming the higher elevations.  The nearest town, a small, isolated community called Havenwood, is a thirty-minute drive down a winding dirt road, offering only the bare necessities and a sense of quiet solitude. The closest city, Missoula, is a full day's journey away.  The Hawthorne Wildlife Sanctuary is a place of wild beauty and untamed spirit, a haven for both animals and those seeking refuge from the modern world.

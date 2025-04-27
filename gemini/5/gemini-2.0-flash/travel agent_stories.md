@@ -1,0 +1,13 @@
+## Story Opening:
+
+The persistent, rhythmic *tap, tap, tap* of the chipped crimson nail against the worn brochure of the Dalmatian Coast was driving Eleanor Amelia Peabody to the brink of insanity. It wasn’t the brochure itself – with its sun-drenched beaches and impossibly turquoise waters, it was a veritable postcard from paradise. It was the woman across the desk, Mrs. Agnes Periwinkle, whose own resemblance to a sun-dried tomato was becoming more pronounced with each passing second, and whose indecision was bordering on pathological.
+
+Eleanor, a woman whose sanity was usually as steadfast as her sensible shoe collection, took a deep, calming breath. “So, Mrs. Periwinkle,” she began, her voice carefully laced with the same sunny enthusiasm she reserved for first-time honeymooners, “just to recap, we’re still debating between the five-star resort in Dubrovnik and the charming, family-run guesthouse in Split?”
+
+Mrs. Periwinkle tapped harder, the rhythmic percussion now threatening to dislodge a nearby potted fern. "Well, Dubrovnik sounds so… grand. But Split... Split has that market, you know? All those interesting things one can haggle for."
+
+Eleanor closed her eyes for a fraction of a second, picturing the perfectly organized spreadsheet waiting for her back at the office, the one she needed to finish before Mr. Henderson's inevitable call. She needed to sell this woman a vacation. Now. Before she started quoting exchange rates from 1987.
+
+## Setting:
+
+The scene unfolds in "Peabody's Passports & Paradise," a small, family-owned travel agency nestled in the heart of Willow Creek, Iowa. The building itself is a charming brick structure, painted a cheerful buttercup yellow and adorned with window boxes overflowing with petunias (a deliberate choice by Eleanor, who believed a splash of colour could cure even the most acute case of wanderlust apathy). Inside, the aroma of freshly brewed coffee (another Eleanor staple, crucial for surviving the day's clientele) mingles with the faint scent of old paper and travel brochures. Maps of the world wallpaper the walls, interspersed with framed photographs of Eleanor's own adventures – the Eiffel Tower shimmering in the Parisian twilight, the vibrant chaos of a Moroccan marketplace, the tranquil serenity of a Japanese Zen garden. Despite its small size and slightly dated decor, the agency radiates a cozy, inviting atmosphere, a testament to Eleanor's dedication to making dreams of faraway lands feel attainable, even in the heartland of America. The desk is cluttered with travel guides, brochures, and a half-eaten biscotti, evidence of the whirlwind of activity that is Eleanor Peabody's daily life.

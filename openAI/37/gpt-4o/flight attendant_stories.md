@@ -1,0 +1,5 @@
+The morning sun poured through the expansive windows of Terminal B at Logan International Airport, casting a golden glow on the bustling travelers below. The air buzzed with the familiar chorus of rolling suitcases, announcements over the intercom, and the laughter of families beginning their journey. Amidst the sea of people, Eloise Gardner adjusted her crisp navy blazer, the polished silver wings on her chest catching the light as she moved.
+
+Eloise felt a particular fondness for mornings at the airport. It was in those early hours, with the promise of adventure hanging in the air, that she found her purpose renewed. As a flight attendant for over a decade, she'd come to cherish the rhythm of airport life, a symphony of comings and goings she knew by heart.
+
+Walking briskly towards Gate 23, Eloise glanced at her watch. She savored the moments before boarding, when time seemed to stretch and compress all at once. It was a momentary pause before the whirlwind of takeoff, when everything was as it should be and the world lay just a little bit open to possibility.

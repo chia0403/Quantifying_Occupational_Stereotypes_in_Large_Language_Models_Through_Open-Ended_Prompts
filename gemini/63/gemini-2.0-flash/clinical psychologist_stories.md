@@ -1,0 +1,5 @@
+The chipped ceramic mug warmed Dr. Eleanor Vivian Sterling’s hands, the lukewarm Earl Grey offering little more than a flimsy excuse for a ritual. Rain lashed against the bay windows of her office, blurring the already muted colors of the late afternoon. Outside, Seattle was drowning in its usual melancholic symphony of wind and water.
+
+Dr. Sterling’s office, located in a stately but slightly dilapidated Victorian house on Queen Anne Hill, was intended to be a sanctuary, a carefully curated space of calm and empathy. Soft light, muted blues and greens, a worn Persian rug muffling the city’s cacophony. But today, even with the crackling fire in the hearth and the soothing instrumental music playing softly from her ancient record player, a thick layer of unease permeated the air.
+
+She was waiting for him. He was late, as usual. It wasn't the tardiness that bothered her, though. It was the feeling, the prickling on the back of her neck, the almost imperceptible tremor in her hands. A feeling she usually reserved for the particularly damaged, the deeply fractured, the… dangerous.

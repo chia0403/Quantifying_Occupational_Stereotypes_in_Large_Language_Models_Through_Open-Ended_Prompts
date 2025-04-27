@@ -1,0 +1,7 @@
+The midday sun beat down on Amelia "Amy" Thorne's neck as she perched precariously on the crumbling edge of the abandoned pier. The Atlantic wind whipped her hair across her face as it carried the scent of salt and decay - the usual perfume of life lost at sea, or so it seemed. Below, a turquoise expanse stretched endlessly into the horizon.  
+
+The setting sun was painting the sky in hues of burnt orange and fiery red, turning the usually bleak landscape into something breathtakingly beautiful. Amy squinted through her camera lens, its zoom capturing everything she could see – the rusted remains of forgotten boats swaying gently on the current, flocks of seagulls circling above with their calls echoing across the desolate expanse.  
+
+It wasn't easy being a journalist in this town. A place like Havenwood clung to the past; the whispers of shipwrecks and legends of pirates long gone hung in the air thicker than the humidity. But Amy had an insatiable curiosity for the hidden stories buried beneath the layers of time and tragedy – a yearning to capture their echoes, however faint they might be. Her latest article, on the unsolved disappearance of the "Sea Serpent," was particularly intriguing.  
+
+Amelia Thorne, reporter extraordinaire, felt a shiver run down her spine as she heard a mournful cry from the distance. It wasn't an animal; it was human. A figure shrouded in shadow stood at the edge of the pier, clutching their head. 

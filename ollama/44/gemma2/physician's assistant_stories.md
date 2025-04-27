@@ -1,0 +1,7 @@
+The air hung thick with the scent of antiseptic and stale coffee in the cramped examination room. Rain lashed against the windows, blurring the city lights outside into shimmering streaks. Amelia "Amy" Harper sighed, adjusting her blue scrub top and smoothing down her unruly auburn curls. Another night shift at City General, another parade of ailments and anxieties. 
+
+Tonight felt different though. A tremor of anticipation buzzed beneath Amy's usual calm demeanor. It was the anniversary of Dr. Evans' arrival, five years to the day since she'd taken over this understaffed, underfunded corner of the ER.  Amy had been here for three of those years, watching Dr. Evans transform the department from a chaotic mess into a haven of competent, compassionate care. Tonight, there was going to be a small celebration - pizza, maybe some poorly decorated cupcakes, and an embarrassing round of "This is Your Life" anecdotes. Amy rolled her eyes; she knew she'd end up blushing furiously when they inevitably recounted the time she accidentally swapped the blood pressure cuff with the otoscope during a particularly stressful shift. 
+
+But amidst the mundane routine and forced cheerfulness, something else flickered in Amy's chest: a quiet sense of longing. A yearning for something beyond these four walls, beyond the endless cycle of triage and treatment.  She wasn't sure what it was, but tonight, she felt like change was on the horizon. 
+
+

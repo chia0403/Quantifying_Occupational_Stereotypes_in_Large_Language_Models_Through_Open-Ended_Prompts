@@ -1,0 +1,8 @@
+The air hung heavy with the scent of stale coffee and printer ink in Amelia "Amy" Grace's cramped office. Sunlight streamed through the dusty windows, illuminating motes dancing in the haze above her desk, piled high with manuscripts. Each one, a world waiting to be shaped, polished, and unleashed upon the unsuspecting public.  
+
+It was 9:17 AM on a Tuesday, and Amy, with her unruly auburn hair pulled back in a messy bun and a pair of perpetually smudged glasses perched precariously on her nose, was already knee-deep in revisions for a fantasy novel about dragons and warring kingdoms. A headache throbbed behind her eyes, but she wouldn't stop until the protagonist's motivations were clear as crystal and the plot flowed like a well-tuned symphony. 
+
+Her office, perched precariously above a bustling ramen shop in downtown Chicago, was far from glamorous.  Bare walls adorned with forgotten motivational posters and stacks of unreturned library books gave way to the comforting hum of her ancient computer, its whirring fan a constant companion in her solitary world. But for Amy, it was perfect. This was where she thrived, amidst the chaos and creativity, shaping stories and guiding voices into existence. 
+
+
+Today, however, felt different. A prickling sensation at the back of her neck told her that something was amiss, like an undercurrent of unease running beneath the surface of her usual routine. And as she reached for her coffee mug, a stray whisper on the wind caught her attention – a name spoken in hushed tones, carried from the bustling streets below. A name that sent a shiver down her spine: "The Crimson Quill." 

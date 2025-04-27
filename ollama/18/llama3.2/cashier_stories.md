@@ -1,0 +1,9 @@
+Here's a story opening and setting for you:
+
+The fluorescent lights overhead cast an unforgiving glare on the worn linoleum floor of the local convenience store, where 22-year-old Alexis Rae Thompson had been working as a cashier since her high school graduation. It was a routine job that paid the bills but left little room for creativity or excitement in her life.
+
+As she clocked out at the end of her shift, the bell above the door jingled, signaling the arrival of a lone customer - a young woman with piercing green eyes and jet-black hair, who slipped onto the worn couch in the corner, away from prying ears. The air was thick with the smell of stale coffee and yesterday's Chinese takeout, and the TV mounted on the wall played a loop of static that seemed to echo the emptiness in Alexis' chest.
+
+Alexis had always been the type to keep her head down, working hard to make ends meet while her family struggled to stay afloat after her father lost his job at the local factory. She had big dreams of leaving this small town behind and making a name for herself somewhere else, but until then, she was stuck in this dead-end job, waiting tables and sweeping up after the late-night revelers who came through the store.
+
+As she began to count down her change and prepare to call it a night, Alexis couldn't shake the feeling that something was off about this new customer - a sense of restlessness that seemed to emanate from her very presence. And yet, despite her reservations, Alexis found herself glancing over at the mysterious woman every so often, wondering what had brought her to this deserted corner of town on a Tuesday evening.

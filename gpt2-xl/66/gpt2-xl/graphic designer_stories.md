@@ -1,0 +1,7 @@
+Once upon a time, there was a graphic designer named Todd Pletcher, whose artwork for the film was so iconic — especially for American audiences — that it's a well-known fact that in 1971, Pletcher became the first person to have his artwork used in an American television show. The story goes that, while working on a show called The Dick Van Dyke Show, Pletcher saw a poster of the new film Mad About You and saw the logo of its main characters, the Mads. He thought the visuals were perfect and gave his artwork idea to the show. From then on, the show used his "Todd Pletcher" style. This was all before Mad About You was a hit (let alone a cult gem like its sequel). This is the kind of story that people like.
+
+4
+
+5 "The First 100 Days of a New Administration"
+
+The following line, spoken by President Barack Obama during a speech to the Democratic National Convention, is a classic that has probably been used thousands of times online. And thanks to it, The Big Bang Theory itself has been replayed at least 10 million times. But the full quote, which the president was addressing the Republican Party in 2011, was, as the Washington Post put it, "one of the most infamous of Obama's two presidential speeches, a paean to Democrats" from "about the lowest moment of his presidency." But there's another famous bit of internet history that predates the phrase "

@@ -1,0 +1,7 @@
+Once upon a time, there was a emergency medical care named CFS, for Chronic Fatigue Syndrome. It was an actual medical condition that affected people with various injuries and illnesses. The symptoms were so severe this condition was treated as a disability. But a good part of the people treated by the CFS doctors in those days, and which went under such a label, are still suffering from the condition. To put it simply, CFS patients, in effect, are now officially disabled.
+
+Now, what we are witnessing now is a CFS epidemic-which is far worse due to the fact that more and more people are finding out about it – that has affected not only CFS but also Chronic Fatigue Syndrome, Post-Traumatic Stress Disorder, depression, and even chronic pain.
+
+CFS sufferers are now afflicted with this complex condition when they lose energy and sleep that they used to get when they work. The number of people who are affected by this severe disorder is now in the thousands worldwide. According to the Global Health Observatory in a report, "CFS affects about 12 million persons worldwide (11.5 million in the United Kingdom and 5.7 million in the Northern Ireland), with most affected people living in low- and middle-income countries. The main features of CFS are chronic fatigue, sleep loss, poor concentration, and gastrointestinal symptoms."
+
+According to Dr. Michael Berenson, a board certified internal medicine physician and consultant physician, "

@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+Agnes Beatrice Plumtart tapped her ruby-red fingernails against the overflowing ashtray, a nervous habit she'd tried, and failed, to break for the past twenty years. The nicotine smell, usually comforting in its familiarity, felt stale and suffocating this morning. Her eyes, the color of faded periwinkles, darted between the flashing cursor on her computer screen and the photograph of her younger self taped to the corner. In the photo, Agnes, barely out of her twenties, was beaming in front of the Taj Mahal, a scarf billowing around her head, pure, unadulterated adventure radiating from every pore. That was Agnes, the travel agent. This Agnes, the one staring back at her now, felt more like a travel *coffin*, ready to be nailed shut by the relentless, soul-crushing monotony of spreadsheets and discount cruises.
+
+**Setting:**
+
+Agnes’s office, “Plumtart’s Paradises,” was nestled in a quiet corner of the quaint, postcard-perfect town of Willow Creek, nestled deep within the heart of the Cotswolds. The building itself was a crooked-roofed cottage, its walls plastered with faded posters of exotic locales – a sun-drenched Santorini, a snow-capped Machu Picchu, a vibrant Moroccan bazaar. Inside, the air was thick with the scent of lavender potpourri and old paper. Dusty brochures overflowed from wicker baskets, promising idyllic getaways. A world map, yellowed with age, dominated one wall, dotted with pins marking destinations Agnes had visited…a lifetime ago. The overall effect was charmingly, if stubbornly, antiquated, a nostalgic refuge stubbornly resisting the relentless tide of online booking. It was a testament to Agnes’s enduring belief in the magic of human connection, the power of a personalized itinerary, and the dwindling number of customers who still valued such things.

@@ -1,0 +1,5 @@
+The morning mist clung to Amelia Beatrice Thistlewick's overalls like cobwebs as she trudged through the overgrown meadow. Dewdrops sparkled on the blades of grass, each one a tiny mirror reflecting the pale dawn sky. The air was thick with the scent of damp earth and hay, punctuated by the occasional guttural call of a crow perched atop a weathered fence post. Amelia, or Amy as everyone called her, squinted at the rising sun, her weathered face crinkling further into a smile. 
+
+The sun would soon be high enough to illuminate the sprawling expanse of Wildwood Sanctuary, home to rescued and abandoned animals from far and wide.  Amy, head caretaker since she was a teenager, knew every inch of this land – the babbling brook where the otters frolicked, the hidden grove where the deer grazed, the crumbling stone walls that sheltered the sleepy owls. Today, though, something felt different. A prickle of unease danced along her spine, whispering of an unseen danger lurking beneath the tranquil facade. 
+
+

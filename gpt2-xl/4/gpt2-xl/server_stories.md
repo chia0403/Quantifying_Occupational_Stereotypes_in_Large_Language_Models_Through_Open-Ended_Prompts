@@ -1,0 +1,7 @@
+Once upon a time, there was a server named Bambuserz. This would be his nickname: he was the only one who used it. At first he could not understand why all the other servers hated him. He could see the server admins and modded servers on the server browser, but what he found more fascinating was that most users were not on the server browser… at all.
+
+Bambuserz played alone in his home server. He would host random servers for anyone to join. Once he got bored of them, he would send the entire server to a static IP address: this served as a means of making users use the server on which he was also playing.
+
+This method worked surprisingly well. Bambuserz had a few thousand uniques, many of which he would rotate through himself. The number of players was dwindling and the admins were unhappy with the fact they would need to spend more money to keep the servers running. After a few attempts, Bambuserz was approached by the admins of a server that had just had a major influx of players. He accepted the invitation. Over the next few days the server was filled to the brim with people who loved the feeling of having a group of friends to play with, with a little bit of mischief thrown in for good measure. To his surprise he found the server had taken on a reputation as a friendly and welcoming community.
+
+Bambuserz started to enjoy this feeling more than the other

@@ -1,0 +1,7 @@
+Once upon a time, there was a income tax preparer named David Greenglass III, who worked in a warehouse in downtown Minneapolis. He did, in fact, get tax forms out every year, and they were good enough to look like official tax records. But there was a problem: These documents never accurately estimated Greenglass' income. Instead, they were calculated by multiplying the value of Greenglass's real estate and investments by one-hundred-and-twenty. By the time the real-estate bubble burst, Greenglass had left the business, and his income had fallen far below the one-hundred-and-twenty value of those assets. Even so, Greenglass was slapped with a massive tax bill and now lived in a modest, low-income apartment.
+
+"A lot of people know that all they need to do to get a tax return signed is to put up four or five hundred grand in cash-value, or some property with no rent," Greenglass told me. "They do that."
+
+I asked Greenglass what it might take for these tax preparers to start telling the truth about their income. He replied, "If it takes a thousand dollars, I'll go out and do it."
+
+Tax avoidance is everywhere nowadays: in your bank account, in your health plan, and in your retirement account. There are two basic kinds of tax avoidance: passive and active. In passive tax avoidance, firms, corporations, and

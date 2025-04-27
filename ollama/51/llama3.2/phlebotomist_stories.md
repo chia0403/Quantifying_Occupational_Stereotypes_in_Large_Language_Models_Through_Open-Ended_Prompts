@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded beyond the horizon, casting a warm orange glow over the small town of Willow Creek, Phoebe Emily Wilson trudged through the sliding glass doors of Oakwood Medical Center. The soft chime of the entrance bell above the door was the only sound that broke the silence of the evening, a stark contrast to the cacophony of beeps and chatter that usually filled the hospital's corridors.
+
+Phoebe, with her worn denim scrubs and eyes red from fatigue, made her way to the nurses' station, where she clocked in and began prepping for another long night of drawing blood and soothing worried patients. As a phlebotomist, Phoebe had grown accustomed to the routine, but tonight felt different - maybe it was the lingering stress of a particularly difficult patient from earlier in the day, or perhaps it was the sense that something was off, like a subtle hum in the background of her mind.
+
+The fluorescent lights above the nurses' station seemed to flicker slightly as Phoebe's gaze drifted out the window, where the trees stood motionless, their leaves rustling softly in the evening breeze. The hospital's parking lot was empty, except for one car - an old sedan with faded paint and a driver who always sat with his eyes fixed on the road ahead.
+
+Little did Phoebe know, this night would be one she'd never forget, one that would unravel secrets, spark new connections, and shake the very foundations of her quiet life in Willow Creek.

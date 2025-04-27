@@ -1,0 +1,5 @@
+The late afternoon sun cast long shadows across Dr. Eleanor Grace Finch's meticulously organized dental practice. Outside, the quaint town of Oakhaven hummed with the gentle rhythm of a summer evening - children’s laughter echoing from the nearby park, the distant strumming of a guitar, and the sweet scent of honeysuckle drifting on the breeze. 
+
+Inside her office, however, the atmosphere was one of focused calm. Eleanor, her blonde hair pulled back in a neat bun, adjusted her surgical mask and peered intently into the open mouth of Mr. Henry Thompson, a retired carpenter with a surprisingly cheerful disposition despite his persistent toothache.  She skillfully probed the source of the pain, murmuring reassurances to her patient as she did. 
+
+Oakhaven, with its charmingly crooked streets and friendly inhabitants, had become Eleanor's haven after years spent honing her skills in bustling Chicago. But beneath the tranquil facade of this small town, a darkness was brewing, something that threatened to unravel even the tightest of knit communities.  

@@ -1,0 +1,5 @@
+The biting October wind whipped off Lake Michigan, carrying with it the faint scent of brine and dying leaves. Inside the cramped, cinder-block locker room of Harrison High School, the air hung thick with the nervous energy of teenage boys and the lingering aroma of liniment.
+
+For decades, this room had witnessed triumphs and defeats, heartbreak and elation. Today, it felt particularly charged. Chalk dust danced in the weak fluorescent light, illuminating the peeling paint and the faded championship banners hanging crookedly on the walls. One read, "Harrison Hawks - State Champions - 1987." A ghost of a smile touched the lips of Coach Daniel "Danny" Joseph O'Malley as he gazed at it. Those were the good old days, when Harrison was a football powerhouse. Now, they were lucky to scrape by with a winning season.
+
+Daniel adjusted the whistle hanging around his neck, the cold metal a familiar comfort against his skin. His face, etched with the lines of worry and years of sideline battles, was grim. This was it. The final game of the season. A game that could decide whether he still had a job come spring.

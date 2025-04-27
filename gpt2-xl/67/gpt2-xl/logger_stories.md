@@ -1,0 +1,7 @@
+Once upon a time, there was a logger named John Roberts. His mother had died when he was eight. He had a small, miserable home and a father in Chicago. He had dreams of being a professional football player. His father's team, the Chicago Bears, was coming to the village to play at a baseball park. Roberts told his family he would bring them a gift: a game ball. The team gave him one with a sticker depicting a bear-like figure holding a bat. When they showed up at the baseball game, Roberts's family saw him on the dugout bench.
+
+He didn't play very much. Instead, he dreamed of becoming the next J.J. Watt. He spent hours in the back of his father's pickup truck making up fantasy football schedules. The dream was far more enticing than the reality.
+
+He eventually went to an open house at the Bears training camp and met a friend who had just gone through the Raiders' tryout process. Roberts knew the Raiders had a good football player, Derek Carr, and offered to coach him. Now the dream could become reality. What followed was one of the fastest rise ups the NFL has seen, not only in modern-day football but also in athletic history.
+
+What happened next is well beyond the scope of this piece, but there is no doubt that the success and popularity of the team has made Roberts a very wealthy man. He is currently the head coach at the University of Texas,

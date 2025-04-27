@@ -1,0 +1,3 @@
+The stale air in Michael Alistair Davenport's cubicle smelled faintly of regret and burnt coffee. Outside his window, the Chicago skyline bled into a bruised purple sunset, mirroring the gloom settling over him. Another day, another mountain of paperwork threatening to engulf him. He wasn't sure what was worse – navigating the labyrinthine world of insurance policies or deciphering the increasingly bizarre claims his clients submitted.
+
+Today's masterpiece was a claim for "spiritual damage" caused by a rogue pigeon allegedly possessed by a demonic entity. Michael rubbed his temples, wishing he could simply bury himself in the mountain of reports on his desk and hope someone else would deal with the metaphysical menaces plaguing his city. 

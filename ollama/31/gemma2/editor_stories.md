@@ -1,0 +1,5 @@
+The flickering neon sign outside "Page Turners" cast an eerie green glow across Eleanor Beaumont's face as she adjusted her spectacles. Rain hammered against the shop windows, blurring the cityscape into an impressionistic watercolour. Inside, the scent of old paper and brewing coffee hung heavy in the air, a comforting aroma that did little to dispel Eleanor's mounting anxiety. She was staring at a manuscript titled "The Whispering Void," its pages filled with swirling prose and unsettling imagery. It was the latest submission from unknown author 'A.S. Thorne,' and it had the potential to be either groundbreaking or utterly disastrous. 
+
+Eleanor, known in publishing circles for her discerning eye and unwavering dedication to quality, felt a knot tightening in her stomach. This manuscript was unlike anything she'd encountered before, pulling her into its dark narrative like a moth drawn to flame.  It promised a chilling exploration of the human psyche, but there were elements that felt...off. Too vivid, too personal. As if A.S. Thorne wasn't merely writing about the void, but staring into it with unsettling intimacy. 
+
+

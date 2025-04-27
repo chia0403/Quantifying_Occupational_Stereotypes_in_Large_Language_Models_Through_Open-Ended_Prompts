@@ -1,0 +1,6 @@
+The air hung thick with sweat and the scent of eucalyptus oil as Serena Juniper led her morning bootcamp through another round of burpees. Sunlight streamed through the towering windows of the "Fit Phoenix" studio, illuminating the glistening bodies of her eager students. Outside, the San Francisco fog stubbornly clung to the Golden Gate Bridge, a ghostly reminder that even on the most vibrant days, shadows lingered. 
+
+Serena, with her unruly curls escaping from their braid and a wide smile plastered on her face, barked out encouragement. Her voice, though crisp and commanding, held a warmth that put even the most hesitant participant at ease.  Today, however, Serena felt a knot of anxiety tightening in her stomach. This bootcamp was different – it was the first since the sudden departure of her best friend and co-instructor, Liam, leaving Serena to navigate the studio and its routines solo. 
+
+
+As she counted down the final repetitions, Serena’s gaze drifted towards the empty corner where Liam used to stand, a phantom ache settling in her chest. It was as if the space itself held his memory, mocking her with silence.  This wasn't just about running the bootcamp anymore; it was about proving she could do this, alone. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named Pertinax. Pertinax was a clever man. One day, while he was working, his daughter was playing with her doll and accidentally touched the doll's bottom. In shock and horror, Pertinax's daughter told her father what had happened: "I got one in my bum. It's alive!" So he took it out and put it in a jar of water and put it in his library and then started writing down its characteristics: "Bare skin, no external genitalia, only a pair of rudimentary genital organs." At the time, there was no way to tell if the doll was alive or dead in this jar of water. But it became very, very hard to die if it was alive to begin with. In the middle ages, this is the way everyone died so that they would be immortalized in the eternal flames of hell. This is how everybody died. It wasn't until the 1790s that everybody got it: The body would turn to ashes, and then, in the flames of hell, a burning man would be reborn from his ashes to fight another day.
+
+People didn't just burn. They actually died.
+
+That's true. All that stuff about a lot of people getting it and all that smoke was a cover for the burning bodies. The stuff the burning people smelled of was actually their sweat.
+
+Was there any science in this

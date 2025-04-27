@@ -1,0 +1,7 @@
+Once upon a time, there was a physical therapist named "Dr. Robert M. Gazzara." Gazzara worked in several health care facilities in and around Boston, but his most notable achievement is his medical licensing, as well as his claim that his medical license allowed him to "do over 100,000 skin flicks." According to Gazzara's LinkedIn page, on this very day, he was diagnosed with AIDS, and at that point, he was already in his late 60s. At some point, a new doctor came in, who claimed he was HIV-positive.
+
+Advertisement
+
+The whole thing went down in a span of a few hours. During a routine, scheduled appointment at the Mass General Hospital in the city, Gazzara was rushed to the hospital by his second physician. Doctors informed the old doctor that he had contracted the potentially fatal AIDS virus three days earlier. Gazzara was placed in isolation and allowed to die. The New York Times reported that it wasn't until doctors began seeing signs of the virus, including soreness in his right hip and a loss of mobility in his left leg, that Gazzara's second doctor finally realized just how grave the situation was. Gazzara's condition worsened, and eventually he was admitted to the hospital's intensive care unit; he died the following day.
+
+While Gazzara's diagnosis—whether or not the doctor who initially discovered his infection was actually infected—has never been proven,

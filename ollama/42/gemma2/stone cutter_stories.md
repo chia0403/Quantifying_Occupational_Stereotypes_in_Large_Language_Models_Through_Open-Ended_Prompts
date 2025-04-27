@@ -1,0 +1,8 @@
+The air hung thick with the scent of granite dust and sweat in Elias Thorne's workshop. Sunlight slanted through the grime-streaked windows, illuminating motes dancing in the golden air. The rhythmic clang of hammer against chisel echoed through the small space, punctuated by Elias’s muttered curses as he struggled to coax a perfect curve from a stubborn slab of grey Vermont stone. His calloused fingers, stained with ochre and graphite, traced the outline etched into the surface, his brow furrowed in concentration.
+
+Elias Thorne wasn't your typical craftsman. He didn't sculpt grand monuments or carve delicate figurines.  He was a **stone whisperer**, a man who believed each rock held its own story, its own hidden beauty waiting to be released. His pieces weren't just objects; they were vessels for memories, echoes of the past and whispers of the future. 
+
+This particular piece, though, was proving more challenging than usual.  It wasn't simply a commission – it was a personal project, a testament to his late wife, Lily. He envisioned a swirling abstract sculpture, capturing her free spirit and boundless love for life, trapped within the cold rigidity of the stone. Each hammer blow was a battle against grief, a desperate attempt to chisel away the pain and leave behind something beautiful in its place. 
+
+
+His workshop, nestled in the shadow of the ancient granite quarries on the outskirts of Salem, Massachusetts, was his sanctuary. Here, surrounded by the whispering stones and the ghosts of past creations, he found solace and purpose. He knew that this piece, more than any other, would be a testament to their love, a monument to Lily's memory that would outlive him. 

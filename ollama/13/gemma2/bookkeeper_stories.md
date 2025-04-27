@@ -1,0 +1,5 @@
+The air hung heavy with the scent of dusty paper and stale coffee in Eleanor Beatrice Thistlewick's office. Outside, the London rain lashed against the windowpanes, blurring the view of the bustling street below. Inside, Eleanor, hunched over her ledger, meticulously crossed off transactions in a meticulous script that mirrored the rigid order of her life. Numbers danced before her eyes, each one a tiny story whispering secrets about the lives of the merchants and artisans who frequented her shop. 
+
+She was a creature of routine: up at precisely six, toast with marmalade, a brisk walk to her office overlooking Covent Garden, and then, hours spent unraveling the financial complexities of others. But today, something felt different. A prickling sensation at the back of her neck, like an unseen eye watching her every move, made the hairs on her arms stand on end.  Eleanor shook off the feeling, attributing it to the dreary weather. Surely, there was nothing amiss in a world governed by balance sheets and receipts. 
+
+

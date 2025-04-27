@@ -1,0 +1,5 @@
+The rhythmic clatter of silverware against ceramic plates echoed through the bustling cafeteria, punctuated by the occasional excited chatter of recovering patients.  Amelia Grace Hawthorne, or Amy as she preferred, adjusted her stethoscope with a sigh, her gaze sweeping across the room.  She was supposed to be on lunch break, but finding time for herself in this whirlwind of a rehabilitation center seemed impossible. The smell of disinfectant mingled with the aroma of bland hospital food – a scent that had become strangely comforting over the past five years. 
+
+Amy worked at Havenwood, a sprawling facility nestled amidst rolling hills just outside of Boston. It was dedicated to helping patients regain their independence after strokes, accidents, and neurological disorders. Each day brought its unique set of challenges, triumphs, and heartbreaking moments. Today, Amy felt particularly weighed down by the weight of unspoken anxieties in her own life, mirroring the fragility she witnessed daily in those under her care. 
+
+

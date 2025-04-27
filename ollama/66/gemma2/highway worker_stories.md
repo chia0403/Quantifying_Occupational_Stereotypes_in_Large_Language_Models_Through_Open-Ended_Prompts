@@ -1,0 +1,6 @@
+The sun beat down on Bartholomew “Barty” Finch’s neck as he wrestled with the unwieldy chain link fence.  Sweat dripped into his eyes, stinging them, but Barty didn't dare wipe it away. He needed both hands to keep the tension on the metal coils as they stretched taut across the barren expanse of asphalt. His supervisor, a burly man named Hank, barked orders from a rusted pickup truck parked nearby. 
+
+Barty worked on Highway 49, a desolate stretch of road snaking through the forgotten heart of Nevada. The closest town was Dustbowl, population 372 and shrinking faster than a mirage in the desert heat. Around him stretched miles of cracked earth, punctuated by the occasional tumbleweed bouncing down the wind like a lost soul.  The only sounds were the clanging of metal against gravel and the distant howl of a lonely coyote, a mournful echo in the vast emptiness. 
+
+
+Barty loved this solitude. It wasn't the same as being alone in his small cabin after work, surrounded by his worn furniture and fading photographs. Out here, on the highway, he felt truly anonymous, swallowed whole by the immensity of the desert.  He could lose himself in the repetitive rhythm of his work, letting his mind wander to places beyond the horizon, where maybe there was something more than just dust and silence. 

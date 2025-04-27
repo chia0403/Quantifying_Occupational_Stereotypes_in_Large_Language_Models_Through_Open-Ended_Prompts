@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named Dr. John Tesh. He was an active, progressive, science-based chiropractor, doing a phenomenal job, in my opinion, for people with back symptoms and neck pain. Back pain was the big problem at the time, so he became one of the most sought after and prominent experts in the field. Tesh was also the one who brought to my attention a case of this woman who had used a few doses of a particular kind of homeopathy cream (the ingredient most commonly found in this kind of cream is hydroxycitric acid) for her back symptoms, and had experienced remarkable success in her pain. She had gone to a practitioner trained in homeopathy to find out what made the cream so powerful and effective. This practitioner said: "The answer is in the oil. You need to add hydroxycitric acid to the cream to make it more effective."
+
+Of course, Dr. Tesh and his colleague, Dr. Richard Strain, were skeptical at first, but Dr. Tesh would not let that stop him. So, I spent many hours reading and studying Dr. T-sh's books and books by others and came to the conclusion that homeopathy may work as well as actual drugs on very few patients.
+
+In addition, homeopathy was so much cheaper than real drugs for many diseases – even cancer! – that it was a no-brainer.
+
+Then someone decided to

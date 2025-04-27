@@ -1,0 +1,7 @@
+Once upon a time, there was a interior decorator named Laura Mulrooney, who lived in an estate on the slopes of Mt. Baldy in the San Gabriel Mountains. One day while she was decorating her own house, she noticed a tiny pink feather lying in her bathtub. Upon further inspection she discovered that it was a pink one-eyed chicken — which is ironic, considering that the bird was about the size of her hand. This became her signature design and in turn, her nickname.
+
+ADVERTISEMENT
+
+In the 1990's, Laura launched her own line of bath and beauty products, and over the years has sold millions in products that cater to the needs of single females. The company that now exists as Laura Mulrooney has had it's fair share of controversy as well. As of this year, the company was sued out of existence by two sisters, after the older one's father, whose company owned the line, died. That's right — they wanted his daughters to take over control of his company because he passed away. There are many things that make me think of this story, which actually seems less surprising on the surface than it is surprising in the first place.
+
+What started out as an effort to sell bath and beauty products, turned into an attempt to sell the idea of girl empowerment…and, perhaps, to sell people on the idea of owning their identity by controlling their personal property. The young women at the company, now known as Mul

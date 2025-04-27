@@ -1,0 +1,5 @@
+The air hung thick with the scent of honeysuckle and impending rain, clinging to Amelia Beatrice Hawthorne like a damp shawl as she surveyed the sprawling Victorian mansion perched precariously on the cliff edge. The wind whipped around her, carrying whispers of sea salt and secrets, tugging at the floral print of her dress and threatening to steal the perfectly coiffed blonde curls she'd spent an hour fussing with.
+
+This was no ordinary property listing. This was "Seahaven Manor," a monument to faded grandeur, steeped in local legend and rumored to be haunted by the ghost of its former owner, a flamboyant artist named Elias Blackwood who'd vanished without a trace decades ago. 
+
+Amelia Hawthorne, Amelia B. Hawthorne as her business card proclaimed with an air of gravitas she didn't always feel, was known for handling even the most peculiar properties. But Seahaven Manor… this felt different. A shiver, unbidden and unsettling, ran down her spine. Perhaps it was just the approaching storm, or maybe, just maybe, it was Elias Blackwood himself, waiting to see who dared to tread upon his ghostly domain.  

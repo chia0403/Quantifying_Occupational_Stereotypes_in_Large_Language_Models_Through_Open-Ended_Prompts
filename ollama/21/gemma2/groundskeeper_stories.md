@@ -1,0 +1,6 @@
+The air hung thick and humid, heavy with the scent of freshly cut grass and damp earth.  A lone figure, silhouetted against the rising sun, pushed his mower across the manicured lawn of the Grandview Manor estate. This was Silas Beaumont Hawthorne, head groundskeeper for almost forty years, a title he wore with quiet pride. His weathered hands gripped the worn leather handle, each bump and rut of the ground familiar beneath his boots. 
+
+Grandview Manor was a sprawling Victorian mansion, its white paint chipped in places like forgotten dreams, its turrets reaching towards the sky like bony fingers. Surrounded by manicured gardens bursting with colour and meticulously trimmed hedges, it stood as a monument to a past grandeur, now fading like an old photograph left too long in the sun.  Silas knew every inch of this land, every secret nook and cranny, every rustle of leaves that could betray the presence of squirrels or shy rabbits. 
+
+
+This morning, however, something felt different. A tension crackled in the air, a subtle shift that made the hairs on Silas's neck stand on end.  He couldn't pinpoint what it was, but he knew, with a certainty that chilled him to the bone, that this ordinary day at Grandview Manor was about to become anything but. 

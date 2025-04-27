@@ -1,0 +1,9 @@
+**Story Opening and Setting:**
+
+The sun dipped low behind the jagged line of pine trees, casting long shadows across the construction site where the last fragments of a towering bridge were being set into place. The air was thick with the smell of freshly turned earth and the metallic tang of machinery at work. Heavy equipment hummed to life, a mechanical symphony punctuated by the distant sound of gravel crunching beneath massive tires.
+
+In the heart of this organized chaos stood **Mason Tyler Rawlings**, a seasoned heavy equipment operator with calloused hands and a heart full of ambition. At forty-two, Mason had spent nearly two decades working the heavy iron beasts that shaped the world around him. His sun-kissed skin bore the marks of countless hours spent outdoors, and his steel-blue eyes sparkled with determination, betraying a passion for his craft that was far deeper than the machinery he commanded.
+
+Today, Mason was behind the wheel of a colossal excavator, its arm stretching toward the sky like a metallic giant ready to embrace the horizon. His brow furrowed in concentration as he maneuvered the massive bucket with precision, scooping earth to make way for the new bridge's foundation. The familiar rhythm of the controls felt like second nature to him, each movement calculated and deliberate—a dance he knew by heart.
+
+As twilight fell, the site glowed with the amber light of work lamps, illuminating the towering skeleton of steel and concrete. Mason paused for a moment, wiping his brow with the back of his hand and gazing across the site. The world held its breath around him, waiting for the dawn of a new roadway that would connect distant towns and unite lives. But just beyond the scope of construction, in the dense forest that bordered the site, uncertainty flickered like shadows in the gathering dark. Secrets lay beneath the soil, and Mason was about to unearth more than just dirt.

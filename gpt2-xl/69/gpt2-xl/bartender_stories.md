@@ -1,0 +1,7 @@
+Once upon a time, there was a bartender named Biff. Now, there is a new bartender, named Bill Clinton. (Actually, if you believe Biff the bartender, Bill also was called Biff, but he later decided to change his name and become Clinton. Which is not as funny as it sounds.)
+
+On Nov. 7, 1989, the day after he lost the election against George H.W. Bush, he was still the bartender at the Whig Lounge on Main Street in Richmond, Virginia. Biff, who at the time was a Democrat, had his regulars in a rumbling session discussing the latest political headlines of the day. The election that year had been quite controversial—Biff's patrons were watching with amazement as H.W. won with 49 percent of the vote compared to the 36 percent that he won in 1980. The crowd was shocked when it became clear that Clinton had won the election handily. The new President was escorted through the bar at around noon. As word of the win spread, the crowd grew impatient waiting for the new "Biffed" to take his place.
+
+As it happened, it was only a matter of time before an even newer bartender took over the bar. And for a brief period, one of the "Biffed" had to come to grips with that fact.
+
+The newly named Bill Clinton, an alumnus of Yale, had a bit of experience with booze. He began

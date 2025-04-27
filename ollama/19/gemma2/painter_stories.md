@@ -1,0 +1,5 @@
+The salty tang of the ocean breeze whipped Amelia Rosethorn's auburn hair across her face as she squeezed another dollop of cerulean blue onto her palette. Below, the waves crashed against the jagged cliffs of Pembrokeshire, their frothy crests spitting white like scattered pearls.  Amelia squinted at the canvas before her, a riot of color already burgeoning with life – the fiery orange of the setting sun bleeding into the deep indigo of the twilight sky. 
+
+Her studio, a converted fisherman's shack perched precariously on the cliff edge, offered a breathtaking panorama of the Welsh coastline. The air was thick with the scent of brine and the cries of gulls, a symphony that fueled her artistic soul. But today, Amelia felt a discordant note amidst the usual harmony.  A nameless anxiety gnawed at her, whispering doubts about her latest masterpiece – a portrait of a weathered old woman she’d met in the village pub, her eyes brimming with untold stories. Could Amelia capture the essence of that enigmatic gaze? Or would her brushstrokes fall flat, leaving her with another unfinished canvas and a growing sense of failure? 
+
+

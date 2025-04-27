@@ -1,0 +1,5 @@
+The late afternoon sun cast long shadows across the manicured lawn of 17 Maple Drive, turning it into a patchwork of light and dark green grass. This wasn't just any street; this was Willow Glen, the heart of the Victorian era in Sunnyville, California. The air held a hint of salt and citrus from the nearby Pacific Ocean, mixed with the sweet, earthy aroma of blooming jasmine that clung to the wrought-iron gates at the entrance. 
+
+Amelia Hayes, her chestnut curls escaping from their tight bun as she adjusted her wide-brimmed hat, surveyed the house with practiced ease. Her sharp gaze swept over the peeling paint on the porch swing, the faded floral wallpaper in the living room, and the slightly crooked staircase leading to the second floor. This was no ordinary listing; it was a legacy – one of Mrs. Evelyn Croft's dreams, her cherished home that had been passed down through generations, now on the brink of passing from one family to another. 
+
+Today, Amelia wasn’t just selling a house, she was selling memories, history, and perhaps a piece of the soul of this old town.  

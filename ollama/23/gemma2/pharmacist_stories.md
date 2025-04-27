@@ -1,0 +1,6 @@
+The bell above the door jingled with an anemic chime as Elias Thorne adjusted his spectacles and glanced up from the overflowing prescription bin. The afternoon sun cast long shadows through the dusty windowpanes of Thorne's Apothecary, illuminating motes of dust dancing in the air. Outside, the bustling market square was a cacophony of bartering merchants and gossiping housewives, but within the shop, a hushed stillness reigned. Elias, his silver hair neatly combed and his blue eyes sharp with years of experience, awaited the customer who dared to interrupt this quiet ritual.
+
+
+The apothecary was crammed with shelves overflowing with jars of colorful powders, dried herbs hanging in bunches from the ceiling like exotic ornaments, and bottles containing liquids that shimmered and glowed under the dim light. The air hung heavy with the scent of lavender, chamomile, and something faintly metallic – a lingering reminder of the last batch of salve he'd made for a local blacksmith. 
+
+Elias, a man who knew the properties of every plant and potion within his shop, sighed inwardly. It was a slow afternoon, but he wouldn't complain. He relished these moments of solitude, surrounded by the comforting familiarity of his shelves and the quiet whispers of forgotten remedies. 

@@ -1,0 +1,7 @@
+**Title: Bloodlines**
+
+**Setting:** The fluorescent-lit corridors of Harmony Medical Center, a bustling urban hospital nestled in the heart of a city that pulsates with life. The walls are painted a soft mint green, intended to soothe the nerves of patients and visitors alike. The faint hum of machinery and the distant voices of nurses ripple through the air, creating an ambient symphony of urgency and care. In the phlebotomy lab, the air is tinged with the sterile scent of alcohol swabs and antiseptic, where rubber gloves and vials line the countertops like soldiers awaiting orders.
+
+**Opening Paragraph:**
+
+Miranda Elise Carter had always found solace in the simplicity of her work. As a phlebotomist, her days revolved around puncturing skin and drawing blood, a routine that had long since dulled the initial jolts of anxiety that had accompanied her first needle prick. Now, two years in, she moved through the chaotic hive of the medical center with an ease that belied the intensity of the environment. Each patient who entered her small, brightly lit area was a blank canvas, a story waiting to be told, and Miranda was determined to make her mark—gentle, yet precise. Today, however, as she prepared her equipment for yet another round of draws, an unusual feeling settled in the pit of her stomach, a premonition that hinted at the extraordinary events about to unfold in what she thought was a mundane day.

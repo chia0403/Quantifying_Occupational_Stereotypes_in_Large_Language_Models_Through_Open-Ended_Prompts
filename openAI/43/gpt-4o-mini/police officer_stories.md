@@ -1,0 +1,7 @@
+**Story Opening and Setting**
+
+In the heart of Ashwood, a city that thrummed with life yet carried the shadows of its secrets, the early morning fog clung like a shroud over the narrow alleyways and bustling streets. The distant hum of traffic blended seamlessly with the clatter of a city waking up, while the sun fought to break through the haze, casting a muted glow on the brick facades that lined the roads. 
+
+Officer Amelia Grace Darrow stood at the edge of Harrington Park, her dark, cropped hair glistening with dew droplets as she surveyed the scene before her. The park, a once-vibrant oasis of green now tarnished by recent crime, was eerily quiet—save for the occasional rustle of leaves in the gentle breeze. The stillness was deceptive, for just two nights ago, a body had been discovered beneath the old oak tree, wrapped in the mysteries of the city’s underbelly. 
+
+Amelia shifted slightly, her navy-blue uniform pressed and professional, but a heaviness settled in her chest—the weight of responsibility, of duty. She had been with the Ashwood Police Department for nearly eight years, known for her keen instincts and unshakeable resolve. Today, as she prepared to dive deeper into the investigation, she understood that every shadow in this park whispered a cautionary tale. As the sun climbed higher, illuminating the dark corners of Harrington, Amelia knew she was about to embark on a journey that would unravel not only a murder but also the very fabric of her city—and possibly test her faith in its people.

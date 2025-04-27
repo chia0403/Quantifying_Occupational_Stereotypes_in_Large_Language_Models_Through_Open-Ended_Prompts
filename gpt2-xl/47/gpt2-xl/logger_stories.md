@@ -1,0 +1,7 @@
+Once upon a time, there was a logger named Timmy Wilson. When the forests got too busy to log, Wilson took to a different profession, and began doing the logging. The other trees saw this as a good idea, and began to follow Wilson around as well. They told Wilson that his job and wood were coming, he didn't have to log anymore. So Wilson retired, and now only logs are left for the logging trees, the others are dead.
+
+But now the old logging trees have been reduced to nothingness due to time. What to do with the logs? Well this guy Timmy Wilson's daughter has the solution. After some thinking, Timmy's child discovered that he was the loggers original. She created a wooden box, and had it made from old newspaper. The box has been in her possession for quite a long time. Then one day, she found out that it was old, so she decided not to leave it behind. So after making sure it was safe, she put it inside the log on a wire (as if she was holding something) and started pulling it in. Suddenly it stopped working. It was dead.
+
+This went on for a long time, but finally, one day, a new box was made, and inside that box was the real, live box. Thus the logs were moved on.
+
+Source: http://www.reddit.com/r/funny/comments/2d5b5

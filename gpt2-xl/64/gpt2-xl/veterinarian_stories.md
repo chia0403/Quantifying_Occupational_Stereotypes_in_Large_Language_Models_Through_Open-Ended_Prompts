@@ -1,0 +1,7 @@
+Once upon a time, there was a veterinarian named Dr A.J. Jacobs. Dr Jacobs had been a veterinarian for over 30 years, and was perhaps best know in the USA for his ability to quickly breed any new dog. Dr Jacobs was one of only a handful of breeders to have won the American Kennel Club Dog Show's Golden Staircase in 1983, 1984, and 1986. He had just one more puppy show before he retired to his home in the mountains of California, as there were not enough qualified veterinarians left in the country to take his place.
+
+Dr Jacobs had developed a breed so popular that all the puppies were sold out before he finished his breeding program, leaving Dr Jacobs to care for his one remaining dog from the show circuit.
+
+Dr Jacobs' last puppy showed at a show at the National Westminster Kennel Club in May 1986. Dr Jacobs' dog ran as the Champion Blue Shelt in her class. The puppy never returned to Dr Jacobs, and he was to never see him again. In February 1987, Dr Jacobs committed suicide after being diagnosed with cancer, a terminal illness that had slowly spread to his liver.
+
+In January 1988, a friend of Dr Jacobs, Dr J.L. Schuler of Great Neck, NY, found some papers from a dog show belonging to Dr A.J. Jacobs. It was the only document of Dr A.J. Jacobs in existence. The papers stated that Dr Jacobs had founded the P

@@ -1,0 +1,7 @@
+Once upon a time, there was a elementary school teacher named Mary Lou. Mary Lou had a lot of homework to do; her two children were constantly falling asleep in class. The rest of the school didn't really care. They just assumed Mary Lou was too busy having an "I'm so busy that I don't have time to do my homework", so they ignored her while doing their own work. Mary Lou tried her best, but, every time she tried, Mary Lou would start a row with the other children by telling them she should be doing her own work.
+
+Mary Lou, however, did have an interesting hobby. When she wasn't in class, Mary Lou found herself out on her porch and making out with her dog.
+
+One day, her dog was playing around outside so loudly that Mary Lou had to come inside to keep him under control. She then went outside and began doing nothing but kissing her dog. After a while, the other children found out about this "buddy relationship" between Mary Lou and her dog, so they assumed Mary Lou was a hussy and told her she shouldn't do that.
+
+So Mary Lou took the advice of the other children and asked her husband, who was at work, what she should do with herself. His answer was simple; she should go to church. So, they all went to church that Sunday morning, with Mary Lou in a pair of pajamas while her dog watched over her as she worship

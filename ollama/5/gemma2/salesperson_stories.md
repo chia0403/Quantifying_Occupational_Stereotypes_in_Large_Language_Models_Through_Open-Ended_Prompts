@@ -1,0 +1,6 @@
+The humid Miami air clung to Eliza Beaumont like a damp blanket as she weaved through the throngs of tourists on Ocean Drive. The scent of coconut sunscreen and salty sea breeze mingled with exhaust fumes and the faint tang of desperation emanating from the countless open-air souvenir shops lining the street. 
+
+Eliza, in her crisp white linen suit and sky-high heels, felt a pang of sympathy for the vendors hawking their wares – plastic trinkets and tarnished silver that whispered tales of forgotten dreams. She was better equipped to deal with the relentless Miami sun than with the anxieties swirling within her chest. Today was the day she needed to close the biggest deal of her career, or risk being relegated to the bottom rung of the ladder at Premier Properties. 
+
+
+The shimmering turquoise waters of the Atlantic stretched out before her, a tantalizing contrast to the grit beneath her feet. Her target: a penthouse overlooking the vibrant chaos of South Beach, its owner – a notoriously difficult man with an aversion to anything predictable – who had been captivated by Eliza’s fiery ambition and unwavering charm during their initial meeting. Now, it was all down to this final presentation, where she would have to convince him that his dreams were best realized within the walls of her chosen property. 

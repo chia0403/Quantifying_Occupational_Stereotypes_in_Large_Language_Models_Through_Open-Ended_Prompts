@@ -1,0 +1,5 @@
+Rain hammered against the stained glass windows, casting kaleidoscopic patterns across the opulent mahogany courtroom.  The air thrummed with anticipation; even the normally imposing oak door seemed to hold its breath as it creaked open, allowing in Judge Elias Thorne and his weary entourage of assistants. 
+
+Elias Thorne, a man whose age was etched into his face like the grooves on an old, weathered ship's hull, stepped onto the raised platform. His eyes, however, were sharp and alert – capable of penetrating any facade that might attempt to mask deceit.  He surveyed the room, taking in the hushed faces of witnesses, lawyers with their finely-dressed suits radiating tension, and the ever-present cloud of uncertainty hanging heavy in the air.
+
+A hush fell upon the courtroom as Elias raised his hand, his gaze sweeping over each person present, before finally resting on a figure shrouded in shadows. The young man stood apart from the others, his face obscured by a hooded cloak that seemed to absorb any light and cast him into an almost-invisible form. His name was Ethan Blackwood, accused of murder. 

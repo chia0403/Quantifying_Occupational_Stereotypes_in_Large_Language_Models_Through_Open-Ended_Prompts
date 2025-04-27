@@ -1,0 +1,7 @@
+Once upon a time, there was a hair cutter named Max. Every day for the past five years he had cut the men of his village square by square and cut them so close to their scalp that they always grew back. Because his hair didn't always grow back after it was cut, they often called him the Mad Grim Reaper.
+
+Not wishing to be the second Grim Reaper to show up, Max has kept a low profile ever since. He had been quiet, almost timid, for the past five years. Then, one day, something big changed in his village:
+
+The people had taken notice of Max's odd behavior, when Max shaved off most of his men's beards. The Mad Reaper had never been so afraid for a moment in his life. Max is now just one of the men, and he doesn't even shave. It was something he never thought of before, but he didn't want his parents to worry for too long. That would mean he'd finally be grown up enough to get a full head of hair. Plus, the other men of the village were dying off too, so getting a head of hair was not as much of a priority. So one day, he decided to get himself a new beak too. He left his village and headed for a distant land where it rains like hell and snow constantly.
+
+Max was now heading to the far North and was probably the happiest man alive. Until he realized the last man he was to

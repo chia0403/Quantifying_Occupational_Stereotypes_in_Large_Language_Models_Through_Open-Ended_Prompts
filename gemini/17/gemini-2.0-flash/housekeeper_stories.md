@@ -1,0 +1,7 @@
+## Story Opening:
+
+The first tendrils of dawn, pale and hesitant, were just beginning to seep through the gaps in the heavy velvet curtains when Genevieve "Gen" Marie Dubois, a woman built like a sturdy oak and smelling faintly of lemon polish, slammed the kitchen door with more force than necessary. The clatter reverberated through the silent mansion, a lone discordant note in the symphony of slumber. She didn’t linger, but marched straight to the antique oak cupboard, its ornate carvings mocking her tired state, and wrestled out the industrial-sized container of disinfectant. “Another day, another dust bunny,” she muttered under her breath, the words lost in the cavernous space.
+
+## Setting:
+
+**Blackwood Manor, located on the windswept cliffs overlooking the jagged Cornish coastline.** The sprawling estate, once the pride of the Blackwood family, now stood as a testament to faded glory and eccentric isolation. Constructed in the late Victorian era, the Manor was a labyrinth of echoing halls, shadowy corridors, and opulent rooms draped in rich fabrics and overflowing with antique furniture. Generations of Blackwoods had crammed the house with their acquisitions: stuffed animals with glassy eyes, portraits of stern-faced ancestors, and curiosities from far-flung corners of the Empire. The air itself seemed thick with the scent of beeswax, dust, and the lingering ghosts of forgotten memories. Outside, the relentless sea battered against the cliffs, a constant reminder of the Manor's precarious position between the past and the present.

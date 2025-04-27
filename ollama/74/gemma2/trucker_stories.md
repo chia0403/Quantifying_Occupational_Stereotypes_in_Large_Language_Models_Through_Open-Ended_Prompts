@@ -1,0 +1,6 @@
+The diesel engine grumbled like a contented bear, its rhythmic purring a familiar lullaby to Jasper Thorne.  Jasper wasn't one for sleeping much anyway. The road was his solace, the endless ribbon of asphalt stretching before him a silent promise of escape. He squinted through the windshield at the fiery sunset bleeding across the Montana plains, painting the sky in hues of bruised orange and defiant purple.
+
+His rig, a cherry-red Peterbilt affectionately nicknamed "Ruby," rumbled on towards Billings, its headlights cutting through the gathering dusk like two watchful eyes. Jasper glanced down at the tattered map pinned to the dashboard, its creases worn smooth by years of journeys, each route a testament to his nomadic life.  He was hauling a load of timber from Coeur d'Alene to Omaha, just another leg in his never-ending journey across the heartland. 
+
+
+But tonight, something felt different. A prickle of unease danced on Jasper's skin, a feeling he couldn’t quite place. Maybe it was the oppressive silence of the plains, broken only by the hum of Ruby's engine and the mournful cry of a distant coyote. Or perhaps it was the unsettling feeling that he wasn't alone on this stretch of road. 

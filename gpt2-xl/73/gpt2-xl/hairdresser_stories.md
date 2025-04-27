@@ -1,0 +1,7 @@
+Once upon a time, there was a hairdresser named Mr. S.
+
+Some months ago, an actress on a soap star turned to him with a story about a man who liked to watch men, as in watching people get shampoo and shampoo, and she told him that it had happened to her boyfriend when he was in his early teens. "I am an eyewitness to a terrible event," she said. Her father later found out about it, and he made her take a polygraph test to prove it, which she passed. She said that her father had told her that it had been her boyfriend, also a teenager that she was not related to, who had seductively sucked Mr. S.'s penis.
+
+The test was negative, although Mr. S. said that he had been "in the right place at the right time" where they had an intimate encounter, so maybe it had been Mr. S. in his teens. He denied having any sex with the actress's boyfriend, but he admitted that one night he was "a lonely person," and when he met his future wife, the girlfriend was not around, so he "hit on" that wife and then she "gave me a blowjob while I was looking over her shoulder" by having an affair with Mr. S., which Mr. S. is very "open" about.
+
+I asked Mr. S. to confirm whether he has ever had sex in the presence of

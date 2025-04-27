@@ -1,0 +1,7 @@
+Once upon a time, there was a construction worker named Bill, who worked for a construction company in London. One day, the company moved out to another part of the neighborhood. Bill was upset--he felt that they had made a huge investment over there that he needed to maintain and, for some reason, they had suddenly decided to move to France; in his mind, that meant that they would no longer be able to employ him. That seemed to be his only recourse. He started a petition and started a union.
+
+As Bill put himself and his union together, he gradually came up with a formula for the working life of a construction worker in London with respect to health and safety. It worked well for the company; it made Bill happy; it made everyone happy. He did not have to make these calculations again.
+
+In the same way, it is the duty of the American worker to think for himself. If we want to live longer, that means that we must look at our own mortality rate more closely and act accordingly.
+
+Now for the inevitable question: "Will this life be worth living?" That is another question. But the answer to that question is the same for all of us: We cannot do it, but we don't have to do it. Life is not a choice between one thing and another--life. Sometimes life is a series of choices--and there is always a choice; when you are born, there are various things you can do

@@ -1,0 +1,5 @@
+The rain hammered against the attic window, each drop an insistent drumbeat against the quiet of the old Victorian house. Eleanor Amelia Thistlewick, her hair escaping its bun in damp tendrils, glared at the blank page before her. She’d been staring at it for hours, the cursor blinking mockingly like a hummingbird with writer’s block. Her latest novel, a gothic mystery set in a crumbling seaside town, had promised to be her masterpiece, but now, inspiration seemed as elusive as a ghost. The air in the attic was thick with dust and disappointment. 
+
+Eleanor sighed, pushing back from her antique oak desk littered with crumpled paper balls and half-empty teacups. Outside, the wind howled through the eaves, rattling the loose panes of glass like skeletal fingers tapping for entry. A shiver ran down her spine, not entirely from the chill that seeped through the drafty room. This house, with its creaking floorboards and whispers in the shadows, held secrets, she was sure of it. Secrets that might just hold the key to unlocking her writer's block... or maybe something more sinister. 
+
+

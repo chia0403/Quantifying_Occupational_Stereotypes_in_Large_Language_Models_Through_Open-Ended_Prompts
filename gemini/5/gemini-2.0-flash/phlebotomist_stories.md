@@ -1,0 +1,5 @@
+The flickering fluorescent lights of the Northwood Urgent Care cast a pale, sickly glow across the linoleum floor, making it look perpetually damp, even though Janitorial Services had been through just an hour prior. Outside, a relentless February wind howled, rattling the glass doors and promising more snow. Inside, the air smelled faintly of antiseptic and simmering fear. It was a familiar aroma to Evelyn Rose Davies, and one she strangely found comforting.
+
+Evelyn sighed, tugging at the too-tight collar of her scrub top. It had been one of *those* mornings. The toddler who screamed bloody murder at the mere sight of her needle, the elderly gentleman who'd fainted midway through his blood draw, and the teenager convinced she was personally responsible for all the paper cuts in the world.
+
+She leaned against the sterile counter, the cool metal a welcome contrast to the simmering anxiety that had been building in her all day. Evelyn Rose Davies, Phlebotomist, was ready for her lunch break, and maybe, just maybe, a moment of peace before the afternoon onslaught began.

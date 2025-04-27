@@ -1,0 +1,7 @@
+Here's a story opening and setting:
+
+The sun was setting over the city, casting a golden glow over the sprawling metropolis of New Haven. The air was thick with the smell of freshly poured concrete and the distant hum of heavy machinery echoed through the streets. Amidst the bustling activity, Jack "Hawk" Hawkins, a rugged construction worker in his mid-thirties, stood atop the scaffolding of the new skyscraper, gazing out at the city he had called home for over two decades.
+
+As a member of the local union, Hawk had spent countless hours working on some of New Haven's most iconic landmarks, from the grandiose office buildings to the modest suburban homes. He took pride in his work, knowing that every brick, beam, and bolt was a testament to his own craftsmanship. Despite the long hours and grueling labor, Hawk loved nothing more than being outdoors, breathing in the fresh air and watching the city come alive after dark.
+
+Tonight, however, Hawk's attention was focused on the peculiar request from his boss, Tony "The Bull" Barbieri. A mysterious client had hired them to renovate an abandoned warehouse on the outskirts of town, supposedly for a high-stakes business deal. The pay was too good to pass up, but Hawk couldn't shake off the feeling that something wasn't quite right about this job...

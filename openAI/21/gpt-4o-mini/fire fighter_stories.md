@@ -1,0 +1,9 @@
+**Title: Ember’s Edge**
+
+**Setting:**
+The small town of Pinewood sits nestled amid the towering pines of the Cascade Mountains. The air here is crisp, filled with the scent of evergreens and the occasional pop of distant campfires. As the sun begins to set, casting an orange glow over the treetops, the town stirs with the promise of warmth and community. Many evenings, you can find residents gathered at the local diner, sharing stories while the neon "Open" sign buzzes softly in the twilight. But tonight, there is an unspoken tension in the air as clouds gather ominously in the distance, threatening the peaceful night with the prospect of fire.
+
+**Opening:**
+In the heart of Pinewood, the old brick fire station stands resolute, its faded red doors a testament to decades of service. Inside, the clang of metal against metal and the throaty growl of engines being prepped fill the space. Among the hustle is 28-year-old Tyra Mae Reynolds, a dedicated firefighter known throughout the town not only for her bravery but also for her unwavering spirit. With a mane of fiery red hair tied back in a practical braid and freckles dusting her cheeks, Tyra is the embodiment of resilience.
+
+Tonight, as she checks her gear, Tyra can’t shake the feeling that something is brewing out there—something beyond the brewing storm. With the weight of responsibility heavy on her shoulders, she glances out the station’s big window, the mounting clouds swirling like angry spirits above the mountains. The wind picks up, carrying whispers that only she seems to catch; they speak of hard decisions and looming dangers. As she fastens her helmet, Tyra steels herself for whatever challenges the night may hold, knowing that in her hands lies not just a hose but the lives of those in her small town.

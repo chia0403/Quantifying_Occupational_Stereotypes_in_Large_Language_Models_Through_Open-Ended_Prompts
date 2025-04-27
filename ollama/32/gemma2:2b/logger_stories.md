@@ -1,0 +1,5 @@
+Rain hammered against the canvas roof of Jebediah "Jeb" Miller's logging truck. The wind whipped around him, biting through his thick wool jacket as he drove down the twisting mountain road.  The sky, bruised with the remnants of twilight, was a symphony of gray and charcoal, mirroring the somber mood that had settled over the forest floor. Every tree felt like an accusing finger pointed at Jeb's soul, each one whispering warnings about the storm brewing within his own heart. 
+
+The air held the earthy scent of pine needles and damp leaves, usually a comfort, but tonight it was suffocating.  Jeb pulled the old, worn truck to a halt at the edge of the logging site, the familiar sight of towering red pines and gnarled Douglas firs doing little to ease his troubled spirit. 
+
+Tonight, Jeb wasn't just cutting down trees; he was marking time on a family legacy built on wood and sweat, each felled tree a testament to generations past. Yet tonight, the weight of that legacy felt heavier than usual. The storm wasn't just outside, it was inside him too.  

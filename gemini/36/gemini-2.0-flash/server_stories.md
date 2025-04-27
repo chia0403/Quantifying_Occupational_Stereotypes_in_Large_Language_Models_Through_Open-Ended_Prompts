@@ -1,0 +1,7 @@
+## Story Opening:
+
+The clatter of ceramic against ceramic was a familiar symphony, a dissonant harmony that was the soundtrack to Imogen Beatrice Davies' life. Tonight, however, the crescendo was bordering on unbearable. Every crashing plate, every shouted order, every over-enthusiastic cough felt like a tiny hammer blow against the inside of her skull. It was Friday night at "The Salty Siren," and the clientele, fueled by cheap margaritas and the lingering smell of stale fish, were determined to make Imogen's shift an exercise in patience she was rapidly losing.
+
+**Setting:**
+
+"The Salty Siren" was a waterfront restaurant in the small, perpetually damp town of Port Blossom, Oregon. It wasn't *on* the water, exactly, but close enough that the constant sea breeze carried the tang of salt and the mournful cries of seagulls. Inside, the decor was a chaotic mix of nautical kitsch and faded seaside charm. Think chipped anchors painted gaudy gold, fishing nets draped haphazardly over exposed beams, and framed photographs of grizzled fishermen looking vaguely disappointed with their catches. The booths were upholstered in a vinyl that cracked when you sat down, and the tables were perpetually sticky, no matter how vigorously Imogen scrubbed. Outside, a weathered wooden deck offered a stunning view of the bay, a view that was sadly often obscured by a persistent marine layer that clung to the town like a damp blanket.

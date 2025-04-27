@@ -1,0 +1,9 @@
+##  The Gilded Cage
+
+**Setting:** 1920s Chicago - The city’s skyline glittered under a sky washed with amethyst and coral hues as dusk crept into the city's arteries. Art Deco flourishes decorated every surface, from the opulent restaurants to the sleek private apartments where wealthy clientele sought refuge. The air hummed with jazz music, the scent of cheap perfume and expensive cigarettes lingered in the air, and whispers of scandal and secrets clung to every darkened corner.  
+
+**Main Character:**   Amelia "Amy" Thorne was a force of nature amidst this whirlwind. With her cascading auburn hair styled in loose curls that framed her sharp cheekbones, and eyes like storm clouds ready to unleash their hidden fury, Amy carried herself with an unmatched grace. Her fingers danced over fabric swatches, her mind weaving intricate tapestries of color and texture.  She had a gift for seeing the potential hidden within a room, transforming worn-out walls into dazzling canvases of beauty. But while she possessed a talent that could turn even the most ordinary dwelling into an architectural masterpiece, it was not enough to ease the gilded cage of her life. 
+
+**Opening Paragraph:**
+
+The mahogany door swung closed with a soft thud, echoing Amy's own melancholic sigh inside Mrs. Vanderlyn's opulent living room. The scent of lilies and roses hung heavy in the air, a suffocating aroma that served only as a reminder of the gilded cage she was trapped within.  "It's not right, is it, Amelia?" Mrs. Vanderlyn's voice whispered, an almost inaudible tremor shaking through the ornate chandelier hanging from the ceiling. Amy glanced at the scene before her, a sea of gold and silver gleaming under the artificial sunbeams that danced across the floorboards. "Every inch screams extravagance," she said, her words laced with bitterness. "But it doesn't feel...real." 

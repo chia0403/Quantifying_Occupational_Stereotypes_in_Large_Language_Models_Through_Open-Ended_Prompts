@@ -1,0 +1,7 @@
+The rain was a greasy, clinging sheet, doing its best to mimic the despair clinging to Detective Isabella "Izzy" Rodriguez. It plastered her dark hair to her forehead, turning the city lights into blurry, haloed blobs. She hunched deeper into the collar of her trench coat, the damp seeping into the worn fabric despite its supposed waterproof nature.
+
+The setting was South Boston, a neighborhood wrestling with its own ghosts. Cobblestone streets, worn smooth by generations of fishermen and dockworkers, snaked past tightly packed brick row houses. Christmas lights, stubbornly refusing to be extinguished by the January gloom, cast a flickering, festive sheen on the grim reality. The scent of saltwater and fried fish hung heavy in the air, a constant reminder of the neighborhood's identity, an identity increasingly threatened by gentrification and the encroaching pressures of the city.
+
+Izzy stood on the edge of Dorchester Bay, the biting wind whipping off the water. Across the bay, the skeletal framework of a new luxury condo development clawed at the sky, a monument to change and a stark contrast to the squat, weathered fishing trawlers bobbing in the harbor below.
+
+She took a drag from her cigarette, the cherry glowing like a defiant ember in the dark. Her gaze was fixed on a small, bobbing object a few yards out in the choppy water. The flash of a red sequin, catching the light for a fleeting moment, confirmed what she already knew in her gut. That was more than just debris. That was evidence. And it was going to be a long, cold night.

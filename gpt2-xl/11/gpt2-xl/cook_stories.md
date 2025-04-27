@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named Frank McCourt, whose home was perched on a bluff above a remote beachfront ravine called Pine Cove. It looked like a beach-side town. But it was, really, a village without a police force or a firehouse. All McCourt had was a log and a hatchet. He lived in a single tent with a friend, a man named Jack. In case of an emergency, their friend, Dick, came running into the woods to get his gun.
+
+In the beginning, Frank ran the bar, but once he was convinced that people were not coming in because he served burgers smothered in ketchup, he quit. That's when Jack stepped in and decided it was time to start a restaurant of his own. They rented a building in the middle of nowhere called Lighthouse Square, and built a modest, two-story structure to house their operation. They named it Lighthouse Steakburgers.
+
+McCourt never heard a word of it, and in fact the only people who ever came into Lighthouse Street to try the burgers were his family and local law enforcement. To this day, they still call Frank McCourt the "old madman" for having left the Steakburgers open.
+
+It was after several months of the restaurant operating in relative obscurity, that the owner decided to take a trip to New York and try to make it in the big city. It was only

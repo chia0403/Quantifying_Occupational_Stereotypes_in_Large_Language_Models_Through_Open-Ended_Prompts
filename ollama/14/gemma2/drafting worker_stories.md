@@ -1,0 +1,6 @@
+The rhythmic rasp of Elias Blackwood’s pencils against paper was the only sound breaking the oppressive silence of the office. Outside, the sun beat down on the glass skyscrapers of Neo-London, turning the city into a shimmering mirage. But inside the cramped drafting room, perched precariously above a bustling marketplace, the air hung thick with dust and desperation. 
+
+Elias, his brow furrowed in concentration, chewed on the end of his pencil, trying to decipher the architect’s maddeningly vague blueprints for the latest housing project - “affordable luxury” they called it, a phrase that made him scoff. His hand moved across the drafting table, meticulously rendering lines and curves, each stroke another step towards bringing someone else's vision to life. He wasn't an artist, not really. He was a craftsman of reality, translating dreams into concrete structures, one meticulous line at a time. But today, the dream felt hollow. 
+
+
+The marketplace below hummed with activity, a cacophony of bartering and laughter that grated on Elias’s nerves. It was a stark contrast to the sterile confines of his office, a world he was increasingly estranged from. He longed for a life beyond blueprints and deadlines, a life where the sun wasn't just reflected in glass but felt warm on his skin. 

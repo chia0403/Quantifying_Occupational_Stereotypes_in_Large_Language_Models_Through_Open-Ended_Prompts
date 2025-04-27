@@ -1,0 +1,7 @@
+Once upon a time, there was a occupational therapist named William "Bill" Gannon. He liked to call himself the "C.E.O. of a corporation." On the show is his biography. The book is called "What Is a Sociopath?" It is a compilation of articles written by others about him, some of them even more controversial than the TV show itself.
+
+I found an interview in the Los Angeles Times, where Bob Odenkirk says the following to Bill Gannon: "You're a self-made man. We both have the same problem. You're a psychopath, and I'm something called a sociopath. You both act like a psychopath."
+
+That's all I have. If this means anything, it means that Gannon is not just some average JOB man. In the words of the show's narrator, he has "a heart of gold." Bill Gannon has never held a job in his life, and I feel that, were he to read this interview, he might believe me when I say that, had he read it, he might have a bit of buyer's remorse and become a little concerned about the validity of the description of him at that particular time.
+
+Bill Gannon, who was diagnosed with sociopathy by Dr. Robert Hare, is best known for his work for the Mental Health Systems Research Institute (MHSRI). As a registered consultant, his advice has been published in the Journal of Consulting

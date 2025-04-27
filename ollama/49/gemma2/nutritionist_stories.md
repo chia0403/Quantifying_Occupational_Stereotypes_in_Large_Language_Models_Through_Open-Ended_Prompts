@@ -1,0 +1,5 @@
+The air hung heavy with the aroma of roasting turmeric and ginger as Elara Persephone Vance carefully weighed out a handful of goji berries. Outside her window, the Miami sun beat down on the bustling Ocean Drive, a symphony of honking taxis and boisterous laughter filtering through the open panes. Elara's little corner cafe, "The Nourishing Nest," was a haven of calm amidst the chaos, its interior adorned with plants, sunlight streaming in, and the soft murmur of contented customers savoring her healthy creations. 
+
+Elara, known affectionately by regulars as "Ellie," adjusted her glasses and surveyed the scene: a retired yoga instructor meditating over a bowl of quinoa porridge, a young couple deep in conversation fueled by avocado toast, and a group of college students excitedly dissecting their kale smoothies. This was Ellie's domain, where she used her knowledge of nutrition to help people not just eat better, but live better. Today, however, felt different. A strange tension crackled in the air, a whisper of something unsettling about to unfold. 
+
+

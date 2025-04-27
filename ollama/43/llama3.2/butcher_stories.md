@@ -1,0 +1,9 @@
+The fog crept in off the canal, shrouding the narrow streets of Ravenswood in a damp, grey mist that seemed to cling to every stone and brick façade. It was a chill autumn evening, the kind that made you want to wrap your arms around yourself and turn up the thermostat, but for Emilia "Evie" Fletcher, it was just another day on the job.
+
+As a butcher in the bustling market square of Ravenswood, Evie was no stranger to the cold. She had been handling raw meat since she was old enough to stand on her own two feet, and the chill of the refrigerated shop was nothing compared to the chill that ran through her veins whenever she thought about the latest shipment of rare cuts that had just arrived at the shop.
+
+Evie wiped the sweat from her forehead as she expertly trimmed a chunk of wagyu beef for the evening's customers. Her hands moved with a practiced ease, having spent years honing the skills required to craft beautiful, mouth-watering roasts and steaks from the freshest meats. She loved being a butcher - it was a trade that ran deep in her family, and she took pride in carrying on the tradition.
+
+As she worked, Evie's mind wandered to the strange occurrence that had taken place earlier that day. One of the regular customers, an old man named Mr. Jenkins who always came in for his daily pound of bacon, had been acting strangely. He had seemed nervous and fidgety, glancing around the shop as if he was waiting for something - or someone.
+
+Evie's curiosity was piqued, and she made a mental note to ask around the shop and see if anyone else had noticed anything out of the ordinary. Little did she know that this was only the beginning of a mystery that would take her on a journey into the heart of Ravenswood, one that would challenge everything she thought she knew about her town, its people, and herself.

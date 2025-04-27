@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun had long since set over the worn brick factories of Ashwood, casting a golden glow over the rows of soot-stained chimneys and smokestacks that pierced the sky like skeletal fingers. In a small, cramped office nestled between two larger buildings, drafting worker Edwin Archibald McTavish sat hunched over his desk, surrounded by scraps of paper, half-finished drawings, and the faint scent of machine oil.
+
+Edwin's eyes, red-rimmed from lack of sleep and strain, scanned the lines on his latest commission: a set of blueprints for a new factory wing that would soon be sprouting up alongside the existing ones. The layout was complex, with narrow corridors and crowded workshops that seemed to stretch on forever. As he pored over the plans, Edwin's mind wandered back to the conversation he'd had with his boss earlier that day - a warning that the new factory wouldn't be enough to save their dwindling workforce from the cuts that seemed inevitable.
+
+A faint tap on the door interrupted Edwin's reverie, and he looked up to see his coworker, Margaret Douglas, standing in the doorway with a cup of steaming tea in her hands. "Hey, Ed," she said, her voice low and conspiratorial. "I heard something interesting over lunch."

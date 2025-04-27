@@ -1,0 +1,6 @@
+The scent of eucalyptus and lavender oil hung heavy in the air, a soothing balm against the rhythmic clinking of metal instruments. Sunlight streamed through the frosted glass windows of Dr. Evelyn Thorne's office, illuminating dust motes dancing in the warm air. Outside, the bustling city hummed with the symphony of traffic and construction, but within these walls, time seemed to slow. 
+
+Evelyn Thorne, her dark hair pulled back in a neat bun, adjusted her glasses and peered at the x-ray on her light box.  A young man, no older than twenty, winced as she traced his spine with a slender finger, murmuring about a recurring pain that radiated down his leg. Evelyn's touch was gentle but firm, an assurance that beneath the sharp edges of life, there existed the possibility of healing, of finding balance again. 
+
+
+This wasn’t just a job for Evelyn; it was a calling.  A way to mend not only bodies, but also spirits, offering solace in the face of pain and restoring hope where fear had taken root. In this sanctuary of her own creation, she believed she could make a difference. Each adjustment, each whispered word of encouragement, chipped away at the burdens her patients carried, leaving them a little lighter, a little more whole.  

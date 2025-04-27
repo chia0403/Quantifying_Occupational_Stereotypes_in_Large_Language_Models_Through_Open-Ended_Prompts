@@ -1,0 +1,7 @@
+Rain lashed against the window of Amelia Thorne's cramped office, blurring the neon glow of the city into an abstract watercolor of orange and green. It was 3 AM, the city sleeping beneath a shroud of grey sky and echoing with only the insistent drip-drip-drip of the leaking pipe in the corner.  Amelia sat hunched over her keyboard, a cup of lukewarm coffee clinging precariously to her hand. The city's rhythm was no longer measured by the clock on her wall; it pulsed in her chest like a drum solo - urgent, insistent, ever-shifting. 
+
+"The whispers started last week," she muttered, staring at the screen filled with fragmented information.  The story, a swirling vortex of rumors and half-truths, was begging for an anchor. "It's about the Black Market District, but it seems to be far more than that." Amelia took a deep breath, her eyes burning beneath the dimness of the room. She wasn't just chasing whispers; she was chasing answers, desperately seeking something concrete amidst the swirling chaos of urban folklore and half-baked conspiracy theories. Tonight, she had a choice - continue chasing ghosts in the darkness or step into the light and face the shadows. 
+
+**Setting:** The bustling yet underbelly of Neo-Manhattan, where towering skyscrapers clashed with forgotten alleys, each harboring secrets both grand and sinister.  Amelia's office was tucked away in an abandoned tenement building, a place that smelled of dust, old newspapers, and dreams. 
+
+

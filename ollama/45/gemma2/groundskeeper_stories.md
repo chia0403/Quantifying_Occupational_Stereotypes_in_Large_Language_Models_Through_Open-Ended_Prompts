@@ -1,0 +1,7 @@
+The dew clung to Bartholomew Thistlewick's boots like stubborn memories. He scuffed them against the gravel path, watching the tiny droplets scatter in shimmering trails. The air was thick with the scent of freshly cut grass and damp earth – a fragrance Bartholomew found both comforting and melancholy.  
+
+Bartholomew Thistlewick, Groundskeeper of Ashwood Manor, had been tending to this sprawling estate for nearly three decades. It wasn't a glamorous job, but it suited him. He found solace in the rhythm of his work: the methodical pruning of hedges, the rhythmic whirring of the lawnmower, the quiet satisfaction of coaxing life from stubborn soil.  
+
+Ashwood Manor itself was an imposing structure, nestled amongst ancient oaks and whispering willows on the edge of a windswept moor. The manor's once vibrant grandeur had faded with time, its paint peeling like sunburnt skin, its windows veiled in cobwebs of neglect. Yet, beneath the layers of dust and decay, Bartholomew sensed a lingering echo of former splendor. 
+
+Today, however, the usual serenity was disrupted by an air of hushed excitement. The arrival of a new resident – a mysterious woman with piercing blue eyes and secrets hidden behind her stoic facade – had thrown Ashwood Manor into a state of disquiet.  Bartholomew watched as she made her way across the manicured lawns, her figure framed against the backdrop of an overcast sky. Her presence seemed to stir something within him, a long-dormant curiosity he hadn't felt in years. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Harry Potter from Scotland -- a brilliant, brilliant, brilliant guy from what we now call Scotland. His mother was from Scotland, but Harry's dad wasn't a Scotsman -- he was from the Isle of Man. But Harry's mom died when Harry was very, young. And Harry went in a very poor, impoverished part of the country, which is now called Scotland, and he found this magical thing called the radio, and he became a radio station's dream.
+
+
+Well, his first station was in a small, small Scottish town called Hinksey, a town which today is quite famous as being the site of the first American radio station -- one of the very best radio stations in the modern world. Then when the war broke out, he ended up being called up -- and he was in the cavalry when the war started in Europe, so he's pretty much got that background. But he's very much into making radio for the people. And he's very much into using broadcast waves to broadcast his wishes, to give the people of Hinksey the information they wanted, to tell people what they want to know -- to try to get them out of jail.
+
+
+Well, Harry is a very inventive man, and so at the beginning of the war, he thinks he's going to find a very strange way to send messages. And he thinks, no, I'll just put this tube down -- a thing they

@@ -1,0 +1,5 @@
+The pungent scent of coconut shampoo hung heavy in the air, mingling with the faint metallic tang of hairspray. A rainbow of vibrant hues – fuchsia pink, sapphire blue, emerald green – adorned the shelves lining Beatrice "Bea" Lavender's salon.  Sunlight streamed through the large, arched windows, illuminating dust motes dancing in the warm glow. Bea, perched on a stool by her station, expertly weaved a strand of bright red hair into a intricate braid, humming along to the pop song playing softly from a vintage record player tucked away in the corner. 
+
+Bea’s salon, "Lavender's Locks," wasn't just a place for haircuts and color; it was a sanctuary, a vibrant tapestry woven with gossip, dreams, and the shared stories of her diverse clientele.  Nestled on a quiet street lined with independent shops in bustling downtown Maplewood, Bea's haven offered a comforting escape from the frenetic pace of city life. Today, however, something felt different. A restless energy thrummed beneath the usual humdrum, a whisper of unease hanging in the air like an unshed tear. 
+
+

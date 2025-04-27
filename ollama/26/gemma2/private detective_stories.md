@@ -1,0 +1,8 @@
+The rain hammered against the grimy windowpane of Bartholomew "Barty" Blackwood's office, each drop exploding in a miniature burst of noise. It was the kind of night that made even the most hardened soul feel a little vulnerable, the city itself hunched and shivering under the weight of the storm. Inside, Barty sat slumped in his worn leather chair, nursing a lukewarm cup of coffee that tasted more like regret than caffeine. 
+
+The office, crammed with dusty files, faded photographs, and the ghosts of past cases, smelled faintly of stale cigarettes and desperation. A flickering neon sign outside cast an unsettling red glow across his face, highlighting the weariness etched into his features. The telephone on the desk, a battered rotary model that seemed to vibrate with its own internal angst, remained silent. 
+
+Barty sighed, knowing full well that silence was the enemy of a private detective. It meant nobody needed him, nobody was in trouble, and most importantly, nobody was paying his rent. He glanced at his watch, its hands ticking away with an accusing rhythm. Another hour until closing time, another hour closer to facing the stark reality of an empty bank account and a city that seemed determined to swallow him whole.
+
+
+Then, the phone rang. A sharp, insistent sound that cut through the silence like a knife. Barty jolted upright, his heart leaping into his throat. This could be it, the call that would pull him out of the darkness and back into the chaotic world of crime, secrets, and maybe, just maybe, a decent paycheck. He picked up the receiver with trembling fingers, ready to face whatever storm this call might bring.

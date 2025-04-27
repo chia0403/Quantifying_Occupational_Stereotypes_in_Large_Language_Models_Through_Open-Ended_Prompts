@@ -1,0 +1,5 @@
+The aroma of bay rum and sandalwood hung thick in the air, a familiar comfort to Bartholomew "Bart" Quillfeather. His small barbershop, nestled on the corner of Willow Creek and Maple Street in the quaint town of Harmony Ridge, had been his father's before him, and before that, his grandfather's.  The worn leather chairs held stories of generations past – tales whispered by men seeking a trim and a bit of companionship as they sat, scissors snipping away worries like stray hairs. Sunlight streamed through the dusty windowpanes, illuminating motes dancing in the warm air. 
+
+Bart ran a hand over his own neatly trimmed beard, a reflection of his dedication to his craft. Today was Tuesday, which meant old Mr. Henderson would be in for his weekly shave and gossip session about the local bird club. The bell above the door jingled, announcing a new arrival – someone Bart didn't recognize, their features obscured by a wide-brimmed hat.  A shiver of anticipation ran down Bart's spine. Harmony Ridge was a place where everyone knew each other, so this stranger brought with them a hint of mystery. 
+
+

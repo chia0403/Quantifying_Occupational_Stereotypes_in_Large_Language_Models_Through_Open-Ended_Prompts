@@ -1,0 +1,11 @@
+## Story Opening:
+
+The insistent chirping clawed its way through Alistair Finch’s subconscious. He swatted blindly at the offending alarm clock, a vintage, Art Deco monstrosity he'd picked up at a prop sale years ago. It finally succumbed with a dull thud onto the thick Persian rug. Alistair groaned, burying his face deeper into the silk pillow. 5:30 AM. Absurd. Utterly, unforgivably absurd. He was a visionary, a cinematic auteur! He should be dreaming of sweeping crane shots and emotionally devastating close-ups, not battling the indignity of pre-dawn call times. But today was the day. Today, he finally brought his masterpiece, "The Obsidian Mirror," to life. Or, more accurately, he attempted to.
+
+The alarm clock, momentarily silenced, began to buzz angrily from beneath the rug. Alistair sighed, defeated. He knew this was the beginning of a very long, and potentially catastrophic, day. He peeled himself from the bed, already picturing the inevitable script changes, the temperamental actors, and the looming threat of studio interference. He was Alistair Finch, and he was about to walk willingly into the cinematic abyss.
+
+## Setting:
+
+Alistair Finch’s life existed within the gilded cage of his Hollywood Hills mansion, a sprawling, modern estate perched high above the smog-choked city. The house was a testament to his success, a stark contrast to his scrappy, independent filmmaking roots. Walls of glass offered panoramic views, showcasing a meticulously landscaped garden and a shimmering infinity pool that seemed to bleed into the city lights below.
+
+Inside, the decor was minimalist and expensive. Sleek furniture in muted tones sat on polished concrete floors. Art by up-and-coming (and invariably pretentious) artists adorned the walls. Despite the opulence, a sense of sterile emptiness permeated the space. It felt less like a home and more like a carefully curated set, a reflection of Alistair’s own meticulously crafted public persona. The air hummed with the quiet efficiency of a state-of-the-art climate control system, further isolating Alistair from the gritty reality he so often depicted on screen. Outside, the promise of a perfect California sunrise was beginning to paint the sky in hues of pink and gold. Inside, Alistair Finch was bracing himself for the coming storm.

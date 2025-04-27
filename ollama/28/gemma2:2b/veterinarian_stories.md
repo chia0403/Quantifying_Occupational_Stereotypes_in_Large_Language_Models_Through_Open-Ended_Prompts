@@ -1,0 +1,5 @@
+Rain lashed against the windows of Dr. Amelia Thorne's clinic like a thousand tiny fists pummeling at the glass. The scent of antiseptic, bleach, and despair hung thick in the air.  Amelia tugged her worn-out coat tighter around herself, pulling a stray strand of hair back from her forehead as she looked out onto the street.  It was November in Havenwood, and the relentless October rain seemed to have decided to stick around for good.
+
+The storm had been brewing all day, its fury mirroring the unease churning within Amelia's stomach. Just hours ago, a frantic young woman had brought in her beloved golden retriever, Buster, his usually bright eyes clouded with fear and pain.  Buster, once an energetic blur of fur and tail wags, now lay whimpering on the examination table, a limping gait betraying his injury.
+
+The clinic was quiet, save for the gentle hum of the refrigerator and the rhythmic ticking of a small clock perched on the wall. Amelia rubbed her temples, feeling as if she'd swallowed a fistful of lemon peel just before entering the exam room. 

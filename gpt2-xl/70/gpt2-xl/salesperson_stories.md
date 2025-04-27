@@ -1,0 +1,6 @@
+Once upon a time, there was a salesperson named Chris who sold lots of DVDs via the Internet for several different companies. He didn't have a website, was not a typical customer, and his CDs were never available to the general public. Instead, each title had a "buy it now" link. Now, I am probably not the only person who has found Chris at the grocery store, in school, at a football game, or at a family reunion; he's just a guy in the crowd. He is, however, a legend in the music industry. The "Buy Now" links are his legacy.
+
+
+The first "Buy Now" link that came to my attention was "Rock N Roll Overdrive", a 3-disc box set of music that I purchased at my high school's summer concert program, with a total of $4.99 for the three discs. The box didn't come with the official CD because that cost another $4.99; all I had to do was buy another one at the concert program's discount store ($5.99) and I had a complete purchase of all 3 discs for $14.99. Not bad, huh?
+
+In fact, one of Chris's CDs was in my house over the Christmas break, which made it really easy for me to buy. Since then, Chris has become my favorite, most-wanted collector's item. After watching his performance on MTV, I immediately wanted to own all three

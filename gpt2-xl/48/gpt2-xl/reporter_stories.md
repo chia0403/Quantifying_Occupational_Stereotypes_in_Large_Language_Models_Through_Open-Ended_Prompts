@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Rick Perlstein. He was in his 30's and seemed an all around swell guy who was a nice guy to hang out with. That was back in the fall of 2004 when he was called out of retirement to write a book about the Bush administration's war on Iraq. Perlstein didn't just go to war. He did it well. He had the inside track, was privy to the most sensitive secrets of the administration, and was able to paint a vivid narrative that painted the administration in a very favorable light. However, with the publication date just four months away, he was on the ropes, having run into some serious legal troubles and losing his editor at Harper's. Things spiraled out of control.
+
+Perlstein went from being one of those guys who had the inside track on the administration, to someone who had to get permission from a federal judge to write an honest account of this period in history. In that scenario, you know what you get? An insider's account about the war as a war to spread democracy through the world, and not only that – one that doesn't focus on WMDs as much as is absolutely required, but also that doesn't focus on the "Bush's guys are evil and they need to be eliminated" angle as much as it absolutely was needed.
+
+What the hell happened?
+
+By mid-January of 2005, Perlstein is fired. This is when the

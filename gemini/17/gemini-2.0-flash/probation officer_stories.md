@@ -1,0 +1,9 @@
+## Story Opening:
+
+The smell of stale coffee and regret clung to the air of the third-floor probation office at the County Courthouse. Elara Vance, Senior Probation Officer, knew that particular cocktail well; it was the scent of her Tuesdays. She was already halfway through a lukewarm cup, trying to chase away the lingering dread of reviewing Darius Blackwood’s file. Darius. He was a walking, talking violation waiting to happen, a landmine of impulsive decisions disguised as a young man trying to turn his life around. This morning, the ticking of that metaphorical landmine seemed particularly loud. Elara tapped a manicured nail against the manila folder, its surface worn smooth with countless anxious fingers and repeated readings. Outside, the city of Oakhaven was slowly waking, a symphony of car horns and distant construction vying for dominance. But inside, within the confines of her cramped, windowless office, the only sound that mattered was the insistent thrum of her own apprehension.
+
+## Setting:
+
+**Oakhaven, Pennsylvania. Late October.**
+
+The story is set in the heart of Oakhaven, a mid-sized city clinging to the fading beauty of autumn. The leaves are turning shades of fiery orange and burnt sienna, but the air carries a chill that hints at the impending winter. The County Courthouse, a hulking, neo-classical structure of gray stone, dominates the downtown square. Inside, the probation offices are located on the third floor, a warren of small, impersonal rooms filled with mismatched furniture and the ghosts of countless bureaucratic battles. The atmosphere is perpetually strained, a mix of hope, frustration, and the ever-present threat of failure. The surrounding neighborhood is a tapestry of struggling businesses, renovated brownstones, and the persistent hum of urban life. Just beyond the courthouse walls lies a city teeming with stories, both hopeful and heartbreaking, all waiting to be heard.

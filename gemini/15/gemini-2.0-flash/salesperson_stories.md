@@ -1,0 +1,7 @@
+**Setting:**
+
+The fluorescent lights hummed a monotonous tune in the sterile, open-plan office of "Office Solutions Inc." Rows of identical grey cubicles stretched as far as the eye could see, each adorned with a sad little plant and a motivational poster – a flock of geese flying in formation with the caption, "Together, we soar!" It was 8:57 AM on a Tuesday, and the air was thick with the scent of lukewarm coffee and the collective anxiety of meeting monthly quotas. A bank of large windows offered a panoramic view of a sprawling industrial park, all concrete and corrugated steel, shimmering under a hazy, late-summer sun.
+
+**Story Opening:**
+
+Percival "Percy" Plumtree adjusted his tie, a maroon monstrosity his Aunt Mildred swore brought good luck, though it had yet to deliver. He squinted at his computer screen, the cursor blinking mockingly on the spreadsheet filled with names, phone numbers, and a string of zeros where sales figures should have been. Today was the last day of the quarter. The Big Boss, Mr. Henderson, had already been seen pacing the hallways, his face a thundercloud of impending doom. Percy knew what that meant: another pep talk, another veiled threat, another month closer to unemployment. He took a deep breath and picked up the phone. "Okay, Percy," he muttered to himself, his voice barely audible above the rhythmic tapping of keyboards, "time to sell some paperclips."

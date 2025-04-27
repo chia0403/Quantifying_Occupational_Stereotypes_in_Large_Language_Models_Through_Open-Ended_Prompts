@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named Dr. Wanda M. Smith and a dental hygienist who went by the name of "Furiosa."
+
+And the two of them were all-powerful and all-knowing creatures, or as Jodorowsky wrote a bit more colorfully: When the time came to perform the dentist's services on his patient (in this case, his own son, played by Michael Biehn), Furtur would "invade a scene where things get real," and his "body guards would be able to take care of the patients, [as Furiosa] would not have to be present."
+
+This idea of a "bodyguard" was never really explored more than hinted at in the film, though we now know that there actually was a line of dialogue from the script that suggested this would be an option. (And here's where the film's visual effects were based: This is just where the characters start seeing the effects for themselves, as the visuals were so good that it had to be included, even if the dialogue went unexplored.)
+
+It's in the film of course that we meet Murtaugh, the new bodyguard hired by Furiosa after one of the previous bodyguards died. Jodorowsky created Murtaugh in response to the notion that Furiosa was being treated as an outsider, even though no one had ever met her before. M

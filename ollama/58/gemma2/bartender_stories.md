@@ -1,0 +1,5 @@
+The amber glow of the "Last Call" sign pulsed like a dying heart against the grime-coated windows of The Rusty Mug. Rain hammered the corrugated iron roof, each drop a tiny explosion in the symphony of urban night. Inside, Elias Finch, his name emblazoned in faded gold lettering on a chipped glass behind the bar, polished a tumbler with practiced ease. His movements were deliberate, almost ritualistic, like a priest preparing for confession. The air was thick with the scent of stale beer, burnt tobacco, and desperation - a potent cocktail unique to this corner of New Haven. 
+
+Elias wasn't just serving drinks; he was dispensing solace, offering a temporary escape from the city's relentless grip. He knew every regular by name, their stories etched into the wrinkles around his eyes, each one a testament to the human capacity for both resilience and ruin. Tonight, however, a new face sat at the end of the bar, shrouded in shadow and silence.  A chill ran down Elias' spine, not from the damp air seeping through the cracks in the window, but from an unease he couldn't explain. This stranger held secrets, and they weren't welcome in The Rusty Mug. 
+
+

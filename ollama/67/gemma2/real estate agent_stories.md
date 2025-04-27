@@ -1,0 +1,6 @@
+The late July sun beat down on the cracked asphalt driveway, turning Amelia "Amy" Beaumont's stilettos into molten metal. Sweat prickled under her collar despite the crisp linen dress she'd carefully chosen for the showing. This wasn't a typical listing; this was 24 Oakwood Lane, a Victorian mansion perched precariously on the edge of Willow Creek. It had seen better days, that much was clear from the peeling paint and overgrown garden, but Amy saw potential – a diamond in the rough just waiting for the right buyer. The "For Sale" sign creaked in the breeze, a lonely sentinel guarding secrets whispered through generations. 
+
+
+Amy adjusted her designer sunglasses, pushing back a stray curl that dared to escape her perfectly coiffed updo. This neighborhood had always been steeped in whispers:  stories of hauntings, hidden treasures, and families torn apart by tragedy.  But Amy was a pragmatist, a woman who dealt in square footage and mortgages, not ghosts and hearsay. She took a deep breath, steeling herself for the unsettling atmosphere that clung to the house like cobwebs. 
+
+She hadn't come here for ghost stories; she'd come for a commission. And this one, with its faded grandeur and whispers of secrets, promised to be the most intriguing yet. 

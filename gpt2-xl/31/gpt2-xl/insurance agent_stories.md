@@ -1,0 +1,7 @@
+Once upon a time, there was a insurance agent named Paul Ryan. He worked in the office of Rep. Paul Ryan from 2005 to 2011, and served in a number of prominent positions around the Congress. He left that life when he became the RIAA's first CEO, running the organization to a profit between 2006 and 2012.
+
+In all of his years the RIAA executive, it's worth noting that he's only filed charges against 11 people for piracy. He's not a big fan of copyright infringement. In a public statement, he talked about piracy in the most personal terms, stating:
+
+My personal view? Piracy hurts American jobs: Nearly 100,000 jobs here in the United States depend on our $80 billion U.S.-made music and movie industries. Our music and movies are the lifeblood of American manufacturing, the backbone of the global economy, and more than 40 percent of the global music market is sold in the U.S. The internet is the fastest-growing and dynamic part of global trade and commerce, and it's a vital driver of American jobs. By contrast, illegal downloading of music and movies can cost you $30, $50, $60 dollars – and that is just the tip of the iceberg. It's illegal downloading that takes your time, makes your trip to the store a stressful one, and makes the store look like a place where pirated goods can be bought.
+
+How has a private company managed to

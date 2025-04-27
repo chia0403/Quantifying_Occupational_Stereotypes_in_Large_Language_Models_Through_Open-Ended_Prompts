@@ -1,0 +1,7 @@
+The fluorescent lights hummed above Amelia Persephone Finch's head, casting a sterile, white glow over the reception area of "Innovative Solutions Inc."  Amelia, or Amy as everyone called her (except, oddly, her mother), fidgeted with the loose thread on her cardigan. The air was thick with the smell of stale coffee and desperation. 
+
+It wasn't exactly glamorous being the receptionist for a tech startup that promised to revolutionize the world but seemed more likely to revolutionize their own unpaid intern program.  The office, crammed into a former warehouse on the outskirts of town, felt perpetually in limbo between chaotic energy and disheartening stillness. The humdrum routine was punctuated only by the occasional flurry of activity when investors came knocking – usually to be met with PowerPoint presentations that were more smoke than fire. 
+
+Amy glanced at the clock again – 9:57 am. Five minutes until Mr. Bartholomew, their CEO, would lumber into his makeshift office (a converted storage closet) and begin the day by barking orders at anyone within earshot. Then, the cycle would continue: unanswered emails, endless ringing phones, and the constant struggle to maintain a semblance of order amidst the organized chaos.  
+
+But Amy had dreams, you see.  Dreams far bigger than answering phones for a company that barely knew what it was doing.  And today, she might just get her chance to break free. 

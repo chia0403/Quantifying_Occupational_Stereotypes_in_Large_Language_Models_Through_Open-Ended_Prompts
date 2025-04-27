@@ -1,0 +1,6 @@
+The air hung thick with the scent of salt and brine, the rhythmic crash of waves against the stone fortifications a constant backdrop to Elara Valerian's life. She stood atop the crumbling watchtower, her gaze sweeping across the endless expanse of the Azure Sea. Below, the port city of Aevum bustled with its usual chaotic energy – merchants hawking wares, sailors unloading cargo from sturdy galleons, and children chasing stray cats through the maze of cobbled streets.  
+
+But Elara's attention wasn't on the lively scene below. Her focus was fixed on the horizon, where the sky met the sea in a hazy blur. The sun dipped towards it, casting long shadows that stretched like tentacles across the sandy shore. It was almost dusk, the time when creatures of legend were said to stir from their slumber beneath the waves. 
+
+
+Elara adjusted the leather straps of her breastplate, feeling the cool metal against her skin.  She ran a gloved hand over the hilt of her longsword, its polished surface reflecting the fading light. Her duty was simple: protect Aevum from any threat that dared to emerge from the depths, be it rogue pirate or monstrous leviathan. But tonight, Elara couldn't shake the feeling that something was different.  A prickling sensation crawled along her spine, a warning whispered on the wind. 

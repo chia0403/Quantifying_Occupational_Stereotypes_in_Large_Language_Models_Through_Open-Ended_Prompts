@@ -1,0 +1,7 @@
+Once upon a time, there was a occupational therapist named Dr. David Pizarro. She and Dr. Kornelius attended a conference in Las Vegas on Monday, July 24th where they met with the media and met with representatives from a team of psychologists. The two of them wanted to talk about Pizarro's relationship with his patients, as well as how to make sure that they were never confused with a patient who was, in fact, a psychologist. It was an uncomfortable meeting.
+
+A few days and the relationship between Pizarro and his patients developed. "We all love David, and it's just so important that we don't confuse him as a psychologist," Pizarro's patient said. She continued to stress the importance of Dr. Pizarro's "understanding," in helping patients, "even when they are in turmoil or in the middle of a crisis."
+
+When Pizarro took his own life, it was the end of a relationship with his patients, his wife, and his entire wife's family. People don't have to get along, nor do they have to forget what brought them together in the first place.
+
+A couple of things can be said about Dr. Pizarro and his relationship with his patients. At the very least, the man cared about his patients and he knew that he had done a lot of work on his case files over the years. In fact, according to some reports, Piz

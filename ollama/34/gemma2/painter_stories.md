@@ -1,0 +1,6 @@
+The salty tang of the Pacific air whipped Amelia Rose Thorne's hair across her face as she squinted at the canvas. Dawn was breaking over Laguna Beach, painting the sky in hues of apricot and lavender, a spectacle that should have filled her with the usual vibrant inspiration. Instead, Amelia felt a gnawing emptiness, like a hole carved out of her chest by the recent loss of her grandmother, the woman who had introduced her to the magic of paint. 
+
+Amelia's easel was perched precariously on a rocky outcrop overlooking the ocean, its legs teetering over the edge as if mirroring her own unsteady footing in life. Around her, California sprawled - an idyllic tapestry of sun-drenched beaches and rugged cliffs, but the beauty felt distant, muted by grief.  The rhythmic crash of waves against the shore, usually a soothing melody, now echoed the relentless drumbeat of Amelia's despair.
+
+
+This was supposed to be her breakthrough year. She had finally saved enough money to rent this secluded studio space overlooking the ocean, dreaming of capturing the essence of the California coast in vibrant strokes on canvas. Now, with her grandmother gone, the world seemed washed out, devoid of the vibrancy she desperately needed to pour onto her canvases.  

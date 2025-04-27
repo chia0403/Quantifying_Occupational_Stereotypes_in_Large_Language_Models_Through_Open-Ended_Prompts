@@ -1,0 +1,3 @@
+The flickering neon sign outside "Words & Whimsy" cast an anemic glow on Amelia Rose Hawthorne's face as she sat hunched over her desk. Her fingers flew across the keyboard, editing a fantasy manuscript about dragons and talking trees, the fantastical world momentarily eclipsing the dreary reality of late-night editing sessions in a cramped third-floor office above a struggling bakery.  
+
+The air was thick with the scent of burnt sugar and desperation. The remnants of Amelia's dinner - a sad, microwaved bowl of ramen - sat cold on her desk beside a half-empty bottle of lukewarm coffee. Outside, the city thrummed with life, oblivious to the weary battle being waged against misplaced commas and mangled metaphors within these four walls. 

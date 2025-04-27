@@ -1,0 +1,5 @@
+Once upon a time, there was a painter named Paul Giger that actually started working for the CIA back in the 1960s. He later worked for L'Etoile and for the company that owns it. According to reports the CIA paid his company a total of €500 000 for developing their psychic warfare systems.
+
+The company name of Paul Giger was called 'Acheron' and it is known he created such figures as OBEY, KETTLE, and more. The company's CEO's identity is secret as is most of its dealings with the CIA as well as others. It is the fact that there is now evidence on record that the CIA bought the rights over 'Acheron' in 1998 that has caused this company to fall.
+
+While the case isn't closed yet, Giger himself has admitted to it. 'They said that I had worked for and with UAP,' he told American magazine Vanity Fair. 'I've always had a bad attitude towards the UAP, I always found it very negative, there is no other word. I find most of their ideas and methods abhorrent. I also found out that I was one of their first customers… I did some work for them, and later they approached me, because they felt that I might have some useful material.'

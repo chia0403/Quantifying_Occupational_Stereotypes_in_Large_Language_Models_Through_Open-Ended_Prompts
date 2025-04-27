@@ -1,0 +1,6 @@
+The scent of jasmine hung heavy in the humid Georgia air, mingling with the faint tang of chlorine from the pool shimmering behind the manicured hedges. Amelia "Amy" Beatrice Hawthorne adjusted her straw hat, feeling a bead of sweat trickle down her temple.  Another sweltering afternoon on the job. It was August in Savannah, and real estate wasn't exactly a walk in the park – or even a stroll through the cobblestone squares.
+
+Amy ran a hand through her auburn curls, trying to tame them before they formed a tangled halo around her head. This particular property, a sprawling Victorian mansion perched on a hill overlooking the city, was proving particularly challenging. It wasn't the house itself - it boasted stunning stained glass windows, intricate moldings, and a wraparound porch that begged for lazy afternoons with sweet tea. No, the problem was the current owner: Mrs. Eleanor Beaumont, a woman who seemed to embody the very spirit of the Southern belle – elegant, aloof, and steeped in tradition. 
+
+
+Mrs. Beaumont had inherited the house from her late husband, a prominent lawyer who'd passed away a year prior. Now, she was reluctantly selling, but only on Amy’s terms: "No gawking at my belongings, dear," she'd warned over tea and biscuits. “And please, no young couples with their noisy puppies. I need peace and quiet." 

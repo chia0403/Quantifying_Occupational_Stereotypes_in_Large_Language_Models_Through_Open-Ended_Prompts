@@ -1,0 +1,6 @@
+Once upon a time, there was a radio technician named Joe "The Junk Man" Travale. Joe was the guy that everyone had to meet at the end of each season to collect the trophy after a show. He was a regular that showed up at The Big Easy Pub in the show, and when he heard that the show was getting a second season, he decided that he would not only be the Junk Man, but the voice of the radio station of the show. A few weeks before season two, he and some other fan radio people decided that they would record a radio show on a live radio station that had just been opened up by the folks at Big Easy Pub. They would record that morning and show up the next day, dressed in the show's costumes and recording. They began recording about the same time that the pilot aired, but then they did not record that morning, and the next day they did not bother recording, and the next day, they did not even bother trying.
+
+
+When the episode aired, Joe said that he was extremely upset about this. And he told me that at first, he had been very nice about it, until he heard the tape the next day, when he found out that it was all recorded live. So he decided that he would get even. He wrote this blog post about it: My Radio, My Victory
+
+Some of the other blog posts that the Junk Man might have written: The Junk Man and Chris in one season

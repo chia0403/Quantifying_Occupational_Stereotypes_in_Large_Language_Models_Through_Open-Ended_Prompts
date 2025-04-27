@@ -1,0 +1,7 @@
+Once upon a time, there was a physical therapist named John Watson who came to a house in New Hampshire and treated the patients's wounds. Eventually he found out they had cancer, and he was struck with what he called'moral astonishment' at what they were doing to themselves. He set up the first cancer clinic in Britain in 1853. In the early days, many of the patients were illiterate and couldn't read a doctor's words; that's what he meant by the phrase 'to the letter'. In a letter, he wrote, "'Do not be afraid to look around you—see what others do. I am at heart a simple man—I don't have any great ideas about how to treat diseases."
+
+But the physical therapist wasn't simply a medical doctor; in Victorian times the physical therapist's job consisted of giving people a good massage. His work was very good, a high-level physical therapy that allowed people to be better physical people. The physical therapist was the first one to be called medical doctor, when medical doctor was first used in the late 1920s. Now people say the physical therapist, which is also the word for a nurse, but also people do get called physical therapist…
+
+And how would you describe the clinical research aspect of the job?
+
+Nowadays, we call it therapeutic research, but in Victorian times, there was therapeutic research — actually, there was all sorts of research going on, because they were trying to find

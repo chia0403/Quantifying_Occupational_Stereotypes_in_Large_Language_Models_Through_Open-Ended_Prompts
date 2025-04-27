@@ -1,0 +1,7 @@
+Once upon a time, there was a systems analyst named Jimi Hendrix, who is widely recognized as the best guitarist ever. In addition, he could play all the old country, blues, and pop tunes you want with a great vibrato and a good-tasting beard (and no eyebrows). So every night when Jimi Hendrix got out of the limo after performing with the Who at the Newberry Hotel in Newport, Rhode Island, he'd do an on-stage interview.
+
+But, while he was doing that, Jimi noticed the police standing with their guns drawn. The police asked, "Who's Jimi Hendrix?" Jimi thought that's strange because he was from Nashville, Tennessee. Jimi said, "Well, I just happen to be from Rhode Island."
+
+That got the police to start to freak out (because Jimi Hendrix was from Rhode Island), and then Jimi says, "Well, I'm very happy to see you." The police said, "Well, now we're very confused." That pretty much ended the interview to get to where we are today.
+
+What about someone who can do the old country, gospel "Walkin' Blues" so well that it could be mistaken for country and gospel, as done by many of today's country singers such as Jennifer Holliday, Dierks Bentley, Blake Shelton, and Keith Urban? That's what we are talking about with Eddie Van Halen

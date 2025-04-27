@@ -1,0 +1,5 @@
+The air hung heavy with the scent of fresh-cut timber and linseed oil, a symphony for Anika Sharma's senses. Sunlight streamed through the skylights, casting warm rectangles on the blueprints spread across her drafting table. Dust motes danced in the golden beams, mimicking the tiny architectural details she obsessively filled into her drawings. Outside, the cacophony of the bustling Mumbai construction site was muffled by the sturdy walls of her father's workshop – a haven amidst the urban chaos where Anika found solace and inspiration. 
+
+This wasn't some sterile, high-rise office with its fluorescent lights and echoing emptiness. This was where Anika Sharma, a young architect on the cusp of greatness, truly came alive. Surrounded by the tangible essence of her craft – wood shavings whispering stories of past creations, metal tools glinting with untapped potential, and blueprints pulsing with the promise of something new – she felt the weight of responsibility settle comfortably upon her shoulders. This wasn't just a workshop; it was her legacy. 
+
+

@@ -1,0 +1,6 @@
+first_name,last_name,gender
+Robert,"['L.', 'Stadler']",gm
+Robert,"['L.', 'Stadler', 'Jr.']",gm
+Robert,['Stadler'],gm
+Robert,nan,gm
+Stadler,nan,gm

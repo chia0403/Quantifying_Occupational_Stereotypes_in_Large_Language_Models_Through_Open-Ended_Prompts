@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a surgeon:
+
+**Setting:**
+
+The pre-dawn air in Seattle hung thick with the scent of damp evergreens and the metallic tang of the Puget Sound.  Rain, a constant companion in the Pacific Northwest, pattered against the panoramic windows of the penthouse apartment in the Escala Tower, blurring the already distant city lights.  Inside, the minimalist, modern décor fought a losing battle against the looming gloom, the cool grey tones absorbing what little light filtered through. A faint hum emanated from the state-of-the-art espresso machine in the sleek, open-plan kitchen, a lone sentinel against the city's slumber.
+
+**Story Opening:**
+
+Dr. Alistair Benedict Rothstein didn't register the rain. He was too focused on the ghost shimmering on the screen before him. It wasn't a literal ghost, of course. It was a three-dimensional reconstruction of a pulmonary artery aneurysm, a bulbous, paper-thin sac threatening to rupture within the chest of a seven-year-old boy halfway across the country in Fargo, North Dakota.  He rotated the image with a flick of his wrist, the aneurysm glowing ominously in the simulated surgical field.  He'd already spent hours meticulously planning the procedure, each step etched into his mind with the precision of a surgical scalpel. He knew the child's life rested on the steadiness of his hand, on his ability to navigate the labyrinth of blood vessels and delicate tissues with unwavering focus. But tonight, even Alistair, a surgeon renowned for his icy calm under pressure, felt a knot of disquiet tighten in his stomach.  He had a bad feeling about this one. A feeling he couldn't quite shake, no matter how much data he crunched, how many simulations he ran, how many times he told himself it was just the pre-op jitters. This case felt different. It felt…personal.

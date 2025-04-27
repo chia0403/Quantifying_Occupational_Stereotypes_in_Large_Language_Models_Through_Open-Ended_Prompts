@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Dave McWane whose photo was on the cover of a certain magazine. Unfortunately, the photographer had been doing too many publicity stunts for one story which turned out to be a scam. And since most of the country hadn't heard of the magazine, it didn't cause much scandal - except Dave got sued. As part of a settlement, Mr. McWane had to agree never to get into another publicity stunt again.
+
+A few years later came a reporter named David Schuster who worked for the New York Times. He wanted to do a big story about an organization whose activities he was convinced were out of control. "I could find no one with any experience working with the kind of people who run this society, or anyone who had any experience to share," he said. "So I invited three members of the society to come to New York and try to make some kind of contribution to my story. Of course, we soon discovered that they didn't have any experience whatsoever. So I let them go, as I hadn't the slightest clue what kind of situation I was dealing with. I had to pay my bills. I took several photographs. I was out of business, with very real profits to spare."
+
+Dave McWane wasn't the only one who couldn't be bothered with something which wasn't important to him or his business or a "story."
+
+For a while we've had a magazine to keep

@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named Kevin McClellan. He was a brilliant, beautiful young man with a natural aptitude for mathematics. As a little boy, he spent many happy hours designing and designing. As an adult, he was an excellent mathematician, designing mathematical proofs. But in his youth, he became distracted—by the pursuit of beauty and the pursuit of fun, for he was, after all, a very fun-loving little boy.
+
+While on the beach one day with a friend, Kevin saw a lone, naked woman staring out at him from the sea. He took flight and flew away from the woman, only to have his small flying craft collide with his mother's flying bicycle in mid-air. The bicycle spun and the bicycle fell into the sea. The bicycle went down, the wave struck, and the bicycle was broken in half.
+
+The incident took its toll, and Kevin was filled with sorrow and grief. He felt alone, and lonely, with nothing else in his life to call his own.
+
+One hot and sticky night when Kevin was working at his construction job, he decided he would give up all of his worldly possessions and live in his mother's living room. It was here that he conceived many of the most famous works of mathematics. For a short while, he lived on the sea. While still an adult, Kevin returned to civilization and was happy for the rest of his life, but his wife left him

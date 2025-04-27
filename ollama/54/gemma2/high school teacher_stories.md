@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Ms. Eleanor Vance's head, casting a sterile glow on the cluttered classroom. It was 7:45 AM, a time when most sentient beings preferred slumber over deciphering quadratic equations. But Eleanor wasn't most beings. She thrived in this pre-dawn quiet, the stillness before the chaotic symphony of teenage energy commenced. Papers were stacked neatly on her desk, each one containing the hopes and anxieties of thirty bright, messy minds. 
+
+Outside, a sliver of sunrise peeked over the steel-grey horizon, painting the sky with tentative hues of orange and purple. The faint scent of dew lingered in the air, a subtle reminder that even amidst the concrete jungle, nature persisted. Eleanor took a deep breath, savoring the moment before her students arrived, their backpacks brimming with homework woes and whispered gossip. Today, she would teach them about parabolas, but more importantly, she would guide them through the intricate curves of adolescence.  
+
+
+**Setting:** Ms. Eleanor Vance's Algebra II classroom at Northwood High School, a sprawling suburban high school on the outskirts of Chicago. The air is thick with the smell of stale coffee and anticipation.

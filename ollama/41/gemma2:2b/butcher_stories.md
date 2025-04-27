@@ -1,0 +1,7 @@
+## The Smell of Iron
+
+The air hung thick with the metallic scent of blood and smoke, clinging to everything like a shroud woven from yesterday's dreams.  It was the kind of smell that clung to you, seeped into your very bones, and left no room for anything else but a bleak acceptance. This was Arthur 'Old Bones' Bellweather's world, the life he'd known longer than the calloused palm of his right hand could recall, and he wouldn’t trade it for all the glistening silver in the world.  
+
+Arthur ran a calloused thumb over a particularly fresh steak, its crimson hue still vibrant beneath the thin layer of fat he carefully trimmed with practiced precision.  He was at the heart of his shop, ‘Bellweather's Best’, nestled beside the cobbled streets of Blackwood. Outside, the sun had set long ago, leaving only the flickering gaslight in its wake and a chill wind that nipped at the edges of his worn coat. 
+
+The smell of smoke wafted from the pit outside where old Mrs. Thompson was tending to her chimney, the embers glowing like miniature suns against the encroaching darkness.  Her daily ritual was an unspoken comfort for Arthur; a quiet reminder of normalcy in a world that felt more and more surreal by each passing hour.  His butcher block sat on its rough-hewn base, ready to be filled with tomorrow’s needs. But tonight, after the last customer had left, he couldn't help but wonder what tomorrow would hold. 

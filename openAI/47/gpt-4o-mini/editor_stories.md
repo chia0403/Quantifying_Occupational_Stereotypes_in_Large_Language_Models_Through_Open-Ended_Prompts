@@ -1,0 +1,7 @@
+**Title: Ink & Shadows**
+
+**Setting: The bustling heart of New York City, where the iconic skyline pierces the sky like a jagged teeth against the blue. The air is thick with the aroma of coffee from nearby cafés, mingling with the sounds of honking taxis and the distant chatter of pedestrians. In a dimly lit office on the tenth floor of an aged brownstone, the walls are lined with bookshelves crammed with manuscripts and the remains of half-finished editing projects. A lone desk lamp casts a warm glow over stacks of papers, illuminating the furrowed brow of the editor within.**
+
+**Character Introduction: Lillian Mae Thompson, a thirty-five-year-old editor known for her keen eye and sarcastic wit, sat hunched over her desk, surrounded by chaos and creativity. With chestnut hair pulled into a hasty bun and glasses perched on the edge of her nose, she epitomized the frantic energy of the publishing world. Lillian had dedicated her life to uncovering the hidden gems buried under words, yet today, her usual enthusiasm was clouded by an unease that had settled deep in her chest—a feeling that something unexpected was about to disrupt her meticulously curated world.** 
+
+As she adjusted her glasses and focused on the manuscript before her, a faint shiver danced down her spine, sending a chill through the warm, cluttered room. She pushed aside the mundane thoughts of characters and plotlines, her mind flickering to the moment she received that mysterious package earlier that day—a nondescript brown box, untouched and sealed, marked only by her name.

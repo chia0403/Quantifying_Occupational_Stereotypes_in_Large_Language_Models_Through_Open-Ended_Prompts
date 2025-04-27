@@ -1,0 +1,7 @@
+Title: **Whispers of the Old Elm**
+
+In the heart of the quaint town of Willow Creek, where mornings were greeted with the fragrant embrace of blooming lavender and afternoons draped in the soft golden hues of sunlight, sat the weathered stone edifice of Maplewood High School. Its ivy-clad walls and arching windows seemed to echo the tales of generations that passed through its aged hallways. Nestled in a corner of the school's hushed corridors, behind a door with a small, frosted glass window etched with "School Psychologist," was the realm of Dr. Eloise Hartwell.
+
+Dr. Hartwell, with her gentle smile and eyes that held the color and depth of an ancient forest, had been a beacon of solace for students and staff alike for over a decade. Her office was a warm haven, filled with the soft hum of a white-noise machine and the sweet, earthy scent of sandalwood. Shelves lined with books on human behavior and the mysteries of the adolescent mind reached toward the ceiling, while a small, round table held jars filled with an assortment of colorful fidget toys.
+
+Outside her window, a grand old elm tree swayed with the whisper of secrets and stories it had gathered over time, offering a picturesque view that served both as an inspiration and refuge for those who sought Dr. Hartwell's guidance. Under its branches, students often found solace, their laughter and dreams intertwined with the rustling leaves.

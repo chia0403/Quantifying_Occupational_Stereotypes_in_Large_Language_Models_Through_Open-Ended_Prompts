@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Jack. For a time he worked as an intern for a local TV station and was able to come up with a very successful story. He wrote a story about a girl who was dating a rich person she had met on a bus. When she discovered that he had a lot of money, she went shopping for something small to give him (in order to prevent another ugly surprise). In the end, it was a nice pair of shoes and she gave the guy her address. She returned to the station that she loved and Jack realized that all people were capable of being the best they could.
+
+This post was inspired by a short story titled The Boy Who Was Drunk While His Father Made Him Swoop Through the Snow.
+
+There you have it, it's a story about how good you can be. You can change your bad habits, get rid of negative thoughts, get rid of shame, and change yourself forever. With enough effort, you can change your life.
+
+And remember, if you do change, just because your past wasn't perfect, doesn't mean you'll be forever tainted by it, that you will continue to be cursed with bad traits in your character. You deserve to be happy, you deserve to be fulfilled. Don't focus on what your past does to you, focus on what you can do now. The biggest decision you need to make in your life is how you change yourself, where you go

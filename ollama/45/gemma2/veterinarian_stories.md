@@ -1,0 +1,5 @@
+The rain hammered against Dr. Eleanor Beaumont's office windows, each drop a tiny drumbeat against the silence of the deserted waiting room. Outside, the wind howled like a banshee, whipping the oak trees in her small town's park into a frenzy.  Eleanor sighed, leaning back in her creaky leather chair and staring at the worn teddy bear slumped on its perch atop the reception desk. Usually, this time of day was bustling with worried pet parents and their anxious companions. But today, even the stray cats seemed to have sought shelter from the tempest. 
+
+Her practice, "Beaumont's Beasts & Bestiaries," nestled between a quaint bakery and a dusty antique shop on Main Street, was usually humming with life. It was a place where furry friends were treated like royalty, and Eleanor, despite the long hours and occasional heartbreak, wouldn't trade it for the world. But on nights like this, when the storm raged and the phone remained stubbornly silent, a pang of loneliness settled in her chest.
+
+

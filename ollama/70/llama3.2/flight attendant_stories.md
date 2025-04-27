@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the horizon, casting a warm orange glow over the bustling airport, Flight Attendant Alexandra "Lexi" Thompson began her pre-flight routine with a sense of restless anticipation. She had spent the evening before stuck in traffic on her way to the layover in Chicago, and was now running perilously close to being late for the 2:15 AM flight to Los Angeles.
+
+The fluorescent lights overhead seemed to hum in harmony with Lexi's own frazzled nerves as she expertly checked each of the cabin's systems one last time before final preparations. Her bright blue eyes scanned the aircraft, her trained mind ticking through every safety procedure and protocol. At 32, Lexi had spent over five years flying for a major airline, earning a reputation as one of the best in her line of work.
+
+As she made her way down the aisle, checking the stowage bins and adjusting the oxygen masks, Lexi's thoughts wandered to the passenger list for this flight. There was something about the mix of passengers on tonight's crew that didn't feel right - a lone businessman looking anxious, a young couple snuggled up together in the back row, and a elderly woman sitting alone near the window.
+
+Lexi's instincts whispered at her to be extra vigilant tonight. Little did she know, this was just the beginning of a night that would put everything she had learned about flying - and herself - to the ultimate test.

@@ -1,0 +1,7 @@
+Once upon a time, there was a income tax preparer named David who needed help with his taxes. He was married to a woman named Jane and for some reason a small amount of their income went to her. This wasn't a problem then, but because David and Jane's circumstances were so different from each other, it turned out to be a significant problem now.
+
+Income taxes are meant to be simple. The government has fixed rates for different income types, and only tax income from work, so we can all just sit back and pay, instead of worrying about our taxes making it on to a credit card or to someone else's taxes. This leaves us free to concentrate on the important things in life: money, beauty, cars, and vacations.
+
+So how did David and Jane, who had their own incomes, go from one to the other? Their problem is that Jane, who was paying their taxes, had a very high income, from a very nice job as an accountant. David, who was on a tight budget, was just able to pay Jane a small amount off their jointly earned income.
+
+But it's worth noting that David actually had a high income to begin with, from working as a computer programmer, as well as the previous income he'd earned as a stockbroker. So he did his job, but his real income was small compared to Jane's. To make the situation even worse for David and Jane, Jane had a third income

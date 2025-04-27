@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The fluorescent lights overhead cast an eerie glow over the worn linoleum floor of Joe "Buck" Jenkins' workplace - the local convenience store, 'Mae's Market'. The clock on the wall ticked away with a monotony that seemed to match the rhythm of Buck's own thoughts as he mechanically rang up purchases for the evening rush. It was 9:45 PM on a chilly autumn evening, and the only sound coming from outside was the distant hum of engines driving by on Main Street.
+
+Buck, a lanky 25-year-old with a mop of curly brown hair and a scattering of freckles across his nose, had been working at Mae's Market for three years now. He knew most of the regulars by name - there was Mrs. Thompson who always bought lottery tickets; Tommy who always snuck out of the house after midnight to buy Slim Jims; and the truckers who would stop in on their way through town, swapping stories about their lives on the open road.
+
+As Buck processed a customer's purchase, his eyes drifted towards the back room - where Mae herself was counting down her till for the day. She had been a fixture at this store since before Buck's parents were born, and he often found himself wondering what secrets she kept locked away behind that worn smile.

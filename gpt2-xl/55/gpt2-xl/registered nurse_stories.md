@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named Linda Dohlefsen. And not long after, she was in the hospital. And not long after that, she was dead.
+
+"There are two reasons we get to the hospital in that case, and only two," said Dr. Thomas L. Young, a board-certified internist in New Orleans who is also the vice president of the Louisiana Society of Clinical Oncology. "One is, someone has died and you have to be responsible for that. And the second is – usually there are a lot of them – there is a medical emergency. And in that case, the emergency is often a very serious medical issue, like a stroke, and therefore you have to start dealing with the person's body right away. The problem for a nurse who is called to the hospital is that the person isn't very sick, and they haven't received a lot of care. There are a lot of other people here on the floor, and they're sicker than she is, and you can't keep up with everything. She could get overwhelmed. She could become frustrated. There is a lot on the line. And it doesn't happen often. It happens a lot, but not often so that you don't know or understand what's being presented to you."
+
+Advertisement Continue reading the main story
+
+When the C.D.C. examined C.D.N.S., the agency found

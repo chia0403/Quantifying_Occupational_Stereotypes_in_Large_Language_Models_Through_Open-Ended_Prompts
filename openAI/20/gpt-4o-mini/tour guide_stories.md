@@ -1,0 +1,9 @@
+The sun hung low in the sky, casting golden hues over the cobblestone streets of Montclair, a quaint village nestled in the hills of southern France. Its charming stone façades and blooming window boxes whispered tales of an age long past, while the aroma of freshly baked baguettes wafted through the air, mingling with the faint scent of lavender from the nearby fields. 
+
+At the heart of this picturesque town stood the ancient clock tower, its bold face ticking away the seconds of history, a steadfast witness to the lives woven within these walls. It was here, at the bustling square near the fountain adorned with singing cherubs, that Annabelle Charlotte Dubois stood, clipboard in one hand and a wide-brimmed straw hat perched jauntily on her head. 
+
+Annabelle had guided countless tourists through the hidden gems of Montclair and its surrounding vistas, as eager travelers flocked to hear the stories she told—of times when knights roamed the countryside, and lovers carved their names into the bark of the great oak tree in the village square. Her passion for history breathed life into the phrases she spoke, captivating visitors with the romance and intrigue of a place caught between dreams and time. 
+
+Today, as the vibrant market buzzed around her, she prepared for the small group gathered near the fountain. They were an eclectic mix—two art students, a retired couple celebrating their fiftieth wedding anniversary, and a lone backpacker with wide eyes full of wonder. Annabelle felt a familiar thrill in her chest; each tour was a new adventure, a chance to connect with strangers who would soon become a part of her story. 
+
+Little did she know, this tour would unexpectedly lead her to uncover secrets buried beneath the cobblestones and alter the course of her own life in ways she had never imagined.

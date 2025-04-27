@@ -1,0 +1,6 @@
+Rain lashed against the grimy windowpanes of Alistair Finch's apartment, each drop exploding into a miniature starburst on the already rain-streaked glass.  A sickly yellow light from the streetlamps cast long, distorted shadows across the cluttered desk where he sat hunched over his keyboard. Empty coffee cups and crumpled energy bar wrappers littered the surface like fallen autumn leaves, testament to his all-nighter fueled by caffeine and desperation. Alistair, a lanky man with perpetually sleep-deprived eyes and hair that defied gravity, muttered curses under his breath as lines of code scrolled across the monitor. 
+
+He was wrestling with a particularly stubborn bug in the security protocol for Project Aurora, an ambitious AI project he’d been assigned to. The deadline loomed like a hungry predator, its jaws snapping ever closer. Alistair knew if he failed, not only would he be facing his boss's wrath, but the entire project – and possibly, the future itself – could be jeopardized.  He rubbed his tired eyes, trying to focus on the screen. Outside, the storm raged on, mirroring the tempest brewing within him. 
+
+
+**Setting:** A cramped, cluttered apartment in a dimly lit city district known for its run-down buildings and vibrant nightlife. It's late at night, the rain is pouring down, and the air is thick with tension.

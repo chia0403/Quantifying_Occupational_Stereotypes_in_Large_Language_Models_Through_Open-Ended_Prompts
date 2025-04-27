@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named Jimmy, his young son John, and his daughters Lina and Cindy. The whole family was making a fortune in cattle raising. But the farm was not as prosperous as it once was because, as a result of government action, the price of feed for livestock had increased so much that it was no longer affordable to raise enough cattle to pay for all the cow poop that was accumulating on the farm. It took some ingenuity not to blame government. On many occasions, as a solution to this "problem," the family would have hired out to someone who did not think about the welfare of the cows. As an alternative, the family hired a couple of farmhands, who actually used their "stint" to work for their own livelihoods.
+
+It was a strange kind of irony that government should help a family make millions while taking from the next generation.
+
+This "problem" was a result of the actions of the Federal Reserve. With the exception of a six-year period between 1913 and 1920, the Fed had been providing most of the money printing during all of the 20th century; a fact that made the monetary system seem like a very stable, predictable system.
+
+For an entire generation, Jimmy, John, and Cindy ran the cattle operation with a lot of hope and enthusiasm for good economic times for everyone. As a result, a substantial chunk of their income still came strictly from the interest earned on the surplus

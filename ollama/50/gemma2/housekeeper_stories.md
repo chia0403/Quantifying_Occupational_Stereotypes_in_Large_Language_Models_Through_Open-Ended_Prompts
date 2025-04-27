@@ -1,0 +1,6 @@
+The scent of pine needles and cinnamon clung to Eleanor Beatrice Thistlewick's woolen cardigan as she surveyed the living room.  A fallen twig from the towering oak outside snagged on the pristine Persian rug, its brittle skeleton mocking her meticulous efforts. This was the Manor House, a sprawling Victorian behemoth perched precariously on the edge of Dunwich Moor, and Eleanor's domain for the past twenty years. Sunlight streamed through the expansive bay windows, painting dust motes dancing in the air like miniature constellations.  The furniture, polished to a high sheen, held an air of somber elegance that did little to mask the underlying chill emanating from the ancient stone walls. 
+
+Eleanor sighed, her breath catching slightly in the crisp autumn air. The Manor House had its secrets, whispers carried on the wind whistling through the gnarled branches outside. Secrets she'd learned to ignore, choosing instead to focus on the mundane rituals that kept the house running – dusting the porcelain cherubs lining the grand staircase, polishing the tarnished silver tea set, and ensuring the roaring fire in the hearth banished the encroaching darkness of the moor. 
+
+
+But today, a different kind of whisper hung in the air. One that tugged at her intuition like a stray thread unraveling from a meticulously woven tapestry.  

@@ -1,0 +1,5 @@
+The air in Dr. Amelia Grace’s office was thick with unspoken anxieties. The worn plush rug under her feet absorbed the rhythmic tap-tap-tap of tiny fingers against its surface. Across from her, eight-year-old Leo sat hunched, his gaze fixed on a swirling pattern on the carpet. 
+
+Amelia's office, nestled within the heart of Willow Creek Elementary, was a haven built for introspection.  Soft natural light streamed through the oversized window overlooking a vibrant maple tree, casting dappled shadows on the walls adorned with whimsical animal prints and calming landscapes. A bookshelf overflowed with colorful children’s books and age-appropriate therapeutic tools: stress balls shaped like fluffy kittens, a set of rainbow building blocks, and a basket brimming with fidget toys.  
+
+But none of it seemed to soothe Leo today. His small shoulders were tense, his breath shallow and hurried. Amelia waited patiently, letting the silence speak volumes. Outside, the playground buzzed with the joyful chaos of recess, a stark contrast to the quiet storm brewing within her tiny patient. 

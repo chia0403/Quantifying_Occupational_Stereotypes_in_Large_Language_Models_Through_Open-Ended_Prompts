@@ -1,0 +1,7 @@
+Once upon a time, there was a dietician named Alice Paul. For years she was a consultant to the US Olympic Committee and published a dozen books on diet and exercise. But by the 1960s, she was writing books on personal finance, and by the 1980s, she was advising Wall Street on securities and the energy markets. Her most famous book is The Secret. She took on the pharmaceutical industry, which was under the influence of a powerful pharmaceutical-industry lobby. The result was the Medicare Part D drug benefit.
+
+But even in these years, Paul's reputation was damaged. She began to warn of the links between drug companies and the tobacco industry. A series of investigations revealed that several of the drug industry's largest health-care lobbying groups worked with Big Tobacco to promote Big Pharma. An investigation by the Center for Public Integrity found that at least 20 executives with the pharmaceutical industry had worked at either Philip Morris, the parent company of the largest cigarette maker on the planet, or Rothman Brown.
+
+What's really happening here?
+
+According to Dr. Paul, Big Pharma is really a tool of the Bank of Corporations, which is part of a much bigger structure. Corporations and banks are intertwined; the two are intertwined in financial flows. The same corporations who control the drug industry exert influence over medicine. One has a financial stake in other drug companies. Another corporation may have an interest in the medical device industry. Or the same company may be a client

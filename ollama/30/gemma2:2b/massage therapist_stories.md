@@ -1,0 +1,5 @@
+The air hung thick with the scent of citrus and lavender in "Zenith Wellness," where Amelia "Amy" Pierce's hands worked their magic on the knotted muscles of city dwellers. Her small corner clinic nestled amidst the bustling streets of San Francisco was more sanctuary than storefront, its soft blue walls whispering tranquility to everyone who stepped inside. 
+
+It was a typical Tuesday evening. The rhythmic tapping of Amy’s fingers against the kneading table filled the room with an oddly comforting symphony as she expertly eased away tension in a young architect's shoulders, then shifted her focus to the tight knot in a struggling screenwriter's neck. But tonight, something felt different.  A tremor, subtle yet undeniable, ran through the clinic, accompanied by a low hum of electricity that seemed to thrum right beneath Amy's skin. 
+
+The air crackled with anticipation as the door swung open and a man stepped in, his silhouette shrouded in darkness. His face, hidden by a wide-brimmed hat, held an air of quiet menace. In those few seconds, Amy felt a shiver crawl up her spine, an unwelcome sensation that promised trouble. 

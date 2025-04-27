@@ -1,0 +1,7 @@
+Once upon a time, there was a editor named Chris Carter that was in charge of editing for the show, and he, along with Jane O'Meara Sanders, decided to take a look at the characters. And there was this character that they had created, a male character named Peter Griffin. And he was not only male, but he was black. And what was interesting was that in the early part of the show when it was on, it was a series that really relied on all the regular characters' white savior story line, which is why it didn't even seem to make any sense that they would pick up on this.
+
+But when you see the diversity of black actors in the show going back for decades, you think, "What are we overlooking? What is our problem?" Because that character has now played for 14 years, and he's got the power and he's really great, and then there's this character you don't see much of – you feel, "Okay, well, what about this other side?" And then, of course, the show got renewed.
+
+So, the question is: Where do you even begin when it comes to race and diversity in media? It's hard enough for people in your position to do it. Why do you think it's so difficult for other people to do it?
+
+[Ed. note: It's not that black actors aren't cast, you just never hear about it, he explains.

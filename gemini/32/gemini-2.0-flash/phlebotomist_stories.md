@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a phlebotomist named Evelyn Grace Hawthorne:
+
+**Opening:**
+
+The fluorescent hum of the waiting room was a persistent, low-grade torture. Evelyn Grace Hawthorne, already ten minutes behind schedule, tapped a silent rhythm against her clipboard, the metal cold against her fingertips. Mrs. Gabblethorpe in exam room three had, once again, hidden her veins somewhere in the Bermuda Triangle of her upper arms, and Mr. Henderson in room six was convinced his blood was somehow “tainted by moonlight.” Just another Tuesday, then. Evelyn sighed, the breath fogging slightly in the cool air of the hospital wing, and called out, “Mrs. Davies?”
+
+**Setting:**
+
+The story takes place in the “Sunrise Clinic” in the small, perpetually overcast town of Port Blossom, Washington. Sunrise Clinic isn’t your modern, sleek medical center. It's a repurposed brick building that used to be the town's elementary school. The linoleum floors are perpetually sticky, despite the janitor's best efforts, and the walls are painted a cheerful, but faded, shade of eggshell white. The exam rooms are small and cramped, furnished with an examination table covered in crackling paper, a worn-out swivel chair, and a stainless steel tray overflowing with cotton balls, alcohol wipes, and tourniquets. The waiting room boasts a mismatched collection of uncomfortable plastic chairs and a perpetually out-of-date stack of magazines, a low table usually cluttered with half-finished crossword puzzles and discarded cough drop wrappers. A single, struggling ficus plant sits forlornly in the corner, its leaves perpetually dusted with a fine layer of the town's omnipresent drizzle. Outside, the view from the clinic’s windows is a panorama of gray: the gray sky, the gray Puget Sound in the distance, and the perpetually damp, gray sidewalks of Port Blossom. The air inside often smells faintly of antiseptic and anxiety.

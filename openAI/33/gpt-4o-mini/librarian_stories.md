@@ -1,0 +1,10 @@
+**Title: The Whispering Stacks**
+
+**Setting:** The story opens in Willow Glen, a quaint town nestled between rolling hills and ancient oak forests. The heart of the town is the Willow Glen Public Library, a charming brick building with ivy climbing its walls, its large bay windows framed by colorful flowers. Inside, the scent of aged paper and polished wood fills the air, and the soft glow of amber lights casts a warm hue across the rows of towering bookshelves. A grand oak desk sits at the center, where patrons can find both assistance and a welcoming smile.
+
+**Opening:** 
+Amelia Margaret Whitmore stood behind the oak desk, adjusting the worn glasses perched on her nose as she scanned the library’s main hall. It was a quiet Wednesday morning, the kind that felt infused with the muted promise of old stories waiting to be told. Shelves overflowed with tales of adventure, romance, and mystery, and she liked to think they whispered to each other when the library was closed, trading secrets to the dust motes that danced in the sunbeams.
+
+At thirty-five, Amelia was more at home among the spines of books than in the presence of people, her heart intertwining with the pages she so lovingly cataloged. With her dark curls pinned loosely at the nape of her neck and an assortment of brooches that reflected her eclectic taste, Amelia often felt more like a character from one of the novels she adored than a mere librarian. 
+
+As she flipped through the latest arrivals—an intriguing blend of classic literature and modern thrillers—a soft chime from the doorbell announced a visitor, stirring her from her thoughts. She tucked a stray curl behind her ear and looked up, her curiosity piqued. Perhaps today would bring something unexpected, something that would draw her out from her comfortable sanctuary among the whispering stacks.

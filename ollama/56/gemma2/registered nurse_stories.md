@@ -1,0 +1,5 @@
+The air in the Neonatal Intensive Care Unit hung thick with the sterile scent of disinfectant and the hushed whispers of anxious parents. Fluorescent lights hummed overhead, casting a pallid glow on rows of incubators housing tiny, fragile beings. In the heart of this controlled chaos stood Amelia Rose Hawthorne, RN, her brow furrowed in concentration as she adjusted the IV drip for baby Lucas, a premature infant with eyes that were still struggling to focus on the world beyond his incubator walls.
+
+Lucas's case was particularly challenging – born at just 26 weeks, he battled a persistent respiratory infection and weighed less than three pounds. Amelia had become fiercely attached to him during his short stay, her empathy drawing her into the complex dance between hope and despair that played out within these tiny lives. She knew every inch of Lucas's fragile body, every flutter of his chest as he gasped for breath, every minute shift in his color palette that signaled a change in his condition. Outside the NICU windows, the bustling city life pulsed on, oblivious to the silent drama unfolding within its sterile walls. 
+
+

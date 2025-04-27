@@ -1,0 +1,5 @@
+The humid air clung to Ms. Amelia Rivers like a damp sheet as she stood at the doorway of 3rd grade Mrs. Henderson's classroom.  Sunlight streamed through the grimy windows, catching on dust motes and making them dance in her line of sight. The room smelled faintly of crayons and forgotten lunches. It was one of those days where even the air seemed thick with the weight of a thousand unanswered questions. 
+
+Amelia, usually the picture of composure, felt a knot of unease tighten in her chest. This was Mrs. Henderson's classroom, the epitome of organized chaos - a vibrant kaleidoscope of colour and noise that always hummed with life. Today, however, it seemed almost too silent, like the calm before the storm, or perhaps the aftermath.
+
+It all started with the cryptic note left on Mrs. Henderson's desk: "The answer lies where the river flows." The note was written in a spidery script that Amelia couldn't decipher - an echo of a forgotten dream she had last week, one she wished she could recall. But today, it seemed to be pulling at the edges of her reality, blurring the lines between fact and fantasy. 

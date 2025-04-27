@@ -1,0 +1,6 @@
+The air hung thick with the scent of sweat and eucalyptus in the dimly lit studio.  Neon lights cast jagged shadows across the rows of gleaming yoga mats, each bearing the faint imprint of a previous practitioner. The thumping bassline from the speaker system vibrated through Elara Jade Nightingale’s teeth as she moved with controlled grace between the students, her voice a calm beacon amidst the rhythmic exertion. 
+
+Elara adjusted a misplaced yoga block for a woman struggling to maintain her balance in Warrior III, offering a reassuring smile and a whispered word of encouragement. This was her sanctuary, this space where bodies contorted and minds quieted, finding strength and serenity under the watchful gaze of her seasoned instruction. But tonight, something felt different. A prickle of unease danced beneath Elara's skin, a subtle dissonance in the usual symphony of focused breathing and gentle exertion. 
+
+
+Elara couldn't pinpoint what was amiss. Perhaps it was the unusual stillness in the room, an absence of the usual chatter between poses. Or maybe it was the unsettling way the shadows seemed to shift and writhe just beyond the reach of the neon lights. Whatever it was, a knot of apprehension tightened in Elara’s chest, leaving her feeling strangely vulnerable amidst the familiar comfort of her space. 

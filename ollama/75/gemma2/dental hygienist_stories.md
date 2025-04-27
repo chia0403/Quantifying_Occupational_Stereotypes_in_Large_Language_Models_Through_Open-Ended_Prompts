@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia “Amy” Kensington’s head, casting a sterile glow on the rows of glistening metal instruments. A faint scent of peppermint lingered in the air, battling the ever-present metallic tang that permeated the small dental office. Amy leaned against the countertop, fiddling with the tip of her ultrasonic scaler. Outside, the late afternoon sun painted the sky in fiery hues of orange and purple, a stark contrast to the clinical coolness of Dr. Thompson’s waiting room. 
+
+It was always busiest just before closing time, a last-minute flurry of appointments squeezed in between work calls and frantic parents trying to reschedule their toddler's cavity filling. Amy sighed, glancing at the clock that ticked relentlessly towards five o'clock. Another day done, another handful of patients with varying degrees of dental hygiene, from the meticulous to the downright terrifying. 
+
+
+But today, something felt different. A prickle of anticipation, a tremor in her usual calm demeanor. Could it be just the vibrant sunset teasing her from beyond the window, or was there a hint of something else in the air? As the bell above the door chimed, signaling the arrival of their next patient, Amy braced herself, ready to face whatever the day, and perhaps this evening, might bring. 

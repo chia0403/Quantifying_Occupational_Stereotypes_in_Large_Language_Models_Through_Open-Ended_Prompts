@@ -1,0 +1,7 @@
+Once upon a time, there was a theatrical director named Lillian Hellman. One of her productions was a musical comedy about a girl who is caught in the middle of a drug deal and ends up in an insane asylum. The film was so well received that Hellman was offered a job directing the big screen adaptation with producer Jack Warner's backing.
+
+The story begins as Amanda, the main lead, moves into an old shack in the woods with her dog and brother. She soon meets Tom, a neighbor whose home looks exactly like her own – except for the broken porch and one broken window. Soon Amanda begins to wonder about her own family and otherworldly creatures keep harassing her. Eventually Amanda uncovers something horrifying – she has fallen victim to the "Demon's Ring" – a haunting which is so unnerving not only is it impossible to escape it, but even the ones inside the ring can't talk about them.
+
+There are several interesting themes in this film including the fact that while humans are responsible for the current mass hysteria that is taking place, some other group is being held to blame, such as the Catholic Church. It also features the concept of the "Demon's Ring" (a supernatural entity which can infect those who come into contact with it). Many of these elements help to set the tone for the rest of the movie and helps to introduce the audience to the "Hellbound Road" into which it eventually leads.
+
+With all of the above in mind

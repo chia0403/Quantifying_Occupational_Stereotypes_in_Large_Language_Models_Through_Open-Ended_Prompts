@@ -1,0 +1,9 @@
+**Opening:**
+
+The aroma of burnt coffee hung heavy in the air, a familiar scent that both comforted and slightly nauseated Probation Officer Eleanor Jane Davies. It was a smell synonymous with Monday mornings, with the bleary-eyed faces of those who’d skirted the edges of the law, and with the sheer, unrelenting weight of expectation that settled upon her shoulders before the sun even considered peeking through the grimy windows of the Redwood County Courthouse.
+
+Eleanor took a swig of the offending beverage, wincing. This batch was particularly bad. "Strong enough to dissolve concrete," she muttered to her reflection in the dark, inactive computer screen. Outside, the rain hammered against the windowpane, a relentless rhythm that matched the anxiety thrumming in her chest. Today was the day. The day she had to face Michael 'Mikey' O'Malley, the kid who’d just been released after serving five years for armed robbery, and whose case file was currently weighing down her bag like a lead brick.
+
+**Setting:**
+
+The Redwood County Courthouse was a sprawling, brick behemoth built in the late 1800s. Its once-grand facade was now marred by peeling paint, cracked steps, and a general air of neglect. The inside was even worse. Long, echoing corridors with faded linoleum floors and the scent of disinfectant vied with the damp, musty odor of old legal documents. Eleanor's office, Room 204, was a cramped space barely big enough to swing a cat. It contained a battered desk littered with files, a wobbly swivel chair, a malfunctioning computer that probably predated the internet, and a single, dusty potted plant that stubbornly refused to die. Sunlight, when it deigned to appear, was filtered through the grimy windows, casting long, distorted shadows across the room. The general atmosphere was one of weary resignation and quiet desperation, a fitting backdrop for the parade of lives Eleanor Jane Davies was tasked with trying to set right.

@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named Andy Warhol. Andy Warhol was sort of like a proto-social networking, self-contained pop culture production house. If you look at one of his pictures, almost anyone could be in the picture unless they were the boss. It's almost like his business was: "OK, what is the most interesting thing I could be in the picture? So if I'm in it, everybody else will be in it. If I'm not in it, then no one else will be in it. That's business of the moment."
+
+Andy Warhol started creating these little "pop-up" artworks in all sorts of different places, on different dates, with different subjects like fashion or sports or drugs or advertising or film or pop art or whatever. That's how he started to create these long, long-running art projects that still are going today, more or less. There are more than one hundred of them.
+
+A lot of these "pop-ups" you see on Facebook, for example—there's a new one every day, sometimes, on Facebook. Andy Warhol's idea was to make it the perfect thing to do in a public place. You can get up close to the canvas. Everybody sees it, everybody is influenced by it (because you're a part of it, like the painting). If they didn't like the painting, they can't put you in jail.
+
+That sort

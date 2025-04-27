@@ -1,0 +1,7 @@
+## Story Opening:
+
+The scent of overripe mango clung to the air, thick and suffocating. Dr. Anya Sharma, her brow furrowed in concentration, carefully peeled back the papery skin of the fruit. She could tell just by the smell that it wouldn't last another day, its potential for vibrant, tangy sweetness curdling into sugary decay. It was a tragedy, Anya thought, not just for the mango, but for the principle of it all: food wasted, nutrients lost, potential unfulfilled. This tropical fruit, bursting with Vitamin C and antioxidants, was destined for the landfill, a potent symbol of the unhealthy relationship the people of Isla Escondida had with their food.
+
+## Setting:
+
+Anya stood in the open-air kitchen of the small, brightly-colored community clinic in the heart of Isla Escondida. The island, a verdant jewel nestled in the turquoise waters of the Caribbean Sea, was picturesque from a distance. Up close, however, the cracks in paradise became more apparent. Poverty clung to the humid air like the scent of rotting fruit. The clinic itself was a simple concrete structure, painted a cheerful lemon yellow, its paint chipped and peeling under the relentless sun. The kitchen, more of a sheltered corner with a gas stove and a rudimentary sink, was usually filled with the aroma of frying plantains, but today, only Anya and the lingering sweetness of the decaying mango occupied the space. Outside, the rhythmic crash of waves against the black volcanic sand provided a constant, almost mournful, soundtrack to the island’s struggles.

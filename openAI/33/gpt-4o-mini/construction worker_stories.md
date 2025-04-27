@@ -1,0 +1,11 @@
+**Title: Beneath the Steel Sky**
+
+**Setting:**
+The sun hung low in the early evening, casting a golden hue over the city skyline. Tall cranes towered like sentinels above the vast construction site, where concrete and steel were slowly being woven into the fabric of a future skyscraper. The scent of fresh cement mingled with the distant sounds of honking cars and the hum of urban life. Protective gear was scattered around the site—hard hats, safety vests, and thick gloves—each piece a symbol of the labor that coursed through the veins of the city. Dust swirled lazily in the warm breeze, catching the light like tiny fairies dancing in the twilight.
+
+**Opening:**
+As the last rays of sunshine began to slip away, Lucas Anthony Keller wiped the sweat from his brow with the back of his hand, leaving a smudge of dust on his forehead. He stood at the edge of the scaffolding, surveying the progress of the multi-million-dollar project that had consumed the past year of his life. Lucas was a seasoned construction worker, his muscles honed from years of hard labor, his hands roughened like leather from countless hours wielding tools that could shape the very bones of the city. 
+
+Today had been particularly grueling; the crew had faced delays due to unforeseen rain, and they were pressing harder than ever to make up for lost time. Lucas's emerald green eyes drifted to the horizon, where the first stars began to prick the sky like distant diamonds. For him, each day on the site was not just a job; it was a chance to build something bigger, to contribute to the skyline that mirrored his dreams and aspirations.
+
+Yet, as the sounds of laughter and the clanging of equipment faded with the day, an unsettling feeling twisted in the pit of his stomach. It wasn’t just the fatigue that plagued him—it was that sense of foreboding that crept in during the quiet moments, a whisper that told him this project would take more than just his sweat and toil. Little did he know, beneath the steel sky, shadows of secrets were lurking, ready to disrupt not just the construction, but the very foundation of his world.

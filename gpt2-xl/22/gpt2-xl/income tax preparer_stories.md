@@ -1,0 +1,7 @@
+Once upon a time, there was a income tax preparer named Eman S. El-Sayed. El-Sayed was famous for his low tax rate. He didn't mind paying the government just a fraction of what his competitor was paying. He could afford it. This was before the economy tanked. Taxes went up substantially. El-Sayed, who has died, owed only about $2 million in back taxes, according to a New York Times story from 1985.
+
+El-Sayed's competitors were not so generous with their tax returns. One of the biggest tax cheats came from the state of Alabama, which got away with $500 million in unpaid taxes from 2007 to 2009, according to Bloomberg News. In Alabama, "taxpayers in all income groups except the top 5% paid no taxes as of 2008, according to state estimates," Bloomberg reports. So why shouldn't everybody else have to?
+
+"Tax evasion is not only theft but a disgrace, an abomination as American as IEDs," states one of the many anti-tax op-eds posted on the internet. Tax evasion is illegal. It is robbery. By their very nature, it is wrong — the very antithesis of what is required by law, and by common sense.
+
+And yet, as always, our system, once we've allowed it to be warped, will protect the most corrupt from prosecution. The most brazen offenders, the ones who go on stealing

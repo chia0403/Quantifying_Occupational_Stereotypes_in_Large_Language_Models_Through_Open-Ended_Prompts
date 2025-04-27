@@ -1,0 +1,7 @@
+Once upon a time, there was a pharmacist named William Shattuck. According to Wikipedia, Shattuck helped to found pharmaceutical giant Merck. But a little more of digging reveals a little more about the man that would eventually become one of the most hated men in the history of corporate governance in America – and perhaps the history of corporate governance around the world.
+
+Shattuck's life reads like a drama of sorts. As a youth, he struggled with mental health and addiction, and became a drug user even while enrolled in the military. In 1887, Shattuck married a woman named Caroline, which may seem like a good thing at the time, but that marriage almost didn't make it through the divorce process due to the fact that she was a drug addict.
+
+It wasn't until the late 1870s that Shattuck met an older woman named Martha Paley, whose father was a pharmacist, and who also happened to be Shattuck's first love. In 1898, Shattuck became a pharmacist himself, and soon found himself caught up in a scandal over a quack medicine called chloroform, which was prescribed to thousands of patients for everything from headaches to tuberculosis to heart problems, despite being unproven.
+
+And yet all this was the backdrop to how Shattuck eventually married Paley, who happened to have an impressive resume of her own. By the time she married Shattuck, she had published a memoir called

@@ -1,0 +1,5 @@
+The aroma of burnt toast mingled with the sweet scent of cinnamon rolls in Mrs. Eleanor "Ellie" Hayes' classroom. The morning sun, slanting through the grime-coated windows of  St. Margaret's Elementary School, cast long shadows across the worn carpet and faded posters depicting smiling children holding rainbows. Ellie adjusted her glasses, her thick auburn hair escaping its neat ponytail as she surveyed the chaotic scene. 
+
+It was Thursday, which meant Mrs. Harris, the school's notoriously fussy custodian with a penchant for overly-sweet floral perfume, had already started his rounds, leaving an acrid haze of disinfectant in his wake. And it was also the day Ellie faced her nemesis: the "Monster Mash" assembly. Every year, this boisterous, poorly-planned event brought the entire school to a standstill as Mrs. Harris' daughter, Fiona, a mischievous first grader with a talent for finding ways to cause chaos, took center stage. 
+
+Today, Ellie hoped she could simply blend into the background while her fourth graders, armed with crayons and boundless energy, tackled their art project - "My Favourite Animal."  

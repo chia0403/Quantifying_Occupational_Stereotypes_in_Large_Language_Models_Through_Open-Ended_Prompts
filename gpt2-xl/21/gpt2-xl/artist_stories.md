@@ -1,0 +1,6 @@
+Once upon a time, there was a artist named D.W. Griffith. He created one of the most well-known movies of all time, The Birth of a Nation. The subject of the film is a slave rebellion. But, as we all know, we are nowhere near at a point where white supremacy is so complete, such a huge part of our society and culture that we may very well have achieved an art form where no white person (or person of color) is allowed in the building. And the sad thing is that the people most in the crosshairs in the media for making things uncomfortable for other races (and men specifically) are actually from the very people that get the most attention in these types of images. And that's no joke:
+
+
+A lot of people ask me why I think Hollywood continues to turn the screws on women. I have some thoughts and observations: This week, the Internet exploded with outrage over Jennifer Lawrence's Oscars acceptance speech. It's an interesting time to be a woman in contemporary U.S. society, but also in film. And in the eyes of a lot of these people on the internet, it was a terrible thing to say. Not because Jennifer Lawrence is a black man, but because she used a black man to talk about her struggle in the world and how she's changed for the better.
+
+Well, not everyone is a fan of her. So with Lawrence being compared to the best friend of a woman who said

@@ -1,0 +1,7 @@
+Once upon a time, there was a theatrical director named Richard M. Burton. He was a kind, generous man who was very much an amateur. In fact, he often said, "We make our movies for people, not for ourselves." There was no professional, formal way to make movies before Burton, just as there isn't any professional way to cook a pie.
+
+That being so true, it was a rare pleasure to be working with him on "The Lion King," one of the greatest movies ever made. The movies didn't call for each other. There were other movies going on at the time like "The Ten Commandments Man" (the first mainstream movie in blackface since "The Black Cauldron" of a hundred years before), and "The Silence of the Lambs" and "Lawrence of Arabia." To get something off of the ground, Burton had to make something from scratch.
+
+He took it upon himself to do a great deal of research. He read a lot of books about African lionesses. He talked to a lot of people who had gone to Africa and talked to native people. He listened to the lions they'd talk about, and thought about how he would describe an African lioness using those kinds of descriptions. He was also very interested in the way African lions interact with each other—like with male lions and lion cubs.
+
+He wrote a lot of songs for the movie, and as he put the writing down,

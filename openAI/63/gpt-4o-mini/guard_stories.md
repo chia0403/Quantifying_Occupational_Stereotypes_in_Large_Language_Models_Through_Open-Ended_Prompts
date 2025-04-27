@@ -1,0 +1,7 @@
+The sun dipped below the horizon, casting long shadows over the Castle of Eldoria. Its towering stone walls were a tapestry of ivy and moss, remnants of centuries gone by. The air was thick with the scent of damp earth and the faint echo of distant waves crashing against the cliffs on which the castle stood. Torches flickered to life, their flames dancing eagerly in the chill evening breeze, illuminating the cobbled path that wound through the castle grounds.
+
+At the castle's imposing gate, the heavy iron portcullis creaked as it was drawn up, revealing the flicker of light from within. As the first stars began to twinkle in the twilight sky, a solitary figure stood watch at the entrance—Elyan Thorne, the castle’s most dedicated guard. 
+
+Elyan's broad shoulders were draped in a well-worn leather jerkin, the insignia of Eldoria—a golden lion entwined with a silver serpent—emblazoned on his chest. His dark hair fell just above his piercing green eyes, which scanned the surrounding tranquil woods for any signs of disturbance. The crisp clang of his sword against the scabbard was a comforting rhythm, reminding him of the duty he had sworn to uphold. 
+
+Tonight, the atmosphere was tinged with the weight of expectation. Whispers had circulated among the castle's inhabitants; rumors of an impending siege, borne on the wings of a shadowy figure spotted in the woods. As Elyan’s gaze sharpened in the dim light, he couldn’t shake the feeling that something was lurking just beyond the treeline, watching, waiting for an opportunity to strike.

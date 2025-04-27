@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting focusing on a guard named Alistair Thorne:
+
+**Setting:** The Iron Gate of Eldoria. A colossal, obsidian archway scarred with runes that pulsed with a faint, inner light. The Gate was the only known passage through the Whispering Peaks, a mountain range said to be haunted by ancient spirits and creatures born of shadow. Eldoria, the city it protected, nestled in a valley shielded from the worst of the mountain's fury, its rooftops a mosaic of greystone and vibrant, almost defiant, colours.
+
+**Opening:**
+
+Alistair Thorne, his breath clouding in the frigid air, shifted his weight from one foot to the other. He hated the night shift at the Iron Gate. The wind howled through the jagged peaks, a mournful symphony that played tricks on the mind. He’d served as a guard here for seven years, seen more seasons of snow than he cared to remember, but the silence between the gusts was always the worst. That’s when the mountain whispered. Some nights, he swore he could hear it, a faint, rustling voice that spoke of forgotten things and shadowed ambitions. Tonight felt like one of those nights. Alistair tightened his grip on the worn hilt of his sword, the cold steel a grounding presence against the creeping unease. A single raven croaked from its perch atop the Gate, its black eyes gleaming in the flickering torchlight. A bad omen, no doubt. Just another reason to curse his luck and wish for the sweet oblivion of dawn.

@@ -1,0 +1,5 @@
+The biting wind whipped through Elijah Blackwood’s beard as he stood at the edge of the clearing, his calloused hands gripping the worn leather of his gloves. Mist swirled around his boots, clinging to the damp forest floor like phantoms. The towering pines surrounding him groaned under the weight of the impending storm, their branches bowing low, their needles whispering secrets in the wind.  
+
+Elijah squinted at the sky, a bruised canvas of charcoal and slate. A single raven cawed ominously from atop a dead snag, its silhouette stark against the fading light. He felt a familiar thrill course through him, a mixture of anticipation and apprehension that came with facing the wild beauty of these ancient woods. This was his domain, his livelihood - the heart of the Cascade Mountains where he'd been born and raised, where generations of Blackwoods had felled giants and whispered their secrets to the earth. But this time, something felt different. The air crackled with an unsettling energy, a sense that the forest itself held its breath, waiting for the storm to break. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a baker named Joe. He made beautiful cakes. Joe liked his work. He spent hours perfecting the designs and carefully arranging ingredients and decorations. His cakes would go into the oven to bake and be sliced to perfection. They would be taken out of the oven, and his clients would taste and think about the perfect slice the moment it was placed in front of them. In the end, they would agree that Joe was the man who made them happy. However, Joe forgot, and never remembered that he made cakes to which people ate. It seemed that nobody cared about the cake he was making.
+
+At one time, Joe went to buy a cake for a friend's wedding. He wanted his cakes made at a professional bakery. However, the baker said that Joe could only buy his cakes directly from the bakery's production room. However, Joe wanted his cakes to be the perfect slice. He knew that he would never buy a cake in a store if he couldn't taste it firsthand.
+
+Joe walked into the kitchen. He went to the oven, and turned on the oven timer. Joe placed a slice in the center of each piece of cake and placed the cake pan in the oven. The cake should have been baked for 45 minutes.
+
+As the piece of cake finished baking, the slice began to fall apart. This bothered Joe. He began picking at the cake as if it were a piece of candy. His fingers dug into the

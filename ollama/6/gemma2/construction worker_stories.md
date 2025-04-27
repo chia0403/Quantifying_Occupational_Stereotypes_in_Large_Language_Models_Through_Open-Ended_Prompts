@@ -1,0 +1,5 @@
+The sun hammered down on Elias Thornwood's back, turning his sweat into an icy film against his skin. Each swing of his hammer echoed off the steel beams of the skeletal skyscraper rising beside him, a monument to ambition and human effort in the heart of New York City.  Dust devils danced between the unfinished floors, kicking up grit that stung Elias's eyes. He squinted, wiping his brow with a grime-streaked bandana. The roar of construction – the clang of metal, the screech of machinery, the shouts of foremen – was a constant lullaby in this concrete jungle. It had been the soundtrack to Elias's life since he was old enough to hold a hammer, a legacy passed down from his father and grandfather before him. 
+
+Elias lived for the physicality of it, the satisfaction of building something tangible with his own two hands. But today, as he gazed at the half-finished behemoth, a tremor of unease ran through him. Something about the project felt...off.  He couldn't put his finger on it, just a nagging sense that this skyscraper held secrets deeper than its foundation. 
+
+

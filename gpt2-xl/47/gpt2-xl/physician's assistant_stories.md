@@ -1,0 +1,7 @@
+Once upon a time, there was a physician's assistant named Jody who was so good at her job that she had an admirer in the department's dean. But while the dean was getting him to date her, Jody started having an affair with another administrator, a man who was her old boss. When this scandal reached the dean's ears, he was forced to suspend all contact between Jody and the administrator. When Jody complained to the university's president back home, he informed Jody to keep her mouth shut. When Jody refused, the dean threatened to pull her medical license. "They can't take that away from me, no matter what I do," Jody told us.
+
+In a recent case, an assistant principal was suspended for seven months for having an "improper social relationship" with a male student. A former student, who was a minor at the time, was suspended for three months after she reported being propositioned by a male student on a dating app for a period of two months.
+
+Last summer, Northwestern University expelled a professor who had been accused of sexually assaulting and harassing female students. The professor was accused of engaging in a sexual relationship with a student who'd transferred from another school and who had attended his classes three times in one semester.
+
+Although the university admitted it was wrong, it later changed its mind. When student plaintiffs sued, the campus dismissed its obligation to protect students and argued that the professor, who taught history

@@ -1,0 +1,5 @@
+The air in Eleanor Thistlewick's office was thick with the scent of stale coffee and desperation. Sunlight slanted through the grimy windows, illuminating dust motes dancing like miniature tornadoes above the chaotic jumble of invoices, receipts, and ledgers that sprawled across her desk. Outside, the bustling marketplace of New Albion thrummed with life, a cacophony of bartering merchants, squawking pigeons, and children's laughter. But inside Eleanor's cramped office, nestled behind the apothecary on Cobblestone Street, time seemed to crawl at a glacial pace. 
+
+Eleanor, her brow furrowed in concentration, meticulously compared figures on two contrasting accounts - one for the esteemed Duke Alderly, the other for a dubious tavern known as The Rusty Mug. A gnawing unease tightened its grip around her chest. Something wasn't adding up.  The numbers simply couldn't reconcile with each other, and Eleanor, a woman who prided herself on her meticulousness, found herself staring down a financial abyss she couldn't fathom. 
+
+

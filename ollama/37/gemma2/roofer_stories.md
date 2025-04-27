@@ -1,0 +1,6 @@
+The sun, a malevolent orange eye peering through the smog-choked sky, beat down on Bartholomew "Barty" Finnigan's back as he crouched precariously on the slanted roof.  His calloused hands gripped the rusted ridge cap, his muscles burning with the effort of hauling another roll of shingles up onto the steep incline. Below, Mrs. Fitzwilliam fussed over a pot of geraniums, oblivious to the symphony of hammer blows and grunts echoing from her home's dusty attic.
+
+Barty squinted at the sprawling metropolis below. The skyline was a jagged, concrete jungle, buildings clawing at the bruised sky like grasping claws. He worked his way across the roof, pausing every few feet to adjust the tar paper and lay down another row of shingles, each one a small victory against the elements. Today's job - Mrs. Fitzwilliam’s leaky Victorian mansion - was just another day in Barty's world: a relentless dance with gravity, sweat, and the ever-present threat of falling. 
+
+
+But today felt different. A sense of unease prickled at his skin, a feeling that something was out of place, waiting to be revealed like a loose nail beneath the shingles. He couldn’t shake it off, though he tried to focus on the rhythmic hammering and the familiar scent of fresh asphalt.  Something was watching him. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a physician's assistant named Dr. George Jones. During one of the more important medical appointments, Jones was informed that he was about to be fired. As he began to protest, his supervisor, a very large man named Dr. Frank Stone, told him that despite his protests, Dr. Jones would still have to resign and accept the position of a physician's assistant. Jones refused and refused to resign. Jones was fired, his medical license was revoked, and his professional license was suspended.
+
+That isn't much to write home about. It's a story that makes for good tabloid writing. It's even the title of the book I was just reading about the doctor-performer relationship. Yet this story is an example of a great piece of human artistry: the "resignation" of a man who is at that very moment fighting to regain every moment of glory that once adorned his reputation—the glory of his profession; the glory of his profession's "right to dismiss" him.
+
+But Dr. Jones didn't just walk away—he actively fought to regain that moment of glory, a fight that he lost. He fought and he fought and the battle of wills lasted for two decades. His courage and fighting spirit are both legendary. In a very real sense, he is a living legend.
+
+When he was on his way out—and the man was terminally ill—he wasn't the kind of person who qu

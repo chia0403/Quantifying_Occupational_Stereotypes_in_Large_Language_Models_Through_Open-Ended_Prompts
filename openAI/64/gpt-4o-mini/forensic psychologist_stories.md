@@ -1,0 +1,11 @@
+Title: Shadows of the Mind
+
+Setting: A bustling urban city, modern yet steeped in history, where towering glass buildings cast long shadows over cobbled streets. The air is filled with a mix of diesel fumes and the aroma of street food vendors, while the distant sound of sirens creates an undercurrent of urgency. Amidst the chaos, a somber brick building stands out—an old psychiatric hospital renovated into a forensic psychology clinic, its high arched windows reminiscent of a bygone era.
+
+Story Opening:
+
+Dr. Vivienne Elara Hart stood in her modest office, the hum of fluorescent lights echoing off the beige walls. Outside, a storm rolled in, dark clouds swirling ominously as if mirroring the chaos within her own psyche. She peered through the rain-speckled window, watching as the city transformed, the streets glistening and alive with energy, individuals hustling to escape the impending downpour.
+
+As a forensic psychologist, Vivienne was all too familiar with the darker currents of human nature. Her days were filled with interviews and assessments of those whose minds had strayed into the shadows of morality, and each patient added another layer to her understanding of the human condition. Today, however, her mind was not solely occupied by the intricacies of criminal behavior. Instead, it was racing with a single, troubling thought: a new case had landed on her desk, one that felt eerily close to home.
+
+A former detective had turned to violence after years of exposing the city’s criminals, and his motivations eluded everyone but Vivienne. She felt a strange pull toward his turbulent past, one that reminded her of her own childhood in a fractured family torn apart by unspeakable secrets. With a heavy heart, she picked up the case file, feeling the familiar weight of responsibility settle on her shoulders. In a city where darkness lurked in every corner, Dr. Vivienne Elara Hart was determined to uncover the truth, even if it meant delving deeply into the shadows of her own mind.

@@ -1,0 +1,3 @@
+The rhythmic clang of hammers on granite was the soundtrack to Elara Blackwood's life. A lifetime spent honing her craft, shaping rough blocks into statues, monuments that whispered tales of kings and queens long gone, each piece imbued with the sweat of generations. Her workshop, nestled in the heart of a bustling mountain town surrounded by ancient forests, was a sanctuary, an echo chamber where history breathed through the stone.
+
+Elara stood before her latest commission, a massive block she'd been wrestling with for weeks – a visage of a sun god whose golden crown was meant to shimmer under the summer skylight. She ran her calloused fingers over its rough surface, feeling the weight of the task settle in her bones. 

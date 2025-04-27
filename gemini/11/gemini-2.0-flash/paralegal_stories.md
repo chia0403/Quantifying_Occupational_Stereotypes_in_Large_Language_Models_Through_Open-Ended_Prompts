@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The fluorescent hum of the office lights was a low-grade, persistent whine that mirrored the internal scream Amelia Grace Davies was trying to suppress. At 5:47 PM, the last lawyer on her floor, a particularly egregious offender named Mr. Bertram, had finally slunk out, leaving Amelia alone with a mountain of discovery documents and the ghost of his lingering, self-satisfied cologne. She stared at the pile, each page a testament to the messy, protracted divorce of wealthy socialites, and felt a familiar wave of existential dread wash over her. Sometimes, Amelia wondered if she'd accidentally signed a pact with some legal demon, binding her soul to the repetitive purgatory of affidavit retrieval and exhibit labeling. Tonight, however, the dread was a tangible weight, heavier than usual, propelled by a nagging feeling that something was terribly, unsettlingly wrong. It wasn't just the impending threat of a late dinner of lukewarm leftovers. It was something else, a prickling at the back of her neck that suggested she was being watched, even in the empty, echoing silence of the law firm.
+
+**Setting:**
+
+The story is primarily set within the stark, modern offices of **Hamilton, Thorne & Blackwood, LLP**, a prestigious and somewhat soulless law firm located on the 28th floor of a glass-and-steel skyscraper in downtown Chicago. The decor is a symphony of muted grays and blues, punctuated by the occasional (and expensive) piece of abstract art that no one understands. Amelia's small, cramped paralegal cubicle is a testament to her meticulous organizational skills, filled with neatly stacked files, labeled folders, and a small, wilting succulent she's desperately trying to keep alive. Outside the office, the story will also occasionally venture into the vibrant, bustling streets of Chicago, offering a contrast between Amelia's sterile professional life and the chaotic beauty of the city she loves.

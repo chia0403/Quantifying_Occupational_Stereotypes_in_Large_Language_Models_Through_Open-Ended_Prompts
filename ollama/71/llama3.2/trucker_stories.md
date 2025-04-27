@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The sun had barely cracked the horizon over the vast expanse of the New Mexico desert, casting a pale light over the dusty highway that stretched out before Jack "Hawk" Hawkins like a ribbon of asphalt eternity. Hawk was a trucker - his real name was Henry James Hawkins III, but he'd long since dropped the "Henry" and the "III" in favor of the nickname that had stuck with him since childhood: Hawk. He'd been driving trucks for years, ever since he'd left home as a teenager to make a better life for himself on the open road.
+
+As he pulled out of the truck stop's parking lot in his trusty Peterbilt 359, Hawk's eyes scanned the horizon, taking in the endless expanse of desert stretching out before him. He was headed east, bound for Atlanta and a load of auto parts that would make some big factory's wheels spin - but there was something on his mind, something that had been gnawing at him since he'd left the truck stop the night before.
+
+Hawk's thoughts were interrupted by the sound of his CB radio crackling to life. "Breaker one-nine," a voice called out, and Hawk responded with a lazy "Breaker one-nine" of his own. He knew the voice - it was his friend and fellow trucker, Vinnie "The Bull" LaRosa, calling in from Chicago. What could be on Vinnie's mind this early in the morning?

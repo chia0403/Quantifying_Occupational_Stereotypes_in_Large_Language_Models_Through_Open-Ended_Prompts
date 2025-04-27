@@ -1,0 +1,9 @@
+**Setting: A coastal town named Seabright Shores, known for its charming cottages, picturesque beaches, and vibrant art community. The sun gradually dips below the horizon, casting a warm golden glow that dances on the surface of the ocean, while the salty breeze carries whispers of stories old and new. The quaint streets are lined with quirky shops, and the sound of laughter spills from local cafés.**
+
+**Story Opening:**
+
+As the sun began its descent, painting the sky in hues of orange and pink, Ava Sinclair adjusted her tailored blazer—a deep navy that matched the calm waters of Seabright Shores. With her hair pulled into a neat bun and her emerald-green eyes scanning the shoreline, she exuded an air of confidence as she prepared for her next showing.
+
+Ava Sinclair was not just any real estate agent; she was the top seller in Seabright Shores, renowned for her knack for pairing clients with their dream homes. But as she closed the door to her charming beachside office and made her way toward a stunning property perched on the cliffs overlooking the ocean, she couldn't shake the feeling of something shifting beneath the surface. Whispers of a hidden gem waiting to be unveiled tugged at her intuition, hinting that this next sale might lead her down a path of new possibilities—both in business and in life. 
+
+Tonight’s showing was particularly special, a vintage cottage rumored to be filled with secrets. As Ava approached the weathered white picket fence, she felt the evening breeze playfully tug at her skirt, as if beckoning her to uncover not only the house’s mysteries but perhaps her own as well.

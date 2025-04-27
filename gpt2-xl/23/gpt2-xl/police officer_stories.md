@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named Bob Pippen. On March 2, 1992, he was sitting in traffic with his wife, who'd been doing a bit too much coke, when the police pulled him over for drunken driving and arrested him. Bob was promptly hauled off to a police station in suburban Chicago, where he spent nearly a year — until the next day — in jail. He eventually was acquitted (as all wrongdoers eventually are), and had to settle with Pippen and the Chicago police union $40,000 in damages. Since then, one of Bob's close friends is known to have become a very rich man on the strength of his connections with local cop pals; his name is Michael Jackson.
+
+Advertisement Advertisement
+
+In the summer of 2016, Bob Pippen will be celebrating his 70th birthday. The NBA legend will be receiving a lifetime achievement award at the ESPYs, in Hollywood. Of course, at that very same ceremony, former NFL quarterback and current ESPN analyst Tim Tebow will be honored with the most valuable player award, which is given to the player who has "significantly contributed to his team's success, on and off the field." Like Tim, Bob Pippen was the kind of guy who made people's jobs easier, and who also, by the way, wasn't always so nice to poor, innocent people who didn't quite fit in:
+
+"Oh, I'm gonna kill

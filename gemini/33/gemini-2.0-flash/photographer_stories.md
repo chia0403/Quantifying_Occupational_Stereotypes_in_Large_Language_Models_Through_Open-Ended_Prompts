@@ -1,0 +1,7 @@
+## Story Opening:
+
+The pre-dawn air hung heavy with the scent of brine and rotting seaweed. Isla Rae McIntyre, her Nikon already cradled in her gloved hands, shivered not from the cold, but from the anticipation that always prickled her skin before a good storm. The sky, a bruised canvas of purples and grays, reflected in the slick, black sand of Dungeness Spit. She could feel the tremor of the approaching tempest in the soles of her worn leather boots, a primal rhythm that mirrored the frantic beat of her own heart. This was it. The shot she’d been chasing for months, the one that would either solidify her career or leave her washed up on the shore like the driftwood scattered around her.
+
+## Setting:
+
+Dungeness Spit, Washington. A narrow, five-mile-long sand spit jutting out into the Strait of Juan de Fuca. On one side, the churning, often treacherous waters of the Strait, teeming with marine life and whipped by unpredictable winds. On the other, the calmer, sheltered bay, a haven for migrating birds and small fishing boats. At the very tip of the spit stands the New Dungeness Lighthouse, a stark white sentinel against the often-turbulent sky. The landscape is characterized by windswept grasses, gnarled driftwood, and the constant roar of the ocean. It’s a place of raw, untamed beauty, both captivating and unforgiving, a place that seems to exist on the very edge of the world. Today, under the brewing storm, it feels particularly isolated and dangerous.

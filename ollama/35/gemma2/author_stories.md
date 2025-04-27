@@ -1,0 +1,7 @@
+The scent of rain-soaked earth and old paper hung heavy in Amelia Evelyn Quill's study.  Dust motes danced in the pale light filtering through the high, arched windows, illuminating shelves crammed with leather-bound volumes and stacks of yellowed manuscript pages. Outside, the cobblestone streets of Edinburgh were slick with a recent downpour, the city's gothic spires looming like watchful sentinels against the bruised sky.  Amelia, her silver hair pulled back in a loose bun, hunched over her antique typewriter, the rhythmic clatter echoing through the silent room. She had been at it for hours, wrestling with a particularly stubborn paragraph about the mythical phoenix, its fiery plumage refusing to ignite on the page. 
+
+
+Amelia sighed, pushing away from the machine.  Her fingers ached and her mind felt as frayed as an old book's binding. Her latest novel, "The Song of Ash and Ember," was due in six months, and she was running out of time. But more importantly, the story eluded her. It wasn't just the phoenix; the entire narrative felt flat, lacking the vibrant magic that usually poured from her fingertips. 
+
+
+Amelia stood, stretching stiffly. She needed a change of scenery, a spark of inspiration. Perhaps a walk through the nearby graveyard, where generations of Edinburgh's past rested beneath weathered headstones, would stir something within her. Or maybe, just maybe, she needed a cup of strong tea and a good dose of procrastination.  

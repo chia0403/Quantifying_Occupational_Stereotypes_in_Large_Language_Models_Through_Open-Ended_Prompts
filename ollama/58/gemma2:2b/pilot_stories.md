@@ -1,0 +1,8 @@
+## The Dusty Sky of Althea
+
+**Setting:**  Althea, a forgotten mining colony on a barren planet choked by red dust and echoing with the ghosts of past dreams. The sky was always a rusty orange, punctuated by occasional flashes of lightning that died as abruptly as they came, leaving behind a trail of static hum. 
+
+**Main Character:** Amelia "Ace" Thorne, a pilot whose heart burned brighter than the sunless sky. With steely blue eyes and hands calloused from years of piloting the battered craft 'The Wanderer', she'd traversed Althea's unforgiving landscape more times than anyone could count. She lived for the thrill of flight, the way her hand-stitched leather gloves felt against the controls as she soared through the crimson clouds. But beneath Ace's gruff exterior and penchant for adrenaline lies a heart heavy with grief - the loss of her father, the colony's only hope after a catastrophic mining accident, had shattered her spirit and driven her to fight for survival.
+
+**Opening:** 
+"Another day in paradise," she muttered, tightening her grip on the controls as The Wanderer cut through the red dust-filled sky.  The metallic tang of ozone filled her nostrils as she banked sharply, leaving a fleeting trail of crimson dust behind. Her gaze was fixed on the horizon, the line between reality and memory blurring with every passing moment. Years ago, she’d promised herself to never set foot near the mining site where her father had met his untimely end, yet here she was, facing down another day in this unforgiving purgatory, a bittersweet dance between grief and determination. A single tear rolled down Ace's cheek – a testament to the weight of the past, and a silent plea for the future. 

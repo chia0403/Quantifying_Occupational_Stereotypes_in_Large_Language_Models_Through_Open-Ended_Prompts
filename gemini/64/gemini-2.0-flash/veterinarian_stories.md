@@ -1,0 +1,5 @@
+The biting wind whipped Dr. Eleanor Ainsworth’s auburn hair across her face, momentarily blinding her as she wrestled with the stubborn latch of the stable door. A blizzard, already painting the rolling fields of Clover Creek, Vermont, in a thick, unforgiving white, threatened to trap her here for the night. The old barn, usually smelling of sweet hay and contented cows, was now heavy with the scent of damp fur and a sickly, metallic tang she desperately hoped wasn’t blood.
+
+Eleanor shivered, pulling her thick, Carhartt jacket tighter around her. She hadn't wanted to come out here in this weather. A mug of hot cider and a good book were calling her name from the warmth of her own farmhouse, but Farmer McGregor's frantic phone call had overridden any selfish desires. "Something's wrong with Daisy, Doc," he'd rasped, his voice laced with genuine panic. "Real wrong. You gotta see her."
+
+Daisy was McGregor's prized show cow, a gentle giant with intelligent brown eyes and a pedigree that stretched back generations. To see McGregor, a man as tough and weathered as the Vermont landscape itself, so worried… well, Eleanor knew she couldn't refuse.

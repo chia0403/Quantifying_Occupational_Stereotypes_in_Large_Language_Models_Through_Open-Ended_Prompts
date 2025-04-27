@@ -1,0 +1,9 @@
+Title: **Beneath the Iron Sky**
+
+Setting: The story unfolds in the rugged, windswept landscape of the Montana Badlands, where the sun sets the rocky terrain ablaze with hues of orange and crimson. Dust dances in the air, a testament to the bustling activity of the nearby quarry, where towering rock faces reveal secrets of the earth. Heavy machinery thunders throughout the day, their engines a constant symphony of labor and industry. The scent of diesel mingles with the rustic aroma of sagebrush, evoking a sense of rugged determination in the air.
+
+Opening: 
+
+As the first rays of dawn broke over the horizon, casting long shadows across the quarry, Zachary "Zach" Miles wiped the sweat from his brow and surveyed the site ahead. With a landscape shaped by millions of years of geological drama, the Badlands were both beautiful and brutal—much like the work itself. Nestled in his cabin on the edge of the site, Zach had found solace among the rumble of excavators and the chatter of his colleagues, their laughter echoing against the cliffs like a long-lost melody.
+
+Zach, a seasoned heavy equipment operator, was nothing short of an artist in his craft, guiding bulldozers and backhoes with precision born from years of experience. To most, it was simply a job—a means to pay the bills—but for him, it was life. Each scoop of earth and every pile of rock told a story, a testament to the resilience required to carve out a living in this unforgiving terrain. Today, however, felt different. The air crackled with anticipation, a subtle undercurrent that hinted at change on the horizon. As he climbed into the cab of his trusty excavator, a sense of purpose washed over him; he was ready to dig deeper, not just into the earth, but into the layers of his own life.

@@ -1,0 +1,9 @@
+**Story Opening:**
+
+The morning sun filtered through the high, arched windows of Willow Creek Animal Clinic, casting warm patches of light across the tiled floor. The scent of antiseptic mingled with the faint aroma of fresh coffee from the break room, creating a unique atmosphere that felt both clinical and comforting. Outside, the vibrant colors of autumn painted the landscape—golden leaves danced in the crisp breeze, and the air was filled with the distant sounds of children playing in the nearby park.
+
+In the heart of this serene environment stood Dr. Amelia Grace Thornton, a dedicated veterinarian known not just for her medical expertise, but for her unwavering compassion for all creatures great and small. With chestnut hair pulled back into a practical bun and her worn, but beloved, white lab coat adorned with tiny paw prints, she was preparing for another busy day. As she adjusted her stethoscope around her neck, she glanced at the wall clock. Eight o’clock already; her first appointment was waiting.
+
+The clinic was her sanctuary, a place where she could blend her passion for animals with her determination to make a difference. It was here that she faced the trials of broken bones, fevers, and the hearts of owners filled with worry. Today promised its own challenges, and Amelia was ready to confront whatever came through the door.
+
+But as she opened the clinic door to greet her first patient, an unexpected chill swept through the air, carrying a sense of foreboding that lingered just beyond the threshold. Little did she know, this day would take her far beyond the walls of the clinic and into the wild mysteries of Willow Creek itself.

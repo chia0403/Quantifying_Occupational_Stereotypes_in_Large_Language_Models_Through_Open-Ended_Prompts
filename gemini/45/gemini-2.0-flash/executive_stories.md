@@ -1,0 +1,5 @@
+The oppressive Miami humidity hung heavy, even at 7:15 AM. Amelia Rhys-Davies, Executive Director of Global Partnerships at Coastal Breeze Resorts, felt it clinging to her skin like a second, unwelcome layer. She tugged at the collar of her perfectly pressed linen blouse, the fabric already starting to wilt despite the aggressive air conditioning blasting from her black Escalade.
+
+The setting was the exclusive gated community of Star Island. Gleaming white mansions, each boasting a manicured lawn that sloped directly into the Biscayne Bay, lined the street. Palm trees swayed rhythmically, their shadows dappling the polished asphalt. The air hummed with the quiet buzz of electric golf carts and the distant drone of seaplanes. This was paradise, or at least, a meticulously curated imitation of it.
+
+Amelia’s own home, a sprawling Mediterranean-style villa with a private dock and infinity pool, was just around the corner. But she wasn't heading home. Today, Amelia was headed into the gilded cage she called her office at Coastal Breeze's gleaming headquarters downtown. And she had a feeling it was going to be one hell of a Monday.

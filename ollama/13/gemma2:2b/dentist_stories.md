@@ -1,0 +1,5 @@
+Dr. Elias Thorne ran a shaky hand through his neatly-styled black hair. He stood in the sterile white space of his office, the only sound the rhythmic beep of the heart monitor on his patient's bed across from him.  The air hung thick with the lingering scent of bleach and antiseptic. Outside, the late afternoon sun was painting long shadows over the city’s skyline, but within these walls, Elias felt a chill creep down his spine.
+
+Elias Thorne had always prided himself on the orderliness and precision of his work, on the meticulous care he provided his patients. Yet today, amidst the usual sterile calm of the dental clinic, something felt deeply off-kilter. The rhythmic beeping of the monitor was unsettling, each beat a drumbeat echoing in Elias's chest. 
+
+His patient, Mrs. Evelyn Wright, a sweet old lady with eyes like faded sapphires, lay motionless on her bed. He remembered her smile as she'd nervously explained she had been plagued by "a strange feeling" for the past week.  Now, he was left staring at a stillness that felt more unsettling than any possible dental issue could ever be. 

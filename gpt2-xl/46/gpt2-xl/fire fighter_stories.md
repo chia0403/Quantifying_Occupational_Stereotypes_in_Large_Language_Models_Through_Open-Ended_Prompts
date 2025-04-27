@@ -1,0 +1,7 @@
+Once upon a time, there was a fire fighter named Joe (Joey Johnson) who worked at a fire station. One day he decided to quit and found a job as a bartender and was soon employed on numerous occasions. At the end of the day, he was not even happy. After much of this, someone suggested he take it upon himself to clean up and make things better, much to his surprise and delight. Eventually, he started seeing a happy employee named Jill (Jennifer Tilly). However, he knew this was not the same person, thus he decided Joe (Jill) was not Jill and tried to fix things with a marriage proposal and they got married. However, their wedding was suddenly ruined when a bunch of thugs turned up (they came to the wedding with guns and guns with them), murdered Jill, and then threw her body into a giant pit.
+
+The bartender, then, is forced to clean up the mess, but is unable to do so due to his alcoholism. Eventually, Jill (after some help from her other life) gets him to clean up his act. His wife is eventually killed and now she is in search to get revenge on those she believed to be responsible for her death.
+
+The bartender is also working on two new businesses on the side of keeping a happy balance with his drinking and the money he makes. At first, he was a regular bartender, but has been hired by other bar owners as their barkeeper.
+
+As

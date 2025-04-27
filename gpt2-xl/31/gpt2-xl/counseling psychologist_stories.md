@@ -1,0 +1,7 @@
+Once upon a time, there was a counseling psychologist named David J. Daddo. A graduate of Ohio University where he received an MD, and having been a practicing psychotherapist for over twenty-eight years, he worked as an employee in the psychiatric program at the University of Toledo (UT) Medical Center for six years. While there, he was diagnosed with "multiple personality disorder" (Narcissistic Personality Disorder), which is a mental health diagnosis. The problem with this diagnosis lies in the fact that narcissism is not a mental health disorder, and it never is. It appears to be a common, and widely accepted, diagnosis in America. Narcissists do not suffer from mental illness, in fact.
+
+According to Dr. Daddo:
+
+"In the 1960's a man named Carl G. Jung, of Oxford University found that narcissism was not only common but could be defined statistically. 'This suggests that many are actually normal and healthy in their personalities, and that their personalities are not in deficit as a result of some inner pathology,'" he says.
+
+The "diagnosis" of narcissistic personality disorder is a lie, intended mainly to cause pain. The person who gets diagnosed with this disorder is the easy target who's been told their natural behavior is "in deficit," meaning that narcissism has caused their "personal problems." And that's exactly what makes it so hurtful, and therefore useful. If other people are trying to be tough

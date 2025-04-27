@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named Dr. Jack Kevorkian, whose specialty was implanting devices. But there is something about the way you've got your mouth open. You're almost like you're about to pop, but maybe you shouldn't, because he's about to bite you on the neck or something. It's like a fucking cat with a screwdriver, and he's going to go like, "S-E-V-E-R-A-C-A" and kill you in five seconds. When you have your mouth open, you do have this, like, a certain amount of freedom, to get off in different ways. If you have your mouth shut, you're not so free.
+
+Did the doctor try to give you any sort of "treatment" or anything along those lines?
+
+No. I don't think so. I don't think he even knew what the fuck he was doing. He had his drill, and he took some guys through his drilling. But he never tried to actually put anything in. He wasn't giving me all these fucking injections. I know that's how something like this is going to go down, when they're cutting in, but I just can't see someone dying on that show while I'm watching it. I think it's really fucking stupid. Fuck that shit.
+
+I saw a clip of you saying that you're a believer in alternative medicine. Has that changed your

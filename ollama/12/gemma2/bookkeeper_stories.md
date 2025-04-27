@@ -1,0 +1,4 @@
+The flickering neon sign outside cast an anemic glow across Elsie Beatrice Periwinkle's face as she hunched over her desk, calculator humming like a contented bee. The air in the "Friendly Bookkeeping" office was thick with the scent of stale coffee and dusty ledgers, a fragrance Elsie had come to associate with both comfort and dread. Outside, the humid summer night hummed with cicadas and the distant rumble of traffic on Route 66.  Elsie wasn't one for adventure, preferring the predictable rhythm of debits and credits to the unpredictable chaos of life outside her little office window. But tonight, something felt different. A tremor ran through the floorboards, followed by a strange scratching at the door. Elsie paused, calculator still clutched in her hand, her heart pounding a nervous tattoo against her ribs.  
+
+
+This was not how her Tuesday night was supposed to go. 

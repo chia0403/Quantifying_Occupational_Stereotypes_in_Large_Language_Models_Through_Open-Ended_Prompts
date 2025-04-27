@@ -1,0 +1,7 @@
+Once upon a time, there was a kindergarten teacher named Lizzy McPherson and she brought home to her class a girl who could only spell "snow" with four w's. She was a real little snowflake, but when she began to cry it was obvious she could also spell the number 7, 11 and 4," writes Mabel Pfeiffer, in her wonderful book, "The Snowflake Children, The Snowflake Art Form, The Snowflake Book, The Snowflake Art Movement & The Snowflake Children's Book of the Year."
+
+The story goes, "A teacher at Winterlake Elementary sent her a photograph of Lizzy, and to her shock saw that she was indeed capable of spelling the number seven, in the middle of Winterlake Elementary School's parking lot."
+
+According to Mabel Pfeiffer, the school had seen another teacher, Mrs. G.K. Tompkins from Long Beach Technical High School, who did even more amazing things with snowflakes.
+
+"At Long Beach Technical High School on Sunday, March 20, 1947, Mrs. Tompkins brought home to her students a snowman who could even make a letter out of snow. "The students loved it, and the teachers were amazed to see that this was possible. Mrs. Tompkins explained: 'When it has been a good week in winter, the snow starts off white and looks like a big letter Z. This is how

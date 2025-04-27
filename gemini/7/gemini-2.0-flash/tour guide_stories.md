@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The salty tang of the Adriatic stung Isabella "Izzy" Rossi's nostrils as she adjusted her worn leather satchel on her shoulder. She could hear the familiar hum of the market vendors setting up their stalls, the clatter of metal shutters being hauled open, and the raucous cries of seagulls wheeling overhead. A nervous flutter tickled in her stomach, a sensation she hadn't felt in years. Today was the day she'd finally put her new tour, "Dubrovnik's Hidden Gems," to the test. After years of regurgitating pre-packaged historical lectures for budget coach tours, this was her chance to show the world the Dubrovnik she knew and loved, the Dubrovnik that breathed and lived beyond the well-worn tourist paths. She just hoped someone would actually *book* it.
+
+**Setting:**
+
+The story opens in the early morning in the Old Town of Dubrovnik, Croatia. The ancient city walls, bleached bone-white by centuries of sun and salt, enclose a labyrinth of narrow, cobbled streets. The air is thick with the scent of roasting coffee, freshly baked bread, and the faint, lingering aroma of the sea. Sunlight hasn't yet fully reached into the deeper alleyways, leaving them cloaked in cool shadows. Laundry lines crisscross overhead, adding splashes of vibrant color to the otherwise predominantly stone landscape. The main street, Stradun, is already beginning to bustle with locals and early-rising tourists, a mix of languages and cultures weaving through the heart of the city. The Franciscan Monastery, with its peaceful courtyard and ancient pharmacy, stands as a quiet oasis amidst the growing chaos, while the towering Rectors Palace hints at the city's rich and tumultuous past. This is a city steeped in history, where the past is palpable, woven into every stone and whisper of the wind.

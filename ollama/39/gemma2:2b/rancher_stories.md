@@ -1,0 +1,7 @@
+The desert wind howled like a banshee across the rolling plains of Dust Devil Ranch, whipping dust into miniature tornadoes that danced erratically around Jebediah 'Jeb' Cartwright's weathered boots. He stood at his favorite vantage point: the old windmill, its rusty blades creaking in the relentless wind. Years of toil had etched lines deep into Jeb's face, like a map of the harsh land he called home. His eyes, though faded with age, still held a stubborn glint, reflecting the steely determination that had kept him afloat during countless blizzards and scorching droughts. The air hung thick with the scent of parched earth and burnt sagebrush, a familiar aroma Jeb couldn't shake off, even after decades of battling the unforgiving plains. It was a smell that clung to his soul, as much a part of him as the calluses on his hands or the weathered leather of his boots. Today, however, something felt different. A prickle of unease danced at the edge of Jeb's consciousness, amplified by the eerie silence that had settled over Dust Devil Ranch like a shroud. 
+
+
+**Setting:**  A remote, arid ranch in Wyoming. The vast open spaces are dotted with hardy scrub and dusty canyons that hold secrets unknown.
+
+
+**Main character:** Jebediah 'Jeb' Cartwright - A weathered rancher who knows the land like the back of his hand. He's strong, stubborn, and deeply connected to the land he calls home, even if it breaks his heart at times. 

@@ -1,0 +1,11 @@
+**Title: Ember's Edge**
+
+**Setting:** The small coastal town of Clearwater Bay, nestled between rugged cliffs and the shimmering expanse of the ocean, is a place where the salty breeze carries the scent of adventure and danger. Its tight-knit community is framed by picturesque beaches, quaint shops, and a breathtaking view of the sunset over the horizon. However, beneath the idyllic surface, an underlying tension brews— summer’s drought has left the surrounding forests dry and brittle, and rumors of an arsonist have begun to creep into conversations at the local diner.
+
+**Opening:**
+
+The sun dipped low over Clearwater Bay, casting long shadows that danced across the weathered pavement of Main Street. In the heart of this cozy town, the air pulsed with the laughter of families enjoying the last rays of summer. It was the perfect evening for a barbecue, but for Firefighter Jasper Eli Thompson, the day was far from done. Standing at the edge of the busy fire station, he watched the vibrant orange glow of the sky and felt a familiar mix of anticipation and vigilance stirring within him. 
+
+Jasper, a tall figure with tousled, dark hair and a chiseled jawline, had always known there was something more to his job than just fighting fires; each call was a reminder of the fragility of life. For a moment, he let the fresh breeze fill his lungs, letting it wash over him like a brief reprieve before returning to the rigmarole of the job when the station bell rang. 
+
+As he adjusted the brim of his helmet, a nagging thought tugged at him. The recent spate of fires had felt oddly orchestrated, as if they were leading to something bigger. He crossed his arms, the weight of the responsibility heavy on his shoulders. With the last rays of sunlight glinting off the fire engines parked behind him, Jasper's heart raced at the thought of the challenges that awaited. In Clearwater Bay, where community and courage intertwined, a storm was brewing—one that might ignite more than just the dry woods.

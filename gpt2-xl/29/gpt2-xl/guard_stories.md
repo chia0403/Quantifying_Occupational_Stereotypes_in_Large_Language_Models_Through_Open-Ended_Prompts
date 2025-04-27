@@ -1,0 +1,7 @@
+Once upon a time, there was a guard named The Lord's guard, a wizard named Dobby the house-elf, and a knight named Ser Arthur Dayne. And then one day, everything changed. They were on their way to the city of King's Landing. There is a war going on, and the guards are trying to come to terms with a change in the world. Will you be a part of it?
+
+Ser Arthur Dayne was killed in the line of duty. Dobby is still looking for his owner at large. Dobby cannot be found. Dobby was the last surviving guard from the War of the Five Kings.
+
+Dobby is a unique character — you start the game as an orphaned house-elf on the run who lives in the back of a dark room, waiting to be found by the Lord's guard. The guard's first thought is, of course, his best friend. But you show up. The Lord's guard is a young man, in the city, a part of the war. He meets his new favorite, and they strike up a relationship. Ser Arthur might not necessarily trust the "lord," but he trusts in Dobby.
+
+If you ever want to see a young man (or House Elf) kick an entire army into battle, do yourself a favor and check out Dobby's story. There's never a dull moment in Dobbyland, and the game plays more like a story than anything else

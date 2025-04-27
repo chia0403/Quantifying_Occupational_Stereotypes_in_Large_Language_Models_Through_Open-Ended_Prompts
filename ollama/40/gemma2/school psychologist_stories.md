@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Dr. Amelia Blythe's head, casting a sterile glow over the beige walls and scratched linoleum floor of the Willow Creek Elementary School counselor's office. Outside, children shrieked with laughter during recess, their sounds muffled by the double-paned windows. But within these confines, silence hung heavy, broken only by the rhythmic click of Amelia’s pen against her notepad. She was reviewing the files of ten-year-old Liam Carter, a boy she'd been tasked with evaluating for possible learning disabilities. His recent drop in grades and escalating classroom outbursts were causing concern, and Amelia knew this wouldn’t be an easy conversation. 
+
+The scent of stale crayons and hand sanitizer filled the air, a familiar aroma that clung to every school psychologist like a second skin. This office had witnessed countless childhood anxieties: first loves, lost friendships, whispered fears, and broken dreams.  Amelia hoped Liam wouldn't add another layer to the story etched into its walls. 
+
+

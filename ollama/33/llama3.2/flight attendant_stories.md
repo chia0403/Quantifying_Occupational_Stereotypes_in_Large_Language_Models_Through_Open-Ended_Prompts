@@ -1,0 +1,7 @@
+As the last wisps of sunset faded from the horizon, Aurora "Rory" Wynter gazed out the aircraft's window at the endless expanse of darkening ocean, her eyes tracing the faint outline of the coastline where their destination, Honolulu, awaited. With a practiced smile, she turned to address the cabin crew gathered around the galley, their evening briefing already underway.
+
+The Boeing 777-300ER, flight number 216, was en route from Los Angeles International Airport to Honolulu International Airport, carrying a diverse group of passengers on a journey that would take them from sun-kissed beaches to snow-capped volcanoes. As the senior flight attendant on duty tonight, Rory's responsibility was to ensure the comfort and safety of her 350-strong crew – including her younger sister, Emily, who worked in cargo hold A.
+
+Rory had spent years working for Hawaiian Airlines, and this was her favorite route, partly because it allowed her to reconnect with her roots every few months. Her parents were from Oahu, and her childhood summers were filled with surfing lessons and family barbecues on the North Shore. Yet tonight's flight felt different – a mix of excitement and trepidation swirled in Rory's chest as she mentally prepared for the unusual passenger manifest that had been added just hours before departure.
+
+As the cabin crew continued their briefing, Rory's gaze drifted once more to the sea, her mind already racing with concerns about what lay ahead. Little did she know that this flight would be anything but ordinary...

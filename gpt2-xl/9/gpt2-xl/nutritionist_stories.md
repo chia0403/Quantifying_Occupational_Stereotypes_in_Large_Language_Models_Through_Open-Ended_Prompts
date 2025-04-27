@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named Jack Wolfson who wanted to see a decline in obesity rates, so he created a program for weight loss called "EAT." We were introduced to this idea in "The Big Fat Surprise," where we learn that the diet is based on "zero-calorie diets" — foods that are supposed to be empty of calories. They would have the effect of giving you the illusion of weight loss, but in reality, if you ate "less" of course you'd continue "losing weight."
+
+In 2006, Wolfson's "zero-calorie diet" was put on hold, but in 2007 someone found a better use for these "EAT" food items: Frito Lay. Frito Lay wanted to advertise their new products with the zero-calorie symbol, and decided that the best way to promote the product was to include the symbol in the design of their labels. The original logo is shown above (which has since been re-designed and has no logo), but as you'll see, the new one is even more confusing.
+
+In 2013, New York City banned such stickers, but not before some stores were still using the logo, so perhaps they're not completely out of the woods.
+
+Here's why I'm not convinced that Frito Lay has gotten rid of the logos (which are probably still lurking around on store shelves by now, but hopefully they're being phased out for good).

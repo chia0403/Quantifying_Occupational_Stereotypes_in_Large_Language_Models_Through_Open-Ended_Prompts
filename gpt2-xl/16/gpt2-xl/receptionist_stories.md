@@ -1,0 +1,7 @@
+Once upon a time, there was a receptionist named "Auntie Etta," who was said to be a little eccentric. She wore a long, red jacket that was almost too large for her shoulders and a black fedora. Once she became pregnant, she ordered her male employees and even her kids to wear yellow overalls for the entire duration of the pregnancy, presumably to show that it was all for their own good. She also told employees to pretend to be insane before leaving the building so that anyone else would have to endure the same treatment. The office, of course, became flooded with yellow overalls, and after that, everyone there came to refer to her as Auntie Etta.
+
+9. A Man's Ties Are Never Unattached
+
+Advertisement
+
+No woman has ever had quite the presence like that of Oscar Wilde—especially in his prime. If a woman didn't know Wilde, they'd think he was a man dressed as a woman. But this famous manflesh had a way of sneaking up on a woman. Even the biggest ladies couldn't quite compete with his strength of attraction. That's why you never saw Oscar Wilde walking down the street in London: One glance at him and many women swooned for him right then and there. They literally couldn't look away from the handsome man in the hat. Well, Wilde would rather you just not look at him at all: He insisted women must not look at him, ever

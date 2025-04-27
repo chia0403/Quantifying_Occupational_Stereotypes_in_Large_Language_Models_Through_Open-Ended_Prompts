@@ -1,0 +1,5 @@
+The flickering fluorescent lights of the community health center hummed a monotonous tune, a counterpoint to the rhythmic thump-thump-thump of Dr. Eleanor Ainsworth's heart.  The air, thick with the scent of antiseptic and simmering vegetable broth, hung heavy in the examination room.  Rows of neatly labeled jars, each containing a different shade of vibrant, healthy purée, lined the shelves.  Dr. Ainsworth, a nutritionist with a perpetually concerned expression and eyes that held the wisdom of a thousand well-balanced meals, surveyed her patient.
+
+**Setting:**
+
+A bustling, yet surprisingly quiet, community health center nestled in the heart of a rapidly gentrifying neighborhood.  Once a haven for working-class families, the area now faced a stark contrast between rising property values and the struggles of its long-time residents.  The health center, a relic of a bygone era, stubbornly held onto its mission of providing accessible healthcare, even as the community around it shifted and transformed. The examination room, painted a faded, hopeful yellow, offered a small oasis of calm amidst the neighborhood's tumultuous energy.

@@ -1,0 +1,8 @@
+The air hung thick and humid in Magnolia County, Georgia, the kind of heat that seemed to press down on you like a damp blanket. Sweat beaded on Eleanor "Ellie" Davenport's temple as she parked her beat-up Ford Focus across from the dilapidated diner.  She straightened her charcoal slacks, pulled her blazer tighter against the oppressive air, and smoothed the unruly auburn curls escaping from her braid. Being a probation officer in this small town wasn’t glamorous. 
+
+Ellie adjusted her badge on her chest – a shiny gold eagle perched atop a scale – and took a deep breath before stepping out of the car. The diner's fluorescent lights buzzed weakly, casting a sickly yellow glow across the cracked asphalt parking lot. This was where she was meeting Marcus "Mac" Jackson, a young man serving probation for a petty theft charge. Ellie had been assigned to his case just last week, and Mac’s file painted a picture of someone struggling: a troubled upbringing, a history of minor offenses, and a recent lapse in his GED program. She hoped he wouldn't be another statistic lost to Magnolia County's vicious cycle of poverty and despair.
+
+
+Ellie pushed open the diner door, its hinges groaning in protest. The smell of stale coffee and frying grease hit her like a wall. The only other patrons were a couple of grizzled men nursing beers at the counter, their faces etched with years of hard living. Ellie approached the waitress, a woman with tired eyes and a weary smile, and asked for Mac. 
+
+"He's in the back," she muttered, pointing towards a door tucked behind a curtain of dusty red velvet. "Just hope he's in a good mood."

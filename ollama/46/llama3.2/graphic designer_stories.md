@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The rain-soaked streets of Portland's Pearl District gleamed like polished obsidian under the faint light of the setting sun. Inside the cramped, cluttered office of her design firm, Emilia Rose Jensen hunched over her computer screen, sipping lukewarm coffee from a chipped mug. Her wild tangle of curly brown hair was tied back in a messy ponytail, and a few stray strands had escaped to frame her heart-shaped face. As the self-appointed queen of Portland's indie design scene, Emilia had built a reputation for crafting logos that were equal parts functional and aesthetically stunning.
+
+As she stared blankly at the screen, Emilia's mind wandered back to the phone call from her estranged mother earlier that day. Her mom, Laura Jensen, had left Emilia with a cryptic message about an old family heirloom – a vintage typewriter, of all things – and a vague promise to meet in person within a week. The words "come home" echoed in Emilia's mind like a mantra, but she wasn't sure what to make of the sudden summons.
+
+With a sigh, Emilia set her coffee aside and began to scrub at the dried-on splatters on her keyboard with a dirty rag, trying to shake off the lingering sense of unease that had settled over her since the call. Little did she know, this was just the beginning of a journey that would take her back into the tangled web of family secrets and inherited guilt that had defined her childhood for so long...

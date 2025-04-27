@@ -1,0 +1,5 @@
+The humid Miami air clung to Elias Santiago like a second skin as he surveyed the scene. A tangle of exposed wires snaked across the cracked tile floor of the abandoned nightclub, each one humming with a low, electric thrum. Neon signs flickered erratically, casting grotesque shadows that danced on the dusty walls adorned with faded posters of forgotten bands. The air was thick with the scent of mildew and the ghost of spilled tequila. This wasn't his usual gig – wiring up new condos or fixing faulty outlets in beachfront mansions.  This was something different, something…dangerous. Elias, a man who thrived on order and logic, felt a tremor of unease run down his spine. He adjusted his tool belt, the worn leather familiar against his hip, and took a deep breath. 
+
+“Alright, let’s see what we got,” he muttered to himself, squinting at the chaotic mess of circuitry before him. This wasn't just a power outage; someone had deliberately sabotaged the system. And Elias was about to unravel their puzzle.  
+
+

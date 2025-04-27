@@ -1,0 +1,7 @@
+Once upon a time, there was a construction worker named Harry Potter. Harry was a muggle-born wizard with no magical ability at all, but he worked hard and kept moving forward in his life, overcoming setbacks and hardships. Because of his efforts he was called "honest" and "determined." For his dedication and self-depreciation, as well as his achievements, he was awarded many accolades and accolades for it. One accolade in particular was bestowed upon Harry when his former boss, Mr. Weasley received an award for being a person that "loved people." Harry was honored. Because of the way he carried himself while doing his work, and not wanting him to get in trouble in the wizarding world, Harry was given the job of building houses. When construction was complete, Harry was transferred to a different one. During the transfer he overheard a conversation between Mr. and Mrs. Weasley discussing their son.
+
+
+It had come to Harry's attention that their son, Albus Dumbledore, was a wizard and that his sister, who had gone by the name Minerva, was born as a muggle-born and was considered to be a witch. It made nothing to them, but Harry thought it odd for their son to have magical abilities. It seemed as if Mrs. Weasley was trying to hide something from her husband.
+
+
+A few days before going through the transfer phase, Harry got the job offer from the new owner of the house that he'd

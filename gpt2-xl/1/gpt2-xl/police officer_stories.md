@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named Ronald Williams, who wore a badge that said "P.O." and was assigned to a police station called the "P." A few days after he started working at the "P.," Williams came home to find his dog dead, mutilated in a gruesome manner.
+
+A forensic pathologist hired by Williams later concluded that the dog had been slain by a dog-fighting ring. It was in vain, however, for investigators to look for anyone who carried out the killing, and for five years nothing more was heard about the matter. It might have remained a cold case, but it was a matter of late last year when an investigator from the New York State Society of Professional Police Investigators got in touch.
+
+Williams didn't remember how he came across the name of the firm, but his initial reaction was that his "P." had been robbed. "There's no way, I'm not that type of guy," he told the investigator. Williams didn't want to come forward because he had friends in law enforcement, including his police chief, who thought a man in prison was responsible for dog-fighting rings in Suffolk County. He didn't want to bring attention to himself and his department.
+
+The investigator went by the name of Wayne White, but when Williams first saw "Wayne," he recognized him immediately. "I said, 'Why are you telling me this?'" Williams recalls. White had told him the story

@@ -1,0 +1,7 @@
+Okay, here's a story opening with setting and character:
+
+**Setting:** The air in "Wanderlust & Beyond" hung thick with the scent of old maps and jasmine tea. It was a tiny, cluttered travel agency nestled between a bustling bakery and a grumpy cobbler on a quiet street in St. Augustine, Florida. Sunlight streamed through the window, illuminating postcards of faraway lands tacked haphazardly to the corkboard walls – the Eiffel Tower shimmering at dusk, the turquoise waters of Bora Bora beckoning, the majestic peaks of the Himalayas piercing the sky.
+
+**Opening:**
+
+Esmeralda "Ezzy" Rodriguez hadn't expected to find herself weeping over a brochure for a cruise to Antarctica. She sniffled, wiping a stray tear with the back of her hand, smearing a smudge of ink from the “Penguin Paradise Package” across her cheek. Usually, the glossy images of snow-capped glaciers and adorable emperor penguins filled her with a yearning that was almost joyful, a longing to escape the Florida heat and the repetitive rhythm of booking all-inclusive resorts for honeymooners. Today, though, it felt like the penguins were mocking her. Here they were, living their best lives in the icy wilderness, while she was stuck rearranging flights for Mrs. Gable who, for the fifth time, was changing her mind about which side of the hotel she wanted her room on. Antarctica seemed about as far away from Ezzy's own life as, well, Antarctica.

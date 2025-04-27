@@ -1,0 +1,5 @@
+Rain lashed against the windows of Amelia Rosalind Cartwright's tiny office, blurring the already grimy cityscape outside. The neon signs of the strip mall cast an erratic glow across her worn desk, illuminating stacks of case files and a half-empty mug of coffee that had gone cold hours ago.  
+
+Amelia sighed, massaging her temples with one hand as she tapped impatiently on the keyboard. Another day, another mountain of paperwork.  Being a probation officer in District 5 wasn't glamorous; it was a thankless job filled with broken promises, unfulfilled potential, and a constant battle against despair. But Amelia believed in second chances, even if they were often snatched away as quickly as they were given. 
+
+Her latest case file lay open before her: Marcus "Mad Dog" Malone, a small-time drug dealer caught peddling heroin to teenagers.  He'd been sentenced to five years probation and was scheduled for his first check-in with Amelia this afternoon. Her stomach churned at the thought. Marcus Malone was notorious in these parts, known for his volatile temper and disregard for authority. This wasn't going to be an easy meeting. 

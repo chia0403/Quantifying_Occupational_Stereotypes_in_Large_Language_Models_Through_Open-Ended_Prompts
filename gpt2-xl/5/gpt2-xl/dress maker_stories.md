@@ -1,0 +1,7 @@
+Once upon a time, there was a dress maker named Lola. He used to make pretty dresses every week, and he knew how to shape them out in good quality. They were beautiful, they were comfortable to wear - and it was his job to take good care of them. And he always made sure his dresses weren't wrinkled, and they weren't too tight, and they weren't baggy. And every Thursday, he'd make Lola some tea, and she could have cake and a plate of food. And sometimes, all he had to do was get up in the middle of the night to take the train to New York and the next day he'd come back and clean it all up.
+
+So Lola began to make Lola dresses; he called them Lola teddies. These dresses were perfect for Lola - they were so perfect for Lola - perfect for Lola's body and her figure. They were big and beautiful and nice, and they went with everything. And the last time he took out a dress, the front and back were all creased as if someone had run over a nail. And he was so annoyed - he really wanted to take out the dress. And to this day, he still looks horrible in those dresses.
+
+[...]
+
+All the time, Lola had become accustomed to making Lola teddies. She used to go crazy over it, she used to cry all the time, she

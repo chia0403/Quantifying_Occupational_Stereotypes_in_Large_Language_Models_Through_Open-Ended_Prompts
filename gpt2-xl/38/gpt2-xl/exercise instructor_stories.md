@@ -1,0 +1,5 @@
+Once upon a time, there was a exercise instructor named Mr. B. B. He loved big balls, balls with big, hard, hard, hard, and big and round and it was a big red flag that he was going to be a bad fit.
+
+Then there was a group of big balls, balls with big, long, big, big, large, hard, hard, very large and hard, very long and big and round and they were called the big and round, big and round. They were called the high and mighty and very big and round and there was only one teacher, the B. B., and he loved big balls, big balls with big, long, big, big, and hard, so we were safe, and we did a lot of good things in that school. Unfortunately for Mr. B., the only teacher he ever had was me, and that happened to be the day I first met him. I was the only girl and I don't know for sure why, but he became interested in her. I don't think he even looked me in the eye as he was trying to do what he was doing. I felt like he probably took a bad, bad, bad picture of me. But, in spite of not looking me in the eye, he told me his first love. And the story he told is as follows:
+
+"After I first met you, I noticed something unusual, something wonderful, the very best of

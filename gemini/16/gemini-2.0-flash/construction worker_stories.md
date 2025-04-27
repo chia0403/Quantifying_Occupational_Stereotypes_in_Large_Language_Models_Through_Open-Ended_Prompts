@@ -1,0 +1,7 @@
+## Story Opening:
+
+The alarm screamed 4:45 AM, a sound Elias Vance had come to associate more with the dull ache behind his eyes than the promise of a productive day. He slapped the snooze button with a calloused hand, the metallic clang of the impact barely registering over the lingering buzz in his skull. Rain lashed against the windowpane, mimicking the rhythmic pounding he knew awaited him on the job site. He groaned, peeling back the threadbare cotton sheet. Another day, another dollar, and another brick laid towards a future he wasn't even sure he wanted.
+
+## Setting:
+
+Elias Vance lives in a small, unassuming, two-story house on the outskirts of Harmony Creek, a town nestled in the Appalachian foothills of West Virginia. The house, painted a faded robin's egg blue, sits on a modest plot of land choked with wildflowers and overgrown weeds. A rusty, dented pickup truck, Elias's faithful companion, sits parked in the gravel driveway. Inside, the house is sparsely furnished, functional but lacking in personal touches. The walls are painted a neutral beige, punctuated only by a few faded photographs: Elias's late parents, a blurry snapshot of him in his high school football uniform, and a recent, slightly crooked picture of his niece, Lily, her face beaming. The aroma of cheap coffee and frying bacon usually permeates the air, a stark contrast to the crisp, clean scent of the surrounding mountains, which Elias rarely takes the time to appreciate.

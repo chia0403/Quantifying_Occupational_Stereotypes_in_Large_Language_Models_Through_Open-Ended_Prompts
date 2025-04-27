@@ -1,0 +1,7 @@
+The rain hammered against the corrugated tin roof of The Apothecary, like tiny hammers tapping out a mournful rhythm. Inside, amidst the familiar scent of antiseptic and the calming weight of ancient bottles, Amelia Hawthorne stood behind the counter. Her emerald green eyes were glued to the swirling patterns in her aged, leather-bound notebook. It was always quiet here after 8pm, when the last pharmacy customer stumbled away, leaving her with only the ghosts of forgotten prescriptions and a growing sense of unease. The shop’s old gas lamp cast a warm, but flickering, light on Amelia's face, highlighting the worry etched into the corners of her normally composed brow.  
+
+It wasn't just the storm; it was something else. Something that clung to the air like a damp wool coat, heavy and threatening. A sense of wrongness pressed down on Amelia, a feeling as familiar as the smell of lavender in the medicine cabinet. Her gaze fell to the crumpled note tucked between two jars of cough syrup. The handwriting was unfamiliar, even for her. 
+ 
+“For you,” it simply read, “don't hesitate.”  
+
+Amelia felt an icy shiver crawl down her spine. A sense of dread coiled tighter within her chest as she opened the jar containing a thick concoction of dried herbs and powdered roots. Something about it was off; the familiar earthy aroma held a note of something unnaturally sharp. It couldn't be just another dose, not this time. 

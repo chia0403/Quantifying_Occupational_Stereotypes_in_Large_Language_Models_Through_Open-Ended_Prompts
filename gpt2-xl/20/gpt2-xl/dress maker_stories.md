@@ -1,0 +1,6 @@
+Once upon a time, there was a dress maker named Elizabeth Ann. Elizabeth Ann was a kind of model-queen, a girl that most boys fancied. She was good looking, smart and had a lot of money. Her parents expected the girls in the family to be like her. In fact, Elizabeth Ann's father, an Englishman, was in very high society. While the girls in the family were learning to read and write, Elizabeth Ann was taught to play the piano and also to dress elegantly. The people she admired, and who inspired her were Countess Mary Baker Eddy, the French artist Louise Bourgeois and the American writer Louisa May Alcott.
+
+
+By the time she was 12, Elizabeth Ann had already won the love of the aristocratic boys in the family by being kind and courteous to everyone. However, since she was considered pretty, she always wore her hair in a high, wide ponytail. To prove her loyalty to the family, she would dress elegantly all the time and never show herself on the street. Her father gave her a beautiful dress every Christmas to wear. When she saw that the Prince was not wearing a gift, the Queen had to put a new dress on him.
+
+As soon as Elizabeth Ann started working, every one of the nobility went to see her to be the model for their new suits and dresses. The Prince and Princess had a lot of problems because Elizabeth Ann could not keep up the attention

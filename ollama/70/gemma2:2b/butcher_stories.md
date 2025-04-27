@@ -1,0 +1,7 @@
+The air hung heavy with the scent of woodsmoke and blood, a peculiar harmony that clung to Theodore Blackwood like his apron.  Theodore Blackwood, son of Old Tom Blackwood – the man whose hands still remembered the feel of raw hide and sinew even after his death – ran the butcher shop in the heart of Hollow Creek.  The once-bustling town was now cloaked in a perpetual twilight; a veil cast by the encroaching woods that swallowed the sun at its will, leaving the street lamps to flicker like dying stars against the encroaching darkness.
+
+The wood’s whisper echoed across the cracked linoleum floor of his shop. It wasn't just the wind; it was the memories of years past, of lives lived and lost within these walls.  A man who knew the language of beef could understand the silence, how to read the pulse of a carcass in its stillness. 
+
+He stood behind the stainless steel counter, carefully arranging sausages and trimmings for his morning delivery. A chill settled over Theodore's spine as he noticed the unusual stillness. Even the rhythmic clanging of his aging grandfather’s hammer against meat was absent.  Something was amiss. His eyes narrowed, taking in the unsettling quiet before turning towards the boarded-up window.
+ 
+A crow cawed from atop a nearby chimney, the sound sharp and discordant like a knife cutting through silence. It seemed as if even the town's secrets were holding their breath, waiting for something to break the peace...and they wouldn't be alone in that fear. 

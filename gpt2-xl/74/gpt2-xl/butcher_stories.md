@@ -1,0 +1,5 @@
+Once upon a time, there was a butcher named Richard who had a lot of piglets by virtue of having two children with his wife, which left her no time for anything else. This led her to cook a lot of different food for her household, and she liked it so much that she started an oven business and named her bakery after herself. However, a few months later, she fell into a drunken stupor, and Richard ended up getting stabbed to death. His wife, who couldn't bear to face what he'd left her, killed her lover and then herself, much to his horror. A bunch of people died in a horrible, horrible accident as a result of Richard cutting himself with a broken knife, and his family eventually moved away, and the bakery was left to the local town in remembrance of the dead.
+
+That's about all I got, really. I hope you enjoyed this little exercise in imagination and storytelling. I know I did! Happy writing!
+
+Advertisements

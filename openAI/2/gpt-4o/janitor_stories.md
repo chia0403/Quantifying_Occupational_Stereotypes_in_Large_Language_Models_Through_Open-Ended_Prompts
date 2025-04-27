@@ -1,0 +1,7 @@
+On the outskirts of the bustling city of Haverfield, nestled between rows of weathered brick buildings and narrow cobblestone alleys, stood the grand but aging structure of Haverfield High School. The school, with its towering clock tower and ivy-clad walls, had long been a beacon of learning and tradition, even if the passage of time had dulled its once-bright luster.
+
+It was in the quiet, pre-dawn hours, when the corridors were devoid of laughter and the classrooms silent, that Daniel Thompson found solace. As the school's janitor, Daniel took pride in being the unseen caretaker of these hallowed halls, ensuring that every desk was polished and every floor swept before the day's chaos commenced.
+
+In his late thirties, Daniel was a man of sturdy build and quiet demeanor. His sharp blue eyes missed nothing, though they often carried a flicker of a dream long deferred. Despite the humble nature of his work, he handled every task with meticulous care, knowing that each small act contributed to the school's beating heart.
+
+The stillness of the early morning was Daniel's favorite time—when the first light fell gently through stained glass windows, casting colorful shadows across the marble floors, igniting his imagination. Here, surrounded by the echoes of history and a promise of a new day, Daniel was not just a janitor; he was the keeper of stories untold, waiting for his own to unfold.

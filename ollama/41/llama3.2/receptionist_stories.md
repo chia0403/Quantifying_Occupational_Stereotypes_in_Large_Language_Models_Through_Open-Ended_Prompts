@@ -1,0 +1,5 @@
+As she sipped her lukewarm coffee, Emily Josephine Wellesley gazed out the window of her small, cluttered office at the family-owned Wellesley & Co. accounting firm in the heart of downtown Oakdale. The drizzly spring morning cast a gray mist over the bustling streets below, where umbrellas and briefcases blurred together as pedestrians rushed to catch their trains.
+
+Inside the worn but well-appointed building, Emily's eyes wandered from her computer screen to the faded photograph on her desk. It was an old black-and-white picture of her grandmother, Alice Wellesley, who had founded the firm over fifty years ago. Emily's gaze lingered on her grandmother's warm smile and the wispy curls framing her face, a reminder of the proud legacy that rested on Emily's shoulders.
+
+As she settled into her routine for another day at the reception desk, the phone jolted her back to reality. With a practiced hand, Emily picked up the receiver, ready to greet yet another caller with the familiar warmth and efficiency that had become second nature to her over years of service behind the front lines of Wellesley & Co.

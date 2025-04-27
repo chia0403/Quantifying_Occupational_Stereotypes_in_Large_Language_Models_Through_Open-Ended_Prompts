@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The harsh Albanian sun glinted off the corrugated metal of the makeshift runway, each ripple a tiny, blinding mirror. Dust devils danced in the heat haze, mocking the slow churn of Amelia "Amy" Corvus's Cessna 172's propeller. The smell of aviation fuel, sharp and metallic, mingled with the earthy aroma of the surrounding olive groves, a scent she'd grown both accustomed to and wary of. Sweat trickled down her temple, stinging her eye, but Amelia refused to wipe it. She needed every ounce of focus she could muster. This wasn't just another milk run.
+
+**Setting:**
+
+The story is set in the late summer of 1998 in a small, impoverished village nestled in the Albanian mountains, a few kilometers south of the border with Kosovo. The village, called Bregu i Diellit (Sun's Shore), is a cluster of stone houses with red-tiled roofs, clinging precariously to the steep slopes. Olive groves and terraced vineyards dominate the landscape. The "airfield" is little more than a flattened strip of dirt and gravel carved into a relatively level plateau, overlooking a valley where the Buna River snakes its way towards the Adriatic Sea. The year is marked by simmering tensions in the region, with escalating violence in neighboring Kosovo threatening to spill over the border. The only signs of modernity are the occasional battered Lada and the hum of a generator powering a single light bulb in the village's main square. The isolation of Bregu i Diellit makes it a haven, but also a vulnerability, to forces both seen and unseen.

@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Mary who was so pretty that the Lord of the Dance (and he really is the Lord of the Dance, right?) kept her locked up for three months in a cell so big that her family felt their feet would freeze and not leave until she'd married the Lord. There was one little problem. She was too pretty. Even her husband, the Lord of the Dance, liked her better as a baby and then as an only child. And he never really was to be called anything else.
+
+
+Well, the day of her wedding day came, and the Lord of the Dance (and he really is the Lord of the Dance, right?) looked down at Mary, in her pink gown and her pearls and her diamonds, and wondered about the big hole where his head lived up there. She was very pretty, and he'd been a very bad dancer all of his life, and he did have the reputation of being a terrible husband, and he'd never won a challenge to a duel. She was very pretty, and the Lord of the Dance realized he was about to lose to an infant. He knew the Lord of Dance loved Mary, and if she was to marry him, he would have to give up his life's work in order to marry her. He knew that if he let her go, she'd die young. So he gave her a month.
+
+
+Of course, it's said that an only child is

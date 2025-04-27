@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The neon sign creaked in the gentle breeze, casting a gaudy glow over the deserted streets of downtown Ashwood. Inside the bar, Ember Rose Jenkins polished a mug with a white apron wrapped snugly around her waist, the dim lighting of the establishment accentuating the sharp lines of her face and the piercing green of her eyes. It was 11 PM on a Tuesday, and the only patrons were the usual suspects: a pair of gruff truckers huddled in the corner, nursing whiskey-fueled silences; a lone hipster typing away on his laptop by the window, fueled by a lukewarm coffee and an unrequited love for the indie folk playlist that played on repeat; and Ember herself, observing it all with the detached air of someone who'd seen it all before.
+
+As she slid a fresh drink across the counter to the truckers, her gaze drifted out into the night, where the faint hum of the city's nightlife provided a distant accompaniment to the quiet of the streets. The wind picked up, rustling the leaves of the tall oak trees that lined the sidewalk outside, their branches like skeletal fingers reaching towards the stars. It was moments like these that Ember felt most alive, her focus sharpened to a razor's edge as she scanned the room for potential dramas or potential opportunities – and always, just beyond the edge of perception, a hint of something more sinister lurking in the shadows.
+
+How does this opening capture your attention?

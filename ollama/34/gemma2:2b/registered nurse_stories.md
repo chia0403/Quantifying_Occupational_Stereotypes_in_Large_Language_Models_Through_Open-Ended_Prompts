@@ -1,0 +1,5 @@
+## The Whispering Ward
+
+Rain lashed against the windows of Mercy Hospital's third-floor ward, mimicking the erratic rhythm of Amelia "Amy" Evans' heart. The air inside hung thick with an almost tangible tension, punctuated by the rhythmic beeping of machines and the occasional choked sob from a patient on a ventilator. It was a Friday night, usually considered the quietest in this chaotic wing dedicated to oncology. But tonight, something felt different – a weight settling over Amy like the humid blanket of a storm cloud. 
+
+The ward's usual comforting scent of antiseptic had been replaced by an unnerving aroma: fear, desperation, and decay. It clung to the worn linoleum floors and the faded floral wallpaper that adorned each room. A sense of foreboding seemed to emanate from every corner, whispering anxieties into Amy’s tired mind. She was a registered nurse at Mercy Hospital for almost ten years, her career spent traversing the treacherous landscape of human suffering with expertise and empathy. But tonight, even the practiced calm of her profession felt thin and brittle in the face of this storm within the ward. 

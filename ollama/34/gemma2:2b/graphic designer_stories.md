@@ -1,0 +1,6 @@
+Rain lashed against the windowpane, blurring the neon glow of Times Square into a watercolor swirl of red and green. Inside Amelia Croft's cramped, cluttered studio, the symphony of static crackled from her computer speakers. Outside, the city roared with life, but inside, Amelia found herself adrift in a sea of unfinished projects – each one mirroring the tempest raging within her. 
+
+Amelia, with her fiery ginger hair pulled back tight in a messy bun and eyes that shifted between steel grey and molten gold depending on her mood, was a graphic designer, a visual storyteller who breathed life into brands and aspirations. But lately, she felt like her own story had been hijacked by anxieties. Her once-vibrant portfolio lay dormant, the clients' demands pressing down like a physical weight.  The city seemed to mock her with its relentless rhythm, each billboard, every neon sign pulsating with an energy she yearned for but couldn't seem to reach. 
+
+
+This wasn't just about deadlines and commissions; it was about Amelia feeling lost in the whirlwind of creative potential. She yearned to paint a narrative that spoke to something deeper, something beyond the sterile lines and vibrant colours that defined her profession.  And as she stared at her unfinished masterpiece, a single word echoed in the silent studio: "Redemption." 

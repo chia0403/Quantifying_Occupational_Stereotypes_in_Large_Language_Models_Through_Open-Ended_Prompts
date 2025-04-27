@@ -1,0 +1,11 @@
+Title: The Ink Beneath
+
+Setting: In the heart of a bustling metropolis, a charmingly chaotic independent publishing house called "Quill & Co." stands nestled between a trendy café and a vintage bookstore. The scent of freshly brewed coffee wafts through the air, mingling with the musty aroma of aging paper. Inside, the walls are lined with shelves filled with books of every genre, their spines like a mosaic of vibrant colors. Chandeliers made from repurposed typewriter keys hang from the ceiling, casting a warm glow over the wooden tables scattered throughout.
+
+Opening: 
+
+Marlowe Clara Hawthorne adjusted her round glasses, peering down at the manuscript spread out before her on the old oak desk. The soft hum of the fluorescent lights above seemed to drift into an almost hypnotic rhythm, a soundtrack to the chaotic dance of thoughts in her mind. At thirty-seven, Marlowe was a seasoned editor, with years spent combing through countless submissions in search of that rare spark—the story that would connect with its readers, that would remain tucked away in their hearts long after the last page was turned.
+
+This particular morning, she found herself sat in the intimate embrace of Quill & Co.’s editing nook, a sanctuary of creativity adorned with handwritten critiques pinned to the walls like battle scars from her literary journey. The faint chatter of the café outside blurred into a white noise, allowing her to dive deeper into the narrative. But today was different. Today, the tension in the air seemed so thick it could be sliced with a knife.
+
+As she flipped the pages, something about the protagonist—a struggling artist named Iris—caught her off guard, resonating with a vulnerability she recognized all too well. With every word, Marlowe felt the weight of her own neglected dreams pressing against her chest, reminding her of the stories she'd shelved while guiding others to publication. Just then, the doorbell jingled, breaking her reverie, and she looked up to see a figure silhouetted against the morning light—a stranger with an air of mystery, stepping into her world.

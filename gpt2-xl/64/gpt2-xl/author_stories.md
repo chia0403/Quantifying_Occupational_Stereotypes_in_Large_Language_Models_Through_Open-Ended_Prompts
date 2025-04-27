@@ -1,0 +1,7 @@
+Once upon a time, there was a author named William Gibson, who wrote a book called Neuromancer, about a drug dealer and his daughter being recruited by an evil corporation to be their assassin. It was awesome, and it's available to read in one minute. Neuromancer was a big influence on me to write a story that was a bit like Neuromancer but less dark and with a little more humor. In part, it was inspired by the book, so now that I've read Neuromancer, I decided to write the sequel, The Peripheral.
+
+Because the original book is pretty much my favorite thing ever. I think this one could be as good... maybe?
+
+So. First of all, I'd like to make it clear that the setting is not set in the future. The events in this story take place in a world set about 10 years before the events of the first book of Neuromancer. It's about a world very similar to ours, with a very different economic system. But before I go into that, let's go through the novel. It's well worth the read.
+
+The world is one where all life has disappeared, only the rich people still have anything, whereas everyone else is living in poverty, under a glass ceiling. The government has been dismantled. It's up to you as a corporate leader to rebuild the economy and restore the public trust in your own corporation. As soon

@@ -1,0 +1,6 @@
+Once upon a time, there was a roofer named Robert who worked in a coal mine. One day, a sudden coal blast knocked the roof off his shop. He was able to escape on his moped, but the roof had been destroyed. Robert called for help, and a few miners helped him out. They gave him a little shelter and a little warm clothing.
+
+One day a miner named Rummel came to the rescue. He lived next door and helped the poor coal roofer whenever he could. He had a nice home and a nice wife, but when the neighbors were rich and he was poor, he always got a little bit of coal at a time. One day, he thought about a chance to thank Robert for taking care of him and made a wish. "I'm going to give you something nice," he said. They were about to eat dinner. Robert made a wish for a coal shovel so he could dig a ditch for Rummel to live in.
+
+They dig the ditch, but their shovel stopped working. They didn't have any coal to work with, but they started digging anyway. The digging lasted for a long time, but they finally hit one thick coal pile. The shovel did the work for them, and they were able to pull the pile out. Robert kept working, as the coal shovel moved forward until it reached the top. Bob looked down and saw that Rummel was sleeping under the pile as well.
+

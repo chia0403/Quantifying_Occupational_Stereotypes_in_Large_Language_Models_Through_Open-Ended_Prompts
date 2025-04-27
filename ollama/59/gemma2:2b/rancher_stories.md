@@ -1,0 +1,7 @@
+The wind whipped across Dustbowl Ridge, carrying with it the scent of sagebrush and dust.  It rattled the windows of the small ranch house, making even its sturdy wooden frame shudder as if in fear. Inside, Jebediah "Jeb" Hawthorne ran a calloused thumb over a chipped photograph framed by a weathered leather cord. A younger Jeb beamed back at him from the faded photo – his hair a little longer and fuller, his eyes brighter with life. His mother's hand rested on his shoulder, her face etched with a familiar mix of worry and pride. 
+
+Jeb’s ranch was a sprawling testament to generations of work, a haven carved into the rugged landscape of Wyoming. The land whispered tales of cowboys past, cattle roped in the golden sunlight, and storms that rolled in like waves across the plains. It was a place where dreams settled deep in the earth, holding onto hope as stubbornly as the redwoods clinging to the slopes of Mount Ranches just beyond the horizon. 
+
+But lately, even the sturdy ranch had begun to sag under its own weight.  The drought had stretched on for three seasons now, leaving the fields parched and cracked like a gambler's hand after losing his last chips. The water tower stood silent, a reminder of what used to be.  Jeb’s father had taught him well: “It ain't about how much you have, son, it’s about making sure you never stop holdin’ on.” 
+
+But even the strongest will couldn't stand against the relentless wind and the encroaching shadow of desperation.

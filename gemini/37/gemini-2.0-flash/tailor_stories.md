@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The clatter of Bernard Abernathy's shears was the only music in the pre-dawn gloom. He attacked the bolt of midnight-blue wool with a ferocity that belied his usually gentle nature.  Tonight was the night. Tonight, the Baron Von Hess would finally wear something that actually *fit*. Or, Bernard thought, with a shiver tracing its way down his spine, he might finally wear Bernard. 
+
+**Setting:**
+
+Bernard Abernathy's tiny tailoring shop, "Abernathy & Son - Fine Threads, Fine Fits," clung precariously to the edge of the cobblestoned marketplace in the sleepy town of Kleinburg.  Sunlight, when it dared to pierce the perpetually overcast skies of the Duchy of Eldoria, would paint the front window with dust motes dancing in the beams, showcasing bolts of tweed, velvet, and silk in a riot of colours.  Inside, however, was a kingdom of controlled chaos. Buttons spilled from chipped porcelain jars, thread wound itself around wooden spools like colourful serpents, and half-finished garments hung from every available hook. The scent of beeswax, lanolin, and the faintest hint of lavender clung to the air, a fragrant testament to Bernard's meticulous craft. A well-worn, leather-bound ledger sat permanently open on the counter, its pages filled with meticulously neat script detailing measurements, fabric swatches, and whispered gossip gleaned from the town's elite. Tonight, though, even the shop felt different – charged with a nervous energy that emanated directly from Bernard's twitching fingers and the frantic rhythm of his shears. The single gas lamp above his head flickered, casting long, dancing shadows that seemed to mock his anxiety. The fate of Kleinburg, and perhaps even Bernard Abernathy himself, rested on the perfect cut of this Baron's coat.

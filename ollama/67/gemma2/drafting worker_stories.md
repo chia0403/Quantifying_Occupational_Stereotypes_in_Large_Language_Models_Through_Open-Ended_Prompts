@@ -1,0 +1,6 @@
+The acrid tang of graphite hung heavy in the air, mingling with the oily scent of machine lubricant. A thin layer of dust, grey as storm clouds, coated everything in Bartholomew Quill's workshop – the workbench, the tools scattered across its surface like mismatched teeth, even the single flickering bulb dangling precariously from the ceiling. 
+
+Bartholomew, his brow creased with concentration, squinted at the blueprint spread before him. His calloused fingers traced the intricate lines of the proposed bridge design, a tangled web of steel and concrete that stretched across his workbench like a miniature metropolis. He was a drafting worker, one of the anonymous cogs in the city's ever-expanding machine, bringing dreams of soaring structures to life with the stroke of his pen.  But tonight, Bartholomew felt something different – a tremor of unease that ran deeper than the usual fatigue after a long day. 
+
+
+He rubbed his tired eyes and glanced at the clock, its hands pointing accusingly at midnight.  The city outside hummed with its usual cacophony of noise, but within his workshop, an unsettling silence prevailed. Bartholomew swallowed, feeling a shiver crawl down his spine. The blueprints suddenly seemed less like dreams and more like warnings. 

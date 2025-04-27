@@ -1,0 +1,9 @@
+**Title: Whispers Among the Stars**
+
+**Setting:** The vibrant city of New Orleans, where the air is tinged with the sweet scent of magnolias and the distant sound of a jazz saxophone fills the warm evening air. Neon lights flicker outside the quaint, historic venue known as The Moonlit Lounge, a dimly-lit bar hidden among the bustling streets, legendary for hosting local talent and imbued with an electric charm. Inside, a motley crowd gathers, their laughter mingling with the smooth melodies cascading from the stage, where the energy of the audience makes it feel alive with possibilities.
+
+**Opening:** 
+
+As the last rays of the sun dipped below the horizon, casting a golden glow over the streets of New Orleans, a soft hush fell over the bustling crowd outside The Moonlit Lounge. Inside, the stage was set for magic. The spotlight flickered to life, illuminating **Evelyn Marie Dubois**, a soulful siren with chestnut curls that danced about her shoulders and a voice that could weave tales of love and loss like threads in a tapestry. 
+
+Evelyn stood poised at the microphone, her heart pounding in rhythm with the jazz band that accompanied her; each beat echoed the excitement that coursed through her veins. Tonight was not just another gig—it was the night she would unveil her original ballad, a song whispered in her heart for months, inspired by late-night strolls along the Mississippi and her dreams of stardom. As the house lights dimmed and the audience leaned in closer, Evelyn took a deep breath, her fingers grazing the smooth metal of the microphone as she closed her eyes, inviting the notes to flow through her, ready to capture the souls of everyone present.

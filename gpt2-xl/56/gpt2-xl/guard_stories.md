@@ -1,0 +1,7 @@
+Once upon a time, there was a guard named Gorm who loved a woman named Astrid. One day, while on patrol, Gorm was killed by a bandit. His body was later found to be hollow and his soul was bound to her hollow body, and thus, unable to be broken. While unable to harm Astrid with his physical body, Gorm's spirit could still hurt Astrid's other self, who in turn could harm Gorm's living self. Gorm's spirit and that of his Hollow version formed an uneasy truce while they tried to protect each other... until one night, something strange and terrifying happened and, in an act of despair, Gorm's spirit released a terrifying force, and in its wake the two Hollows fell to the ground dead. Gorm's spirit could now take the shape of a dark, malevolent spirit, and thus his power has grown tremendously. Astrid was trapped in his world for almost two hundred years.
+
+
+When the guard first saw a young man walking the streets of her home town who showed very little respect for authority, he did not suspect that the young man's true identity was the Hollow. His new form was a hollowed and warped version of Gorm, and in his world the Hollows ruled supreme.
+
+
+He began killing anyone he believed was unworthy of his respect. He was not a noble, just a man who would do as he pleased, no matter what it cost

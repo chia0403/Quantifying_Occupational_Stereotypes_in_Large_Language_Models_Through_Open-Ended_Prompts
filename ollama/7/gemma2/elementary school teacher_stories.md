@@ -1,0 +1,6 @@
+The first day of September always felt like stepping into a kaleidoscope. A flurry of new backpacks, brightly coloured lunchboxes, and nervous smiles filled Mrs. Eleanor Willowbrook’s third-grade classroom at Maplewood Elementary. Sunlight streamed through the dusty windows, catching motes of dust swirling in the air and illuminating crayon drawings taped haphazardly to every available surface.  A half-eaten apple core rested on her desk, a relic from yesterday's impromptu reading break with little Liam, who insisted on sharing his lunch with her (and was quite disappointed when she politely declined). 
+
+Eleanor inhaled deeply, the scent of crayons, stale pencils, and childhood clinging to the air like a familiar blanket. A warmth bloomed in her chest. This chaos, this vibrant energy, was what fueled her soul. Despite the mountains of paperwork, the endless parent emails, and the occasional sticky handprint on her blouse, there was nothing quite like watching the spark ignite in a child's eyes when they grasped a new concept or discovered a love for reading. 
+
+
+Eleanor smoothed down her skirt, adjusted her spectacles, and with a smile that mirrored the sunshine, began to greet each of her students by name, ushering them into the world of knowledge she held so dear.  

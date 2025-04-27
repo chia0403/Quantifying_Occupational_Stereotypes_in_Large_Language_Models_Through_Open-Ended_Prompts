@@ -1,0 +1,6 @@
+The air hung heavy with the scent of sawdust and sweat in Elias Thorne's workshop. Dust motes danced in the weak sunlight filtering through the grime-coated windows, illuminating the chaos of tools: chisels glinting like sharpened teeth, hammers resting on weathered wooden planks, and a mountain of rough-hewn stones piled high against one wall.  Elias, his brow creased with concentration, leaned over his current project – a slab of obsidian so black it seemed to absorb the light around it. He ran a calloused thumb across its surface, feeling the cool smoothness beneath his touch. This piece was different. It hummed with an energy he couldn't quite place, a subtle vibration that tickled the hairs on his arm. 
+
+Elias Thorne, born under a waning moon and raised in the shadow of Mount Obsidian, was no stranger to unusual stones. His village nestled at its base was built from the very heart of the mountain – each dwelling carved from its black volcanic rock. But this stone...this felt different. It felt alive.
+
+
+**Setting:** A small, remote village nestled at the foot of a dormant volcano called Mount Obsidian. The village is primarily known for its skilled stonemasons who work with the unique obsidian mined from the mountain. 

@@ -1,0 +1,7 @@
+The rain fell steadily in the early evening, casting a silvery haze over the bustling streets of New Crest City. In this metropolis, shadows grew longer as neon signs flickered to life, illuminating the wet pavements with hues of electric blues and reds. Amid the urban symphony of honking horns and distant sirens, a haven of quiet could still be found within the walls of an unassuming office on the third floor of a weathered brick building.
+
+The placard on the frosted glass door read “Adele Sinclair Investigations” in hand-painted gold letters. Inside, the warm glow of an antique desk lamp revealed a cluttered, yet orderly space. Stacks of case files lined the shelves, and the comforting aroma of freshly brewed coffee filled the air. A black cat snoozed on the worn leather armchair by the window, undisturbed by the drizzle or the world outside.
+
+Adele Sinclair, the sharp-minded detective behind the name on the door, sat at her desk surrounded by the paraphernalia of a life dedicated to unraveling mysteries. She peered through her stylish spectacles at the crime scene photographs scattered before her, making mental notes with the precision and clarity that had come to define her career. With a reputation for solving the unsolvable, Adele thrived in the complexities of human behavior and deception. But even with countless cases to her name, each new challenge carried its own allure.
+
+Tonight, beneath the city's relentless rain, a new file awaited her attention.

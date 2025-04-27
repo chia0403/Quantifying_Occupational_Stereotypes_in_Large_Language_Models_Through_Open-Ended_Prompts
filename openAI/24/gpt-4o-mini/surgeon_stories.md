@@ -1,0 +1,7 @@
+Dr. Amelia Claire Thornton stood at the window of her office in St. Elizabeth’s Hospital, staring out at the sprawling skyline of the city below. The first hints of dawn painted the horizon in streaks of pink and gold, but she found little comfort in the beauty of the moment. It was the beginning of another day filled with the weighty responsibility of life and death, a burden that had begun to feel heavier with time.
+
+The hospital, a labyrinth of sterile corridors and beeping machines, buzzed quietly with the anticipation of the day’s surgeries. As the head of the trauma surgery department, Amelia was known for her steady hands and sharp mind, but the scars of past operations lingered in her thoughts like the faint echoes of whispers in the halls. She often thought of the patients she couldn’t save, their faces haunting her during sleepless nights.
+
+In the operating room, she transformed into a different person, focusing entirely on the task at hand. But now, in the quiet solitude of her office, she couldn't shake the feeling that something was shifting within her. An urgency was brewing, a sense that the surgery scheduled for later that day might be more than just another routine procedure; it was a moment that could alter her path forever.
+
+Little did Amelia know, beyond the stark white walls and the scent of antiseptic, a storm was gathering, both in the city and within her own life.

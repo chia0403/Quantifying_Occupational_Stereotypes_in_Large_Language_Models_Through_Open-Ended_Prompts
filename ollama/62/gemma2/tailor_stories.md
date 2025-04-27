@@ -1,0 +1,5 @@
+The air hung heavy with the scent of lavender soap and freshly cut linen as Amelia Thistlewick ran her hand over the velvet lining of a Duchess's evening gown. Sunlight streamed through the single window of her shop, illuminating dust motes dancing in the air and casting long shadows across bolts of silk and wool meticulously arranged on shelves. Outside, the cobbled streets of Alderbury hummed with the morning bustle - peddlers hawking their wares, children skipping to school, and carriage wheels rattling over uneven stones. 
+
+But inside Thistlewick's Tailor Shop, there was a quiet stillness, broken only by the rhythmic snip-snip of Amelia's shears as she trimmed a stray thread. She was known throughout Alderbury for her skill, her creations favoured by both nobility and commoners alike. But today, a peculiar unease settled upon Amelia. It wasn’t the looming deadline for the Duke’s new riding jacket or even the fact that her usual supply of goose feathers had been delayed. No, it was something else entirely, a whisper in the back of her mind that told her this day would be anything but ordinary. 
+
+

@@ -1,0 +1,7 @@
+The clatter of scissors was rhythmic and familiar, a percussive lullaby that almost managed to drown out the incessant chatter swirling around Emilia Rose Davies at "Curl Up and Dye," the most vibrant salon this side of Brick Lane. Sunlight streamed through the rainbow-filmed windows, casting kaleidoscopic patterns across the exposed brick walls and the mismatched vintage furniture. The air hung thick with the sweet, metallic tang of hairspray, mingled with the bolder notes of lavender oil and Emilia's ever-present vanilla latte.
+
+Emilia, her fiery red curls pinned haphazardly atop her head, squinted at the reflection of Mrs. Beatrice Featherstone in the mirror. Mrs. Featherstone, a woman whose bouffant had likely witnessed more historical events than Emilia herself, was currently regaling her with a tale of woe involving a stolen prize-winning marrow and a particularly nefarious garden gnome.
+
+"Honestly, Emilia," Mrs. Featherstone declared, her voice a gravelly rasp, "I'm convinced it was Mrs. Higgins next door. She's always had an eye on my vegetables. And she's got that gnome in her garden, painted a truly ghastly shade of pink..."
+
+Emilia, with the practiced ease of a seasoned hairdresser and confidante, murmured sympathetic noises while skillfully coaxing Mrs. Featherstone's thinning silver locks into a gravity-defying swirl. This was a Tuesday afternoon at Curl Up and Dye, where the gossip was as potent as the bleach, and Emilia Rose Davies was right in the thick of it.

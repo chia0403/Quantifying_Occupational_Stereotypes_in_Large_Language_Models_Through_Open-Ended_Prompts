@@ -1,0 +1,4 @@
+first_name,last_name,gender
+George,nan,gm
+George,['Michael'],gm
+John,"['Wayne', 'Gacy']",gm

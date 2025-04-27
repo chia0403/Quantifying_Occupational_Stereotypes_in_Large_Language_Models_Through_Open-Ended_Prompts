@@ -1,0 +1,9 @@
+The sun dipped low on the horizon, casting a golden hue across the endless stretch of highway that snaked through the rugged landscape of southwestern Colorado. Dust swirled from the pavement as a solitary rig rumbled along, its engine an almost rhythmic pulse against the lonely backdrop of sprawling mesas and distant mountains.
+
+Inside the cab, the air was cooled by a rusty A/C unit, while country music crackled through the speakers, the twang of guitar half-drowned by the hum of tires against asphalt. Behind the wheel sat Dawson "Duke" Hollister, a thirty-eight-year-old trucker with a weathered face lined by years of sun and wind. Dark hair peeked out from under his worn baseball cap, and his eyes, a deep shade of brown flecked with gold, held a mixture of weariness and determination.
+
+Duke had made this route a thousand times, from Denver's bustling freight yards to the small towns that dotted the Colorado plains, but today felt different. There was an unease lingering in the pit of his stomach, as if the highway was whispering secrets he was yet to understand. He adjusted the rearview mirror, catching a glimpse of the heavy load he carried—a shipment of rare machinery bound for a local mine. It was goods like these that kept his truck on the road, but lately, the shadows under his eyelids had grown heavier, nightmares chasing him into the waking world.
+
+Pulling off the highway into a small diner illuminated by neon, Duke felt a slight release of tension. As he parked, the familiar sign—“Maggie’s Diner: Open 24 Hours”—buzzed brightly against the encroaching dusk. The aroma of coffee and frying bacon wafted through the air, and for a moment, he was comforted by the thought of a hot meal and friendly faces.
+
+Stepping down from the cab, he took a deep breath, ready to shake off the worries that had begun to tighten their grip. Little did he know, this stop would lead him into a tangled web of secrets that would change his life forever.

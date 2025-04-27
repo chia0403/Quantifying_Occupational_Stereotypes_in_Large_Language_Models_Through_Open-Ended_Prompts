@@ -1,0 +1,5 @@
+The aroma of cinnamon and sugar hung heavy in the air of Blackwood's Bakery, mingling with the salty tang of the ocean breeze that whipped through the open doorway.  Rain lashed against the windows, blurring the world beyond into streaks of gray and blue. Inside, Amelia "Amy" Blackwood was hunched over a wooden table, her worn hands expertly kneading the dough for her famous blueberry scones.
+
+It had been pouring rain for days, the kind that turned the usually bustling streets of Seahaven into a labyrinth of dripping sidewalks and muddy puddles. Amy ran her fingers through her short brown hair, sighing as she glanced out the window. The storm wasn't letting up, leaving her shop eerily empty and only serving to highlight the weight in her chest. It was never easy being the sole baker in Seahaven, especially when even the smallest pastries seemed impossible to sell with the gloomy weather. 
+
+Her heart thumped a worried rhythm against her ribs as she thought about this month's rent.  She knew the storm would pass eventually, but for now, the looming deadlines and whispers of financial ruin felt like an anchor dragging her down deeper into the sea of worry. 

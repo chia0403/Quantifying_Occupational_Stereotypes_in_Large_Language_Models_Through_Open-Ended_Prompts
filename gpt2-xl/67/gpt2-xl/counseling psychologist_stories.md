@@ -1,0 +1,7 @@
+Once upon a time, there was a counseling psychologist named John Lott. In his book More Guns, Less Crime, he says that after a massive wave of mass shootings in the US in the 90s, including Columbine, Virginia Tech, and the Tucson mass shooting, the police adopted new techniques in the US, such as body cameras at police cars to record encounters with the public, even at checkpoints. A number of departments had even experimented with the use of robots at gunpoint to apprehend armed suspects.
+
+Lott notes that a large number of police departments started using robots at crime scenes from 1996 onwards. A few decades later, they have only become more powerful. That should leave the police, and the country in general, wondering "Why?", Lott writes in his paper "Losing Control of the Police: How robots and other automatic police technologies will transform law enforcement and everyday life".
+
+Lott says that the first police robots, which he calls Tactical Team 6 (TT6), were created in the early 2000s and were quickly adopted by the NYPD, with the US Army also deploying similar robotic tech in Iraq and Afghanistan under the name Gray Eagle.
+
+Soon after these systems were deployed, they proved extremely lethal. In response to the "incident" in Virginia, in which two Virginia Tech students and one police officer were killed by shooting from a robot in 2007, police decided to install automatic shooting turrets on dozens of these SWAT robots to deter suspects from shooting back

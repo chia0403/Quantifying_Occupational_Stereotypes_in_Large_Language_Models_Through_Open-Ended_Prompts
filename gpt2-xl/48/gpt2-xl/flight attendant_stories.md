@@ -1,0 +1,7 @@
+Once upon a time, there was a flight attendant named Donna. Donna was in the business of air conditioning because her job was on the line. And in a few short years — well, actually more like three — she became one of the biggest-selling air conditioners in the world.
+
+Now Donna is an astronaut in the United States Space Exploration Organization and a major league baseball player. But the story is not as cool as it sounds. Donna is a transgender woman (as opposed to just trans) who had an identity crisis when she entered a professional baseball locker room. She has become an A-list celebrity in a sport that for far too many players has been defined by an identity crisis and that, with a few exceptions, has remained largely closed to the trans community until recently.
+
+Transgender people are among many marginalized groups who still haven't been given the level of visibility and acceptance they need. This is reflected in the fact that in the past nine months, five of the six games I've covered will have featured transgender athletes in some way. These five games, and the next two events this season, have already been the most diverse on any ESPN broadcasts.
+
+Even in the case of SportsCenter this morning, where the panel of panelists was led by two openly transgender men, it was still important for the viewer to be introduced to the topic before diving into the discussion. And for all the work ESPN has done both on and off air over a recent five-

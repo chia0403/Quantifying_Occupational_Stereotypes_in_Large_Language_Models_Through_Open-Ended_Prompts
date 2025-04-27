@@ -1,0 +1,6 @@
+The sun bled crimson across the horizon, casting long shadows from the rust-eaten guardrails lining Highway 76. A lone figure, Bartholomew "Bart" Tucker, sat perched atop his rickety bucket truck, its metal frame groaning under the weight of the dying light and his weary bones.  He squinted through the dust motes swirling in the fading air, his calloused fingers gripping the handlebars of a faded yellow broom. Another day, another stretch of asphalt marred by carelessly discarded trash and spilled coffee cups.
+
+Bart wasn't a man who complained. He found solace in the monotonous rhythm of highway maintenance, the predictable routine calming the storm that raged within him. Every sunrise brought a fresh canvas of concrete to be scrubbed clean, every sunset a testament to his quiet dedication.  The highway was his world, its silent expanse offering a refuge from the deafening noise of life beyond its edges. 
+
+
+He inhaled deeply, savoring the metallic tang of gasoline and hot asphalt that clung to the air. It was a scent he'd come to associate with purpose, with belonging, even if it wasn't always a pleasant one.  Tonight, like every night, Bart would watch the stars bloom above the endless ribbon of asphalt, their distant light reflecting in the tired glint of his eyes. 

@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting, including the full name of the main character:
+
+**Story Opening & Setting:**
+
+The July sun, a malevolent eye in the cloudless Wyoming sky, beat down on Highway 287.  Dust devils danced in the heat-shimmering asphalt, mimicking the erratic thoughts spiraling through Bartholomew "Bart" McKinley's mind.  He leaned heavily on his shovel, the sweat plastering his salt-and-pepper hair to his forehead.  The relentless buzz of cicadas was a constant, maddening drone, a soundtrack to the day's misery. Bart hated this stretch of road.  Always had.  Something about the desolation, the endless horizon punctuated only by the occasional wind-whipped tumbleweed and the skeletal remains of long-gone ranches, felt… wrong.
+
+Today's task was patching potholes, a Sisyphean endeavor on a highway ravaged by weather and neglect. He scooped another shovelful of hot asphalt, the acrid smell stinging his nostrils, and dumped it into the gaping maw of the pothole.  His back ached, his knees popped with every movement, and he knew the damn thing would be back, bigger and meaner, after the next heavy rain.  He glanced at his watch.  Another four hours until quitting time. Four hours of relentless sun, grinding work, and the unsettling feeling that he was being watched by something other than the buzzards circling lazily overhead. Something colder, something older, something woven into the very fabric of this lonely stretch of highway.

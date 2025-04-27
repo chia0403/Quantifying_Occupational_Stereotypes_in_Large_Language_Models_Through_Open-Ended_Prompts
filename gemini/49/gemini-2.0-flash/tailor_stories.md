@@ -1,0 +1,11 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The bell above the door of "Elegance Stitched," tinkled a delicate greeting, a sound that did little to soothe the prickling unease in Archibald Thistlewick's gut. He glanced up from the meticulously hand-stitched lapel he was working on, his needle pausing mid-air. It wasn't the early hour – Archibald had been at his bench since dawn, the soft light filtering through the grime-streaked window a comfort to his aging eyes. No, it was the ominous stillness clinging to the air outside, a silence that swallowed even the usual rhythmic rumble of the clockwork carriages that frequented Oakhaven's central square. Archibald swallowed, a dry, rustling sound in the hushed workshop. He’d heard whispers, of course, about the unrest brewing in the city’s lower wards, but those were just whispers, weren't they? Whispers that, until now, had felt as distant and fantastical as the mythical Sky Whales the street urchins chattered about. 
+
+**Setting:**
+
+Oakhaven, a city built on gears and steam, stood in perpetual twilight beneath a smog-choked sky. Towering brass clockwork automatons, the size of small buildings, maintained the city's intricate infrastructure, their rhythmic clanking and hissing a constant, almost comforting, backdrop to life. Beneath the grand, ornately carved facades of the Guild halls and the opulent residences of the Gilded, lay the grimy, labyrinthine alleyways of the Undercog, where steam pipes leaked scalding water and poverty festered.
+
+Archibald Thistlewick's tailor shop, "Elegance Stitched," resided on the edge of the Grand Square, a precarious position between the two worlds. The shop itself was small, crammed with rolls of velvet and silk, spools of thread in every conceivable colour, and the faint, lingering scent of lavender and old wool. Mannequins draped in half-finished gowns and coats stood like silent sentinels, guarding the secrets held within Archibald's nimble fingers and his decades of experience. Sunlight, when it managed to pierce the smog, illuminated dust motes dancing in the air, highlighting the meticulous detail in his work and the weariness etched on his face. It was a haven of craftsmanship and tradition, a small, flickering candle in the face of the encroaching darkness.

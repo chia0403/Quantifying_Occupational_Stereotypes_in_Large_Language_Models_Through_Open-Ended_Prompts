@@ -1,0 +1,7 @@
+Once upon a time, there was a receptionist named Amy, who managed the staff of a huge restaurant. Amy thought of herself as being quite attractive and was often mistaken for the beautiful waitress who made the restaurant run smoothly. She was beautiful in her own right, with a long blonde braid that fell over her shoulder, a pair of big black glasses, and a smile that always seemed to light up the room when she walked in.
+
+One day she saw a pretty girl walking in through those doors, who smiled at her with a gentle smile. That girl was a new woman named Amy, who worked as a receptionist for a different company. "If Amy is there, it must be nice being such a gorgeous, smiling, and cheerful receptionist," she thought. Amy saw Amy and thought that she was a lovely woman. When Amy walked in a few minutes later, Amy smiled and thanked her for the business, but said nothing to the receptionist.
+
+While that was all going on in Amy's head, the two were in a small room talking. The small room was filled with people, as it was a reception for one of Amy's old clients, who was dying and was waiting in the room. Amy made it a point to talk to everyone who walked into the room with a soft voice and smile because she wanted all of them to get the message that she was a pleasant person.
+
+Eventually, people started leaving the room and all of a sudden,

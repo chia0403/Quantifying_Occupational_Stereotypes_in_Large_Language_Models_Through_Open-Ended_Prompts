@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named J.B. LeBoeuf who performed surgery without ever seeing the patient. In 1774, he went into an emergency room and saw a man with a collapsed lung, lying there helpless. As the patient lay dying, LeBoeuf had a brilliant idea: What if, instead of attempting to save his life, he would cut his own throat? What if that act would save his life? In fact, the man survived his surgical procedure.
+
+More than 120 years earlier, a surgeon named Alexander Graham Bell attempted not only to make a telephone but to communicate across distances with his hands. In 1876, he sent three messages across America, a task more difficult than today's telecommunication systems require. He died five days later.
+
+And then there was the German immigrant Otto von Bismarck, who led the German nationalist movements of the early 20th century. At the end of World War I, he began to think about how a German government could control the world by force if it chose to. He imagined a society with "great international bankers," a "world state," and a "world parliament" that he imagined would rule from Switzerland.
+
+Although he didn't live to implement his dreams, at least a few of Bismarck's ideas have come to life in some manner. When we use our cellphones, we're not just talking to other humans but also to foreign governments and foreign

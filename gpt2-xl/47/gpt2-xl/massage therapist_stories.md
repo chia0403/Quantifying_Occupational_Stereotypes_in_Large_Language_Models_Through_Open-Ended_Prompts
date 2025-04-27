@@ -1,0 +1,7 @@
+Once upon a time, there was a massage therapist named Jules. There was a big, beautiful house across the street. The owner of the house, Mr. Gribble, was a man whose every step was carefully scrutinized, every smile and nod carefully monitored.
+
+Jules came back home one day after his shift was over to find the entire front fence had been slashed. Jules, a man who loved his job with such passion that sometimes he forgot to sleep and ate more than he really needed, immediately thought that "something must've happened." He immediately went outside and told the owner of the house that he was concerned for the well-being of the people who lived in the house but were not currently at home.
+
+Mr. Gribble had a long life, some 25 years worth of work as a masseur. His life wasn't about to be ruined. It wasn't the last time he'd be worried about something happening to his customers, because Jules's next experience with Mr. Gribble taught him that he should be paranoid as well.
+
+A month later, Mr. Gribble called Jules to say that something major had happened in the house. Jules went inside to find that the front lawn had been cut in half and the front door and window broken. He immediately went to call the police and they came in right away. They searched the house, which included a huge stockpile of jewelry and money, and found Mr

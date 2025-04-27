@@ -1,0 +1,7 @@
+## Story Opening:
+
+The chime of the grand hotel's elevator doors was a familiar melody to Theodore Bartholomew Finch, a melody he'd heard thousands of times in his eight years as a bellhop at the gilded, pre-war "Grand Imperial." Tonight, however, the melody was off-key, discordant, almost…ominous. A single, impeccably shod foot emerged from the elevator, followed by a figure shrouded in a long, sable coat, the face obscured by the wide brim of a fedora. Theodore, his practiced smile plastered on, felt a prickle of unease crawl up his spine. This wasn't just any guest. This was… different.
+
+## Setting:
+
+The Grand Imperial Hotel, a monument to Jazz Age extravagance, dominates the skyline of 1937 Chicago. Its ornate facade, crafted from creamy Indiana limestone, is adorned with intricate gargoyles and gleaming brass fixtures. Inside, the lobby is a symphony of polished marble, towering columns, and plush velvet seating. Crystal chandeliers, each the size of a small car, cast a warm, flattering glow on the impeccably dressed guests and the staff who scurry around them with practiced efficiency. The air hums with the murmur of conversations, the clinking of champagne glasses, and the hushed whispers of secrets. From the bustling lobby to the exclusive penthouse suites, the Grand Imperial is a world unto itself, a haven of luxury and intrigue where fortunes are made and broken, and where Theodore Bartholomew Finch, usually invisible in his burgundy uniform, is about to stumble into something far more dangerous than a misplaced hat or a forgotten suitcase.

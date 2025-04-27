@@ -1,0 +1,6 @@
+The sterile scent of disinfectant hung heavy in the air, punctuated by the rhythmic beeping of heart monitors. Sunlight streamed through the large windows of the oncology ward at Mercy General Hospital, casting long shadows across the rows of pale beds. A robin perched on the ledge outside, chirping a cheerful melody that seemed jarringly out of place amidst the hushed whispers and rustle of gowns. 
+
+Amelia Rose Hawthorne, RN, adjusted her stethoscope and took a deep breath, steeling herself for another twelve-hour shift. Her dark brown hair was pulled back in a tight bun, highlighting the delicate lines etched around her hazel eyes. Years of witnessing suffering had not dulled Amelia's compassion, but they had left their mark on her spirit, etching a quiet weariness beneath her usual sunny disposition. 
+
+
+Today promised to be particularly challenging. The morning report had been grim, filled with stalled treatments and dwindling hope for some patients.  Amelia glanced at the nametag pinned to her white coat – "Hawthorne," it read in bold letters – a reminder of the weight of responsibility she carried on her shoulders. It was more than just a job; it was a calling, a mission to ease the pain and offer comfort in the face of life's most difficult battles.  

@@ -1,0 +1,5 @@
+The fluorescent hum was almost as deafening as the thrumming in Elara Thorne's head. A hundred needles, each with its own tale to tell, lay at her fingertips, waiting to be used on another soul seeking relief from their inner turmoil. 
+
+Elara's small clinic in the heart of San Francisco was a haven for those who couldn't afford a fancy hospital or whose anxieties were better suited for a needle than a therapist.  The air hung thick with nervous energy; the aroma of antiseptic and lavender essential oil clashed like opposing forces, creating an atmosphere both calming and unnerving. 
+
+Elara ran her fingers over the worn-out leather cover of her blood pressure cuff. "Morning, Miss Garcia," she greeted the woman sitting on the plastic-covered chair opposite her.  Her name was Maria, and today's anxieties were manifesting in a tight grip around her lower back. Elara’s quiet, almost meditative, presence was a comfort for many, but it also masked the gnawing fear that had settled over her since she last spoke to her father – a fear that seemed to rise and fall with each patient's heartbeat. 

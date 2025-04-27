@@ -1,0 +1,5 @@
+The engine of the eighteen-wheeler rumbled beneath his calloused fingers like a slumbering beast.  A thin plume of diesel smoke trailed behind it as Jebediah "Jeb" Tucker eased the rig onto Interstate 80, the sun already kissing the horizon with streaks of orange and purple. The vast expanse of the Nebraska plains stretched before him, an endless canvas of golden wheat fields punctuated by the occasional lone farmhouse, its windows reflecting the early dawn light like watchful eyes.  The air was crisp with the promise of a scorching summer day, carrying the faint scent of sagebrush and freshly tilled earth. Jeb took a deep drag from his cigarette, letting the smoke curl into the morning sky as he checked his mirrors one last time. 
+
+His cargo – a refrigerated trailer packed with strawberries destined for Boston – felt heavy not just in weight but in responsibility.  He had to get these berries there fresh, before they spoiled, before another shipment of forgotten dreams ended up rotting in some back alley storage unit. This was more than just a job for Jeb; it was his lifeblood, a solitary dance across the asphalt arteries of America. 
+
+

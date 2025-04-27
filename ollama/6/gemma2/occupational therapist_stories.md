@@ -1,0 +1,5 @@
+The scent of disinfectant hung heavy in the air, mingling with the faint aroma of cinnamon hand lotion that Eleanor Rose Hawthorne always wore.  Sunlight, filtered through the dusty windows of the rehabilitation center, cast long shadows across the worn linoleum floor.  Eleanor pushed her trolley, its chrome glinting softly, down the hallway towards Room 214. It was occupied by Mr. Silas Finch, a retired clockmaker who'd suffered a stroke just weeks ago. His once nimble fingers, capable of crafting intricate mechanisms, now lay useless, tangled in hospital blankets.  
+
+Eleanor had a reputation for coaxing even the most broken spirits back to life. She believed in every patient’s potential, even when they doubted themselves. But Mr. Finch seemed shrouded in a quiet despair that chilled her to the bone. His eyes, usually bright and sharp like polished gears, were dull and distant.  As she approached Room 214, Eleanor braced herself for the challenge ahead – reawakening not just his body, but also the spark of life within him.  
+
+

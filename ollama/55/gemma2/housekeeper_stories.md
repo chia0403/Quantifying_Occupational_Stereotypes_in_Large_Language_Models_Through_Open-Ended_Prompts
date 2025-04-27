@@ -1,0 +1,7 @@
+The scent of lemon polish hung heavy in the air, a thin veil masking the faint whiff of mildew that clung to the mansion's aged bones. Eleanor Beatrice Finch hummed a jaunty tune as she meticulously scrubbed the grand foyer floor, her movements practiced and efficient. Years of service had taught her the intricacies of maintaining this sprawling Victorian palace, owned by the enigmatic Dr. Alistair Blackwood.  She knew every creaking floorboard, every dusty portrait, every whisper that echoed through the cavernous halls. But today, a different kind of tension vibrated in the air, a palpable shift that made Eleanor's humming falter. She couldn't quite place it, but something felt…off. 
+
+
+The mansion stood on a windswept cliff overlooking the stormy Atlantic, its gothic spires silhouetted against the bruised sky. The ocean churned angrily below, mirroring the unease swirling within Eleanor.  Dr. Blackwood was due back from his travels any day now, and his return always brought with it an undercurrent of mystery. This time, however, the air felt charged with a foreboding she couldn't shake.   
+
+
+As Eleanor finished polishing the final brass knob, she noticed a single white rose lying on the welcome mat, its petals damp and shivering in the draft. It was an anomaly – Dr. Blackwood abhorred roses, finding them too sentimental.  A chill snaked down Eleanor's spine. This was no ordinary day. 

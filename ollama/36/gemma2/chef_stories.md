@@ -1,0 +1,6 @@
+The air hung thick with the scent of simmering ginger and garlic, punctuated by the sharp tang of citrus. Sunlight streamed through the grime-specked windows of "Le Petit Coq," bathing the cramped kitchen in a golden haze. At the heart of it all stood Eloise Colette Marchand, her brow furrowed in concentration as she wielded a chef's knife with practiced ease. A symphony of clangs and sizzles filled the air as she diced onions, julienned carrots, and chopped fresh basil, each movement precise and deliberate. 
+
+Le Petit Coq was tucked away on a cobblestone street in Paris’s Saint-Germain-des-Prés district, a haven for artists and intellectuals who sought solace from the city's frenetic pace. It wasn't fancy, but Eloise believed that good food transcended extravagance. She poured her heart and soul into every dish, crafting culinary masterpieces with rustic charm. Her menu was a testament to this belief: simple yet elegant, showcasing the best of French cuisine with a touch of her own creative flair.  
+
+
+But tonight, something felt different. A sense of urgency hummed beneath the usual comforting chaos. Eloise knew that tonight’s dinner service would be more than just another night at Le Petit Coq. It was a chance to prove herself, to finally earn the respect of her peers and secure the future of her beloved restaurant.  

@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+It was a drizzly Saturday morning in late April, and the streets of Portland's Pearl District were bustling with shoppers seeking refuge from the rain. Inside the cozy nail salon, "Polished Perfection," 27-year-old Amabelle "Belle" Thompson was already elbow-deep in a vat of hot pink polish, her fingers moving deftly as she worked on a client's gel set. The soft hum of jazz music and the gentle chatter of Belle's customers created a soothing atmosphere that made it easy for clients to relax and unwind.
+
+As the owner of "Polished Perfection," Belle took pride in not only creating stunning nail art but also providing top-notch customer service, always making her clients feel like part of the family. She had spent years honing her craft as a manicurist, working under some of the best in the industry before striking out on her own.
+
+On this particular morning, as Belle expertly shaped and buffed her client's nails, she couldn't shake the feeling that something was off. It started with a vague sense of unease in the pit of her stomach, like a nagging whisper that refused to be silenced. She pushed it aside, attributing it to the lingering stress of a chaotic week at work, but as the morning wore on, the feeling only grew stronger.
+
+Just as Belle was finishing up a particularly tricky gel application for her next client, the door swung open and a harried-looking young woman burst into the salon, shaking the rain off her jacket. "I'm so sorry I'm late," she apologized, her eyes scanning the room frantically before landing on Belle's. For a moment, their gazes locked, and Belle felt a shiver run down her spine – as if this stranger knew exactly what was wrong.

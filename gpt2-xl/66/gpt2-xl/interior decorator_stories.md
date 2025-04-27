@@ -1,0 +1,7 @@
+Once upon a time, there was a interior decorator named Michael. If you are an interior decorator living in a small town, you will have known someone like Michael. They could be pretty sharp, very honest, and always willing to look at new interior designs. Michael was one of those guys who kept changing. He wanted to keep a steady design, but he was constantly looking at and making changes. They were not good changes. The changes were so bad, it took me a while to make the connection.
+
+So, what kind of changes did Michael make to an interior? Simple. Michael designed it so that everyone could sit on the same side of the bed.
+
+If you are like most people, no matter what your job description, you have always sat on one side of the bed. You like to curl up with a book, an iPad, or your favorite movie and your spouse sits on the other side of the bed. And this is a great way to get some extra sleep, even though you might be a bit tired at the end of the day. If it is not working, though, it is time to change things up.
+
+Michael and his crew would ask "are you guys comfortable?" and "is there anything we can help you with today?" And they would set up the kitchen table in one corner and put the TV on one side of the room. Then they would ask the couple to sit on the sofa with their feet up and to

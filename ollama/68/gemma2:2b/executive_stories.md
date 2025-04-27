@@ -1,0 +1,5 @@
+The mahogany doors to Mr. Alistair Finch's office felt like they were carved from solid stone, yet the air within pulsed with the frenetic energy of a thousand hummingbirds trapped in a glass jar.  Alistair Finch, his silver hair gleaming under the harsh fluorescents, leaned back in his leather chair that looked as if it had been crafted by a sculptor for a particularly grumpy sphinx. His gaze, icy blue and sharp like flint, fixed upon the stack of folders on his desk. He hadn't slept in forty-eight hours. 
+
+**Setting:**  The office was part of a sprawling downtown corporate headquarters. The air smelled of stale coffee, cheap cologne, and the faint promise of imminent disaster. Outside, the city pulsed with a relentless energy: a symphony of car horns, screeching taxis, and the incessant chatter of a million conversations happening simultaneously on every street corner.  
+
+**Character:** Alistair Finch - Executive Vice President of FinTech Solutions, a company that had risen in recent years to become a juggernaut in the financial world thanks to their revolutionary AI-powered investment platform. 

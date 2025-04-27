@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named Bob Taylor. Mr Taylor had lived in the area for thirty years. His family had grown up there, his children had gone to school there and so on. He owned a cattle ranch, and had made his living from it. In the past decade, the ranch was hit by big storms, and he suffered more than a couple of major losses. However, he kept on plowing, which was how he kept his cattle alive. Sometimes, things would be bad. Mr Taylor just had to keep plowing. And one day, it rained and soaked the soil all around the ranch and eventually left Mr Taylor's ranch in a mudslide.
+
+The floodwaters took all the water from underneath his ranch and began to flow, pushing a huge portion of it back into the ground. Mr Taylor tried to save the cattle, but one of them was lost. The only thing left was a few cattle bones, lying on the ground. Mr Taylor's house collapsed and one day it collapsed on him too.
+
+And so the cycle repeated itself, and on and on...
+
+Mr Taylor was a hard worker and a hardy character. His family did all they could to keep him going, but then each time something bad would happen, he just couldn`t go on. It got too expensive. After five years he finally decided he didn`t want to try and fight the flood waters any more. So, he

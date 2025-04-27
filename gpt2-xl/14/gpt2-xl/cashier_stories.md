@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named Jim. (Jim, for short.)
+
+He didn't know where he came from. He didn't want to do any of the work he was supposed to be doing, for some reason, and he wasn't feeling up to it either. He'd had a little incident, years earlier. It just didn't feel right to bother the old lady (or woman, not that Jim believed in gender, anyway) with that damn thing, so he gave up, quit showing up to his job, and just faded into the background.
+
+There was his mother and father. Their family was fairly large, with four children and ten grandchildren. They all were pretty average in appearance, but everyone could tell Jim as soon as he walked in the door that this one guy would be different from the others. Jim didn't seem particularly interested in the work, but he did try hard not to look too disinterested or weird.
+
+His mother was always the one who looked out for him. She took care of him, of course. He was her baby boy, with no name and with no home of his own, but he was supposed to be the little guy, the sweet kid who was the favorite to win all the girl's affections. Jim was an average boy, but he was pretty cute. Really, it was her own mother's fault. Jim used to tell her things, sometimes all at once. Just to make

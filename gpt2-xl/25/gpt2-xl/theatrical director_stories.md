@@ -1,0 +1,7 @@
+Once upon a time, there was a theatrical director named Harry Belafonte. A brilliant comedian who had become famous through his work in television and movies. This actor/comedian/activist performed his famous monologues and acted for the New York City Ballet. In his earlier years, Harry Belafonte had a wife and a child. For the better part of four decades, he devoted his life to non-profit projects.
+
+Belafonte had a unique perspective on social change. He didn't see the world as a binary world; people are complicated individuals, they are not a collection of "rights" and "wrongs"; and there are no easy solutions.
+
+And yet, this is precisely how Donald J. Trump sees the world. Donald Trump is not just a serial philandering racist, sexist, xenophobic bigot. He is an actor too.
+
+Donald Trump does nothing but act. He has been acting for over two decades. A lot of people don't understand this. You know, the people who don't know Donald Trump. The people who "know" this woman, this woman's wife, who has taken a stand against Donald Trump, and they look her up on Google, and they say, "Oh, wow — that's really a brave woman." Well, the bravest thing to me would be to go down to Donald Trump's office, and shake his hand, and say, "I'm here on behalf of all

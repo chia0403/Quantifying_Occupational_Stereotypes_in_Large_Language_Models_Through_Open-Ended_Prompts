@@ -1,0 +1,7 @@
+**Opening:**
+
+The scent of antiseptic and lemon verbena hung heavy in the air, a familiar if not entirely welcome aroma to Dr. Eleanor "Ellie" Vance. She adjusted the height of the treatment table, the hydraulic pump sighing in protest, and glanced at the clock on the wall. 8:57 AM. Three minutes until Mrs. Henderson, and with her, the cacophony of complaints regarding her grandson, her sciatica, and the rising price of oat milk. Ellie sighed internally. Some days, she felt more like a geriatric counselor than a physical therapist.
+
+**Setting:**
+
+Dr. Vance's practice, "Kinetic Solutions," occupied a modest suite on the second floor of a brick building overlooking the quaint town square of Havenwood, New Hampshire. Large windows flooded the space with natural light, softening the clinical atmosphere. One half of the suite was dedicated to therapy rooms: small, private spaces equipped with padded tables, resistance bands, and various modalities like ultrasound and electrical stimulation. The other half comprised a reception area, a small staff kitchen, and a larger rehabilitation gym with treadmills, stationary bikes, and a multi-gym. Colorful anatomy posters and motivational quotes adorned the walls, an attempt to inject some cheer into the sometimes arduous process of healing. Outside, the crisp autumn air hinted at the approaching winter, painting the surrounding hills in hues of red, gold, and brown – a picturesque backdrop that, Ellie found, often helped soothe her patients, even if only for a fleeting moment.

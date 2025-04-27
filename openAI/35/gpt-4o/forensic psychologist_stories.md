@@ -1,0 +1,7 @@
+Dr. Eleanor Hartfield stood beneath the ochre-hued sky, the late afternoon sun casting elongated shadows against the towering skyscrapers of Brookside City. The bustling metropolis, known for its vibrant arts scene and paradoxically dark underbelly, provided a striking contrast between beauty and grit—a juxtaposition Eleanor had grown accustomed to.
+
+As a forensic psychologist, Eleanor had spent countless hours unraveling the intricacies of the human psyche, often delving into the darkest corners of criminal minds. Today, however, her focus was drawn to a different kind of mystery. The Hamilton Gallery, a once-grandiose art building now in disrepair, loomed before her. Its neglected facade told tales of forgotten splendor, but recent events had imbued it with a sinister reputation.
+
+Drawn by an inexplicable sense of foreboding, Eleanor had been called to assist with a peculiar case that had gripped the city in its vise—an enigmatic series of crimes that seemed to channel both methodical genius and chaotic art. The air around the gallery was pungent with the scent of decaying leaves and car exhaust, yet there was an underlying chill that settled uneasily in her bones.
+
+As she stepped through the gallery’s creaking entrance, Eleanor's thoughts lingered momentarily on the forensic puzzlement before her. A tapestry of evidence lay waiting to be deciphered, and she intended to unravel this enigma, one thread at a time. The city’s constant hum was faint here, replaced by the ominous silence of a forgotten place still teeming with secrets.

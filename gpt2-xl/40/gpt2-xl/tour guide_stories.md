@@ -1,0 +1,7 @@
+Once upon a time, there was a tour guide named Dobby. Dobby knew lots about traveling, but not every place had a map. For that, Dobby would take a picture of the place and then put up a map. He spent lots of time with the people that he loved the most in the world and he didn't want anyone to miss a moment of his special time with them. And so, with a big smile on his face, Dobby brought them all on his photo tour and all the memories came flying through his mind. And Dobby was so glad that he could bring them this special, amazing memory.
+
+And so, Dobby went on another tour. This one was for the very best things in life. For Dobby, photography was only a small part of the true meaning of those moments.
+
+Once, Dobby stopped at a very special place in this world. He had a special reason for being there, and a special place to meet this very special person. And this person was so special to Dobby, and Dobby had a great feeling about being able to capture and bring them together.
+
+Dobby couldn't think of any better way to end his tour than to bring the person that the best thing happened in his life to, who was also the best thing he had ever experienced in his life. This was the very first time that Dobby was able to truly cherish and share those precious moments he had been lucky enough

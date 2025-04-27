@@ -1,0 +1,3 @@
+The scent of chlorine hung thick in the air, mingling with the faint aroma of sunscreen and hot dogs grilling on the patio. Amelia "Amy" Beatrice Hawthorne, her blonde ponytail bouncing with each stride, surveyed the scene before her:  a gleaming pool shimmering under the August sun, manicured lawns stretching out like emerald carpets, and a sprawling two-story house that seemed to radiate Californian cool. 
+
+This wasn't just any open house. This was "The Oasis," perched on a bluff overlooking the Pacific Ocean in Malibu. The asking price? A hefty $5 million, but Amy knew it would fly off the shelves – especially with the kind of celebrity clientele she had cultivated over the years.  

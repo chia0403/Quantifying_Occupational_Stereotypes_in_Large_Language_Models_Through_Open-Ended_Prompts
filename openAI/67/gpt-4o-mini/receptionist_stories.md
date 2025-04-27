@@ -1,0 +1,9 @@
+**Title: The Whispering Walls**
+
+**Setting: An Old Victorian Hotel**
+
+The dimly lit lobby of The Evermore Hotel exuded an air of elegance, with its high ceilings adorned with intricate moldings and heavy velvet curtains draping down from arched windows. An ornate chandelier cast a warm glow, flickering slightly as if echoing the whispers of the past that lingered within the walls. The scent of polished wood and old books filled the air, accompanied by the faint sound of a grandfather clock ticking in the corner, each tick a reminder of the stories held captive in its timeworn frame.
+
+At the reception desk, a mahogany structure polished to a deep sheen, sat Penelope Marie Hargrove. Her neat bun and crisp white blouse framed her delicate features, while her round glasses perched on her nose gave her an air of studious charm. Penelope had worked at The Evermore for nearly a decade, her smile always ready as she greeted guests who came through the heavy oak doors. Despite the hotel's vintage allure, her heart felt heavy beneath the satin ribbons of her perfectly tied bow tie. There were secrets hidden within the walls of this establishment, and whispers that called to her, teasing her with mysteries that begged to be unraveled.
+
+As the clock chimed noon, signaling the arrival of new guests, Penelope fluttered the a stack of meticulously organized keys, feeling a familiar thrill run down her spine. Each key represented a new story, a new moment intersecting with her own life—a life bound by routine but yearning for the excitement of the unknown. Today, she sensed, was different. Something in the air crackled with anticipation, promising that the mundane would soon dissolve into something extraordinary.

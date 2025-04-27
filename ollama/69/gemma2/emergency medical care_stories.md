@@ -1,0 +1,8 @@
+The rain hammered on the ambulance roof like angry fists, the rhythmic pounding a counterpoint to the frantic beeping of the monitor strapped to Elias Finch's chest.  Elias, his forehead slick with sweat despite the chill radiating from the steel walls of the vehicle, adjusted the IV line snaking into the young woman beside him. Her name was Sarah, and she was barely clinging to consciousness. 
+
+"We're losing her vitals again, Finn!" barked a voice from behind the partition separating the patient compartment from the driver.  It belonged to Marcus "Finn" Finley, Elias's partner for the past five years, his gruff exterior a mask for a heart as big as Texas.  Finn wrestled the ambulance through the flooded city streets of New Orleans, dodging potholes and abandoned vehicles with practiced ease. The air inside was thick with the metallic tang of blood and the cloying scent of antiseptic.
+
+Elias glanced at Sarah's pale face illuminated by the flickering blue light of the monitor. "I'm running another dose of epinephrine, Finn," he muttered into his headset, his voice calm despite the urgency swirling within him.  "She's still going strong, but we need to get her to the hospital, and fast."
+
+
+The city outside was a blur of flashing lights and rain-slicked asphalt. Each bump in the road threatened to send Sarah further into the abyss, each second that ticked by felt like an eternity. Elias knew they were pushing their luck, battling against time and the elements, but he wouldn't give up on Sarah. He couldn't.  He was Elias Finch, a medic who held life and death in his hands every single day. 

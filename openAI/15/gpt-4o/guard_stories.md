@@ -1,0 +1,7 @@
+In the mist-laden dawn of the coastal village of Eldenmoor, the gulls cried their familiar morning hymn, echoing over the frothy waves that lapped at the worn stone docks. A briny sea breeze carried the scent of salt and promise, weaving through the narrow streets like an invisible thread stitching tales of old. 
+
+Standing sentinel at the village's western gate, where cobblestones met the first caress of the dense forest, was Callum Thorne, watchman of Eldenmoor. His silhouette was a steadfast shadow against the blooming hues of the sky, clad in a dark leather jerkin that bore the scars of many a skirmish. Despite the early hour, Callum's eyes, sharp as the twin daggers sheathed at his side, tracked every rustle in the underbrush and every hint of movement along the path that cut through the sprawling woods.
+
+Eldenmoor was a place of quiet mystery, perched on the border between land and sea, where myth danced just out of sight in the twilight hours. The village bore an air of timelessness, its old stone houses standing resolute against the test of countless storms, their thatched roofs sheltering stories passed through generations. 
+
+Callum Thorne, with his steady heart and unwavering resolve, was as much a part of this landscape as the ancient lighthouses that dotted the cliffs. A guard by title, but a guardian by nature, the trust of Eldenmoor lay firmly in his capable hands.

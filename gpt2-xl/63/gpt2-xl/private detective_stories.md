@@ -1,0 +1,7 @@
+Once upon a time, there was a private detective named "Spike" (H. Jon Benjamin). He didn't have superpowers or any superpowers at all. They got a new hire of theirs in episode 11, "Spike In The Den." They need a private detective to find a kidnapped child (played by an actor who just appeared on the show). In episode 12, "The Other Side" (H. Jon Benjamin and Eric Mabius), Spike gets to meet the kid's mother-in-law (guest star Michelle Forbes), who seems a little too familiar.
+
+2. In episode 2, called "The Good News," the kids have a special event of a teacher getting into trouble in class. The teacher's name is "Mr. Jenkins" (guest star Anthony Rapp, of course). The two kids decide this isn't good enough for the principal, so they decide they're going to tell the world something super amazing about the teacher's character that they made up.
+
+3. In the episode, titled "What We Know," the kids get super powerful. They learn that when they want something in the real world, they can take time out of the real world before the real world gives them what they want. They decide to take those resources-time and space-from their home so that they can do all of it in the real world.
+
+4. In the episode The Kids Are All Wrong, the kids all want

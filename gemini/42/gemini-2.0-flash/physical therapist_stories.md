@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting:
+
+**Setting:** The "Renew & Rebuild" Physical Therapy clinic, a bright, modern space in the heart of the bustling, quickly gentrifying neighborhood of Oakhaven in Portland, Oregon. Sunlight streams through the floor-to-ceiling windows, illuminating the polished wood floors and the various exercise equipment. The air hums with the quiet buzz of conversation, the whir of machines, and the scent of disinfectant mixed with a faint aroma of essential oils that Dr. Ramirez insisted helped with patient relaxation. The walls are decorated with inspirational posters featuring athletes overcoming adversity and anatomical diagrams of the musculoskeletal system.
+
+**Story Opening:**
+
+The persistent buzz of a text message vibrated against Dr. Eleanor Vivian Hayes’ thigh, drawing her attention away from the goniometer she was using to measure the range of motion in Mrs. Gable's newly replaced hip. “Just a sec, Mrs. Gable,” Eleanor said, her voice warm and professional, the kind of voice she’d cultivated over years of practice, a voice that instilled confidence and calm even when someone’s knee felt like it was trying to escape its socket. "Probably just my sister reminding me about dinner…again."
+
+Eleanor reached into the pocket of her khaki slacks and pulled out her phone. Her smile faltered as she read the message. It wasn't her sister. It was a new client referral. That was good. Except this one came with a caveat: *VIP Patient. Urgent consultation requested. Needs discretion. Call ASAP.* The sender ID was blocked. Eleanor felt a knot tighten in her stomach. VIP usually meant complicated, demanding, and with a side of unrealistic expectations. Discretion? That meant keeping secrets. And Eleanor had learned, the hard way, that secrets were usually the most damaging injuries of all.

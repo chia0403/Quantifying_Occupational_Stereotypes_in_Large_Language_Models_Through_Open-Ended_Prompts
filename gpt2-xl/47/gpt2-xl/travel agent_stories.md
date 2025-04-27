@@ -1,0 +1,7 @@
+Once upon a time, there was a travel agent named Terry, who was willing to go to the very top of the mountain to help you find the "highest" mountains in the world. Well, that is, if the travel agent would only make Terry rich while you were in his very comfortable bed and breakfast.
+
+But this was not a case of a fly-by-night travel agent. Nowadays, it's all about the travel agent you keep and your loyalty is to Terry. Terry knows the places to find, the history to know, and the best routes to take if you want to escape to some other planet. When an adventurer asks Terry for help – it's not just about a quick trip as some might think.
+
+However, you'll need to understand your travel agent. Before you start searching out their services, you'll need to figure out what kind of relationship they had with their former manager, and whether they actually know anything about any of the places they're recommending. As the name of the game is loyalty, you won't want to trust a travel agent with too many people and too little information.
+
+As you'll see, you will have to use a variety of different means to get this kind of help, be it scouring forums, mailing lists, or even just going door-to-door, to tell your traveler, "Hey, I want somewhere to go and stay for the night. I want my money, I need an address

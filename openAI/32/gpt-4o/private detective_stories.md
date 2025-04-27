@@ -1,0 +1,7 @@
+In the heart of a city that never slept, where the rhythm of footsteps echoed through the rain-soaked alleyways, the neon lights flickered above an entrance that had seen better days. The sign read "Elliott West, Private Investigator" in faded gold lettering. Inside, Elliott himself leaned back in his creaky leather chair, the shadows of the venetian blinds casting stripes across his face. 
+
+It was a modest office tucked away above a bustling noodle shop in the Chinatown district. The scent of soy and ginger wafted in through the open window, mingling with the ever-present hum of traffic. Time seemed to hold its breath here, caught between the whispers of old secrets and the relentless pursuit of truth. 
+
+Elliott West, with his sharp gray eyes and a trench coat that had become a second skin, glanced at the cluttered desk where folders piled up like small, neglected mountains. The walls were adorned with black-and-white photographs of a city in various shades of mystery, their stories unraveling in silent testimony. 
+
+Outside, the rain began to patter softly, a calming mantra against the clamor of life beyond. And as the clock ticked steadily in the corner, Elliott knew that somewhere out there, in the sprawling labyrinth of concrete and dreams, a story awaited its ending, and only he could see it through.

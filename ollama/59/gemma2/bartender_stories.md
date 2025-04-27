@@ -1,0 +1,5 @@
+The amber glow of the Edison bulbs cast long, dancing shadows across the polished mahogany bar. A haze of cigarette smoke hung in the air, thick with the scent of stale beer and regret. This was "The Last Call", a dive bar nestled on a forgotten side street in New Orleans, where secrets were whispered louder than laughter and the only constant was change. 
+
+At the heart of this swirling chaos stood Evelyn Amelia Dubois, her name barely visible on the worn brass nameplate tucked beneath a chipped glass display case overflowing with dusty liquor bottles.  Known simply as "Evie" by regulars who'd seen her through more broken hearts and bruised souls than she cared to remember, she moved with a practiced grace, deftly pouring shots of whiskey and stirring cocktails with the precision of a seasoned surgeon. Her gaze, however, was sharp, observant, taking in every twitch of an eyebrow and spilled word like a detective reading a room. Evie knew her patrons - their stories, their dreams, and their demons - better than they knew themselves.  And tonight, she sensed something was different. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a theatrical director named John Williams, whose first major film was King Kong. During the making of this movie, a special effects guru named George Lucas had decided to make his own movie. The director, whose films had always been about the action on the set, decided to create a world in which the people would actually live their imaginary lives.
+
+He was inspired by the Japanese animated films that he had watched as a boy. With his help, Lucas built a series of interconnected worlds. The first was Tatooine, and the second was the "galaxy", named Yavin. The "galaxy" was the basis for Skywalker's desert planet Coruscant, the home of the Jedi and their hidden temple, the Jedi Temple. Yavin was also where Mace Windu, the leader of the Jedi, trained.
+
+It wasn't so long before Lucas was creating other worlds. He wanted a world for Luke to come to where the young hero could learn advanced fighting techniques in preparation for coming to his death. So he started a second movie titled, Star Wars.
+
+The creation of other worlds proved to be the key to creating the mythos of Lucas' galaxy. That way he could keep all of his stories and all of his sequels within a single universe. This allowed him to create a sort of Star Wars version of the Harry Potter books and movies. There were a few other people involved in the creation of the universe, including Steven

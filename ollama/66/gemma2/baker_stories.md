@@ -1,0 +1,5 @@
+The air hung thick with the scent of yeast and sugar, a comforting warmth radiating from the brick oven at the heart of Amelia Celeste's bakery. Sunlight streamed through the dusty windows, illuminating rows of glistening pastries cooling on racks: crusty baguettes, delicate éclairs, and plump cinnamon rolls oozing molten caramel. Outside, the cobblestone streets of Provence buzzed with the midday heat, but inside "Le Goût Sucré," Amelia's world was a haven of sweet simplicity. 
+
+Amelia, flour dusting her apron like a soft snowfall, kneaded dough with practiced ease, her movements rhythmic and precise. She hummed a cheerful tune, her auburn braid bouncing against her back as she worked. It wasn't always this peaceful.  Since the accident, whispers had followed Amelia like stray smoke, clinging to her bakery, coloring her every interaction with hushed tones and wary glances. Today, however, all Amelia could hear was the comforting thud of dough against wood, a soothing rhythm that grounded her in the present moment, far away from the shadows of the past. 
+
+

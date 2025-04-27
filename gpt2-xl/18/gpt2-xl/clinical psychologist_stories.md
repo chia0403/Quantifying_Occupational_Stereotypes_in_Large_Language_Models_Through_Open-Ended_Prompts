@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Charles Hallum—a man known as "the first psychiatrist to be prosecuted for violating the Mann Act." Hallum was part of an elite clinic at Johns Hopkins that focused on lobotomies and other bizarre techniques. As the New Yorker described in 2013:
+
+Hallum was the patient-murdering doctor. His office at Hopkins looked like a boarding-school room: The windows and door had thick glass panels over their panes so that a patient could see into his room, though the doctor was otherwise invisible.
+
+When Hallum ordered an execution in 1954, the state of Minnesota sued him, arguing that he was violating the federal Mann Act. The Mann Act makes it a crime for psychiatrists to perform the "offering or payment for the death of, or the attempted or actual execution, by lethal injection, of another human being in the course of an experiment, treatment or treatment procedure."
+
+In the 1970s, a federal court ruled that Hallum could not be prosecuted under the law, because if he'd sold drugs to a criminal or had a criminal kill someone, then that was murder. But the Mann Act still exists, and in 2010, a Maryland physician was still facing charges for performing the Mann Act—on the same patient he'd attempted the first federal execution, a woman named Sarah Marshall. She'd been convicted of attempted murder of a doctor, and he'd been convicted of murder for trying to perform

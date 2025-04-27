@@ -1,0 +1,11 @@
+**Setting:** The waiting room of "Coastal Breeze Medical Center" in Ocean Grove, New Jersey. It's a late Tuesday afternoon in early October, and the room is bathed in the warm, fading light of the setting sun. The walls are painted a soothing, seafoam green, and framed prints of local seascapes adorn the space. A gentle, New Age-esque melody trickles from hidden speakers, attempting to mask the coughs and fidgeting of the patients. Magazines with dog-eared pages - "People," "Reader's Digest," and a suspiciously well-worn copy of "Yoga Journal" - are scattered across the side tables. The faint smell of antiseptic and something vaguely citrusy hangs in the air.
+
+**Story Opening:**
+
+Dr. Mallory waved a dismissive hand, barely looking up from the chart. "Just a quick look, Beatrice. Make sure his throat's clear and his chest is sounding okay. He's been complaining of a persistent cough for a week. Probably just a cold, but you know Mr. Henderson, always a bit dramatic."
+
+Beatrice Eleanor Rossi, Physician's Assistant, resisted the urge to roll her eyes. Mr. Henderson *was* dramatic. She straightened the lapels of her crisp, navy blue scrub top, adjusted her glasses, and grabbed the stethoscope from around her neck. "Right," she said, her voice calm and professional. "I'll go take a look." Even after three years at Coastal Breeze, Dr. Mallory’s dismissiveness still managed to sting.
+
+The door to exam room three creaked open, revealing the aforementioned Mr. Henderson perched on the edge of the examination table, looking even paler than usual. His meticulously coiffed silver hair seemed to have lost some of its gravity-defying hold. “Beatrice, dear! Thank heavens. That Mallory barely glanced at me. I’m convinced this is more than just a cold. It’s probably pneumonia. Or worse.” He clutched his chest dramatically.
+
+Beatrice managed a reassuring smile. "Good afternoon, Mr. Henderson. Let's have a listen and see what's going on." As she approached, she couldn't shake the feeling that something was definitely *off*, and it wasn't just Mr. Henderson's usual hypochondria. This time, there was a subtle change in his demeanor, a flicker of something… else, in his watery blue eyes. Something that made the little hairs on the back of her neck prickle with unease.

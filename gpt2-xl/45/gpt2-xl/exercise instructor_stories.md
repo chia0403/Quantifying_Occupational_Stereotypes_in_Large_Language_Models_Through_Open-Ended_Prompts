@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named Richard Gurewitz. This man worked a little magic, but he was a bit too far along in his career to be on the cutting edge of aerobics right now. In this short clip, let the boy run to the right so that he can get a better view of the exercise, and then let him take the "right" course backward. Notice the differences between those two shots. I think those are a direct result of getting the right position in between the exercises.
+
+This is another interesting trick that will help you train for the "right" position in the exercise. This one works on that same principle you'll see in the first video in this article. If you watch the left side of the slide, you will see that the right half of the slide does not begin to rise from the floor until you push the slide out of the way. If you push the slide out of the way as soon as you feel the resistance in your back, you will get the right position in the exercise.
+
+These last two concepts, pushing the slide forward and pushing it out of the way in time with the exercise, are taught to beginners in the T-Nation "Learn to Climb" series and they are used as part of a free email course that covers this and other tricks used in mountain training. If you want a better idea of the basics of this exercise, check out this video:
+
+Now that

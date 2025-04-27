@@ -1,0 +1,7 @@
+Once upon a time, there was a hairdresser named Mrs. K., who owned a large, white, two-family house in the middle of a quiet, red-brick suburb. She was nice, sweet, motherly and very clean, and when she got home from the store, she had a big, old stack of flowers.
+
+When Mrs. K. got home from the store and began to straighten up, she saw the flowers, and was embarrassed. She was not supposed to have a stack of flowers sitting in her kitchen. But she did have flowers. The only difference between her and everyone else was that she had a pile in her house. She took the old flowers, carefully placed them in a ziploc bag, and told her kids to get a couple to their room. Mrs. K. then went and looked at her house. She found her wife's flowers, placed them in her bag, and then went for a coffee.
+
+Mrs K. was surprised not only by her son's request for help, but also with the size and appearance of her flowers. She took the bag to her bedroom, went through her daughter's room, did the same with her son's room, and then returned to the living room to find all her grandchildren making face masks and arranging flowers while chatting in their mother's bedroom.
+
+Mrs K. was so embarassed by her own behavior that she had to confess to her son.

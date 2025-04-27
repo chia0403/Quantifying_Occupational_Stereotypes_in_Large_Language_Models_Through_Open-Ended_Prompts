@@ -1,0 +1,6 @@
+The air hung thick with the scent of jasmine and lavender, a familiar balm against the simmering anxieties bubbling just beneath the surface of Eliza Beauregard's skin. She ran a practiced hand over a shelf laden with iridescent eyeshadow palettes, their colours catching the afternoon light filtering through the dusty windowpanes. The bell above the door jingled, announcing another customer to her haven, "Beauregard's Beauty & Bespoke." 
+
+Eliza inhaled deeply, trying to quell the nervous flutter in her chest. Today was the day. The day she would finally unveil her latest creation – a revolutionary hair dye formulated with rare botanicals and whispered secrets gleaned from her grandmother's grimoire of forgotten remedies. A colour that promised not just to change your shade, but to illuminate the soul beneath. But what if it failed? What if the whispers were mere windblown fancies, and the colour only brought disappointment instead of revelation?  
+
+
+The bell chimed again, interrupting Eliza's spiraling thoughts. She plastered on a smile as warm as the honey she used in her signature hair mask. A woman with weary eyes and hair as drab as a winter storm stood hesitantly in the doorway. 

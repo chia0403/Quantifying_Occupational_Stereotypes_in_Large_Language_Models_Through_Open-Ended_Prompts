@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting with a bellhop as the main character, including their full name:
+
+**Setting:**
+
+The opulent lobby of the Grand Astoria Hotel in 1938 New York City. Chandeliers dripped with shimmering crystals, casting a warm glow on the polished marble floors. The air buzzed with the murmur of hushed conversations, the clinking of champagne glasses, and the lilting melodies of a live jazz band playing softly in the background. Red velvet ropes sectioned off areas for the impeccably dressed guests, and potted palms stood like silent sentinels, adding a touch of tropical elegance to the art deco grandeur. Outside, a perpetual cacophony of car horns and street vendors formed a constant backdrop, a reminder of the relentless energy of the city that never sleeps.
+
+**Story Opening:**
+
+Dust motes danced in the slivers of sunlight that pierced through the heavy velvet curtains of the Grand Astoria's revolving doors. **Bartholomew "Bart" Finch**, his neatly pressed bellhop uniform a stark contrast to the lavish surroundings, leaned against a gilded pillar, trying to appear both attentive and nonchalant. He'd been polishing his shoes to a mirror shine for what felt like hours, trying to distract himself from the gnawing anxiety in his stomach. The arrival of Madame Evangeline Dubois, the reclusive opera diva rumored to travel with a trunk full of jewels and a temper to match, was imminent. Every bellhop in the Astoria was vying for the chance to assist her, a single tip from the diva could set a man up for a month. Bart, barely a year out of orphanage and desperate to prove himself, knew this was his chance to move up in the world, or be crushed beneath its gilded wheels. He straightened his back, adjusted his cap, and prayed Madame Dubois would arrive sooner rather than later, before his nerves finally got the better of him. He could handle this. He had to. He was Bart Finch, and tonight, the Grand Astoria was his stage.

@@ -1,0 +1,6 @@
+The pre-dawn air clung to Amelia "Amy" Beatrice Blackwood like a damp blanket, each inhale tasting of diesel and dew-soaked earth. She squinted at the sunrise bleeding over the horizon, a smear of orange and purple against the steel-grey sky. The whine of cicadas had just begun its insistent morning chorus, punctuated by the distant rumble of trucks hauling gravel along Highway 19.
+
+Amy ran her gloved hand down the worn leather seat of her Caterpillar D7 bulldozer. Its familiar contours were a second skin to her, each creak and groan a lullaby from years of shared toil. She checked the gauges one last time – engine temperature, fuel level, hydraulic pressure – all green lights in the symphony of her machine. Today was no ordinary day. Today they were starting on the final stretch of Highway 32, a project that had spanned months, demanding every ounce of their sweat and grit. 
+
+
+The setting sun cast long shadows across the dusty construction site, turning familiar outlines into phantoms. Cranes loomed like skeletal giants against the fiery sky, their metal limbs twitching with mechanical life. The air vibrated with the rhythmic thrumming of machinery – excavators chomping at the earth, dump trucks groaning under the weight of excavated soil, and the constant, comforting growl of Amy’s trusty D7. 

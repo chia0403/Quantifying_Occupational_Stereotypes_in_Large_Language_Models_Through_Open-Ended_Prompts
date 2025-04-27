@@ -1,0 +1,7 @@
+Once upon a time, there was a tailor named Jack. Jack lived in a small town where he was the mayor, town selectman, and a lawyer, all at the same time. Jack was also married, and had lots of friends. The townspeople called him "the King's tailor," for he was a tailor to kings and queens, and to the royal family of England. In addition to his role as mayor, selectman, lawyer, and tailor, Jack was a minister and a very famous poet.
+
+
+One day, while Jack strolled with his wife down the street, he was approached by a young boy, who begged Jack to take care of his brother who was very ill. After telling the boy that he already took care of him, Jack gave him some linen to wear in case the boy was unable to keep his clothes clean. As Jack walked away, the boy fell to his knees asking him for more. Jack paused, and then returned to his wife and a few others. Jack pondered at this and decided to teach the boy a lesson. He told the boy that he had a brother who wanted to do something bad, something which would ruin people and ruin his own reputation (since he was a man of high repute).
+
+
+Jack took his son from his wife and told him to lie face up on the ground in the grass while he took a knife out of his coat, tied the boy's hands behind his back, and then chopped off

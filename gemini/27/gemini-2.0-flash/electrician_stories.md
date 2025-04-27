@@ -1,0 +1,5 @@
+## Story Opening:
+
+The smell of burnt copper hung thick in the air, a metallic tang that clung to the back of Eleanor "Ellie" Reyes' throat. Outside, the Louisiana summer was a relentless blanket of heat and humidity, but inside the abandoned sugar mill, it was a different kind of suffocating – a darkness that had settled deep into the brick and mortar over decades of disuse. Ellie, her brow slick with sweat under the grime of dust and rust, ran a gloved hand over the skeletal remains of a massive, defunct generator. 
+
+A low groan echoed through the cavernous space, not a mechanical sound, but the unsettling creak of rotting wood shifting under its own weight. Ellie Reyes, electrician by trade and history enthusiast by obsession, shivered, despite the heat. This place, once a symbol of booming industry and back-breaking labor, now felt like a mausoleum, haunted by the ghosts of a prosperity long gone. And something else... something more than just history clung to the stagnant air, a prickle of unease that had been dogging her since she'd first stepped inside.

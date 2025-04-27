@@ -1,0 +1,6 @@
+The flickering oil lamps cast long shadows that danced across the cobblestones, making the guardsmen’s already imposing forms seem even larger and more menacing.  A biting wind whipped through the narrow alleyways of Duskhaven, carrying with it the stench of brine and rotting fish from the nearby harbor. Elara Nightsong shivered in her thick woolen cloak, its crimson lining barely visible beneath the layers of steel she wore. 
+
+She adjusted the weight of her halberd on her shoulder, the leather straps chafing against her skin.  Her breath puffed out in white clouds that were quickly snatched away by the relentless wind. The constant patrol was a monotonous affair, but Elara had learned to find solace in its predictability. Tonight, however, a disquieting unease settled over her. It wasn’t the familiar prickling of danger that came with patrolling the lower city; it was something deeper, a sense of foreboding that clung to her like the damp fog rolling in from the sea. 
+
+
+Duskhaven, with its bustling market squares and labyrinthine alleyways, was usually alive with activity, even at this late hour. But tonight, an unsettling stillness hung over the city. The usual raucous laughter from the taverns was muted, replaced by hushed whispers that seemed to echo off the ancient stone walls.  

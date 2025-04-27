@@ -1,0 +1,6 @@
+The scent of bay rum and talcum powder hung thick in the air, a familiar comfort to Elias “Eli” Cartwright as he swept the stray hairs from the barbershop floor. He whistled a jaunty tune, his worn leather apron dusted with flour – a byproduct of Mrs. Henderson's infamous homemade beard conditioner. Outside, the bustling marketplace of Oldtown throbbed with the sounds of bartering and laughter, a stark contrast to the quiet intimacy Eli had cultivated within his shop. Sunlight streamed through the dusty windowpanes, illuminating the worn mahogany shelves holding gleaming razors, antique combs, and jars filled with colorful hair oils.  
+
+Eli loved this time of day – the lull before the lunchtime rush when the only company he kept was the gentle tick-tock of the grandfather clock in the corner and the faint hum of the city beyond his door. He paused, a smile tugging at his lips as he remembered the face of the young boy who’d just left – wide-eyed with wonder at his freshly trimmed hair, clutching his father's hand tight. 
+
+
+These were the moments that made Eli cherish this life, his haven amidst the chaos.  He straightened his worn necktie and prepared for the familiar flurry of customers soon to fill his little world.

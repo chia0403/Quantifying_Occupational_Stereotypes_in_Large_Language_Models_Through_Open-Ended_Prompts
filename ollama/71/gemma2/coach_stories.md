@@ -1,0 +1,5 @@
+The humid Georgia air hung thick and heavy over the baseball diamond, the smell of freshly cut grass battling with the faint tang of sweat and sunscreen.  Coach Amelia "Amy" Blackwood stood on the worn third base line, her clipboard clutched in one hand, the other subconsciously adjusting her faded Cardinals cap. The late afternoon sun beat down, turning her skin a shade darker than usual, but she didn't mind. There was something about this time of day, that golden hour just before sunset, when the world seemed to hold its breath, waiting for the magic to happen.  
+
+Amy scanned the faces of her team, the Riverbend Rebels, a ragtag group of teenagers with more heart than talent, at least according to the pundits. But Amy saw something special in them, a spark that couldn't be measured by win-loss records. She believed in them, even when they doubted themselves, and sometimes, that belief was all it took to make the impossible possible.  Today, facing off against their arch-rivals, the undefeated Blue Ridge Bombers, seemed like one of those impossible days. But Amy Blackwood never backed down from a challenge. 
+
+

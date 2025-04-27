@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named Jesse James, or James, as everyone in Texas calls him. "I was a country boy, with no ambitions," he recalls. "Why would you want to go live in the city? And that attitude really got me into trouble. I always had that big nose in my head, and when my nose got bigger, I always had to pay for it. No one ever paid me. Even before I was caught, the sheriff put me behind bars like the worst criminal, a killer. Nobody paid me enough to do something so stupid and stupid. I was scared, but they told me there was no room for me in the life of a country boy."
+
+James's mother ran away with James Jr., his older brother, from their home in Texas. Jesse's father and two uncles were already dead, so Jesse's mother took care of her younger son, who was then 10 years old. "I knew him better than my own parents," James says. "At that age, there was nothing better for him to play with as a kid, to keep his spirits up."
+
+Jesse's mother wasn't pleased with Jesse's job. She wanted him to finish high school and go off to college. "I told her, 'You can't have a son out there running around naked and drinking beer."' After that, "She had a new son."
+
+And so a young man named James,

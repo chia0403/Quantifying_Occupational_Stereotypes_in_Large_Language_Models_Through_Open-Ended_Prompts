@@ -1,0 +1,7 @@
+Once upon a time, there was a hairdresser named Bucky Brody.
+
+In the modern world, Bucky's work and career have been ruined. He suffers from schizophrenia, is now homeless, and was convicted of a number of crimes, including rape, murder, assault with a gun, robbery, and obstruction of justice. Although he has always shown great promise in his work and studies (especially music), he also continues to suffer from manic episodes in which he attempts to commit violence, and he is sometimes forced to wear a mental hospital bracelet.
+
+Since that day, Bucky has tried to seek vengeance against various villains, such as the Red Skull, Doctor Doom, and his former self. However, the villains he has slain have been either redeemed or dead. Even his former self has become a successful businessman, although his methods are often at odds with his good intentions.
+
+Recently, one of the many new villains to have been created by Howard the Duck and his associates, the Black Knight, has taken it upon himself to hunt Bucky. He is trying to track down Bucky's former girlfriend, the "vivid green vampire" Angela, who was a runaway after she was possessed by the demon Baba Yaga. Black Knight has killed numerous henchmen in his pursuit of Angela, including Daredevil and Ghost Rider. He and a few of his friends, including the Wizard and the Hood, continue to fight Bucky in all attempts they make against

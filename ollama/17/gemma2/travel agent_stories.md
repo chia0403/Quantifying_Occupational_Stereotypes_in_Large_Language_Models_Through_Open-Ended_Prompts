@@ -1,0 +1,5 @@
+The aroma of jasmine tea hung heavy in the air, mingling with the faint scent of overripe mango from the fruit bowl on Amelia Beatrice Prescott’s desk. Sunlight slanted through the blinds, casting stripes across the worn laminate floorboards of her tiny office, "Amelia's Adventures," nestled deep within a bustling San Francisco alleyway. The city hummed outside, a symphony of car horns, street vendors hawking their wares, and the distant wail of a siren. But inside Amelia’s world, it was quiet, except for the rhythmic tapping of her keyboard as she meticulously crafted a bespoke itinerary for a client yearning to explore the ancient temples of Angkor Wat.
+
+Amelia, with her unruly auburn curls perpetually escaping their braid, dreamt of faraway lands just as much as her clients. While the vibrant tapestry of San Francisco filled her days, her nights were spent pouring over travel blogs, atlases, and dog-eared guidebooks, devouring every detail about cultures, cuisines, and hidden gems waiting to be discovered. Today, though, a new client was calling – someone with an unusual request that promised to whisk Amelia away from the familiar and into the unknown. 
+
+

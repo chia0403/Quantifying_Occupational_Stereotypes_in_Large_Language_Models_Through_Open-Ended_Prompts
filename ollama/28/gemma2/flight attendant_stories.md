@@ -1,0 +1,6 @@
+The stale air hung heavy in the aisle as Amelia Beatrice Finch expertly maneuvered between rows of slumbering passengers. A faint hum from the airplane's engines resonated through her bones, a familiar lullaby on a route she knew by heart: London Heathrow to JFK. It was 3 AM, the witching hour for air travel, and most of the economy class had succumbed to a drugged stupor induced by cheap wine and recycled cabin air. Amelia preferred this time – a hushed serenity settling over the plane as it sliced through the inky blackness above the Atlantic.  
+
+Her reflection flickered in the overhead compartment window – tired eyes shadowed with concern, framed by a mass of unruly dark curls pulled back into a loose bun. A faint flicker of annoyance crossed her face as she caught sight of a rogue strand escaping, defying gravity and falling across her forehead. 
+
+
+It was just another night for Amelia, another flight filled with the mundane rituals of serving drinks, distributing headphones, and soothing turbulence-induced anxieties. But tonight felt different. A prickle of unease danced on the edge of her awareness, a disquieting sense that something out of place was about to disrupt their journey. 

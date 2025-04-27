@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named Mary Aiken, who was married to a dentist named Richard Aiken, with three children. (There's also another Richard Aiken.) She had never worked in the emergency room before he died in 1993. She was an outstanding person and her husband was a wonderful husband, but he had also been a registered nurse for many years. When I saw Mary on the emergency room floor, I was struck by a powerful look in her eye. I asked her if she had ever wondered why she always looked so surprised when she saw something happening to a patient. She looked at me with surprise to see my surprise and she said, "Because I am too busy trying to save their lives to pay attention to anything else."
+
+
+It makes sense for a nurse, like Mary, to focus on saving a patient's life while also seeing to other things. It's good for the nurse if she is doing this. But it could be a recipe for disaster if a person does this for themself on a regular basis. Then a person's focus can become all-pervasive and it can affect everything else in their life. If that's the case, their life could be on the line.
+
+
+We tend to think that doctors have all the time in the world to practice medicine and have lots of time for everything else. But with all of the demands being placed on medical professionals today, physicians could be under all of the stresses possible, while

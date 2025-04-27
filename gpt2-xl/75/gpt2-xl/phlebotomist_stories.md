@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named Mr. Dobbins who developed a device with which to grow an artificial penis. It did not function as Mr. Dobbins had hoped; in later years his partner and fellow scientist Mr. Haddock developed a similar device to increase the size of a penis without the need of external sources of artificial growth hormones. The invention was never commercialized and remains the one thing Mr. Dobbins will never disclose to the public. In a recent court action, he took the position that his invention was not patentable. To this day Mr. Dobbins has never told anyone anything about the origins of his invention."
+
+– Michael A. Levenson, "How much is a penis worth? – A Guide to Penile Value"
+
+The Dobbins device was designed to cause a penis to swell up so large that it completely encased itself in a protective shell over the urinary stream. The penile shell was designed to restrict the blood flow out of the penis, forcing the penis to have a constant flow of urine. This system of "protection" meant that the penis could either grow up slowly from its precancerous state or suddenly inflate when in its natural pre cancerous state, with no risk of any complications since the penis was protected completely by the shell.
+
+Dobbins could simply apply the Dobbins pressure when the urine stream came through his penis and his device had

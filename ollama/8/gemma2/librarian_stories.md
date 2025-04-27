@@ -1,0 +1,6 @@
+The scent of aged paper and beeswax clung to Amelia Thistlewick like a second skin. She inhaled deeply, savoring the comforting aroma as she straightened the spines of Victorian poetry volumes on Shelf 3B. The air in the Oakhaven Library was perpetually hushed, broken only by the rustle of turning pages and the occasional click of a typewriter from Mr. Fitzwilliam’s secluded corner. Sunlight streamed through the arched windows, illuminating dust motes dancing in golden swirls above the oak-paneled walls lined with bookshelves that reached towards the vaulted ceiling.
+
+Amelia loved this place. She loved the whispered secrets held within the pages of forgotten tales, the tangible history etched onto brittle parchment, and the quiet companionship of countless silent souls who lived on through their words. It was a sanctuary, a refuge from the bustling town outside, where she could lose herself in the boundless realms of imagination. 
+
+
+Oakhaven Library itself was an architectural marvel, a testament to the town’s rich history and its commitment to knowledge. Built in the early 19th century, it had weathered storms and time with grace, retaining its original charm despite decades of use. Its sturdy oak doors, etched with intricate carvings, stood as a sentinel at the entrance to this world of stories.  

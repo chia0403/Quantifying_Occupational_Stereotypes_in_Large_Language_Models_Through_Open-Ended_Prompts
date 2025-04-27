@@ -1,0 +1,11 @@
+## Story Opening:
+
+The antiseptic sting of surgical scrub barely registered anymore. Dr. Anya Petrova, Chief of Cardiothoracic Surgery at St. Jude's Mercy Hospital, had become so accustomed to the ritual, the sharp scent was now as mundane as the lukewarm coffee in the hospital cafeteria. She stared at her reflection in the polished steel of the scrub sink, her own eyes, framed by a tight, practical braid, reflecting the cold, fluorescent lights. A network of fine lines etched around their corners hinted at sleepless nights and the constant, quiet weight of responsibility. Today was no different.
+
+Before her lay a young life teetering on the precipice. Ten-year-old Leo Maxwell, admitted just hours ago after a catastrophic car accident, had suffered a ruptured aorta. His vitals were unstable, his chances slim. Anya knew the odds, understood the bleakness of the situation, but her hands, as always, were steady, her resolve absolute. She would fight for him. She always did.
+
+She took a deep breath, the faint metallic tang of blood already lingering in the air – a phantom smell, a constant reminder of the battleground she was about to enter. Turning from the mirror, Anya strode towards Operating Room 3, the double doors hissing open to reveal the hushed anticipation of the surgical team.
+
+## Setting:
+
+**Setting:** St. Jude's Mercy Hospital, a large, modern medical complex located in the heart of Chicago. The hospital is renowned for its cutting-edge technology and its team of highly skilled specialists. The operating rooms are state-of-the-art, equipped with the latest diagnostic and surgical equipment. The atmosphere is a constant hum of activity, a blend of quiet competence and the ever-present urgency of life-and-death situations. Outside the sterile confines of the OR, the hospital bustles with the anxious energy of waiting families, the determined strides of doctors and nurses, and the rhythmic beep of medical machinery. The city skyline, visible through the large panoramic windows in the upper floors, serves as a constant reminder of the vibrant, bustling life that exists just beyond the hospital walls, a life that Anya Petrova is dedicated to preserving, one patient at a time.

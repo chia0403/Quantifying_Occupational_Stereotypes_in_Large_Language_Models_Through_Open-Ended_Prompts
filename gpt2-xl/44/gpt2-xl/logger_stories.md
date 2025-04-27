@@ -1,0 +1,7 @@
+Once upon a time, there was a logger named Joe. Joe's job was to catch and kill birds. He used logs, not nets, to catch birds because he didn't like the taste of nettles. The problem was, he was eating too much of it and was suffering from health problems, so he had to eat less and fewer of it. The problem was solved by the invention of net traps. Net traps kill, not eat, insects (and they do so safely). As a bonus, net traps also produce a great amount of useful stuff like nets, nets, nets.
+
+Of course, Joe is dead now – he was trapped out of a job and replaced by someone who enjoys collecting nettles and collecting insects. Who is Joe's successor? The answer is, nobody. That's why Joe's successor is called the insecticide. The insecticide is called DDT, and it has eliminated so much nettles, birds and mosquitoes that there are none left to hunt. How is this possible?
+
+Because DDT doesn't eat. It doesn't stop eating, but it stops making enough poison to live at all. The poison produced by a single mosquito is only a few parts per billion. That's roughly 1.6 calories of poison. This isn't too dangerous – it causes you to get sick but it doesn't kill you. But for all that poison, one mosquito can kill a dozen people.
+
+Insecticides were used

@@ -1,0 +1,4 @@
+The air hung thick with antiseptic and the hushed whispers of worried family members.  Rain lashed against the windows of operating room 3, blurring the cityscape into a watercolor wash of neon greens and fiery oranges. Dr. Eleanor Vance adjusted her surgical mask, her gaze fixed on the screen displaying the beating heart before her. The rhythmic pulse was a counterpoint to the anxious thrumming in her own chest. This wasn't just any surgery; this was for ten-year-old Lily, the daughter of one of the hospital's nurses, her tiny form pallid beneath the surgical sheets.  Eleanor took a deep breath, steeling herself. Every stitch, every incision, held the weight of a child's future. Tonight, she wasn't just a surgeon; she was a beacon of hope in a storm. 
+
+
+The setting is a bustling city hospital, specifically operating room 3, on a stormy night.  

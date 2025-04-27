@@ -1,0 +1,4 @@
+The humid Miami air clung to Eleanor "Ellie" Valencia like a second skin as she stepped out of her trendy Wynwood office. The vibrant murals that adorned the building walls seemed to pulsate with the city's energy, a stark contrast to the quiet calm Ellie sought within her own workspace. She adjusted her wide-brimmed hat, shielding her eyes from the midday sun, and glanced down at her phone. A text flashed across the screen: "Urgent meeting, 3pm. Be there." It was from her boss, demanding yet again that she prioritize his health over all else. Ellie sighed. While she loved helping people through nutrition, sometimes the demands of being a celebrity nutritionist felt more like performing than practicing.
+
+
+The setting is vibrant and diverse Wynwood district in Miami, Florida - known for its street art, trendy cafes, and upscale restaurants. 

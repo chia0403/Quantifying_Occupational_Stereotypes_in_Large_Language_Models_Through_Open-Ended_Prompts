@@ -1,0 +1,6 @@
+The air in the Grand Majestic Hotel hung thick with the scent of lilies and regret. Elijah Bartholomew "Eli" Blackwood, his starched white uniform gleaming under the dim lobby chandelier, carefully maneuvered a cart laden with luggage through the throng of departing guests. His name tag, pinned crookedly on his chest, seemed to mock him with its cheery 'Welcome'. 
+
+Eli knew nothing about welcome these days. He'd seen more farewells than welcomes in the last six months, each departure leaving another hollow space in the grand lobby, another vacant room echoing with unspoken stories. The war had drained the city of its vibrancy, leaving behind a hushed melancholy that clung to everything like smoke. Even the clink of his cart wheels against the polished marble floor seemed muted, a whisper instead of a declaration. 
+
+
+The setting sun cast long shadows through the stained-glass windows, painting the lobby in hues of faded grandeur. The ornate clock above the grand staircase ticked relentlessly, each chime a reminder of time slipping away, just like hope. Eli's gaze lingered on a young couple embracing before disappearing into the swirling throng. They were leaving for safer grounds, escaping the city that had become synonymous with loss and longing. He knew he should be happy for them, yet all he felt was a pang of envy for their carefree smiles.  

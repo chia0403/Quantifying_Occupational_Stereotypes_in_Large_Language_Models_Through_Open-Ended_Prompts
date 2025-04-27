@@ -1,0 +1,7 @@
+Once upon a time, there was a roofer named Danny Bonaduce whose career seemed to be on a collision course with a new job. His partner, Dan, was starting up his own business, and Dan's business had just won a big construction contract.
+
+At first, Danny was not so worried. His first week on the job, Danny did well. He made a lot of money and enjoyed many of the perks of being a roofer. He did go out on weekends to find work for the following weeks, but he wanted to enjoy his life too much to stop the business when it finally began to take off. "So I went out and went to the beach most of the time," Danny said to me over the phone. "I was really happy to be there because it was so much fun."
+
+But when it got to the halfway point of his second week of work, Danny was still not getting paid. He asked Dan where the money might be coming from. The answers that Dan gave him were frustrating and unbelievable to Danny. After several minutes of screaming and hitting himself with a hammer, Danny was able to give an answer that even his partner would have to concede was plausible. "The money was all coming from me," said Danny. "I had to get it back some way, but I'd be screwed otherwise."
+
+Danny spent the next few weeks doing everything that a good roofer should be doing. He called his family members, and told

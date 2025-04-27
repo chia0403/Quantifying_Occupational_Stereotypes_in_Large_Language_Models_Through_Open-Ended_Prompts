@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting with a theatrical director as the main character:
+
+**Setting:** The damp, echoing backstage of the Grand Majestic Theatre, a once-glorious but now slightly faded Victorian playhouse in the heart of a down-at-heel seaside town called Porthaven. The air is thick with the smell of dust, old costumes, and a faint, lingering aroma of greasepaint and despair.
+
+**Opening:**
+
+The single, bare bulb swinging precariously overhead cast long, dancing shadows across the peeling wallpaper. Bartholomew James Thorne, his silver hair resembling a chaotic halo under the dim light, surveyed the scene with a weary sigh that could have wilted a particularly hardy weed. He ran a hand down the front of his perpetually rumpled tweed jacket, dislodging a small, errant feather – a casualty, no doubt, of the Angel Gabriel costume that had seen better days. Tonight was dress rehearsal for 'The Importance of Being Earnest', and so far, everything was going precisely according to Murphy's Law, a principle Bartholomew had come to believe was divinely ordained specifically to torment theatrical directors. His Gwendolen had a sore throat, his Algernon couldn’t remember his lines, and the prop cucumber, the linchpin of a crucial scene, had mysteriously vanished. Bartholomew felt the familiar, throbbing ache behind his temples – the harbingers of a migraine, the director's constant companion. “Oh, Wilde, my dear Oscar,” he murmured to the empty air, “why did you make earnestness so utterly…complicated?”

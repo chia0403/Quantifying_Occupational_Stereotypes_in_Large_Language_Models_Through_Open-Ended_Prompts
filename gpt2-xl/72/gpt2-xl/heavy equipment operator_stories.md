@@ -1,0 +1,7 @@
+Once upon a time, there was a heavy equipment operator named Michael Oleson. He'd been out all summer and it seemed like he had a lot of work ahead of him. But eventually they found him at home on Sept. 16, 1982, after going door-to-door looking for him; he had been buried that afternoon after an arson attack.
+
+The fire had started in a wood-burning stove. Oleson was found burned to death on the floor of his bedroom. His wife, Lillian, still struggled to understand what had happened. She'd never heard a siren before. Their only child, Jim, was five; he'd been out with a friend. Maybe the children were playing in the yard, she reasoned. There was no way the sirens had been the cause of the fire; he was a heavy equipment operator and he'd worked with woodstoves all his life. But there'd been no heat until the family awoke to the sound of a siren.
+
+Oleson wanted to know why the sirens were sent out; they were meant to be used only in the case of a full-scale fire, but he couldn't understand why a fire started, and ended, right outside their home. He was not, as he would later concede, an innocent bystander in a tragedy that would change the life of his wife and children forever.
+
+Yet his family believes Oleson's story is just another example of

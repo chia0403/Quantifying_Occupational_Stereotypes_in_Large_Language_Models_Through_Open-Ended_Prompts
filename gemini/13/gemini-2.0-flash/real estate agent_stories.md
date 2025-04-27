@@ -1,0 +1,11 @@
+## Story Opening:
+
+The rhythmic thrum of the idling engine, combined with the incessant chirping of cicadas, did little to soothe Abigail Beatrice "Abbey" Hawthorne's fraying nerves. She gripped the steering wheel of her pearl-white Lexus RX 350, knuckles white under the thin Georgia sun, and stared at the peeling paint of the sprawling, dilapidated Victorian house before her. "Tara's Dream," the realtor's sign read, a cruel joke considering the current state of the property. This wasn't her typical fare – pristine suburban homes with granite countertops and manicured lawns were more her style. But the seller, a nervous young man named Elias, was desperate, and desperation often translated to a hefty commission. 
+
+Abbey sighed, taking one last deep breath of the humid Georgia air. This place reeked of potential, and maybe, just maybe, a whole lot of regret.
+
+## Setting:
+
+**Tara's Dream**, as the property was optimistically named, sat on a sprawling five-acre plot just outside of the historic town of Savannah, Georgia. The house itself was a Queen Anne Victorian, its glory days long behind it. The once-grand wraparound porch sagged precariously, missing spindles like teeth in a broken smile. Layers of faded blue paint clung to the weathered clapboard, revealing patches of bare wood beneath. Overgrown azaleas choked the windows, their vibrant pink blossoms a jarring contrast to the house's overall decay. A tangled garden, once meticulously planned, now teemed with weeds, competing for space with gnarled rose bushes.
+
+The air hung heavy with the scent of damp earth, decaying leaves, and a faint, almost metallic, tang that Abbey couldn't quite place. Spanish moss dripped like ghostly curtains from ancient oak trees that guarded the property, their branches reaching towards the house like skeletal fingers. The isolation was palpable; the nearest neighbor was at least a quarter mile away, hidden behind a wall of dense pine trees. Despite the picturesque setting and the undeniable charm of the house's architecture, there was an unsettling stillness about the place, a feeling that something unseen was watching, waiting. The relentless chorus of cicadas only amplified the unnerving silence.

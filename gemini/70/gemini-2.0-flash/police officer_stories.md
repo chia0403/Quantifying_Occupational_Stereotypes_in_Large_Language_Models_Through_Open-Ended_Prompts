@@ -1,0 +1,7 @@
+The biting wind howled through the narrow alleyway, whipping loose garbage and discarded newspapers around like restless ghosts. Officer Isabella “Izzy” Rodriguez pulled her collar higher, the thin material of her uniform offering little respite from the December chill. Above her, the grimy brick walls of the tenement buildings loomed, blocking out most of the already fading daylight. Graffiti, a chaotic tapestry of tags and political slogans, adorned every surface, a visual representation of the city's festering wounds.
+
+Izzy wasn't supposed to be in this part of the South Side tonight. Her shift was usually patrolling the marginally less chaotic main streets, dealing with drunk college kids and petty thefts. But a call had come in - a panicked voice, barely audible over the static, reporting screams coming from the back of O’Malley’s Irish Pub. The first responders were tied up across town, leaving Izzy the closest available unit.
+
+The air reeked of stale beer, urine, and something else, something metallic and unsettling. It clung to the back of her throat, making her swallow hard. This alleyway was a dead end, a place where hope went to die. As she cautiously advanced, her hand resting on the Glock holstered at her hip, she heard it again – a strangled whimper, swallowed by the wind. The screams were gone, replaced by something far more terrifying: silence.
+
+Izzy knew, with a certainty that chilled her to the bone, that she was too late.

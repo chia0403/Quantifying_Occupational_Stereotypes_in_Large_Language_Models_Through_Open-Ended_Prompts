@@ -1,0 +1,7 @@
+The rain hammered against the patrol car window like tiny fists pounding on a tin can. Inside, Officer Elias Thorne adjusted his collar, letting the thin sheen of water run down his neck, tracing the outline of a worn badge.  It was 3 am, and the city, usually a pulsing neon heart, lay silent under an oppressive blanket of grey clouds. The only sound that broke the monotonous rhythm of rain was the whine of the police radio, crackling with static as Elias tried to decipher Sergeant Miller's garbled message: "Missing persons, downtown.  Area 12."
+
+Elias glanced at his worn map, its edges frayed and stained with coffee and last night's frustration. The area was notorious – a maze of cramped alleyways, abandoned warehouses, and forgotten motels where shadows thrived in the absence of sunlight.  It was a place where secrets festered like wounds under concrete, whispering untold stories to the wind. 
+"I got this one," Elias murmured to himself, the words catching in his dry throat. The missing persons report had been vague – just "missing," nothing else, no name, no age, only a faint description of someone with a scar on their wrist, barely noticeable under a worn leather jacket.  A single, almost meaningless detail that was now etched in his mind. 
+
+
+**Setting:** The seedy underbelly of Seattle's downtown area at 3 am, rain pouring down like tears from an angry sky. The city sleeps, but Elias and the city's unspoken secrets are awake. 

@@ -1,0 +1,6 @@
+The humid Georgia air clung to Elias "Eli" Thorne like a second skin as he navigated the cluttered attic of Mrs. Hemmings' Victorian mansion. Dust motes danced in the single beam of his flashlight, illuminating cobwebs thick enough to snare a squirrel and forgotten relics - a porcelain doll with vacant eyes, a moth-eaten top hat, a stack of yellowed sheet music. Eli shifted his weight, careful not to jostle the precariously balanced ladder supporting him. He grimaced as he knelt beside a dusty junction box, its metal casing warped from years of neglect.  
+
+"Lord help me," he muttered under his breath. The Hemmings' house was notorious in town for its labyrinthine attic spaces and electrical system that seemed to defy the laws of physics. Mrs. Hemmings, a sweet but stubborn woman of eighty-five, insisted on keeping her beloved home intact, even if it meant enduring occasional power outages and flickering lights.  Eli, however, had a feeling this wasn't just another routine call. The air crackled with an unsettling energy, a static charge that made the hairs on his arms stand on end. 
+
+
+He took a deep breath, gripped his wire strippers, and prepared to tackle the tangle of wires before him. Little did he know, Mrs. Hemmings' creaky old house held secrets far more terrifying than a faulty fuse box.  

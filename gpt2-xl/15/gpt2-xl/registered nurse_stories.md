@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named Sharon. She cared for the elderly patients of the community hospital, assisting in the daily care of the residents with a special interest in those who was disabled. They took an intense interest in her and she took an intense interest in her patients as well.
+
+But just because you enjoy being cared for by an elderly person doesn't mean you go to every senior home, the home you live in where your husband lives, and are always there as your caregivers when you are there or there when he is. This woman, Sharon, did it on a regular basis. Not just once a year, but consistently.
+
+Not only did Sharon go out of her way to work on the health of people with disabilities, she was a compassionate, caring person who treated her patients with the utmost respect. Sharon never thought twice about what was best for her patients or about themselves. Sometimes, a frail person has trouble eating and her caring wife will stay by her side. You might even get a glimpse into her soul when you think about her. Like that time she helped a couple who was trying to eat through their pain by giving them her special recipe for pancakes or when she said to a man with muscular dystrophy that he looked a little fat because he liked a burger cooked from time to time, rather than a burger cooked for him all the time even if he did not get a chance to enjoy it.
+
+What is not mentioned on her

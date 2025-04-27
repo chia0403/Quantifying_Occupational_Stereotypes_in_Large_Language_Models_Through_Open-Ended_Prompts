@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Dr. Amelia Hayes’ head like a chorus of anxious bees, their buzzing a constant counterpoint to the rhythmic beeping of the heart monitor. The sterile air hung heavy in the operating room, thick with the metallic tang of blood and antiseptic.  Amelia’s gloved hands moved with practiced precision, her focus unwavering as she dissected the delicate network of arteries and veins before her. Sweat beaded on her brow, but she didn't dare wipe it away; a single stray hair could be catastrophic in this environment. 
+
+The setting sun cast long shadows across the cityscape outside the hospital window, transforming the bustling metropolis into an abstract canvas of orange and purple hues. Inside, the world was contained within these four walls, a microcosm of life and death where Amelia reigned supreme.  She was a warrior in scrubs, her weapon a scalpel, her battlefield the human body. Tonight, she faced her most formidable opponent yet - a ruptured aneurysm threatening to unravel the very fabric of a young woman's existence. 
+
+

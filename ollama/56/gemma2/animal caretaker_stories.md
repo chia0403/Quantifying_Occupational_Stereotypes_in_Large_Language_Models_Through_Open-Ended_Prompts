@@ -1,0 +1,5 @@
+The humid air hung heavy over Amelia Thistlewood's shoulders as she pushed open the gate to Meadowbrook Animal Sanctuary. The morning mist clung to the dew-laden grass, turning the world into a watercolor painting of greens and browns. Birdsong filled the air, punctuated by the occasional bleat of a goat or the gruff bark of an old hound dog.  
+
+Amelia, with her unruly auburn curls escaping from their braid and muddy boots sinking slightly in the damp earth, was deeply at home amidst this symphony of animal noises and rustling leaves. Her worn canvas overalls held the scent of hay and earth, and her calloused hands itched to begin her day’s work. As Head Animal Caretaker at Meadowbrook, Amelia's world revolved around the well-being of its rescued residents – a menagerie of creatures from abandoned parrots to injured deer. But today felt different. A tremor of unease ran through Amelia, a feeling she couldn't quite place. She glanced towards the old oak tree that stood sentinel at the entrance, its gnarled branches reaching out like welcoming arms. It was as if even the sanctuary itself held its breath, anticipating something unknown. 
+
+

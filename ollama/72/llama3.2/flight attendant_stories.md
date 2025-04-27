@@ -1,0 +1,7 @@
+As the sun set over the bustling streets of Tokyo's Shibuya district, Flight Attendant Emiko Nakahara stood at the edge of the city's famous scramble crossing, her eyes fixed on the neon lights that seemed to stretch on forever. The sound of chatter and car horns filled the air as she took a moment to collect her thoughts before heading back to the airport.
+
+Emiko had just landed from a long-haul flight from Los Angeles, and was still reeling from the exhaustion that came with crossing multiple time zones. She had spent the last week working on a lucrative route between Tokyo and LA, taking advantage of Japan's growing economy to offer luxury air travel to American business executives.
+
+Despite the grueling schedule, Emiko loved her job as a flight attendant. There was something about being in the skies, watching the world go by from 30,000 feet up, that gave her a sense of freedom and adventure that she couldn't find anywhere else. But tonight, after a particularly grueling day of dealing with demanding passengers and cramped quarters, Emiko just wanted to get home, order a hot cup of green tea, and collapse onto her bed.
+
+Little did she know, however, that tonight was going to be anything but ordinary...

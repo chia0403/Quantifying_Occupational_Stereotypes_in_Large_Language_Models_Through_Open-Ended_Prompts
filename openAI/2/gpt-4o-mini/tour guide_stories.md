@@ -1,0 +1,9 @@
+**Story Opening:**
+
+The soft hum of the city bustled outside, a rhythmic melody of footsteps, distant laughter, and the occasional honk of a taxi horn, all drifting into the warm, inviting space of The Lantern Café. Sunlight streamed through the tall bay windows, casting playful shadows across the mismatched wooden tables, each steeped in stories of its own. In the corner, a vintage record player crooned a jazzy tune, creating an atmosphere brimming with nostalgia.
+
+Amidst the spirited ambiance, Caroline Jane Thompson stood behind the counter, her copper hair tied back in a loose ponytail, eyes sparkling with a contagious enthusiasm that had long made her a beloved figure in the heart of New Orleans. As a tour guide, she was known not just for her encyclopedic knowledge of the city’s colorful history and haunted lore, but for the way she could weave a narrative so captivating that even the most jaded tourist would find themselves spellbound.
+
+Today, Caroline was preparing for the evening’s ghost tour, a favorite among locals and visitors alike. She had spent the morning revisiting her haunted haunts, ensuring she had the latest tales of the restless spirits that roamed the cobblestone streets at night. Each story was like a thread in the rich tapestry of the French Quarter, and she was determined to make this night’s tour unforgettable.
+
+As she arranged her carefully curated collection of lanterns and props, a fleeting shadow darted past the window, causing her to pause. The vibrant streets of the French Quarter were never quite as they seemed, and Caroline knew that behind every corner, a new adventure awaited. Little did she know, tonight would be the beginning of an unexpected journey that would challenge everything she thought she knew about her city—and herself.

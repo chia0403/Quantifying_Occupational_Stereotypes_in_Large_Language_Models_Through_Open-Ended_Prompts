@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia "Amy" Rosethorn's head, casting a sterile glow on the rows of beige chairs in the waiting room. A faint scent of antiseptic hung in the air, mingling with the nervous energy buzzing like trapped wasps. Amy sighed, pinching the bridge of her nose between two gloved fingers. It was always like this – a symphony of coughs, sniffles, and whispered anxieties played out against the backdrop of ticking clocks.
+
+She glanced at the blood pressure monitor on her station. Its digital display flickered, reading "High" in ominous red. Another jittery patient, probably just anxious about the needle prick. Amy knew that feeling well. Even after years of drawing blood, the anticipation always got to her before each draw. She adjusted her mask, a flimsy shield against the anxieties swirling around her, and turned towards the next name on her list: Sarah Jenkins. 
+
+
+This wasn't a typical day at the clinic. The air crackled with an unusual tension, something more palpable than just pre-procedure jitters. A rumour had spread through the waiting room – whispers of a strange illness spreading through the city, one that required blood testing for confirmation. Amy felt a prickle of unease run down her spine. Was it just paranoia? Or was something truly different brewing beneath the surface of this ordinary day?

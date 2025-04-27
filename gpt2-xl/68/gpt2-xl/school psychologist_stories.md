@@ -1,0 +1,7 @@
+Once upon a time, there was a school psychologist named Dr. David M. Jones. Jones didn't write books, or write TV shows, or play on Broadway — or even have a Facebook or a Twitter account! — but the man did study how a bunch of normal people got to college and then on into a career. Jones's research was published by a reputable journal called the Educational Psychology Review in 2004. But Jones is long dead now, and the research continues. And now his "new" project involves looking at how to help students with college-level English literature skills acquire vocabulary, grammar, and comprehension skills while reducing reading comprehension errors.
+
+Jones's "new" project involves trying to help students with college-level English literature skills acquire vocabulary, grammar, and comprehension skills.
+
+It would be a great idea if it worked: a way to help students learn and retain literacy skills without using high-tech flashcards, books, tests, or quizzes. But it's hardly at all clear why it wouldn't work — unless you believe that, as far as college-level literature skills goes, students should be taught to focus on the sentence in the midst of the sentence, not the sentence before and after it. Which — of course — is absurd, and so are the claims of Jones's research.
+
+But wait! Jones's new project isn't about students with college-level literature skills. It is about college students with college-level literature skills using materials

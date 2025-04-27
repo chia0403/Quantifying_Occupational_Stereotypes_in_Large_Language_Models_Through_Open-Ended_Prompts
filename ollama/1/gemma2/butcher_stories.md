@@ -1,0 +1,7 @@
+The scent of iron and rosemary clung to Barnaby Fitzwilliam's apron like a second skin. It was a smell he loved, a familiar comfort in the chaotic symphony of his shop: the rhythmic thump of cleavers on bone, the gruff calls of customers, the low rumble of his grandfather’s ancient meat grinder. 
+
+Barnaby’s Butcher Shop stood nestled between a dusty antique store and a bustling bakery, its faded brick facade barely visible beneath a tangle of climbing ivy. The shop had seen better days – the windows were perpetually fogged with condensation, and the floor was always sticky with stray bits of fat and blood – but Barnaby took pride in its imperfections. It was a testament to generations of his family who had plied their trade within those worn walls. He knew every crack in the floor, every dent in the butcher block counter, every creak of the old staircase that led to the storeroom above.
+
+The early morning light filtered through grimy windows, illuminating the rows of neatly stacked cuts of meat: ruby-red roasts, glistening sausages, delicate veal chops, all waiting their turn for the fiery embrace of the grill. Barnaby surveyed his domain with a critical eye, a furrow in his brow as he noticed a particularly unsightly bruise on one of the pork shoulders. "Right then," he muttered to himself, grabbing a sharp knife and steeling his resolve. "Time for some surgical intervention." 
+
+

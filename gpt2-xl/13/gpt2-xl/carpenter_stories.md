@@ -1,0 +1,7 @@
+Once upon a time, there was a carpenter named Ben Berenson, who did not want a job. He was the least carpenter in the world, and he was a pauper. Why would he want a job?
+
+All through the streets, people had been begging, and there were a lot of those who'd been there since winter. Ben could see by the looks on their faces that they hadn't been well fed, or they'd been on the road a month, or they had broken a leg or had a sprained ankle and needed a few stitches. The paupers were the kind of street walkers who stayed in one place and didn't look for better shelter. He was sure that most of them were going crazy, either because they'd been sleeping in the winter and now had to go out, or because they'd been out in the wilds all summer and hadn't had much food, or because they'd broken a leg or got an ankle hurt.
+
+Ben thought he looked like one of them, with a few scrapes and wounds here and there, and he had an itch all over his back like one of those birds that scratch their feet all over the place. And his breath, like that bird's, was coming in a harsh cloud. Was that one of the bird's ways of letting one know he had not been able to care for himself the way he meant to?
+
+Ben's name came up on top of

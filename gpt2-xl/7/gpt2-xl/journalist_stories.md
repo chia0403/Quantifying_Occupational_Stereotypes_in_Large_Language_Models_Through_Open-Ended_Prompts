@@ -1,0 +1,7 @@
+Once upon a time, there was a journalist named Michael Hastings.
+
+"We may be speaking about a man who was killed in a car accident, for journalism, however the details aren't quite what I have been led to believe and the reason to stop believing his story begins to dawn," wrote Hastings in an article about a story he and fellow journalist Amber Lyon had published. "A former friend told me he was driving his own car down the Bexar County Road when his Mercedes crashed into a tree. I believe him. I have been to his house and spoken with his family." In another story Hastings wrote, he and his friend had been invited to a party called "The Island." The guests had been to a Mexican place called La Cava — a place where drinking went beyond mere boozing (I know this because the guest list included a half dozen people in wheelchairs) and ended in the kind of madness that is the common ground of any good party.
+
+I can't get the news out of my head, this news is too horrifyingly horrible..
+
+That night, Hastings and Lyon's car broke down at a red light down the street from La Cava. Hastings's girlfriend was unable to stop in time, and they both drove off. Hastings was headed south on a dead end street, heading to El Paso to meet up with his girlfriend. After the crash, his girlfriend came back by the car, found the keys, and returned them to Hastings

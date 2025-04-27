@@ -1,0 +1,6 @@
+Once upon a time, there was a physician's assistant named James. One day James told his wife Sally that he wanted a promotion. When she urged him to focus on his clinical practice he laughed. "No," he said, "I want a promotion and a raise." Her friend, Sally's co-worker, Anne, replied, "There are two kinds of men who talk that way," and it was this remark that made Sally realize that she knew something about her husband's heart, because this incident was part of a study of women who were struggling with their husbands.
+
+On that same day, James said to his wife, "The last time we left my daughter, she told my wife that she had a dream." On their lunch break, Sally turned her attention to the daughter. When she told Sally what her mother had said, Sally's husband couldn't resist commenting. "The girl couldn't see the dream, but my wife saw it." Sally's husband said, "We've been on the job three months now, so why don't we get a raise?" When Sally asked him to clarify, he said, "Because she's doing better than I am."
+
+In her memoir, Sally said, "The words from Sally's mouth, in response to my question from the car, have stayed with me to this day." When James asked how his wife had seen the dream, Sally replied, "You never really knew how they did their jobs."
+

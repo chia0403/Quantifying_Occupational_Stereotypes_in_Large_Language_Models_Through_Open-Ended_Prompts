@@ -1,0 +1,5 @@
+The stale air in the corner office was as oppressive as the suit Amelia wore.  Every cubic inch seemed to press down on her, a tangible manifestation of the mountain of paperwork piled onto her desk.  She was known throughout the sprawling corporate complex as "Miss Efficient", which was exactly what she'd been hired to be - an efficient machine, humming through endless deadlines and overflowing inboxes.  Today was particularly challenging: Mr. Blackwood's quarterly report, a beastly 100-page monster of jargon and obscure graphs, lay unfinished on her desk, mocking Amelia with the audacity of its incompleteness.
+
+**Setting:** A high-rise office building in New York City. The glass windows offered expansive views of the city skyline – a dizzying panorama that felt like an insult to the mundane details of Amelia's life. 
+
+**Main Character:** Amelia Sterling, 27 years old and as efficient as her name suggested.  A career secretary, she had been steadily climbing the corporate ladder since graduating university with a degree in Political Science, specializing in international relations.

@@ -1,0 +1,7 @@
+Once upon a time, there was a highway worker named Jimmy who was looking forward to winning $1000 in the lottery. The problem was, how in the world he was going to go about winning a million dollars in a year?
+
+He'd gotten the lottery tickets long before he ever did much work, and he knew nothing about how to use them. His girlfriend also insisted that she'd been playing for years. The plan seemed simple enough: she'd buy a few lottery tickets, give her favorite one to Jimmy and his buddies and then send the tickets away. That afternoon, Jimmy could make up to $500 every single day for his girlfriend's plan.
+
+As with some games of chance, like slot machines, playing the lottery is actually quite simple: just follow a few simple rules. First, the odds of you winning are low – a single ticket can never win your entire investment. Second, if you don't pay attention to buying the ticket, you shouldn't expect to win.
+
+Before you go looking for the ticket, first take a long look at your life. If you're living a happy, healthy, and productive life at the moment, then you don't have much to gain from playing the lottery. But if it's been a while since you've been in the gym, you may not have been working hard enough to grow into your current physique, in which case you're probably hoping to pick up a substantial windfall of the equivalent of two weeks'

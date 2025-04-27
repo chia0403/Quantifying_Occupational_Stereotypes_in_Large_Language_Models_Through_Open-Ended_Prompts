@@ -1,0 +1,5 @@
+The Nevada desert stretched before him like a cracked and sun-bleached canvas, endless and unforgiving.  Dust devils danced across the asphalt ribbons that snaked through the emptiness, each one a tiny tornado yearning to swallow whole anything foolish enough to stand in its path. Bartholomew "Bear" Blackwood gripped the worn leather of his steering wheel, knuckles white against the fading orange sky. His rig, a hulking Peterbilt he affectionately called "Big Bertha," rumbled along, her diesel engine a guttural growl in the oppressive silence. 
+
+The heat shimmered off the tarmac, blurring the distant horizon into a hazy watercolor painting. Bear squinted through his visor, his gaze searching for anything that might break the monotony of the landscape – a lone tumbleweed, a hawk circling overhead, even the flicker of a gas station sign. He was three days into a haul from Phoenix to Seattle, hauling a load of microchips destined for some tech giant's server farm. A lonely existence, but one he knew well.  He was a trucker through and through, born and bred on the open road, with the wind in his hair and the endless highway as his only companion. 
+
+

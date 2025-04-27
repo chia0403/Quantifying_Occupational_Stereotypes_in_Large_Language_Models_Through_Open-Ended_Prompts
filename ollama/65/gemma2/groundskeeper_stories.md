@@ -1,0 +1,6 @@
+The morning dew clung to Bartholomew Thistlewick's overalls like a thousand tiny, glistening tears.  He squinted through the haze, his weathered face etched with the lines of countless sunrises witnessed on these sprawling grounds. The air was thick with the scent of damp earth and honeysuckle, a familiar symphony that usually soothed him. But today, Bartholomew felt a knot of unease tightening in his stomach.
+
+The setting: Oakhaven Manor, a grand but crumbling edifice perched atop a windswept hill overlooking a village nestled in the rolling English countryside. Its manicured lawns, once pristine, now bore the scars of neglect - patches of wilted grass, overgrown hedges that clawed at the stone walls, and forgotten flowerbeds choked with weeds. The manor itself was a testament to faded grandeur; its windows, like vacant eyes, stared down upon Bartholomew as he tended his domain. 
+
+
+Bartholomew had been Oakhaven's groundskeeper for nearly forty years, witnessing generations come and go, their laughter echoing through the halls, replaced by an unsettling silence in recent times. The current family, the Carmichaels, were seldom seen. Whispers in the village spoke of financial woes and internal strife, casting a shadow over the once vibrant manor.  

@@ -1,0 +1,5 @@
+The insistent, high-pitched shriek of the fire alarm sliced through the lullaby sing-song murmur of "Twinkle, Twinkle Little Star." Amelia Josephine Parker, a child care worker with a heart as big as the oversized alphabet rug spread across the classroom floor, jolted upright from her crouch. Her hand flew instinctively to the head of little Thomas, who had been slowly succumbing to the hypnotic rhythm of her voice and gentle rocking.
+
+The setting was "Little Sprouts Daycare," nestled on the sunny side of a brick building in the quiet suburb of Oakhaven. Sunlight, usually filtering through the oversized, hand-painted window depicting a smiling sun, was now obscured by the frantic red glow of the alarm system. Colorful artwork, mostly finger paintings and constructions made of pipe cleaners and glitter glue, adorned every available surface. The air, normally thick with the scent of apple slices and crayons, now crackled with a burgeoning sense of panic.
+
+Amelia's stomach twisted. This wasn't a drill. She could feel it.

@@ -1,0 +1,6 @@
+The relentless desert wind whipped Amelia "Ace" Garrison's crimson hair around her face as she climbed out of the cockpit. Grit clung to everything – her goggles, her faded flight suit, even her teeth.  The rusty landing strip of Dust Devil Station stretched before her, baking under the merciless glare of the twin suns. Above, the sky was a bruised purple, tinged with the orange glow of the dying day.
+
+Dust Devil Station wasn't much to look at: a cluster of prefabricated metal buildings huddled against the unrelenting heat, surrounded by scraggly scrubland that stretched as far as the eye could see.  It existed on the fringes of the Outer Rim, a forgotten outpost clinging to survival in a lawless corner of the galaxy. Amelia didn't mind the isolation. It was where she felt most alive, hurtling through the endless expanse of stars, chasing freedom and dodging trouble. 
+
+
+Amelia squinted at the horizon, the shimmering heat blurring her vision. Something wasn’t right.  A faint tremor ran through the ground, and a low, rumbling growl echoed across the desolate landscape. Amelia gripped her blaster pistol, a familiar chill crawling up her spine. Whatever was out there, it wasn't welcome.  

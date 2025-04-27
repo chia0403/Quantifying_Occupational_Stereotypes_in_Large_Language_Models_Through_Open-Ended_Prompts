@@ -1,0 +1,6 @@
+The air hung thick with humidity, clinging to Amelia "Amy" Hawthorne like cheap perfume.  Her voice, usually as bright and clear as the California sun, felt strained against the heavy city fog rolling in from the bay. She perched precariously on the rickety wooden stage of The Blue Moon Saloon, its faded sign barely visible above the swirling gray clouds that obscured even the moon itself. 
+
+The crowd was sparse, a scattered collection of truckers and barflies huddled around tables lit by flickering neon signs. The only sound besides Amy's nervous tapping on her worn-out guitar strings were the melancholic hum of the jukebox playing a mournful blues standard. Tonight, she wasn’t singing for the thirsty masses or the lonely hearts seeking solace in the haze of cheap whiskey and regret. Tonight, she was performing for the ghosts of dreams left unfulfilled. 
+
+
+Amy dreamed bigger than The Blue Moon could offer.  Her voice, capable of soaring through the highest notes and whispering secrets on the softest lows, yearned for a stage with lights that truly reflected the magic in her soul. Her fingers ached to play melodies that would pierce through even the thickest fog, but for now, she was stuck in this forgotten corner of the city, her dreams as faded as the paint on the saloon's aging walls.

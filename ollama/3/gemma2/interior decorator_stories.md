@@ -1,0 +1,7 @@
+The scent of old books and polished mahogany clung to the air in Amelia Rose Blackwood's favorite antique shop. Sunlight slanted through dusty windows, illuminating motes dancing in the stillness.  Amelia ran her fingers along the spine of a faded leather-bound volume, its title barely visible beneath years of grime. "You know," said Mr. Fitzwilliam, the proprietor, his voice gravelly with age, "that could be worth something if you cleaned it up." Amelia smiled, though she knew he was speaking more to himself than to her. He always did that when she came in, offering unsolicited opinions on every dusty relic within reach.
+
+Amelia Blackwood wasn't a collector; she was an interior decorator, and her shop, "Blackwood & Bloom," was about to embark on its most ambitious project yet: transforming the crumbling Victorian mansion of Eleanor Van Derlyn into a chic modern oasis. It was Amelia's chance to prove herself, to leave her mark on the city beyond the pastel-painted nurseries and cozy family rooms she typically designed.  
+
+This, however, wasn't just another job. This was personal. The Van Derlyns had been Amelia's neighbors growing up, their sprawling mansion a looming presence in the landscape of her childhood memories. It was both familiar and intimidating, a place steeped in history and whispered secrets. As she turned away from the antique shop, its treasures fading into the afternoon haze, Amelia felt a sense of excitement mixed with trepidation. This project, more than any before it, had the potential to change everything. 
+
+

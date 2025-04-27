@@ -1,0 +1,6 @@
+The air hung thick with the metallic tang of blood and the earthy scent of sawdust in Bartholomew “Barty” Cleaver’s shop. It was a symphony of smells that Barty knew better than any opera. His fingers, calloused and strong from years of wielding cleavers and carving knives, expertly navigated the cool steel of his butcher's block.  Outside, the cobbled streets of Alderbury buzzed with the mundane rhythm of market day – vendors hawking their wares, children chasing pigeons, the occasional horse whinnying in protest. But inside Barty’s shop, a quiet order reigned. 
+
+Barty glanced at the single customer waiting patiently by the counter:  a young woman with tired eyes and flour-dusted cheeks. He knew her as Mrs. Peabody, the baker whose rye bread was the talk of the town. She usually only came for cuts of pork belly for her sausage rolls – a ritual as predictable as the sunrise. Yet today, there was a flicker of something different in her gaze, a hint of desperation that made Barty straighten his apron and ask, "Anything unusual I can help you with today, Mrs. Peabody?"  
+
+
+This wasn’t just another day at the butcher shop for Barty Cleaver. Something felt off, like a sour note in his familiar melody. 

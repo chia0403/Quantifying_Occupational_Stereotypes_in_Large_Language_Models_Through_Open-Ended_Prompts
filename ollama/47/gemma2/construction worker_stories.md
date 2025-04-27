@@ -1,0 +1,6 @@
+The whine of the jackhammer vibrated through Ethan Montgomery's teeth, a familiar lullaby in the symphony of destruction that was his daily life. He gripped the handle tighter, sweat stinging his eyes as he chipped away at the concrete sidewalk like an archaeologist unearthing ancient secrets.  
+
+Ethan was six stories up, perched precariously on the edge of scaffolding draped across a hulking, grey building. The city sprawled beneath him like a crumpled map; buildings reaching for the sky, choked with traffic, and punctuated by green squares that whispered of parks and forgotten respite. Today's project: demolishing this aging office block to make way for a glittering new skyscraper, another monument to ambition in this concrete jungle. 
+
+
+The air was thick with dust and diesel fumes, the taste metallic on his tongue. Ethan wiped his brow, squinting at the relentless sun glinting off the steel beams that crisscrossed the skyline. A bead of sweat trickled down his temple, leaving a damp trail on his grime-stained face. He glanced over at his fellow workers, their faces masked in exhaustion and grit. They were all part of this city's invisible workforce, the ones who built and broke it brick by brick. 

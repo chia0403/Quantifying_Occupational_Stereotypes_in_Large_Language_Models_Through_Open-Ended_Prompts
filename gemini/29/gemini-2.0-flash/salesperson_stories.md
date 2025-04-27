@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting with a main character named Eleanor Beatrice Finch, a salesperson:
+
+**Setting:** The harshly lit, fluorescent-tinged break room of "Comfort Corp," a manufacturer of budget office chairs, located in a sprawling industrial park on the outskirts of Scranton, Pennsylvania. The room is perpetually lukewarm, smelling faintly of stale coffee and desperation. Mismatched chairs (presumably "seconds" from the factory floor) circle a scarred linoleum table littered with crumbs. A motivational poster, featuring a stock photo of a sunrise and the word "BELIEVE," hangs crookedly above a perpetually sputtering water cooler. It's a Tuesday, 8:57 AM.
+
+**Opening:**
+
+Eleanor Beatrice Finch stared into the chipped ceramic mug, the murky dregs of her instant coffee swirling like a miniature whirlpool of existential dread. Three more minutes. Three more minutes until she had to plaster on her “winning smile” (as management insisted on calling it) and unleash her sales pitch on another unsuspecting business owner. Eleanor Beatrice Finch, thirty-seven years old, holder of a Bachelor's degree in Fine Arts (a detail she religiously omitted from her Comfort Corp application), and mother to a precocious seven-year-old named Leo, was about to sell the *sizzle* of ergonomic support while secretly yearning for the *steak* of… well, anything other than another sale of the "Managerial 3000," Comfort Corp's best-selling, and frankly, most uncomfortable, office chair.

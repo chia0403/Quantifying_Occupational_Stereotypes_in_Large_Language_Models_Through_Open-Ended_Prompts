@@ -1,0 +1,5 @@
+The sun bled through the smog-choked sky, casting a bruised orange glow over the decaying grandeur of the city.  Even from her tiny apartment perched precariously on the 8th floor, Amelia "Amy" Hawthorne could feel the oppressive humidity hanging in the air like a shroud. It was another typical day in New Zenith - a city where progress had been swallowed whole by an unending tide of decay.
+
+Amy clutched her battered Nikon to her chest, its camera lens reflecting the distorted cityscape. The once vibrant murals on the crumbling facades were now faded and cracked, like the dreams of a forgotten generation. She ran her thumb over the worn leather strap of her bag, the weight of it grounding her in this reality she felt was both familiar and foreign.  She wasn't from New Zenith; she'd fled the chaos of her family's life in California for this city that had swallowed her whole. 
+
+But as Amy looked down at the cityscape through the lens of her camera, something shifted within her. A faint flicker of rebellion. Maybe these faded dreams were not so forgotten after all, and maybe her art could paint a different future - one where decay didn't define the soul.

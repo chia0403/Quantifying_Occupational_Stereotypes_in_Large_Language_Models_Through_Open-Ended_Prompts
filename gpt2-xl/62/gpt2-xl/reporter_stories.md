@@ -1,0 +1,6 @@
+Once upon a time, there was a reporter named Gary. He went to the first annual "Ride for the Cure" at a small mountain town, to show the kids the way to success. His photos went viral, and before too long, this new career option was in high demand. One day, Gary left town for a little bit, but he couldn't bear to leave behind his old friends, so he decided to come back on a bike. A bike for a reporter... How original.
+
+Gary's Bike Day, now also known as G-Bike Day, is an annual charity bike ride to raise money for childhood cancer research. This year's event took place at the beautiful town of Big Sky on June 17, and Gary left the event only minutes after collecting the final check! Gary rode 2,831 miles of bike to raise over $28,000. Check out all the details about Gary's bike ride at www.bigskyrideday.org.
+
+This year, thousands joined the ride at three mountain towns. They also added three more, located at Horseshoe Bend, Big Sky, and Stovall, where Gary spent many hours and hours getting out on the bike. At Big Sky, hundreds of riders joined together to support the new schoolhouse, and all day it rained, but there were countless beautiful rides. For those who want to join another event, check out www.bigskyrideday.org.
+

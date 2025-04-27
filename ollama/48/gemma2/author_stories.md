@@ -1,0 +1,6 @@
+The scent of old paper and pipe tobacco hung heavy in the air, a familiar comfort to Elias Bartholomew Finch as he hunched over his battered Underwood typewriter. Rain lashed against the attic window, mimicking the furious tapping of his fingers on the keys. Outside, London grumbled beneath a blanket of storm clouds, but here, within the dusty confines of this forgotten room, another world unfolded. 
+
+Elias, with his unruly auburn hair and perpetually ink-stained fingers, was a man more at home amongst the ghosts of stories past than the living, breathing people he rarely encountered outside this haven. His latest tale, a gothic horror set in the desolate moors of Yorkshire, demanded his full attention. He needed to capture the chilling wind whistling through the crumbling stone walls, the eerie silence punctuated by the unsettling cries of ravens, and the looming presence of something ancient and malevolent lurking just beyond the veil of perception. 
+
+
+He paused, rereading the last paragraph with a critical eye. It lacked...something. A shiver ran down his spine, an inexplicable chill that had nothing to do with the weather. He glanced at the storm-tossed window, wondering if it was merely the wind playing tricks on him or if something darker was stirring in the shadows beyond. 

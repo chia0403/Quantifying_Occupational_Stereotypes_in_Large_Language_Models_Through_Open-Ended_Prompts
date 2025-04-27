@@ -1,0 +1,7 @@
+## Setting: The Neon-Lit Underbelly of Neo-Kyoto
+
+The biting December wind whipped through the narrow alleys of Shibuya's Second District, sending shivers down **Evelyn "Eve" Tanaka's** spine as she adjusted her worn camera bag.  Neon signs flickered, painting the alleyway with garish colours: "Lucky Cat Sushi", "Cybernetic Karaoke", and a particularly unsettling "Ghost Hunter's Emporium". Eve wasn’t here for the karaoke. Tonight, she was after something far more elusive - whispers of a ghost hunter operating outside the city's strict regulations, a clandestine figure rumoured to be able to conjure spectral encounters on demand.
+
+Eve, a veteran journalist with eyes as sharp as her camera lens and an unwavering thirst for truth, had been chasing down this legend for months.  The stories were captivatingly vague: shadows dancing in abandoned factories, whispers of voices lost within the city's digital grid. The only thing certain was the unsettling feeling that something truly anomalous was brewing beneath the veneer of technological utopia. 
+
+She pulled out a battered notebook from her bag, its pages filled with scribbled notes and half-formed theories. "Ghosts are real," she muttered to herself, "but they need someone to believe in them." Eve tightened the strap around her camera as she stepped into the swirling chaos of Shibuya's nightlife, hoping that tonight, the city's spectral secrets might reveal themselves. 

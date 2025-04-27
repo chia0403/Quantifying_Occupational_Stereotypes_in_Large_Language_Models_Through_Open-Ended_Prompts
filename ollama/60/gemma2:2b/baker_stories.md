@@ -1,0 +1,5 @@
+The air in Flourish Bakery was thick with the scent of vanilla and despair. Elias Blackwood, owner and sole employee of the little shop, ran a weary hand through his sandy hair. It had been two weeks since his mother's passing, and he hadn't left the bakery once, not even for a breath of fresh air.  His grief was an unfurling storm in the quiet corner of his soul, swirling around him like flour dust in a vintage stand mixer.
+
+The setting sun cast long shadows across the cobbled street outside, turning the window into a kaleidoscope of warm reds and oranges. Flourish Bakery, tucked away on a narrow lane known only to locals, was a beacon of warmth amidst the grayness of the city's underbelly.  Elias used his mother’s recipe book - adorned with her spidery handwriting - as he kneaded dough, each loaf taking on the bittersweet taste of loss and resilience.   
+
+He knew the shop wouldn’t survive without him, but every time he opened the door to greet a customer, the weight of his burden pressed down like a thousand loaves in his chest.  He had to do something, anything, for his mother's legacy - but he wasn’t sure what that was yet. 

@@ -1,0 +1,6 @@
+The scent of jasmine hung heavy in the air, mingling with the faint metallic tang of old paint and something vaguely floral that Amelia “Amy” Willowbrook suspected was lilies – likely wilting by now in the neglected vase on the mantelpiece. The grand foyer of the Victorian mansion yawned before her, a cavernous space choked with dust-laden velvet curtains, antique furniture shrouded in white sheets, and cobwebs thick enough to rival a Halloween prop shop. Sunlight streamed through grimy windows, illuminating motes dancing like miniature storms in the stagnant air. 
+
+Amy ran a hand across the peeling gold leaf on a faded grand staircase banister, trying to envision the elegance this home had once possessed. Her phone buzzed in her pocket – it was Mrs. Beaumont, the homeowner, reminding Amy about the deadline for the preliminary design proposal. A sigh escaped Amy’s lips. This wasn't just any project; it was a chance to showcase her talent on a grand scale, and she wouldn’t let the dust bunnies and faded grandeur deter her.  
+
+
+This dilapidated Victorian mansion, perched precariously on the edge of a cliff overlooking the tempestuous Atlantic Ocean, held more potential than its current state suggested. Amy just had to find it. 

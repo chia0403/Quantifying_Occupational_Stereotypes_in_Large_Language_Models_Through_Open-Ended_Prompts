@@ -1,0 +1,11 @@
+## Story Opening:
+
+The rhythmic *whirr* of the ionic dryer was her metronome, a steady beat against the frantic symphony in Anastasia "Stasi" Petrenko's head. Beads of sweat trickled down her temples, not from the heat radiating from the chrome contraption, but from pure, unadulterated panic. Mrs. Higgins, a woman whose beehive hairdo had seemingly defied gravity and the laws of physics for at least thirty years, was seated underneath it, humming a tuneless melody and utterly oblivious to Stasi's internal crisis. 
+
+"Just relax, dear," Mrs. Higgins cooed, her voice muffled by the plastic hood. "Another twenty minutes and my 'do will be ready for the Garden Club meeting. You have such a lovely touch, Anastasia."
+
+Lovely touch? Stasi silently groaned. It was a touch that was currently about to ruin Mrs. Higgins' life, or at least her carefully constructed coiffure. The perm solution she'd meticulously applied was reacting... *differently* than the bottle had indicated. A faint, acrid smell, reminiscent of burnt rubber and disappointment, was starting to waft through the salon. Stasi desperately hoped Mrs. Higgins wouldn't notice.
+
+## Setting:
+
+Stasi's haven, and her source of constant stress, was **"The Crimson Curl,"** a small but meticulously decorated salon nestled in the heart of the sleepy, suburban town of Willow Creek, Connecticut. The exterior was painted a vibrant crimson, a jarring splash of color amidst the beige and olive green houses that lined the street. Inside, however, the décor was a carefully curated blend of vintage charm and modern chic. Think plush velvet seating in shades of emerald green, ornate gold-framed mirrors reflecting the soft glow of Edison bulbs, and gleaming stainless steel styling stations. The air was usually thick with the fragrant aroma of hairspray, perming solutions, and the occasional waft of Stasi's homemade lavender and chamomile tea, which she swore kept her clients (and herself) from succumbing to complete follicular hysteria. It was Stasi's dream realized, a place where she could unleash her creative talents and transform the ordinary into the extraordinary, one haircut and color treatment at a time. If she didn't accidentally burn anyone's hair off in the process, that is.

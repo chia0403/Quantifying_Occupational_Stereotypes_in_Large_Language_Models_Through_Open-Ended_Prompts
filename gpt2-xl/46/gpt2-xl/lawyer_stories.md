@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named Steven D. Brill. Brill has had a career as a journalist, author and academic. He's had some serious ups and downs, but he's also been successful, and so he's earned the love and respect of a number of former colleagues, including me. I've known Brill since 1995 and have known him best of all.
+
+This is a letter I wrote to a former colleague, Richard Goldberg, who, at that time, was a practicing attorney in Chicago who was also a friend of Brill's. He was the first person to respond to the Post series in which this story was first reported and that produced a response published to ProPublica in which Brill and his longtime colleague, Jeffrey Toobin, agreed to let the Post and ProPublica publish the full text of their letters. We published both of these letters on March 19, 2016.
+
+At some time, Brill wrote me that he had a manuscript, a book, that had been sitting on his drafting table. Later, when the book was ready, he read it to us and told us it was a "deeply researched, well-written, highly readable book on the scandal" involving the IRS targeting of Tea Party political applicants: "I don't think there is a single lawyer or judge who did not want this book to be published."
+
+For my part, I had not read the book, nor did I even know it existed. But I

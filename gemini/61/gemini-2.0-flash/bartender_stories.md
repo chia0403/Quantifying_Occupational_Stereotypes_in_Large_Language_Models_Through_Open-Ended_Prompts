@@ -1,0 +1,13 @@
+## Opening:
+
+The clink of ice against glass, a sound Elias Thorne knew as intimately as his own heartbeat, barely registered in the din. A Tuesday night at "The Rusty Anchor" usually meant a steady flow of tourists bleating about overpriced margaritas and locals nursing grudges with shots of whiskey. Tonight, though, felt different. A palpable hum of unease vibrated through the room, thick and clinging as the sea air outside. Elias felt it prickling the back of his neck as he expertly layered a B-52 for a demanding blonde with a face like a pinched lemon.
+
+He slid the drink across the worn mahogany, careful to avoid the sticky rings left by previous patrons. The blonde didn't even offer a thank you, just snatched the drink and turned back to her companion, a man whose tie was conspicuously too loose and whose eyes held a glint that Elias didn't like. Elias’s gut, a finely tuned instrument honed over years of observing human nature in its most raw and unfiltered state, told him something was about to go down. He just couldn't quite put his finger on what.
+
+## Setting:
+
+The Rusty Anchor, located in the small, weathered fishing town of Port Blossom, was a haven for those seeking solace, secrets, or simply a stiff drink. Nestled on a narrow, cobbled street a stone's throw from the harbor, its exterior was unassuming; a faded blue facade with a peeling sign depicting a rusty anchor dangling precariously from a rope. Inside, however, was a different story.
+
+The air hung thick with the scent of stale beer, brine, and something indefinably…old. Low, exposed-beam ceilings and dim, flickering gas lamps cast long, dancing shadows across the walls, which were adorned with nautical paraphernalia: faded charts, stuffed fish, and framed photographs of generations of Port Blossom fishermen, their faces etched with hardship and resilience.
+
+The centerpiece of the bar was, naturally, the long, well-worn mahogany counter, smooth and scarred from countless spilled drinks and late-night confessions. Behind it, Elias presided over a labyrinth of bottles, shakers, and exotic ingredients, a silent guardian of the town's unspoken truths and hidden sorrows. The booths lining the far wall were upholstered in cracked, dark-green leather, offering a modicum of privacy for hushed conversations and clandestine meetings. And in the corner, a grizzled old fisherman named Silas, perpetually hunched over a game of solitaire, watched over everything with eyes as sharp and knowing as a gull's. The Rusty Anchor wasn't just a bar; it was the heart of Port Blossom, and tonight, that heart felt like it was about to skip a beat.

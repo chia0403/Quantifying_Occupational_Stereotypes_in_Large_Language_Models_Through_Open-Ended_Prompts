@@ -1,0 +1,6 @@
+The scent of lavender and old cloth hung heavy in the air of Elias Thornwood’s shop. Sunlight, filtered through the dusty panes of the window, painted stripes across the worn wooden floor where bolts of vibrant silk and rough tweed lay coiled like sleeping dragons. Outside, London bustled with life – carriages rattled down cobbled streets, hawkers bellowed their wares, and the distant clang of a blacksmith’s hammer echoed through the air. But inside Elias Thornwood’s, time seemed to move slower, measured by the rhythmic snip of his shears and the soft rustle of fabric.
+
+Elias, with his calloused fingers perpetually stained with dye, was a master of his craft. His shop, nestled on a quiet side street in Bloomsbury, wasn't frequented by the city's elite. Elias tailored for those who valued quality over ostentation: artists, poets, and the occasional eccentric scholar, each with their own story woven into the fabric they brought to him. 
+
+
+Today, however, a new customer stood at the threshold, casting a long shadow across the worn rug. A woman, cloaked in deep indigo, her face obscured by the wide brim of a hat. This was no ordinary client; Elias could feel it in the stillness of her presence, in the way she surveyed his shop with eyes that seemed to pierce through every seam and stitch. 

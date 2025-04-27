@@ -1,0 +1,6 @@
+The aroma of antiseptic hung heavy in the air, mingling with the faint scent of lavender hand sanitizer that Eleanor "Ellie" Hayes used liberally throughout her day. Her tiny office, tucked away on the second floor of a bustling medical center in downtown Chicago, was bathed in the soft glow of late afternoon sunlight filtering through the gauzy curtains. Ellie hummed along to the mellow jazz playing softly from a speaker perched on a shelf stacked with medical journals. 
+
+A patient's file lay open on her desk: Ms. Josephine DeLuca, 78 years old, diagnosed with osteoarthritis in both knees.  Ellie reviewed Ms. DeLuca's x-rays, meticulously noting the bone spurs and cartilage degeneration. Her heart always sank a little when she saw these images – the physical manifestation of age and pain. But Ellie knew her job wasn't just about fixing broken bodies; it was about empowering people to reclaim their lives. She had to help Ms. DeLuca find ways to move, to laugh again, even if walking across the room felt like scaling Mount Everest right now. 
+
+
+Ellie took a deep breath, smoothed down her crisp white coat, and picked up the phone. "Ms. DeLuca? It's Ellie Hayes from physical therapy. I'm ready for you whenever you are."

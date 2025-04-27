@@ -1,0 +1,9 @@
+**Story Opening:**
+
+Rain drummed steadily against the streetlamp outside, its flickering glow casting eerie shadows on the cracked sidewalk of Alder Street. The evening air was thick with humidity, typical for late summer in New Orleans. Neon signs buzzed to life along the narrow path, reflecting shades of red and blue in puddles at the feet of passersby, their laughter and chatter a faint chorus in the backdrop of the city’s heartbeat. But inside a dimly lit office on the second floor of an old brick building, the world outside felt a million miles away.
+
+The scent of stale cigarettes and damp paper mingled in the cramped room, where faded photographs and yellowed newspaper clippings formed a collage on the worn corkboard. A desk, piled high with case files and an empty coffee cup, was anchored beneath a window, the glass streaked with raindrops. This was the domain of **Spencer Alexander Quinn**, a private detective whose reputation danced on the edge of legend and infamy in the city’s murky underbelly.
+
+Spencer, a tall man with tousled dark hair and piercing green eyes, leaned back in his chair, absentmindedly twisting a frayed pencil between his fingers. He had seen things in this city: broken dreams, whispered secrets, and the weight of desperation etched into the faces of those seeking help. His clients came to him with their secrets, each case a thread in the intricate tapestry of New Orleans—where every corner held a story, and every shadow concealed a truth just waiting to be uncovered.
+
+On this particular night, a storm brewing in the distance mirrored the tumult lurking beneath the surface of Spencer’s thoughts. He had just finished sifting through a client’s tragic tale when a sharp knock on the door broke his reverie. The air shifted, crackling with tension as he braced himself for whatever shadows awaited him beyond the door.

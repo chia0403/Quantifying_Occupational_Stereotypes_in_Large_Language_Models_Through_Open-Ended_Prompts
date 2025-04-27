@@ -1,0 +1,7 @@
+The air hung thick with teenage angst in Mrs. Eleanor Thorne's Guidance Counseling Office. Its fluorescent lighting did little to chase away the heavy silence that seemed to gather in its walls like a permanent fog.  Outside, the autumn wind howled against the windows, rattling their frames and mimicking the nervous whispers of students who had just burst into her office, faces pale and shoulders slumped. 
+
+Eleanor Thorne, known affectionately as "Ellie" by those brave enough to call her, surveyed the room with weary eyes. The worn desk held a jumble of folders containing last year's student data, this year's application forms, and an ever-growing pile of paperwork she called "the mountain."  Her heart ached for the students, caught in their own storms of doubt and confusion. 
+
+A young girl, her blonde hair pulled back into a tight ponytail, hesitantly approached the desk. Her name was Amelia Rose Miller, and Ellie had been seeing her for months now, ever since Amelia's parents announced they were separating.  Now, the weight of unspoken words hung between them, a heavy silence that felt as thick as the air itself. 
+
+Ellie took a deep breath, knowing this conversation would be challenging. She knew it was only a matter of time before the girl broke down and the truth spilled out – a truth about Amelia's future that Ellie hadn't yet heard.  And that, she realized with a pang of sadness, was why she did what she did - to guide these kids through the storm, even if it meant facing their deepest fears head-on. 

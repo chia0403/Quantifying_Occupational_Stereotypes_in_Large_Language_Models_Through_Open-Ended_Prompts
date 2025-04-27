@@ -1,0 +1,5 @@
+The biting wind whipped across the plains, carrying with it the scent of thawing snow and something else – fear. Elara Nightshadow, her breath frosting in the frigid air, tightened her grip on the hilt of her broadsword. The Watchtower, a looming silhouette against the storm-laden sky, stood silent witness to the growing unease that had settled over the village of Oakhaven. 
+
+Elara, with her midnight hair braided tight and eyes like polished obsidian, was the youngest guard in their small company.  Despite her youth, she possessed an unwavering loyalty to her people and a keen sense of danger. Tonight, that sense hummed louder than the wind's mournful howl.  Something was wrong. Terribly wrong. The villagers whispered nervously behind shuttered doors, their usual lively chatter replaced by hushed voices and fearful glances.  The shadows seemed deeper tonight, stretching like grasping claws across the snow-covered cobblestones. Elara knew, with a certainty that chilled her to the bone, that this night would test her courage like never before. 
+
+

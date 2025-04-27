@@ -1,0 +1,6 @@
+The air hung thick with the scent of frying onions and desperation.  Elias “Eli” Thorne weaved between tables, his worn canvas apron a battlefield of ketchup stains and spilled beer. The diner was a symphony of clanging silverware, clattering plates, and the low hum of disgruntled patrons, all set against the backdrop of Roy Orbison’s mournful crooning from the jukebox. 
+
+The “Sunset Grill,” a chrome-laden relic of a bygone era, perched precariously on the outskirts of Harmony Springs, a town whose name promised more than it delivered. Eli knew every inch of this greasy spoon – the sticky floor beneath his worn Converse, the faded floral wallpaper clinging to the walls like brittle memories, even the chipped mug that held Mrs. Peterson’s perpetually lukewarm coffee.  Tonight, though, something felt different. The usual late-night buzz was absent, replaced by an unsettling silence punctuated by the occasional sigh and the rattle of dice rolling on a half-empty poker table in the corner. 
+
+
+Eli caught the eye of Jake, the grizzled bartender with a permanent five o’clock shadow.  His gaze was fixed on the front door, a furrow etched deep between his bushy eyebrows. Eli straightened, sensing a storm brewing.

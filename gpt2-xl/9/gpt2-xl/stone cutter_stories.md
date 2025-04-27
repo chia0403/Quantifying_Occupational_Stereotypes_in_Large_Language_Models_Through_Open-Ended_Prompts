@@ -1,0 +1,7 @@
+Once upon a time, there was a stone cutter named Goliath who had a stone which was much sharper than all the rest, and he used to throw stones around. When he was old, he would no longer be able to drive the giant's hoes on the ground because they had become dull and small. The giants said to him, 'You will become old, and in your strength you will be no match for us. But we will make our hoes sharper, strong and big enough for us than you, so that you will never be able to drive us."
+
+So he made a hoe for himself out of a great stone and drove the hoe down into the thicket of the giant's field. Then the giants, enraged with Goliath, came up and fought with each other, and it was so fierce that they could hardly hold their footing, and fell upon Goliath, and struck him down and killed him. They dug up his body and dug a hole about two hundred cubits long and wide, and when they went away, they left his corpse lying there, and that hole became the seat of Goliath's grave.
+
+As it is written: He opened up his grave and covered it with earth, but his bones were not found under it, and all the earth that was dug up from the grave was laid down.
+
+As it is written: The sons of Israel did evil in the sight of the Lord; they did not turn

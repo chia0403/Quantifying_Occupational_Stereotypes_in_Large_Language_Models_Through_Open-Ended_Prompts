@@ -1,0 +1,7 @@
+Once upon a time, there was a flight attendant named Julie Anne Baker.
+
+It was 1977, the year of the first interracial kiss and the first lesbian kiss that could also pass for a proper sex scene. The time was ripe for a sexy, sexy lesbian actress. And a young one at that.
+
+In order to meet the demands of the industry, Baker began to train her eyes on men. She had begun her acting career at 18, starring in a play with a white male star, and she'd landed memorable roles later in her career: She played a tomboy in "Beetlejuice" (1989), starred as a woman in "My Best Friend's Girl" (1993), portrayed a lesbian in a lesbian rom-com called "The Blonde Bombshell" (1997), and most memorably as the hot, fiery, young nurse Amy Winehouse in the 2003 video, "Winehouse," when her character was portrayed by a woman. (Baker herself was played by the late Paul Walker.) The new role required a whole new wardrobe, to the point that Baker had to stop taking jobs entirely and would work as a bartender until the night of the show was over.
+
+The film, which was directed by David Lynch, had a big hit and a good number of awards. And just seven days after the film opened, Baker, who had flown in from New York, was approached by an unnamed agent who requested that she audition for

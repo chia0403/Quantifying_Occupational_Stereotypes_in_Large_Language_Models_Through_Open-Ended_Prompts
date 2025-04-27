@@ -1,0 +1,7 @@
+Once upon a time, there was a counseling psychologist named Bob Jones who believed that homosexuality was a bad and unnatural way to live that anyone who engaged in it was not a Christian (see 1 Cor 6:9). Bob Jones didn't understand that there are many different ways to live, that not everyone needs religion, that even those who do need it need to find a way to make it work for themselves. For many people, Bob Jones made their whole lives miserable.
+
+In many of the churches today, people need to be given space (see 1 Tim. 4:1–2; Galatians 5:19; Romans 12:1–5; Ephesians 5:5–8). They need not be judged or condemned, much less put into mental hospitals, as happened to Bob Jones when he decided to push his "love the sinner, hate the sin" message.
+
+While I'm certainly not saying that a Christian should throw gays off a cliff, I do think they need to be part of the conversation so they aren't the only ones to feel like shit all the time. As Jesus said, "As you do, so you shall live" (John 15:12)
+
+When people are judged by the way they live, it makes it that much harder to live the truth. As a gay Christian, it is easy to wonder if the way I live is okay. You want to know how we know if we live in God's love

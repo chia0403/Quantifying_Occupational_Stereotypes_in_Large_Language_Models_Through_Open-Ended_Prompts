@@ -1,0 +1,7 @@
+**Opening:**
+
+The smell hit Dr. Eleanor Beatrice Albright the moment she stepped out of her beat-up Volvo. It wasn't the sterile antiseptic of a typical hospital, nor the earthy scent of a high-end spa. No, this was…old lady. A potent cocktail of mothballs, lavender potpourri, and something vaguely medicinal that made Eleanor’s nose wrinkle. She double-checked the address on her phone, then glanced back at the imposing Victorian house that sat perched on the edge of the cliff overlooking the churning Pacific. Definitely 18 Seaview Drive. Definitely the right place.
+
+**Setting:**
+
+The town of Port Blossom, California, was a postcard come to life, but a postcard faded with time. Once a thriving fishing port, its economy now relied almost exclusively on tourism and retirees. The houses, painted in pastel hues, clung to the dramatic coastline, battered by salty winds and whispering tales of shipwrecks and fortunes lost at sea. The year-round sunshine was a major draw, but the perpetual fog rolling in each afternoon gave the town a certain melancholy charm. Eleanor had taken the job at "Coastal Care Physical Therapy," the only practice in Port Blossom, hoping for a slower pace of life after the relentless grind of the San Francisco Bay Area. But the old house at 18 Seaview Drive, and the elderly woman who lived there, already suggested that “slow” might be synonymous with “strange” in this corner of the world.

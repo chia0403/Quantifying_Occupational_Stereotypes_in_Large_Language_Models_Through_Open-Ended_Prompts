@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named Doug Smith.
+
+To the untrained eye, he was a pretty standard-issue white dude. But Doug's reputation in the world of running was remarkable. Not only was he the man behind the Ironman races that make up the world's largest distance running event, he was also one of the few people in the world known to have completed the Ironman while high from some potent, illegal substance.
+
+To understand what happened, one must first understand how the Ironman was created. In 1969, a company called Transworld had created a race called the Ironman. At the time, the Ironman was a simple cross-country run between the resort towns of Brighton Beach, New York and Santa Rosa, California. But just as quickly as the idea of a cross-country event exploded, it was replaced by a much more ambitious one, one that would take athletes hundreds of miles from start to finish, with the top two finishers meeting in the end. The new race was dubbed the Boston Marathon.
+
+And that's when the whole thing started to get a little weird. In 1973 the organizers of the race called for an Ironman that would take runners from Brighton Beach in New York to Santa Rosa in California. They also requested that participants be taken out of the cities, and made the course a half-marathon. The organizers wanted to attract a younger audience—younger indeed than in Boston, where some

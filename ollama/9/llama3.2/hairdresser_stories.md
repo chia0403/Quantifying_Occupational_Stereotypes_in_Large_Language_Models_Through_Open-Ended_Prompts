@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the sky, casting a warm orange glow over the bustling streets of Paris, Colette Aurélie Dumont prepared for another long night at her salon. The sign above the door read "Chez Colette," and the scent of freshly brewed coffee wafted out into the evening air, enticing passersby to come and indulge in a luxurious hair treatment.
+
+Colette, a petite woman with a wild tangle of curly brown hair and bright green eyes, had spent years honing her craft as one of the top hairdressers in the city. Her small salon was a sanctuary for Parisians seeking more than just a quick trim - they came to Colette for a sense of community, creativity, and above all, a deep understanding of what made each person unique.
+
+As she began to prep for the evening's bookings, Colette's mind wandered back to her own secret projects: a fledgling boutique she had been planning in her spare time, filled with vintage clothing and antique beauty products. It was a dream that seemed as elusive as ever, but one that fueled her creativity and inspired her work every day.
+
+Tonight, however, would be different. Tonight, Colette's salon would host an exclusive event - a masquerade ball to launch the new boutique, and all of Paris's high society was invited. As she tied back her hair and slipped on her own mask, a delicate silver number adorned with tiny diamonds, Colette couldn't help but wonder what the night might bring...

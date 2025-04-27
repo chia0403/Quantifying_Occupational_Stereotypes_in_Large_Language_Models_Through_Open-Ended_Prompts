@@ -1,0 +1,6 @@
+Rain lashed against Detective Amelia "Amy" Sinclair's trench coat as she stood on the precipice of another sleepless night. The streetlamps cast anemic yellow pools in the slick asphalt below, doing little to illuminate the grim tableau before her: a crumpled figure sprawled beneath a flickering neon sign advertising "Big Tony's All-Night Diner."  
+
+Amelia inhaled deeply, the scent of damp pavement and stale grease mingling with something metallic and undeniably disturbing. The diner itself, a beacon of warmth in the frigid December air, remained bathed in an unsettlingly bright light, its windows offering a glimpse into a scene devoid of customers. A lone waitress stood by the counter, her face illuminated by the harsh glow of the cash register, her expression as unreadable as the storm clouds above. 
+
+
+The setting:  New Hope, Pennsylvania - a town caught between the faded grandeur of its industrial past and the encroaching shadow of urban decay. The once-thriving steel mills lay dormant, their skeletal remains serving as monuments to lost glory. Now, the city's lifeblood pulsed through a network of gritty back alleys and dimly lit storefronts, where secrets whispered in hushed tones and shadows danced to the rhythm of a city never truly asleep. 

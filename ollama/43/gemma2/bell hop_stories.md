@@ -1,0 +1,6 @@
+The Grand Regency Hotel was a symphony of polished brass, faded velvet, and whispered secrets.  Sunlight slanted through stained-glass windows, throwing kaleidoscopic patterns across the marble floor where Bartholomew "Bart" Bellweather rolled his cart with practiced grace. A bellhop since he was sixteen, Bart knew every inch of this grand dame, from the worn patches on the Persian rugs to the faint scent of lavender that clung to the antique elevators. He recognized regulars by their walk, their cologne, even the way they held their teacups. But today, a stranger had arrived.
+
+A woman in a crimson dress, so vibrant it seemed to pulse against the muted tones of the lobby, stood beside her luggage like a flame in the hearth. Her eyes were the color of storm clouds, but held a spark of mischief that made Bart's heart skip a beat. He’d never seen anyone quite like her in his twelve years at the Grand Regency. 
+
+
+He straightened his cap, smoothed his apron, and approached with a practiced smile. “Welcome to the Grand Regency, madam. How may I be of service?”  His voice, though barely above a whisper, carried a note of warmth that seemed to calm the woman's restless energy for a moment.   

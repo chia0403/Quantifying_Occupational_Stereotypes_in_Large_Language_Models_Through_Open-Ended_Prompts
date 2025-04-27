@@ -1,0 +1,9 @@
+## The Whispering Walls
+
+**Setting:**  The grand old Thorne Manor, nestled amongst whispering willow trees and shrouded in secrets. Built by a ruthless tycoon who vanished without a trace decades ago, the manor now stood as a testament to forgotten grandeur - peeling paint, dust-laden velvet curtains, and faded floral patterns on worn upholstery were all that remained of its former splendor.
+
+**Main Character:** Elara Thorne, a woman named for both her lineage and her grit, found herself at the heart of this crumbling monument. Though she had been employed by the estate's current owner, Mrs. Abernathy, a kindly but eccentric lady who yearned to restore the manor’s former glory, Elara was far from a mere housekeeper. 
+
+**Story Opening:** The air hung thick with the scent of lavender and old memories as Elara stepped into the grand hall. Dust motes danced in the sliver of sunlight filtering through the cracked windowpane, illuminating moldering portraits of stern-faced men in tricorn hats. This was her domain - a world of creaking floorboards, echoing whispers, and secrets tucked away behind cobwebbed alcoves.  Elara ran a callused hand over a portrait of a woman with piercing blue eyes, the only hint of life in the faded painting. It was Mrs. Thorne's great-grandmother, the last known resident before her disappearance. Elara had inherited her spirit: an unwavering determination to uncover the truth behind this forgotten place. Today's task was simple: dust the grand ballroom for the weekly estate meeting and prepare a tea party for the esteemed Professor Oakman.  But as she began to clean, a faint whisper caught in the silence – "Don't you forget..." Elara paused, her blood turning cold. This manor held secrets, stories yet unwritten, and tonight, she would unravel them. 
+
+

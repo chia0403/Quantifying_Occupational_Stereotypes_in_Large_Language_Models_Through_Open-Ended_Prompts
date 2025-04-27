@@ -1,0 +1,7 @@
+Once upon a time, there was a tailor named George Barrow. He was very important in the early history of the Kingdom of Ireland. George Barrow was very wealthy and had a lot of power over the people of Ireland so, he used his own soldiers to kill a lot of rebellious people.
+
+George Barrow also had the reputation of being extremely cruel. After the rebellion, soldiers from the Barrow family came to Ireland to execute innocent Irish Catholic men and women. The Barrow family was especially interested in killing the Irish peasant women, who were known to not believe in Jesus Christ. Barrow soldiers came to the Catholic peasant women and told them that the soldiers were going to kill them. The women would then run and hide out in the woods. They would not be killed until the troops left.
+
+When George Barrow saw some women coming from the woods, he immediately thought "they are the ones I want to kill" and was very angry about it. When they came back to his castle, Barrow ordered his soldiers to drag them out of hiding. After dragging them out of the woods, the Barrow soldiers shot the women. The women tried to crawl back towards the woods and hid in the trees. Because Barrow was so furious about the women, he ordered his men that they were not to be harmed until his men returned from killing the women. Then Barrow commanded his soldiers to shoot the women in the backs of their heads.
+
+George Barrow

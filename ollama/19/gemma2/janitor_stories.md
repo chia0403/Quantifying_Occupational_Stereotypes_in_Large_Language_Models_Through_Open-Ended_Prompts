@@ -1,0 +1,5 @@
+The stale scent of lemon disinfectant hung heavy in the air, mingling with the faint aroma of old paper and forgotten dreams. Elias Thorne, custodian extraordinaire (at least that's what he’d call himself on a good day), hummed softly to himself as he pushed his mop across the linoleum floor of the Grand Blackwood Theater. His worn denim overalls chafed at his knees, and his name tag, pinned crookedly to his faded blue shirt, declared him “Elias - Janitorial Staff.”
+
+It was 2:30 AM, the witching hour for Elias. The theater stood silent, a colossal, cavernous shell of velvet curtains and gilded seats.  The ghosts of past performances lingered – echoes of thunderous applause, whispers of hushed romance, the lingering scent of popcorn and spilled soda. 
+
+Elias paused at the stage door, his weathered hand resting on the heavy oak. The silence was absolute, broken only by the distant rumble of a passing truck outside the city limits. He took a deep breath, savoring the stillness before venturing into the heart of the theater where stories came to life and dreams were spun from darkness and light.  

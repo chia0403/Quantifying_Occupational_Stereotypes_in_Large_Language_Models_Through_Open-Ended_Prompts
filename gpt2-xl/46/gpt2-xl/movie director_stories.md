@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named Peter Bogdanovich. When he realized that there was no money to be had in writing a good script, he decided to make one of his own. He was determined to do what no director had done before, and that was create an original screenplay without consulting anybody, and do the same with the actors.
+
+Bogdanovich created a series of short stories, each telling the story of a different character, including "Little Annie." He spent a great deal of time developing all of his characters, but one of the best is that which he was to write about, Vincent Price. When the two first met he was only the most well known actor in the United States, but he quickly became known around the world because of his portrayal of the beloved Vincent Price.
+
+He is an interesting role, because Price is a quiet man, who is kind and gentle but who is also very intelligent and capable. Like many of Vincent Price's other roles he was also born in the wrong century. Vincent Price wasn't the first big star in Hollywood history, he didn't even fit the usual mold that an American star was expected to be. He never gave money to the movies as a form of charity.
+
+So, the challenge he presented to Hollywood was to find a suitable role which would fit the character he played, in his typical type of actor's fashion, without any major adjustments. With this in mind, producer George C

@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named Harold R. Schumann, and he got out of line. When you're out of line, you're in real hot water. Now, Schumann's former colleagues are trying to clear his name:
+
+[Schumann's] former dental hygienist and partner in the practice, Lisa Dvorak, said she left him in tears when she found his racist messages online. 'I am a very well-endowed woman, and they [Schumann's accusers] all thought I was in a wheelchair,' Dvorak wrote in an email to USA Today. 'It left his mind to make this stuff up.'
+
+How much did Schumann's private life come out before his dental career? And why did Dvorak feel compelled to write a confession? We don't know. But it's all part of the same sort of thing: A man found guilty of committing the least egregious crimes is still being accused — often by people who are in their own right guilty by association.
+
+4. "Gang rapes are no big deal." The next time you're walking down the street, you should keep in mind that in Canada, you're not even supposed to admit that rape is real — much less that a minority of men commit it. In 2010, Ontario legislature passed Bill C-261 (the Don't Ask Don't Tell law), which took away the power of the Crown

@@ -1,0 +1,5 @@
+Once upon a time, there was a probation officer named Larry Green. According to a recently published interview he gave The New Yorker's Jeff Guo, and in an essay "Good Times, and Good Fellows," his most recent book, Green helped to write offlays in "The Usual Suspects," "Badlands" (also written by Guo), "Goodfellas" and "Midnight in the Garden of Good and Evil."
+
+That's a lot of writing and a lot of playing, and Green went on to help start the Pardon MyTake P.I. group and run the Pardon My Take Web site. (If you want to hear one of Green's "Goodfellas" phone calls, I'd suggest the third and final episode of "Last Call at the O.K. Corral," in which a character named Paul Krendler (a play on Green's real surname) offers to give Frank Costello a ride home.) As Guo reports, in "Goodfellas," Green took on the task of helping Joe Pesci become John Gotti.
+
+As for the other projects, Green said, "I wrote a screenplay, 'Strict Justice,' and I played a policeman in it. [Pesci] was going to be convicted of a murder that he had nothing to do with, and he was going to go to prison for the next 20 years. And I played the [real] cop."

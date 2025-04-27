@@ -1,0 +1,5 @@
+Rain lashed against the windowpane, mimicking the storm raging inside Dr. Eleanor "Ellie" Hayes' soul.  The air was thick with the scent of stale coffee and impending despair in her small office at Willow Creek High School. The walls were lined with posters that depicted motivational quotes about self-belief – ironic when you considered her current state. She sat hunched over a stack of files, each one filled with more red flags than confetti: absenteeism, substance abuse, parental neglect, and the ever-looming shadow of teenage angst.  Ellie was supposed to be fostering growth, not drowning in it. 
+
+She rubbed a tired hand over her eyes, the weight of another day feeling heavier than usual. Tonight, she would be meeting with Daniel Thorne – a boy on the periphery of the social hierarchy, known more for his brooding silence and defiant scowl than his actual grades. Ellie had been following Daniel's case, concerned about his withdrawn behavior, sudden drops in test scores, and increasing defiance towards his parents. He was a walking enigma, each day bringing a new puzzle piece that seemed to slip through her grasp. 
+
+Tonight, Ellie hoped to crack the code. 

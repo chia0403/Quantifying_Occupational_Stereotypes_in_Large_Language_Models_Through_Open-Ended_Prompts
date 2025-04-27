@@ -1,0 +1,6 @@
+The humid Georgia air hung thick as molasses, clinging to Elias Vance like a second skin. Sweat trickled down his temple, leaving salty streaks across his dirt-smudged forehead.  He squinted at the dilapidated farmhouse before him, its paint peeling like sunburnt skin and porch swing groaning in the relentless breeze. The power lines leading to it sagged precariously, their bare copper wires singing a discordant tune against the cicada symphony. 
+
+Elias sighed, wiping his brow with the back of his hand. Another day, another desperate call for help from someone who clearly hadn't checked if they had the skills or finances to handle their own electrical issues. He was Elias Vance, licensed electrician and resident fixer-upper of rural Georgia, and sometimes that meant putting up with more than just faulty wiring.  Today, it felt like a whole lot more.
+
+
+He adjusted his tool belt, feeling the familiar weight of his trusty hammer and wire strippers against his hips. As he stepped onto the creaking porch, a stray dog barked from within the house, its bark more menacing than any actual threat posed by these overgrown weeds. This wasn't just a power outage; this was a full-on adventure waiting to happen.  And Elias Vance, with a shrug and a grunt, was ready for it. 

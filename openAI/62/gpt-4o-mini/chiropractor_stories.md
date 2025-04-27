@@ -1,0 +1,11 @@
+Title: The Cracked Spine
+
+Setting: Nestled in the bustling heart of Willow Grove, a quaint town where tree-lined streets wind past charming storefronts and cozy cafes, stands a modest brick building with a sign that reads "Haven Chiropractic Clinic." Inside, the air is filled with the faint scent of lavender and the calming sounds of soft instrumental music. The walls are adorned with serene landscape photographs and motivational quotes about health and wellness. The waiting area features plush chairs and a small bookshelf filled with wellness literature, inviting patients to relax as they await their appointments.
+
+Opening:
+
+Dr. Madeline Rose Collins adjusted her white coat as she settled into her sunny office, the radiant morning light filtering through the large windows. A smile played on her lips as she glanced at the thriving plants that adorned her desk. They were more than mere decorations; they were her silent companions in the hustle of healing. Ever since she transformed the old bakery into Haven Chiropractic Clinic, this space had pulsed with life, each day bringing new stories of pain, perseverance, and hope.
+
+Today, however, felt different. The crisp autumn air that filtered in from outside tugged softly at her thoughts, coaxing an unsettling feeling to the surface. Unlike her usual routine of morning adjustments and patient consultations, she found herself drawn to the window, watching leaves flutter gracefully to the ground. There was a storm brewing on the horizon — not just weather-wise, but within the fabric of her community.
+
+Just then, the bell above the clinic's door chimed, pulling her from her reverie. As the door swung open, a figure stepped inside, their silhouette framed by the dusky glow of the day ahead. Dr. Collins straightened, her professional demeanor instinctively kicking in, but something about this patient felt different. Today, she wouldn’t just be adjusting spines; she would unravel the mysteries of tangled lives — hers and others.

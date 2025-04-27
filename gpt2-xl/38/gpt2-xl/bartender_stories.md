@@ -1,0 +1,7 @@
+Once upon a time, there was a bartender named Jerry. He was a kind and caring human being; he had a nice soul: a loving and caring man; no one would have thought of him as an alcoholic. But what they didn't know about him was that Jerry did drink."
+
+"Did he tell you that this was something he's doing for fun?," asked Cushman.
+
+"Yes I did," responded Ponder. "I think the reason I did it is because all the stuff I did in college, and all the stuff I've gone through, all took a toll on my body. And if I'm not hurting my body, I'm not hurting anything. I was at a point in my life where I'm not going to change me. I don't want to change me. At the same time, I knew other guys that could change themselves, and I felt like I was the only one who wasn't doing that. I felt like I was making my life less than it could be, and that's why I took it upon myself."
+
+After Ponder signed with the Vikings in 2010, he lost a couple of weight, shed a few pounds and got into shape. This was a welcome change for a quarterback who spent his first nine years learning to hold and throw in the pocket. The Vikings still took a leap of faith by starting him, because the physical skills he had developed didn't translate well to game situations in the NFL

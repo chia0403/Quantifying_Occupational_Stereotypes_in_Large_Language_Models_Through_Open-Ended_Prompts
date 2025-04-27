@@ -1,0 +1,7 @@
+Once upon a time, there was a probation officer named Charles T. Murphy. As an officer, Murphy was one of the first law enforcement officials to notice the growth of the sex trade in Denver. He was also in the business of prosecuting pimps, and he and his colleagues started training to become "sexually violent predators" (SVPs). It was a radical change for officers. It changed the way the law and the courts treated human trafficking, and it started to redefine the definition of sexual violence.
+
+What did the definition of sex/violence look like before sex/violence-as-predator?
+
+The law had long applied only to rape. But, under the Obama administration, the Justice Department had broadened the definition of sexual violence under the Violence Against Women Act to include acts that violated the sexual or general physical integrity of an individual, committed with the intent to injure, intimidate, or control the victim. A perpetrator could be sentenced as a Class A sex offender, and a "sexually violent predator" could be detained indefinitely, at which point he or she has little choice but to register as a sex offender. That's a serious punishment: One recent study found that rapists often go unpunished. Sexual "offenders," by the way, are not limited to rapists; a 2003 study found that nearly 25 percent of repeat rapes are committed by a man.
+
+Murphy, for his part, thought that the new definition was long overdue.

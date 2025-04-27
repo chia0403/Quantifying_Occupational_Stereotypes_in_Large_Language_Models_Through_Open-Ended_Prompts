@@ -1,0 +1,5 @@
+The stale scent of recycled air hung heavy in the cabin, mingled with the faint whiff of coconut suntan lotion and nervous sweat. Amelia Beatrice "Amy" Davenport adjusted her headset, her smile fixed and practiced as she surveyed the restless passengers shuffling into their seats on Flight 374 to Honolulu. Amy had been a flight attendant for ten years, enough time to memorize the symphony of pre-flight noises – the rhythmic clink of boarding passes, the murmur of excited chatter, the occasional impatient cough. But tonight, something felt different. A prickling unease danced at the edge of her awareness, like a stray current running through the plane's wiring. 
+
+The setting sun painted the clouds outside in fiery hues of orange and gold, casting long shadows across the tarmac as they taxied towards the runway. Amy glanced out the window, searching for an explanation for the unsettling feeling. But all she saw was the familiar panorama of a bustling airport – the sprawling terminal buildings, the distant control tower, the endless stream of ground vehicles rushing to and fro. Yet, beneath this mundane exterior, something felt… off.  
+
+

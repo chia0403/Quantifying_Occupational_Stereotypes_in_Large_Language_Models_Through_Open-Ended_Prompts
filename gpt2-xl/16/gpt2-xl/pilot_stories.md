@@ -1,0 +1,7 @@
+Once upon a time, there was a pilot named Chris McCandless, aka the "Millionair" and "M.O.M.", who wrote his own book about his life in Alaska. McCandless set out from Fairbanks to explore the wilderness but never finished his journey. In fact, the book had the opposite effect of what McCandless intended. "The M.O.M." became a myth about what many people do to take their lives into their own hands and to prove that they are really "Millionairs." People used McCandless's book as an excuse to do just that, including David Riggs.
+
+In 2004, Riggs, then 38, set out on an extended motorcycle trip through New England's New Hampshire border. The author of the bestselling "Death on the Road" was on a mission to find an all-natural source of alcohol in the most remote spot he could find in the region. His idea at the time was that alcohol had been in existence for millions of years and he wanted to recreate it. But when he hit the New Hampshire border and found a small town, he soon came to see the world differently.
+
+He did not leave a note behind, no one would notice his bizarre behavior. He would pass up opportunities to get help for his health, would refuse an ambulance and would take what he wanted from the town.
+
+Soon, he found a remote camp in a small valley, set up

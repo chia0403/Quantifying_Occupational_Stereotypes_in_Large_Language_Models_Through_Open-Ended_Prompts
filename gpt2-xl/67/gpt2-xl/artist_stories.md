@@ -1,0 +1,7 @@
+Once upon a time, there was a artist named Jeff Koons. There was another Jeff Koons and Jeff Koons again. Then Jeff Koons again, and Jeff Koons—and Jeff Koons again. But the Jeff Koons who is on view for now in Ville de Saint-Malo on the edge of Paris, which he built on the site of a derelict hotel, a building once home to a thriving art industry, is, I suspect, far from the Jeff Koons who will grace the walls of any exhibition. In fact he seems—no, I suspect he is not—the same person who's been selling paintings since he was nine years old.
+
+As I wandered through the lobby after Koons's talk, a young woman named Valerie said, "There's something I have to tell you," and she ushered me toward the back. An American employee of the agency that represented Koons on two previous occasions, she explained that the man we'd met in the lobby was not the same Jeff Koons. "You have to really see him to believe what you read on the Internet," she said. As I walked along, leaning forward carefully to avoid treading on his feet as he walked, I asked her what she meant. She had to laugh and shrug.
+
+"You'll see," she said.
+
+One afternoon last July at the Venice Biennale, Koons spoke about how he started as a young artist in the New

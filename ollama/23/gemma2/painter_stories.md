@@ -1,0 +1,6 @@
+The scent of linseed oil and turpentine hung heavy in the air, clinging to Amelia Beatrice Hawthorne's paint-stained overalls like a second skin. Outside, the Parisian dawn was just beginning to blush across the Seine, casting long shadows that danced on the canvases lining her studio walls. 
+
+Amelia's space wasn't grand – it was a cramped attic room tucked away in Montmartre, with slanted ceilings and windows that let in slivers of the city's vibrant energy.  Her easel stood sentinel in the center of the room, draped in a faded velvet cloth that had seen its share of spilled paint and hasty cleanings. A half-finished canvas leaned against it, depicting a riotous scene of street performers beneath the twinkling lights of a bustling cabaret. The colors were bold – crimson roses, emerald green costumes, sapphire blues of the night sky – but something was missing, a certain spark that Amelia couldn't quite capture. 
+
+
+She took a deep breath, trying to clear her mind. Inspiration had been elusive lately.  The city, usually a wellspring of creativity, seemed to have lost its magic. Even the vibrant hues that once danced before her eyes now appeared dull and lifeless. As she reached for her palette knife, Amelia felt a familiar pang of frustration. Perhaps it was time for a change of scenery, a journey to reawaken her artistic soul. 

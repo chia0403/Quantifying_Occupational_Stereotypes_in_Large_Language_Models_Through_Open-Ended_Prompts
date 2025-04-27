@@ -1,0 +1,5 @@
+The humid New Orleans air clung to Tobias "Toby" Moreau like a second skin as he hoisted himself onto the rickety fire escape ladder. A symphony of cicadas buzzed in the oaks lining the street below, their rhythmic chirping punctuated by the mournful wail of a distant trumpet. Toby's worn overalls strained against his sweat-dampened chest as he climbed, the rusted metal groaning under his weight. He adjusted the leather straps holding his tool bag, its familiar weight a comforting presence against his hip.
+
+He reached the top and peered into the open window, squinting at the dimly lit interior of the old apartment building on Bourbon Street. A pungent aroma of stale beer and desperation hung heavy in the air. Toby sighed – another leaky pipe, another call for “Big Tobes,” the nickname he'd earned both for his imposing stature and his ability to fix anything plumbing-related.  This one, though, felt different. There was a strange stillness in the apartment, a silence that seemed to press against him like an unseen presence. 
+
+

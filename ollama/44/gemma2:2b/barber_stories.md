@@ -1,0 +1,6 @@
+The air in "The Razor's Edge" smelled perpetually of sandalwood and cheap cologne - a comforting scent for Elias Bellweather, owner and sole operator of the modest barbershop on Elm Street.  The shop itself was a refuge from the hustle and bustle of the city; its faded green walls lined with framed photographs of historical figures (all men) holding their well-groomed faces up to the light as if posing for an eternal portrait. It was here, in the quiet hum of clippers and chatter from the nearby coffee shop, that Elias found his own rhythm – a quiet one, perhaps, but one that ran deep like the roots of the ancient elm tree outside the window.
+
+Elias's hands were roughened with years of work, calloused yet skilled. His clients weren't just faces he shaved; they were stories he helped unravel - each shave a silent conversation between man and barber. He knew their anxieties as well as his own, their hopes and fears like the secrets whispered in the steam rising from his freshly poured coffee.  Tonight, however, was different. A man sat in the corner chair, eyes closed, his face buried in a newspaper. Elias's heart throbbed with a quiet tension. Something about this man’s silence felt off. 
+
+
+**Continue reading to explore the story further!**

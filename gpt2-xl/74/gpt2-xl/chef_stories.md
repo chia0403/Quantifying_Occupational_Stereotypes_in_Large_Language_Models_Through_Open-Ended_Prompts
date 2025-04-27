@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named Gordon Ramsay. He did one reality show. He came in third in a cooking competition. And then Gordon Ramsay did another reality show. He came in fourth in a cooking competition. And the last time his show ran, Ramsay put on this show called 'Kitchen Nightmares'.
+
+It was a game show where Ramsay set up a fake restaurant in which he would cook an entire meal. He would cook all the dishes himself without paying attention to the food or the dishes themselves. To the show's credit, it was one of the first real reality kitchens in a while and it was a great introduction to this idea of chefs being put to work, trying to prepare something for a live audience.
+
+Then in 2009, Gordon Ramsay debuted another show in Ireland called 'The F Word'. It aired there. It's still on the air. People watch it. They don't watch the rest of the shows. It's called 'The Big Fat Quiz' for a reason.
+
+The show was about Ramsay going through all the possible names of the three types of food you want to cook. Basically, as a chef he knew which restaurant in America he wanted to go to. He had already made a restaurant. Now he has a whole slew of new restaurants he is trying to open in Chicago. This is all supposed to be part of his next reality show. For the Big Fat Quiz, Ramsay is having chefs over and then having

@@ -1,0 +1,7 @@
+The steam billowed from the sauna's vents, carrying with it the musk of sweat and eucalyptus oil.  Inside the cramped, dimly lit room at "Body By Bliss", Amelia Rose "Amy" Montgomery felt the familiar knot of unease tighten in her chest. Her usually-bright smile faltered as she glanced across the room at the mirrored wall. 
+
+It was the same scene every day: bodies contorted in various poses, struggling to find balance and release tension through the strenuous yoga sequence. The gym's atmosphere buzzed with anticipation for her morning "Energize" class. But today, Amy wasn't just feeling pressure; she was drowning in it. 
+
+The last few months had been a whirlwind of personal and professional turmoil: her grandmother's passing, the chaotic launch of her new online fitness program, and the constant barrage of expectations from clients who wanted results faster than time itself allowed.  Even the warm, inviting scent of citrus-infused essential oils couldn't erase the pervasive feeling of anxiety that clung to Amy like a second skin. 
+
+The only thing she could think about was tonight’s dinner party.  Her mother, always the voice of reason, had insisted on it – a way to celebrate the launch of her program and a chance for Amy to "let loose" in front of her friends.   She needed this dinner party, desperately. The pressure felt like an unbearable weight, one that threatened to suffocate any hope she might have of enjoying her success. 

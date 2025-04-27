@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting with a guard as the main character:
+
+**Setting:**
+
+The year is 2347. New Alexandria, a gleaming metropolis built atop the ruins of the old Washington D.C., is divided into gleaming chrome towers for the privileged Inner Ward and a sprawling, neon-drenched undercity called the Cracks. The Inner Ward, shielded by shimmering energy barriers and patrolled by robotic sentinels, boasts pristine parks, advanced medical facilities, and luxurious living. The Cracks, a lawless labyrinth of repurposed pre-Collapse structures and makeshift settlements, is choked with smog, rife with crime, and teeming with those deemed undesirable by the Council that governs New Alexandria. The air hangs heavy with the scent of fried synth-meat, ozone, and desperation.
+
+**Opening:**
+
+Sergeant Marcus Alistair Vance adjusted the weight of his pulse rifle against his armored vest, the familiar thrum a small comfort in the perpetual unease of his job. The flickering holographic advertisements for cybernetic enhancements and luxury condos shimmered across the rain-slicked street, their promises of a better life mocking the grimy reality of Sector Gamma-9 in the Cracks. He pulled his rebreather mask tighter, the filtered air a bland substitute for the acrid tang he'd grown accustomed to. Another night, another patrol along the Inner Ward perimeter. Another chance for someone desperate enough to try to breach the barrier, another potential riot sparked by the Council's latest austerity measures. Marcus hated this sector. Hated the constant tension, the suspicious glances, the knowledge that every shadow held a potential threat, or a desperate plea. He hated, most of all, that he was the thin, blue line separating order from chaos, a line that seemed to fray a little more each day.

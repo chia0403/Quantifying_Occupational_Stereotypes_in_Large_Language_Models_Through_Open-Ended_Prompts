@@ -1,0 +1,5 @@
+The roar of the city was like an angry beast, its teeth gnashing against the concrete walls as rain pounded down in sheets.  This wasn't a pretty sight for anyone - except perhaps a particularly masochistic cat. That's how Elias "Eli" Hawthorne saw it, anyway. The relentless patter of water on the corrugated tin roof above his work table was like someone hammering away at his spirit. 
+
+It had been three months since he took a new job, three months since he'd traded in the quaint comfort of his family's plumbing business for the chaotic symphony that came with working out of a cramped, dimly-lit alleyway apartment in downtown Portland. Eli was no stranger to hard work - he’d spent his childhood patching leaky faucets and rescuing trapped kittens from storm drains alongside his grandfather, but something about this city felt… different.  
+
+The rain hammered relentlessly on the street outside as Eli wrestled with a stubborn pipe. It wasn't just the constant downpour; it was the way the pipes seemed to resist him like an uncooperative colossus. Each twist and turn of the wrench sent sparks flying, each bend sending shivers down his spine. 

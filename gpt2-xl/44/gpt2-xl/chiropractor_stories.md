@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named Joseph Novella: http://en.wikipedia.org/wiki/Joseph_Novella After a few years of practicing his "therapy" without much success, he decided to look outside the "therapy" industry to find a solution for his "cranial" problems. What he found was the chiropractic education system. There is a lot of misinformation, and some legitimate criticisms of chiropractic. However, when you look at the "real" educational system by a real chiropractor, Novella has found what he calls a "fraud" – a "massive, multi-billion dollar fraud". It costs the world about $3.75 billion a year – and has lost about $30 billion in the United States alone (but only 0.75% of the $4.3 billion invested in research since 1887). That's a lot of wasted money in my opinion. This is the "real" chiropractic education system from the ground up – for more than 40 years:
+
+The Real Chiropractic Education System
+
+This is not a post about whether people should have chiropractic. It is really a post about whether or not people should pay for the education that does not exist. And in this particular case it seems that the people pay for the education, and they get the education that is not worth the price.
+
+At IBC there is much talk

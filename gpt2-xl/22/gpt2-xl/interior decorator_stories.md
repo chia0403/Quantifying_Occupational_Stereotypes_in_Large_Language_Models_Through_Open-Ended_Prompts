@@ -1,0 +1,7 @@
+Once upon a time, there was a interior decorator named Bob who worked at a huge company called Fazioli. It was called Fazioli and Bob designed the interior at a large firm called Fazioli. It was in Bob's home office that he discovered the key to great fashion design was to keep things that look good together. If you saw someone with the same blue shirt as the person next to you on the train, and the clothes in the first two rows were too big, then you'd keep the first two rows and the clothes that fit like that at a level where they were not too large. He figured that out. But then, Bob's design was done in just one company. It only took ten years for Bob to realize that by following that principle, he could put his design at the forefront of the most prestigious interior decorating firms. We think he's a genius."
+
+Hewitt and the team at Fazioli are constantly thinking about ways to keep things together. Every time we think it's time to throw good old-fashioned cloth pants in the dust bin, they come up with a new fabric that will fit like it was made with cotton. These are the great designers. They don't know anything about fashion. These are our men.
+
+The team is a little bit of everything:
+
+• Tom Hewitt – CEO (Founder and CEO of Fazioli and the owner of the HPX

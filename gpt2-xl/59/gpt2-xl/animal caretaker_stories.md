@@ -1,0 +1,7 @@
+Once upon a time, there was a animal caretaker named Bob Jones. He came across a group of people living in an abandoned ranch in Georgia. They were so poor they could not afford to feed or house their animals, and they had no way of getting medical care. Jones took the opportunity to find a way to save them.
+
+He adopted a couple of pups (they became the famous "Pigskins") from the local pound, then fed them with food he found in the bushes. Some of his other animals became close friends and served as companions. They would visit him every day, and feed him as best they could. They made a mess in the barn (Jones loved to play tricks on animals) and occasionally fought each other. The family's farm became a home to dozens of animals, and eventually became the Jones Farm.
+
+Bob Jones soon had a problem. The farm was slowly running out of room, so he decided to sell, rather than let them all starve to death. As time went on, other owners came onto the Jones farm. They took care of his animals — sometimes with as little as a dime a day — but were unable to keep up. Then an animal welfare organization offered to run a farm inspection, and Bob Jones took a chance on her. One year, the Jones farm raised $1,300.
+
+Today, Jones Farms is a non-profit conservation organization with over 120,000 acres of mostly rural land and more than

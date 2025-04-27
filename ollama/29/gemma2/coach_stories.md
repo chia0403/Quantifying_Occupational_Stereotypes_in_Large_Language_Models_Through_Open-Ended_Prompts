@@ -1,0 +1,6 @@
+The humid Georgia air hung thick and heavy, clinging to Coach Amelia "Amy" Harper like a damp blanket as she surveyed the field. Patches of dew glistened on the freshly cut grass, mirroring the beads of sweat already forming on her brow. It was 6:00 AM, but the rising sun hadn't yet pierced the canopy of towering oaks that bordered the practice field at Magnolia High School. The air buzzed with a pre-dawn symphony of cicadas and distant roosters, a soundtrack as familiar to Amy as her own heartbeat.
+
+She took a deep breath, savoring the crisp scent of pine needles and damp earth, then adjusted the baseball cap perched on her head, its brim shading her face from the weak rays of dawn.  It was going to be another scorcher, just like every other day in July. But Amy wouldn't have it any other way. 
+
+
+This was her time, her place. Underneath this sprawling sky, surrounded by the quiet hum of anticipation before the roar of the crowd would erupt, she felt truly alive. This year, however, felt different. A new team, a fresh start, and an opportunity to rewrite their story. Amy's eyes glinted with determination as she glanced towards the dugout, where her players were already starting to trickle in, their sleepy faces gradually brightening with the familiar energy of a Friday practice. 

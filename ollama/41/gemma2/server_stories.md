@@ -1,0 +1,6 @@
+The sticky floor was slick with spilled beer and forgotten dreams. The air hung thick with the smell of fryer grease and desperation, a potent mix that clung to Amelia Rose Hawthorne like a second skin.  Amelia weaved between tables, balancing precariously on her heels as she navigated the Friday night chaos at "Jimmy's Joint," a greasy spoon diner nestled in the forgotten corner of downtown Phoenix. 
+
+The neon sign flickered intermittently, casting an anemic glow across the faces of weary patrons huddled over mugs of lukewarm coffee and plates of lukewarm food. It was the kind of place where dreams went to die, replaced by endless nights and bottomless cups of black coffee. Amelia knew its rhythms, every creak of the floorboards, every rattle of the rusty windowpanes, every sigh that escaped the lips of regulars nursing their sorrows alongside their sodas. 
+
+
+She was a veteran of this battlefield, a warrior armed with a smile and a pad of orders, navigating the minefield of demanding customers and broken dreams with practiced ease. Tonight, however, something felt different. A prickling unease danced at the edge of her awareness, a sense that tonight's crowd held secrets whispered beneath the hum of the fluorescent lights.  

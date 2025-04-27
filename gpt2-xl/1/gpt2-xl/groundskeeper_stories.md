@@ -1,0 +1,7 @@
+Once upon a time, there was a groundskeeper named Harold Everson. He worked for the school district of Lake Tapps, Oregon, and apparently the kids loved him. So much so that, three years into their teaching career, Harold decided to change subjects.
+
+According to news accounts, he was asked in 1998 to stay a while to help fix up the school gym, and stayed a few years to help with playground maintenance. He became quite comfortable working for the kids, but eventually felt compelled to take up professional running, as well, after realizing that he had "little in common with any of them."
+
+He moved to Atlanta to teach at Georgia State University, and became a local hero to many after he ran a marathon in six minutes and fifty-one seconds, an incredible feat that is certainly worth noting. One of our favorite running stories involves this run:
+
+One day it was spring break and I had left the office early. I had just returned from running 10 miles with some friends, and a couple of hours later was in a gym at Georgia State with a bunch of young Georgia State teachers who were running. I got into my groove and just seemed to run right through them. It was a funny run, the first one that I had been to where I was the only one who was really doing it. They talked me into joining in with them with the running, but not to the point that I got stuck at the starting line. Everyone had been talking

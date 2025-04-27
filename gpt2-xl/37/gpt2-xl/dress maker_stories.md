@@ -1,0 +1,7 @@
+Once upon a time, there was a dress maker named Sally, who decided to open her own shop in the small town of Ponyville. She was very successful, and made dresses that not only made girls look pretty, but also made boys look like they had just come from the fair. Unfortunately, her dresses were very pricey, because she worked all hours of the night.
+
+
+One night, a wealthy rich stallion named Granny Smith saw that a customer was complaining to her about Sally's prices, until she decided to offer Sally a chance to quit her job. Sally turned the chance down, but Granny Smith did not. The old lady took the chance to see whether her employees could work for free and prove themselves. Sally's first employee, a man named Bambi, proved that Granny Smith was right: he worked non-stop until the night he died.
+
+
+Sally's next employee was a pony named Chilly, who did most of the work herself. One day, Sally's daughter-in-law was sick in bed with pneumonia, and they asked Chilly to go over to the bed and check that everything was OK. When she got there, she saw that Chilly was dead. Her daughter-in-law quickly cried, knowing that Chilly was an excellent customer and Sally's best worker. Granny Smith decided to use Chilly's death as punishment for Sally. She took out a large bet with Chilly, who owed Sally five

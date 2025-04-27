@@ -1,0 +1,7 @@
+Once upon a time, there was a kindergarten teacher named Alice who didn't feel like she had a place to call home. It was about time, she thought, that she returned to her childhood home. "Forget it," she grumbled as she sat down at her desk, her wooden chair taking up most of the classroom. "Nothing will happen to me. You're not my teacher any more: I hate the school and I hate myself. I'll never find another place to belong." Her hand, it seemed, was getting sore. It needed a massage.
+
+"I mean it, Alice." A boy named Mark, who had been making her life miserable, said. "You haven't even told anyone here that you like school. Are you going to waste your whole life here? That was before I came around." His tone suggested that he thought her comments at the time were inappropriate and insulting. "It's okay to have an opinion, but it's not okay to talk about it," Alice said. She didn't want their conversations to get physical. "I'm not a child any more. I'm a professional, and I must speak as I see. I know I sound crazy."
+
+"You will have to be," Mark said.
+
+"I can't just quit. I can't just go down to the office." She stared down at her hands, which now stood at her sides and looked like talons. She didn't have any

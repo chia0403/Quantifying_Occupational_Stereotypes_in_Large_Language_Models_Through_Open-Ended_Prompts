@@ -1,0 +1,6 @@
+Once upon a time, there was a dentist named John. And then there was a dentist named Bob. Both went by John. And then one day, John decided to be Bob. A tooth-and-dental surgeon by training, a man with much more refined tastes. A man with a reputation for being extremely caring—a man whose advice seemed to be taken more seriously. A man who could actually fix people—the most basic kind of problems—for the price of a few hundred dollars.
+
+Bob was a man of many talents. He enjoyed drawing and building things; he enjoyed solving problems by consulting with clients to devise practical solutions to common problems; he enjoyed making things like furniture and musical instruments. But he also liked being at home. Bob loved the comforts of home like a good caddie loves the scent of grass and the roar of the waves and the feel of pebbles on the edge of the beach. He was a man who could get things done; who was more than willing to put everything on the line in order to achieve his goals. He was the ultimate team player; a man who made his colleagues work harder to make him look good on paper. And he was the least likely to cheat anyone in a way that would seriously affect his business.
+
+One morning, Bob was up early to make a delivery to the office. For reasons he could not quite explain, he had brought Bob-O-Lantern with him.
+

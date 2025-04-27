@@ -1,0 +1,3 @@
+Once upon a time, there was a private detective named Jim Gordon. He was a cop and he loved his work. Even though he was older, he'd still hit the gym and run as much as he could, even if it's only once a month. Then one day, he wasn't feeling so good, so he went home and fell asleep in his house. The next day, while getting ready, he noticed that he couldn't climb any higher, so he decided to do some more treadmill training. This time, it would be so much fun, a chance to get out there and prove his competence with his trusty bat.
+
+This is where the story of Batman Begins takes place.

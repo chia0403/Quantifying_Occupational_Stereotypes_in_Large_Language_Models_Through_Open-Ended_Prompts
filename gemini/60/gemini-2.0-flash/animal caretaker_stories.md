@@ -1,0 +1,13 @@
+## Story Opening:
+
+The first tendrils of dawn, the color of bruised peaches, were just beginning to creep over the horizon, painting the silhouette of Mount Rainier a soft, hazy pink. Inside the Primate Pavilion at the Evergreen Wilderness Sanctuary, the air hung thick with the scent of damp earth, banana peels, and something indefinably...primate. Amelia Rose Hayes, her auburn hair pulled back in a messy bun, shivered despite the insulated coveralls she wore. She could already hear the restless rustling of the chimpanzees in their enclosure, a symphony of soft coughs, grunts, and the rhythmic thud of fingers drumming against metal. 
+
+Amelia took a long swig from her thermos, the bitter coffee jolting her awake. Today was Friday, feeding day, which always brought a particular brand of chaotic energy to the Pavilion. As much as she loved her job, loved these intelligent, complex creatures she dedicated her life to caring for, Fridays tested her patience.
+
+She glanced at the clipboard hanging on a hook by the entrance to the chimpanzee habitat, double-checking the meal plan for the day. A mix of fruits, vegetables, and protein supplements, carefully balanced for each individual based on their age, health, and social ranking within the troop. She had to get it right. Getting it wrong could mean anything from a minor squabble over a preferred piece of mango to a full-blown primate power struggle. And in the world of chimpanzees, a power struggle was never pretty.
+
+## Setting:
+
+The **Evergreen Wilderness Sanctuary** is a sprawling, privately-funded animal sanctuary nestled in the foothills of Mount Rainier, in Washington State. It's dedicated to rescuing and rehabilitating injured or displaced wildlife, both native and exotic. While the Sanctuary encompasses various habitats – a raptor rehabilitation center, a bear enclosure, a wolf preserve – the **Primate Pavilion** is a key component and one of its most popular attractions.
+
+The Primate Pavilion is a state-of-the-art facility, designed to mimic the primates' natural habitats as closely as possible. It houses several species of primates, including chimpanzees, orangutans, and various smaller monkeys. The chimpanzee enclosure is a large, multi-level space with climbing structures, ropes, and a simulated forest floor covered in soft wood chips. Large, shatterproof windows allow visitors to observe the animals without disturbing them. Behind the public viewing areas are the "behind-the-scenes" facilities, including a kitchen for preparing the animals' meals, veterinary treatment rooms, and offices for the primate caretakers. The entire Pavilion is kept at a constant temperature to ensure the primates' comfort, even during the cold Washington winters.

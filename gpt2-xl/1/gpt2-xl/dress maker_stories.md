@@ -1,0 +1,1 @@
+Once upon a time, there was a dress maker named Sally who also got into the act. She taught herself to weave and began to create custom dresses from the first fabric-type her husband could think of. Sally's creations made a mark in society and she received an invitation all the way from Europe to visit the King of England.

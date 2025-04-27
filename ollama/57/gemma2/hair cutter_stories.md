@@ -1,0 +1,7 @@
+The rhythmic whirring of clippers filled Amelia Clementine’s small salon, punctuated by the occasional snip of shears and the gentle clinking of combs against metal. Sunlight streamed through the front window, illuminating dust motes dancing in the air and casting long shadows across the worn laminate floor. A scent of lavender shampoo and freshly brewed coffee hung heavy in the space, a comforting familiarity for Amelia’s regulars. Outside, the bustling street of Maplewood was a symphony of car horns and distant sirens, but inside Clementine's Cuts, time seemed to slow down. 
+
+Amelia herself sat perched on a stool behind the counter, her auburn hair pulled back in a tight bun, carefully examining a photo on her phone. A frown creased her forehead as she scrolled through the images – a parade of awkward haircuts gone wrong, each one more questionable than the last. Amelia sighed, knowing this was her reality now – not just cutting hair, but fixing the disasters left behind by others.  
+
+This morning, however, felt different. The air crackled with a strange energy, a sense of anticipation that had Amelia’s pulse quickening. Maybe it was the new client booked for 10:00 AM, the one who had requested "something bold and unexpected," or perhaps it was just the lingering scent of lavender, making her feel strangely optimistic. Whatever it was, Amelia felt a knot of excitement tightening in her chest. It was going to be an interesting day.
+
+

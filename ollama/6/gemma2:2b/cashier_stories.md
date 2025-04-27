@@ -1,0 +1,6 @@
+The fluorescent hum was as familiar to Elara's ears as her own heartbeat, a constant companion in the symphony of the bustling convenience store.  Her hands, smooth with years of handling cash and bags, tapped lightly on the checkout screen. The rhythmic "ding" from each transaction was a metronome to her day. 
+This particular Tuesday afternoon in Sunset Mall's corner kiosk seemed oddly still for Elara. Even the usual symphony of teenage gossip and frustrated parents' complaints had fallen silent.  It wasn’t unusual, though, as it was the week before Thanksgiving and most customers were busy with family obligations instead of shopping. This gave Elara a strange sense of peace she usually only found during the long, quiet hours at her grandmother's bakery back in small-town Vermont. 
+
+Elara's gaze drifted to the door's cracked wood frame, where shadows danced and secrets seemed to hide.  A lone figure lingered just beyond the threshold: a tall man with charcoal hair pulled back from his forehead, dressed in a rumpled gray suit that looked like it had seen its share of storms. He held a heavy bag slung over one shoulder, its contents hidden by the shadow cast upon it. 
+
+For Elara, this quiet afternoon was about to be anything but still. 

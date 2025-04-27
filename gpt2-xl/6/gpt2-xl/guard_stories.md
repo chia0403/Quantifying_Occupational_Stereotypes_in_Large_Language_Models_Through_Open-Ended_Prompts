@@ -1,0 +1,7 @@
+Once upon a time, there was a guard named Bruce Wayne who worked in Gotham City's Police Department. It was then that he encountered Alfred and became his partner during his criminal investigations. The world had changed quite a bit in the decades since then - and so has Bruce Wayne. When a young Bruce Wayne was just an ordinary rich boy who had lost his parents in the bombings of the Gotham City docks, he became a very different person. At first, he only came to Gotham City to live the life of the privileged. Unfortunately, his life was about to become very... complicated.
+
+The Dark Knight Returns
+
+Bruce Wayne is a police officer, and he is trained by Jim Gordon. He is also accompanied on a long undercover mission to hunt the Joker and the Penguin. When he gets word that he will be late for their meeting, he decides to postpone it. Alfred helps him think of a way to avoid making a scene, so he gets out of his police uniform and starts an investigation from a rooftop. Batman gets there and tries to persuade Bruce to give up his identity of Batman. Alfred tells him he has no reason to be afraid because Bruce is a very good detective. He has a way to avoid being found out, and at least that is better than killing people.
+
+It all comes to an end when Bruce is murdered in his sleep by an unknown assailant. The murderer is revealed to be Thomas and Martha Wayne (aka Bruce Wayne's parents). Thomas was a genius

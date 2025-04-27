@@ -1,0 +1,5 @@
+The rusty sign creaked in the salty wind, its neon "Cafe Zephyr" barely flickering against the perpetual twilight of the Alaskan coastline. Inside, the air hung heavy with the scent of burnt coffee beans and damp fur, mirroring the emotional state of Amelia Thorne, whose brow was furrowed over a crumpled manuscript. Her fingers danced across her typewriter keys, each strike punctuated by the insistent roar of the storm outside. 
+
+Amelia wasn't your typical writer. She didn't dream of escaping to sun-drenched beaches or bustling cityscapes; she yearned for the raw beauty of this desolate land, a land that mirrored her own soul in its untamed spirit.  For Amelia, her words were her solace, and these pages held the weight of years spent exploring the rugged coastline of Alaska, a landscape as unforgiving as her own soul. 
+
+She was a tempestuous writer with a penchant for the melancholic, and tonight, her muse felt as elusive as the aurora borealis she'd witnessed just hours ago.  Each word on her pages seemed to clash against the backdrop of the crashing waves and howling wind, leaving her feeling more lost than ever before. 

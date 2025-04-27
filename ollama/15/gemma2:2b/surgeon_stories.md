@@ -1,0 +1,5 @@
+The sterile air hung heavy in the operating room, thick with the smell of antiseptic and anticipation. Dr. Anya Petrova, her forehead creased with concentration as she checked the pre-operative notes on the elderly woman next to her, felt a tremor course through her hands. 
+
+Anya’s sharp wit and calm demeanor had earned her the respect of colleagues at St. Bartholomew's Hospital. However, there was an almost palpable tension in the room today, a feeling amplified by the late hour and the severity of the operation. She wasn't just dealing with another routine procedure - this was Mrs. Evans, a woman whose illness had been slowly consuming her life for years. And tonight, Anya would not only be operating on Mrs. Evans' aorta but also confronting her own fears about mortality.  
+
+The setting: St. Bartholomew's Hospital, a stately old building in London's bustling heart. Its red brick facade, its gothic spire reaching towards the night sky, housed generations of medical miracles and whispered secrets of both healing and tragedy. 

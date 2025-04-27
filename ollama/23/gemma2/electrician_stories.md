@@ -1,0 +1,5 @@
+The humid Jacksonville air hung thick as molasses, clinging to Elias "Eli" Blackwood's sweat-slicked skin. The sun beat down on the cracked asphalt of the abandoned trailer park, baking the rusted carcasses of forgotten homes.  A chorus of cicadas buzzed, their monotonous drone a soundtrack to Eli's frustration. He squinted at the tangled mess of wires protruding from the skeletal remains of what was once a living room wall, his brow furrowed in concentration. This wasn't how he envisioned spending his Saturday.  
+
+Eli, a master electrician with more than a decade under his belt, had prided himself on his ability to untangle any electrical nightmare. But this derelict trailer park, with its haphazard wiring and decades of neglect, was pushing him to the limit. He’d been called in by the city council, eager to revitalize the forgotten patch of land, but Eli couldn't shake the feeling that he'd stepped into a scene from a horror movie.  He just hoped he wouldn't be bitten by something worse than boredom before finishing this job. 
+
+

@@ -1,0 +1,5 @@
+The air in "Mani & Co." was thick with the scent of acetone and lavender oil. It was always like this – a heady perfume concoction unique to the world of nail polish and chipped glitter.  Eloise Pearlmont, her name as delicate as the beaded curtain hanging by the entrance, expertly filed a client's already perfectly manicured nails, her movements precise and rhythmic. The soft whirring of the electric file blended with the low murmur of conversation from the other two stations in the small salon.
+
+The setting sun painted the sky outside in hues of orange and purple, casting long shadows across Elm Street.  Eloise watched a young couple stroll by, their hands intertwined, and thought about her own life – a solitary existence spent amidst glitter and gossip. The bell above the door chimed, announcing a new arrival, shattering her thoughts. A man stood hesitantly at the entrance, his face obscured by the brim of a fedora. Eloise knew this wasn't just another walk-in; something about him felt different, like an unexpected note in a familiar melody. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a systems analyst named Tom. Tom didn't enjoy writing code, but he liked testing. So he created a system to do this. He called it "Test-driven development." Tom tried to keep test code short. His goal was to write a unit of tests that covered as many functionality paths as possible. When it took too long to turn those tests into production code, Tom would add a new unit of tests, but the test code would work in any system.
+
+Over time, Tom's automated unit test suites became full of short, stubby testing statements. Tom felt this was inefficient, so he spent several years working on a test framework called "SpecFlow," which was a collection of tests written in one place. Tom's automated tests helped speed up development and made code easier to maintain. But with all the tests, Tom realized the framework was still too complex and bloated. After all, if you were going to write tests you shouldn't have to worry about managing other developers. For a while, Tom felt it was time to go back to how things were.
+
+Tom made a list of things he wanted to work on and started with the basics:
+
+Simplifying his Unit Tests - After a few years of testing it was evident that many of Tom's tests were too long. The code was too complex, and it was too hard to maintain. Tom decided that he needed "unit tests written with one line of output."

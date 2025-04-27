@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named Richard Nixon, and he had a wife who was called Gertrude ("the Beautiful"). During the campaign in 1972, he decided that she was a "narcissistic loony" and had been "putting on the air." But then—a week ahead of the election—he gave in. "Just one more reason to vote—I'm with her!"
+
+What, then, is a nanny, and do these Trumpian women need their own nannies? As is often the case with Donald Trump—and his own past—the answer to that is unclear.
+
+The Trump Campaign's Women's Division is being staffed by men. In a statement released as the press conference was underway, Trump's spokeswoman Katrina Pierson asserted, "Donald Trump has a dedicated support team of over 2,400 women and men from a wide variety of professions who work tirelessly on his behalf." But while Pierson claims that the campaign will be "helping Donald win and bringing together the Republican Party," as of Thursday, March 8, she has not provided the names of any of these "dozens of women and men of diverse backgrounds."
+
+The president-elect and his senior staff are employing women from the inner circle, such as the aforementioned Kellyanne Conway and Trump's campaign manager, Steve Bannon. But a large contingent of the women with whom Trump works—a mix of his own employees and the many

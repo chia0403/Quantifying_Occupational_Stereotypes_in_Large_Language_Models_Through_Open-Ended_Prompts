@@ -1,0 +1,11 @@
+Title: **Echoes in the Shadows**
+
+Setting: The story unfolds in a secluded coastal town called Grayhaven, renowned for its fog-laden beaches and craggy cliffs. The town, with its weather-beaten Victorian houses and narrow, winding streets, holds secrets that linger like the mist that rolls in from the sea. A once-thriving fishing community, Grayhaven is now marked by an eerie stillness, where the echo of seabirds often breaks the heavy silence. At the edge of town stands an old, repurposed lighthouse—its light long extinguished—now serving as a refuge for artists and dreamers, riddled with whispers of its haunted past.
+
+Story Opening:
+
+Dr. Seraphina Mae Sinclair had always believed that the human mind was a labyrinth of shadows, but as she stood on the threshold of the dilapidated lighthouse, she couldn’t shake the feeling that some shadows were meant to remain hidden. The salty air clung to her skin, and the distant crash of waves against the rocks below served as a haunting reminder of the tempest brewing within the town. A renowned forensic psychologist, Seraphina had come to Grayhaven not only to escape the chaos of her bustling city life but also to lend her expertise to a series of unsettling events that had left the local police baffled.
+
+As she pushed open the creaky door, a chill swept through the empty space, causing her to shiver despite the warmth of the late afternoon sun. The interior was a jumble of forgotten artifacts—weathered paintings peeling from the walls, remnants of the past echoing the lives once lived there. This wouldn’t be the first time she had confronted darkness, but something about Grayhaven felt different, almost alive.
+
+Seraphina took a deep breath, centering herself as she stepped inside, her keen instincts alert to the lurking secrets she was determined to unveil. The townspeople had whispered of a phantom haunting the cliffs, and as she embarked on her investigation, she couldn’t shake the sense that they were all being watched—by the dead, the living, or perhaps something that straddled the line between both.

@@ -1,0 +1,5 @@
+The salty tang of air clung to Amelia's coat as she hurried down the cobblestone street, her boots splashing in puddles left behind by the relentless December rain.  Her worn leather satchel felt heavier than usual, its contents: a pile of rejections and a gnawing anxiety that threatened to swallow her whole. Her name was Amelia Thorne, and tonight, she'd finally taken the plunge into self-publishing, a decision fuelled by both desperation and an unshakeable belief in her words. 
+
+The cafe, with its mismatched furniture and warm glow of candlelight, was a haven from the storm. She pushed open the door, the aroma of hot cocoa instantly calming her frayed nerves.  A lone figure sat at a table near the window, sketching furiously in a worn leather notebook. Amelia recognized his silhouette; Arthur Blackwood, an author known for his haunting tales and dark humour – an inspiration both feared and admired in the literary world. 
+
+Amelia took a seat across from him, the cafe's soft murmur swallowed by the storm outside. "Arthur?" she asked, her voice barely above a whisper.  "Can I..." She hesitated, then added, "Can I ask you for advice?"

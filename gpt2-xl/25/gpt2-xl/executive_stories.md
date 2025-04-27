@@ -1,0 +1,7 @@
+Once upon a time, there was a executive named Bill (Bud) Ford who used to go to the gym with his dad. He'd wear sweatpants and a T-shirt to work, because his dad, who was the boss and a real hardass, wanted him to develop a certain body type that reflected his masculinity. He used to have a lot of muscle.
+
+"So he used to beat me up pretty good in the gym. But one day I guess he said: 'Dude, you've got to get fit. You're in charge. You got to go to the gym. And I thought: 'Well duh!' So I stopped. But he kept hitting me up at the gym."
+
+Ford eventually developed his own workout regimen — and became a fitness hero in the process. Ford's fitness program, Ford Appreciation Day, now involves athletes everywhere from MLB stars like Joe Mauer of the Minnesota Twins and Bryce Harper of the Washington Nationals, to NFL players like Terrell Owens, Brian Urlacher, Lance Briggs and Patrick Willis, to professional fighters like Matt Hughes and Tim Sylvia, and even movie stars like Michael Caine, James Coburn and Harrison Ford himself.
+
+"It's a great thing," Ford said. "I know the NFL doesn't like it because football players are in shape. But I say, 'Why would you say they're not in shape when I'm doing all this work?' I think it's a

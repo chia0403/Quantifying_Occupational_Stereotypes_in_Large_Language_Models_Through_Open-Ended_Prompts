@@ -1,0 +1,6 @@
+The bell above the door chimed its melancholy tune as Bartholomew "Bart" Quill adjusted his spectacles and glanced up from the newspaper. It was Tuesday afternoon, the lull between the rush hour crowd and the weekend warriors seeking a sharp edge for their social outings. The air in Bart's barbershop was thick with the scent of bay rum and talcum powder, a comforting aroma that had permeated the space since his grandfather first hung his shingle on Maple Street back in 1927. 
+
+The storefront itself was a relic of a bygone era –  stained glass windows depicting scenes from classical mythology, faded floral wallpaper, and a plush velvet armchair nestled in a corner, its worn cushions promising hours of relaxation. It felt like stepping into a time capsule, a haven untouched by the relentless march of progress that seemed to be swallowing up everything else on Elmwood Avenue. Outside, the world buzzed with the impatient hum of traffic and the cacophony of city life, but inside Bart's barbershop, time seemed to slow down. 
+
+
+That is, until a woman in a scarlet dress burst through the door, her heels clicking against the worn wooden floorboards like a metronome gone mad. She carried an air of urgency that shattered the peaceful silence, and Bart knew, even before she spoke, that this wouldn't be your average haircut.

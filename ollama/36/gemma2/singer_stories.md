@@ -1,0 +1,5 @@
+The air hung thick with humidity and anticipation in the cramped back room of The Rusty Sprocket.  Amelia Rose Hawthorne smoothed down her scarlet dress, the cheap fabric clinging uncomfortably to her damp skin. Her reflection in the grimy mirror revealed wide eyes that betrayed her nerves, framed by a mop of fiery red curls threatening to escape their bun. She took a deep breath, inhaling the sickly sweet scent of stale beer and nervous sweat. 
+
+Tonight was the night. Amelia had poured her heart and soul into practicing these songs, sacrificing sleep and ramen dinners for the chance to perform at The Rusty Sprocket's open mic night. It wasn't much, just a dimly lit dive bar on the outskirts of nowhere, but it was a step – a crucial step – towards her dream of making it big.  A single spotlight illuminated the small stage ahead, casting long shadows that danced with every flicker of the ancient fluorescent lights. Amelia adjusted the microphone stand, her heart pounding in her chest like a drum solo gone wild. She had to be brave. This was her moment. 
+
+

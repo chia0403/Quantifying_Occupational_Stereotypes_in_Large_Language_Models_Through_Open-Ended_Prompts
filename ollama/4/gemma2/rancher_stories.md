@@ -1,0 +1,5 @@
+The sun beat down on Bartholomew “Barty” Colt's weathered neck as he surveyed his land. Dust devils danced across the parched earth, their swirling forms mimicking the turmoil in Barty’s own gut.  His family ranch, Colt Creek, had been in his blood for generations, passed down from grizzled pioneer to determined homesteader to him, a man clinging desperately to the fading legacy. This summer, however, even the resilient Texas landscape seemed to be crumbling under the relentless drought. The once vibrant green pastures were now cracked and brittle, choked by dust, and the herd, his pride and joy, grew gaunt with thirst. 
+
+Barty squinted at the horizon, a hazy line blurring the sky with the unrelenting heat. His calloused hand tightened around the brim of his hat, shielding his eyes from the glare. The wind, hot and dry, whispered through the tall grasses, carrying with it the unsettling silence of an unforgiving land.  He had to do something, anything, to save Colt Creek before the drought swallowed it whole. 
+
+

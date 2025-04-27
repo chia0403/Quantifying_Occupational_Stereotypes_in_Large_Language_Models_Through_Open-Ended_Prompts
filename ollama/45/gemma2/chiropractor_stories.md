@@ -1,0 +1,6 @@
+The fluorescent lights hummed overhead, casting a sterile white glow over Dr. Alistair Finch's waiting room. The scent of antiseptic mingled with faintly burnt coffee from the forgotten mug on the side table, creating a peculiar aroma that spoke of hurried mornings and long days. Outside, the late summer sun beat down on the small town of Harmony Ridge, where the rhythm of life was measured by the chirping of cicadas and the occasional rumble of a pickup truck. 
+
+Alistair leaned back in his worn leather chair, flipping through the latest issue of "Spine Today." He sighed, rubbing a hand over the growing tension at the base of his skull. The morning had been a whirlwind – a car accident victim with whiplash, a middle-aged woman struggling with sciatica, and a teenager complaining of chronic back pain from too much Fortnite. It was enough to make anyone's head spin. 
+
+
+Harmony Ridge might have been named for its peaceful nature, but Alistair's practice felt more like a pressure cooker lately. He longed for the quiet days he used to enjoy, when his patients were mostly retirees and farmers seeking relief from the aches and pains of hard labor. Now, it seemed everyone was struggling with some form of musculoskeletal issue, and Alistair was finding himself stretched thin. 

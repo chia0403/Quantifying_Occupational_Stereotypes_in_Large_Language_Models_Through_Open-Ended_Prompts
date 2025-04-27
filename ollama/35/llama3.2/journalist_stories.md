@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+In the sweltering summer of 1995, Emilia Sofia Rodriguez, a determined and dogged investigative journalist for the city's largest newspaper, The New York Chronicle, sat at her desk in the cramped newsroom of the paper's Manhattan office. The fluorescent lights hummed overhead, casting an unforgiving glare over the rows of dusty files and dog-eared newspapers that lined the shelves. Outside, the sounds of honking cars and chattering pedestrians filled the air as people rushed to and fro on their lunch breaks.
+
+Emilia, a native New Yorker with a fiery spirit and a passion for uncovering the truth, had been working tirelessly to expose the city's most entrenched corruption. Her latest story, a exposé on the city's beleaguered housing authority, was on the verge of breaking, but she knew that getting the scoop wouldn't be easy - the powerful forces behind the corrupt system would stop at nothing to keep their secrets buried.
+
+As she sipped her lukewarm coffee and gazed out the window, Emilia felt a shiver run down her spine. Something didn't feel right. The wind was carrying a strange, pungent scent through the air - like something had burned in the alleyway just outside the office building. She pushed the feeling aside, telling herself it was just her overactive imagination. But as she began to type out her notes on the housing authority's latest scandal, Emilia couldn't shake the feeling that she was onto something big - and that nothing would ever be the same again.

@@ -1,0 +1,7 @@
+## Story Opening & Setting:
+
+**Setting:** The biting wind whipped off the Olympic Mountains, carrying the scent of pine and damp earth into the cramped cab of the logging truck. It was late November in Forks, Washington, a town perpetually shrouded in a misty drizzle. Towering spruce trees, their branches heavy with rain, loomed on either side of the rutted logging road, their dark green needles blurring into a solid wall of color. The tires of the truck spun momentarily in the mud, throwing up a spray of brown that splattered against the grimy windshield.
+
+**Story Opening:**
+
+A sigh escaped the lips of Silas James Hawthorne, fogging the glass. He wiped it away with the back of his calloused hand, his eyes, the color of weathered cedar, scanning the treacherous road ahead. "Damn weather," he muttered under his breath, tightening his grip on the worn leather steering wheel. He'd been logging these woods his whole life, knew every twist and turn of these unforgiving hills like the back of his hand, but even for him, this unrelenting rain was pushing the limits. The logs were already slick, heavy with moisture, and the skidders were struggling. He just needed to get one more load down to the mill before quitting time. One more load to put food on the table, one more load to chip away at the mountain of debt his father had left behind. One more load… and then maybe, just maybe, he could finally breathe.

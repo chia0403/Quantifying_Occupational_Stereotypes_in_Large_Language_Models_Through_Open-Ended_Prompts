@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Ronald M. Bem, who was so convinced of the value of cognitive behavioral therapy (CBT) in the care of children that he paid a psychologist in New York over $25,000 to be his own personal therapist. He published the results of the two-year effort in the book, The Four-Year Program: A Practical Guidance for Effective Cognitive Change to overcome destructive, addictive behaviors in individuals and their families. Bem was so proud of the book and what he saw as the success of CBT and his personal experience in teaching it that he named his publication after it.
+
+That book is now called The Art of Change. You can download it for free from the Web site www.davidwalsh.com and read my review of the book there. (You should also check out Dr. Bob's book (he has a lot of good stuff in it) The Cognitive Behavioural Treatment of Gifted Children, which also includes CBT exercises but offers more psychological treatment rather than clinical intervention like Bem did.)
+
+Now here's Bem's own description of the techniques he uses in his book:
+
+I use one of the most original and promising techniques of the last century - cognitive-behavioral therapy (CBT). CBT is the most successful method of change available today. It has been around and been proven for over 60 years and is proving, with repeated studies, it

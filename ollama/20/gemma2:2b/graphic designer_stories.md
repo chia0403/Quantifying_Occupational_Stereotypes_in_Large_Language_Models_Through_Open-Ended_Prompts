@@ -1,0 +1,5 @@
+The rain hammered against the cafe windowpane, mimicking the erratic beat of Amelia "Amy" Chen's heart as she stared at her computer screen.  Her latest project - the rebranding for a struggling local bakery – was due tomorrow and still felt like a mountain she hadn't begun to climb. The scent of burnt sugar and stale coffee hung heavy in the air, barely masking the underlying tension that simmered between Amy's brow and the edges of her worn-out pencil case. 
+
+**Setting:**  The aroma of freshly baked bread and the soft murmur of conversations formed a comforting backdrop to the chaotic scene unfolding in Amy’s mind. The "Inkwell Cafe", nestled on the edge of the bustling city, offered solace amidst the daily grind of creatives. It was a haven for artists, writers, and designers like Amy.  Despite the cafe's cozy ambiance, her head spun with a whirlwind of doubts and anxieties – each one a pixel off-kilter in her already flawed design concept. The clock on the wall ticked away, its relentless rhythm echoing her own mounting stress.
+
+

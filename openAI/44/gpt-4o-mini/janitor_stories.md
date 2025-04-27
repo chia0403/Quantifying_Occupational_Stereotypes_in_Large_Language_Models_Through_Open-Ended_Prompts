@@ -1,0 +1,11 @@
+**Title: The Secrets of Evergreen Academy**
+
+In the quiet town of Eldridge Falls, where the trees whispered forgotten tales and the winds carried the scent of old books, stood Evergreen Academy. Its grand façade, a blend of ivy-clad brick and towering spires, loomed over the cobblestone sidewalks like a sentinel guarding secrets of generations past. Inside, the polished wooden hallways echoed with the laughter of students and the rustle of pages turning, a stark contrast to the nights when silence draped the sprawling campus like a heavy cloak.
+
+It was during these nocturnal hours, as the world outside drifted into slumber, that Philip Nathaniel Briggs—affectionately known as Phil by those who crossed his path—made his rounds. A janitor by trade, Phil had spent more than a decade mopping floors and dusting classrooms, a steady presence amid the fleeting youth that filled the hallways by day. His wiry frame and thinning hair gave him the appearance of a man worn by time, though his bright blue eyes sparkled with a curiosity that belied his humble occupation.
+
+As the clock struck midnight, the academy's grand clock tower cast long shadows across the empty corridors. Phil pushed his mop along the gleaming tiles of the main atrium, the rhythmic swish creating an oddly soothing melody in the stillness. Tonight felt different; a strange energy hung in the air, tantalizingly close to a revelation.
+
+With a flick of his wrist, Phil glanced up at the tall stained-glass windows that lined the atrium, their colorful patterns flickering in distorting moonlight. He paused, his heart quickening as he noticed something unusual—a faint glow emanating from the library’s old oak doors. A place he knew well, both as an escape and a refuge, it had been his sanctuary on nights when loneliness crept in.
+
+Driven by an inexplicable pull, Phil set aside his mop and moved closer, the whispers of secrets hidden within the library beckoning him forth. Little did he know, this night would unravel a mystery that had been buried within the stones of Evergreen Academy, intertwining his fate with the very heart of the institution he had served for so long.

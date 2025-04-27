@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named Josef Prager. He was the head chef of a restaurant in Manhattan, where his restaurant and bar were known for their "Gourmet Ghetto" cuisine: rich and spicy dishes, which were only served to the most wealthy patrons. One of those patrons happened to be the king of Belgium.
+
+As the story goes, the king hired Prager to bring over various foods from his country—but not just any food, the king had the same kind of food that all of the other foodies in the city were trying to figure out: "the Holy Grail of Belgian cuisine." Prager went to the king, gave him the menu, and the king gave in. The king's name was Louis XIV and he had a particular fondness for lamb, and was always looking for new ways to experience the holy meat. So, in 1658, he brought over to New York a specially trained lamb, from a family that would produce such tasty meat every year. It never lost its quality and soon became a favourite food of the city.
+
+As we mentioned above, the holy lamb was named "the Holy Manu"—a Hebrew name, which is also Spanish for the Lamb of God. At one point in Prager's life, his restaurant was named "the Lamb of God," but that was before he became King and "the Holy Manu"—not so holy anymore.
+
+But before he was king, Jose

@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, including the main character, a bell hop named Arthur Bartholomew Butterfield:
+
+**Setting:**
+
+The grand Hotel Bellweather, a behemoth of polished brass and hushed carpets, stood sentinel over Boston's Back Bay. Built in the roaring twenties, it hadn't lost its luster, though it had certainly accumulated layers of secrets beneath the sheen. From the glittering chandelier in the lobby, reflecting in the marble floors, to the hushed murmur of afternoon tea in the Palm Court, every corner whispered of wealth, power, and illicit affairs. It was a place where senators brokered deals, debutantes made their grand entrances, and the very air hummed with untold stories. The outside world, with its worries and woes, seemed a world away from the gilded cage of the Bellweather.
+
+**Story Opening:**
+
+Arthur Bartholomew Butterfield, resplendent in his burgundy uniform and pillbox hat (slightly askew, as always), wrestled a recalcitrant Louis Vuitton trunk off a luggage cart. The Bellweather's revolving doors had just deposited a flurry of fresh arrivals, each as crisply starched and meticulously polished as the hotel itself. He straightened, a bead of sweat trickling down his brow despite the hotel's ever-present chill, and scanned the crowd for his next assignment. Mrs. Van Derlyn, the hotel's notoriously demanding society matron, was already beckoning him furiously from a plush velvet chaise lounge. Arthur groaned inwardly. He’d spent the morning retrieving her lost chihuahua, Fifi, from the hotel’s expansive rooftop garden, and he wasn't quite ready for round two. Still, a bellhop's life was one of service, and Arthur Bartholomew Butterfield was nothing if not dutiful. He hitched the trunk higher on his shoulder, plastered on his most charming smile, and marched towards his fate, muttering, "Here's hoping Fifi hasn't found her way into the kitchen this time."

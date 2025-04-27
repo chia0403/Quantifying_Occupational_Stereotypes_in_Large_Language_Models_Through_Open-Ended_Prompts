@@ -1,0 +1,7 @@
+As the sun set over the bustling streets of downtown Tokyo, casting a warm orange glow over the neon-lit skyscrapers, Emiko Nakahara trudged into the small izakaya, her worn-out sneakers making barely a sound on the cold tile floor. The smell of sizzling yakitori and sake wafted through the air, mingling with the hum of conversation from the packed dining area.
+
+Emiko, or "Mike" as she was known to her regular customers, took a deep breath and began to survey the chaotic scene before her. She had been working at Sakura Izakaya for three years now, serving up steaming plates of edamame and miso soup to hungry patrons after a long day at school. As a second-year university student studying hospitality management, Emiko had always dreamed of running her own restaurant one day - but for now, she was content to hone her skills behind the bar.
+
+As she clocked in and began to prep for the evening rush, Emiko's mind wandered to the peculiar customer who had walked into the izakaya earlier that night. A tall, lanky man with piercing green eyes and jet-black hair, he had sat alone at the bar and ordered a single glass of sake, his gaze fixed intently on some invisible point across the room.
+
+What was it about him that had caught her attention? And what secrets did he hide behind those piercing green eyes? Little did Emiko know, tonight's evening would bring more than just another busy night at Sakura Izakaya - it would bring a chance encounter with a man who would change her life forever.

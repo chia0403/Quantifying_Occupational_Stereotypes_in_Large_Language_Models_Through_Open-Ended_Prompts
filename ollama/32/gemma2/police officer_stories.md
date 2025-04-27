@@ -1,0 +1,5 @@
+The air hung thick with the smell of brine and diesel as Officer Amelia "Amy" Hayes squinted out at the bustling harbor.  Dawn was just beginning to break over the choppy waves of San Francisco Bay, casting long, purple shadows across the rickety piers and crowded docks. The first rays of sunlight glinted off the myriad reflections in the water, turning the scene into a shimmering kaleidoscope of light and shadow. 
+
+Amy adjusted her cap, pushing back a stray strand of auburn hair that had escaped its braid. A chill wind whipped through the space between the buildings, carrying with it the faint scent of fresh fish and the distant clang of a ship's foghorn.  It was a familiar symphony to Amy, the soundtrack of her childhood growing up in this waterfront neighborhood, a place where dreams were built on salt and ambition. Now, as a seasoned officer with the San Francisco Police Department, she patrolled these same streets, ensuring that the dreams remained untarnished, or at least, not drowned beneath the city's ever-present tide of chaos. 
+
+

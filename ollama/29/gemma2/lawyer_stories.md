@@ -1,0 +1,5 @@
+The air in Judge Blackwood’s courtroom was thick with anticipation, the kind that settled on your skin like a humid summer night.  Eleanor Rose Thorne adjusted her silver-rimmed spectacles, smoothing down the crisp lines of her navy suit jacket as she waited for the gavel to fall. The fluorescent lights hummed overhead, casting a sterile white glow over the mahogany benches and worn leather chairs. 
+
+Eleanor, known professionally as “Ellie,” had never liked this particular courtroom. It reeked of stale coffee and desperation, and today felt particularly charged.  The defendant, a young man accused of grand theft, trembled in his seat across from her. Ellie, however, remained composed. Her gaze was fixed on the Judge, unwavering, waiting for the proceedings to begin. She believed in justice, in fairness, even when it seemed impossible to find in this grimy, overcrowded corner of New York City. Today, she would fight tooth and nail for her client, just as she did for every person who walked through her office door, regardless of their story or their charges. 
+
+

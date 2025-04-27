@@ -1,0 +1,7 @@
+As the sun set over the bustling streets of downtown Los Angeles, casting a warm orange glow over the crowded sidewalks and neon-lit billboards, Aurora "Rory" Wynter prepared for another long day at her family's iconic beauty salon, Wynter's Hair Haven. With a decade of experience under her belt as a licensed cosmetologist, Rory had learned to thrive in the fast-paced world of hairstyling, from cutting-edge color techniques to soothing relaxation treatments.
+
+The scent of lavender and vanilla wafted through the air as Rory sipped her coffee and reviewed the day's appointments, her eyes scanning the crowded schedule with a practiced ease. Her hands, adorned with a scattering of colorful tattoos and a sprinkle of freckles, moved deftly over the comb and scissors in front of her, expertly teasing out a few stray strands from her own dark hair.
+
+Outside, the sounds of traffic and chatter mingled with the hum of the salon's ancient equipment, creating a symphony of noise that Rory knew all too well. As she finished up her morning routine, she caught a glimpse of herself in the mirror, her bright blue eyes sparkling behind a tangle of curly brown hair, and couldn't help but smile – today was going to be a great day at Wynter's Hair Haven.
+
+But little did Rory know, her life was about to take a dramatic turn, one that would challenge everything she thought she knew about herself, her family, and the secrets they kept hidden behind their warm smiles and welcoming doors.

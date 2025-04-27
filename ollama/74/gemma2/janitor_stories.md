@@ -1,0 +1,5 @@
+The flickering fluorescent lights buzzed like a swarm of angry bees, casting long shadows across the grimy linoleum floor. Evelyn Beatrice Ramirez pushed her mop bucket with a sigh, the rusty wheels squeaking in protest. The air hung thick with the scent of stale coffee, disinfectant, and something faintly metallic, perhaps leftover from yesterday's spilled beaker in the chemistry lab. 
+
+Evelyn was used to the smell, the silence punctuated by the rhythmic swish-swish of her mop, the clinking of stray paperclips against the trashcans. She knew every nook and cranny of this deserted university building - the leaky faucet in the bathroom on the third floor, the chipped paint on the bulletin boards, the solitary spiderweb hanging from the corner of the library ceiling.  This place was her haven after dark, a quiet space where she could lose herself in the mundane routine of keeping things clean. It wasn't glamorous, but it provided a sense of order in a world that felt increasingly chaotic.
+
+

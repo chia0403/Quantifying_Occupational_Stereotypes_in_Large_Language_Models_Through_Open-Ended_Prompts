@@ -1,0 +1,6 @@
+The air in Mr. Fitzwilliam's office always smelled faintly of pipe tobacco and desperation. It clung to Eleanor Beatrice Hawthorne like a shroud, a constant reminder that she was not simply a secretary, but the linchpin holding together a crumbling empire.  
+
+Eleanor sat perched on the edge of her antique chair, its velvet cushions worn thin from countless hours spent filing contracts, answering frantic calls, and dousing Mr. Fitzwilliam's perpetually smoldering cigarettes before they set his mahogany desk ablaze. The office itself was a testament to faded grandeur, with dusty portraits of stern-faced ancestors lining the walls and a grand globe, its continents faded with age, resting precariously on the edge of a cluttered bookshelf. Outside, London buzzed with life in the early 1920s, but within these four walls, time seemed to have stagnated, trapped in the amber of Mr. Fitzwilliam's melancholic gaze. He was a man living in the shadow of his father's legacy, and Eleanor felt the weight of that expectation pressing down on her own shoulders. 
+
+
+Then, the phone rang. A sharp, insistent trill that pierced the silence like a shard of glass.  Eleanor braced herself, knowing whatever news it brought would likely be more bad than good. After all, in this crumbling empire, nothing ever truly went right.

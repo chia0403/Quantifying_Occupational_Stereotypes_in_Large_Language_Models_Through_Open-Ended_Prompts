@@ -1,0 +1,5 @@
+Okay, here's a story opening and setting with the highway worker character:
+
+**Story Opening & Setting:**
+
+The shimmering heat rising off the blacktop was a living, breathing thing. It blurred the edges of the already hazy horizon, making the distant wind turbines look like dancing mirages. For Elias Theodore Olsen, however, it was just another Tuesday. The smell of hot asphalt and diesel fumes clung to him like a second skin, a constant reminder of his profession. He squinted at the endless ribbon of Highway 50, a concrete artery stretching from the heartland to the shimmering coast, and sighed. At least the vultures were keeping him company. They circled lazily overhead, patient reminders of mortality under the relentless Nevada sun. Today’s job: filling potholes between mile marker 112 and 115, a task about as exciting as watching paint dry, or, more accurately, watching asphalt bake. He wiped the sweat from his brow with the back of his gloved hand, leaving a smudge of grime on his forehead. He'd rather be anywhere else, really, but the highway had a way of swallowing you whole. He'd seen it do it to better men than him.

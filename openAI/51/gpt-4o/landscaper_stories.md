@@ -1,0 +1,9 @@
+Amelia Sutton crouched over a patch of marigolds, the sun casting a warm glow across the sprawling garden of the Hartley estate. The early morning air was crisp, still holding onto the coolness of dawn, but the promise of a clear, bright day lay just beyond the horizon. Amelia savored these quiet moments before the bustling activity of the day took hold. 
+
+To the east, the towering maples swayed gently, their leaves rustling with secrets on the breeze, while the gentle hum of bees echoed through the meticulously trimmed hedges. This was her sanctuary, a place where art and nature intertwined, and where she, with her bare hands and unwavering vision, sculpted beauty from the earth itself.
+
+The Hartley estate, with its sprawling grounds and century-old trees, had been Amelia’s canvas for nearly a decade. Its undulating lawns and intricate flowerbeds reflected her unique blend of creativity and meticulous care. It was here, amid the rich soil and fragrant blossoms, that Amelia felt most herself. The garden was a living masterpiece, one she nurtured and transformed, season by season.
+
+Amelia Sutton, with her auburn hair tied back loosely and earth-stained gloves covering her hands, was more than a landscaper. She was a steward of the land, a quiet orchestrator of nature’s symphony. Her reputation for turning barren grounds into lush paradises had spread well beyond the small town of Devonfield, drawing the attention of those who appreciated the silent elegance of a well-tended garden.
+
+As she worked, pulling weeds and whispering words of encouragement to the young buds, Amelia couldn't help but feel a sense of anticipation mingling with the earthy scent of morning dew. There was something in the wind today, a subtle shift that promised change, and with it, perhaps new possibilities.

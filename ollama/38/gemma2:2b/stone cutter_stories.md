@@ -1,0 +1,5 @@
+The air hung thick with the scent of granite dust and damp earth, a familiar aroma that clung to Elias Thorne like a second skin. His workshop, nestled in the heart of the Old City’s labyrinthine alleys, was a monument to timeworn craftsmanship - its walls worn smooth from countless chisels carving their way into stone. He ran his calloused fingertips over the rough surface of a newly-carved obelisk, each stroke leaving him a faint satisfaction.  
+
+Elias Thorne, known by his fellow stonemasons as "The Stone Carver," was a master of his trade. From the delicate curves of tombstones to the monumental faces carved on city walls, he brought ancient stories and forgotten voices back to life through stone. But today, Elias found himself grappling with an unfamiliar pressure - not from a chisel or a mallet, but from the weight of a secret that had been passed down for generations within his family's legacy. 
+
+As dusk painted the sky in hues of orange and violet, Elias was lost in thought. His workshop door creaked open, and he turned to see the young apprentice, Finn, staring at him with wide eyes.  "Master Thorne," Finn whispered, "There's a message for you." 

@@ -1,0 +1,11 @@
+**Title: Shadows of the Mind**
+
+**Setting:** A dimly lit office on the third floor of a crumbling brick building, nestled in a forgotten corner of downtown Detroit. The air is thick with the scent of old books and faint coffee lingering from the break room next door. Heavy curtains block the afternoon sunlight, creating a sanctuary of shadows where secrets seem to linger in every corner. A battered desk, its surface littered with case files, sits against one wall, while a leather armchair with frayed edges occupies a small reading nook where the protagonist often ponders the complexities of the human psyche.
+
+**Opening:**
+
+Dr. Rebecca Elise Harper, forensic psychologist, had always found solace in the quiet chaos of her cluttered office. Rain pattered softly against the window, casting ghostly figures on the walls as shadows danced in tandem with her thoughts. She shifted in her armchair, the familiar creak echoing in the stillness, and picked up a photograph of the latest case that haunted her—a young woman, eyes wide with a mix of fear and defiance, standing at the center of a storm she did not choose. 
+
+The picture was a reminder of the delicate balance she navigated daily, a world where the complexities of mental illness collided with the harsh realities of criminal behavior. As a forensic psychologist, Rebecca often found herself peering into the deepest recesses of the mind, searching for answers hidden beneath layers of trauma and despair. Today, however, the case was different. The dark undertow of something far more sinister seemed to pulse beneath the surface, pulling her closer to the edge of a psychological abyss she wasn’t sure she was prepared to face.
+
+With the rain tapping a gentle rhythm, she sank deeper into her chair, willing the noise to drown out the echoes of past encounters. She drew a deep breath, preparing herself to unravel the tangled web of emotional scars and secrets, not only for her patient, but for herself. It was a game of chess against the unseen, and Rebecca was determined to make her next move count.

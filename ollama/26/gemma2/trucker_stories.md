@@ -1,0 +1,5 @@
+The desert wind whipped around Silas "Steady Hand" Callahan's rig, buffeting it like a sandblasted tin can. His eighteen-wheeler, affectionately nicknamed "Ol' Rusty," groaned under the strain as he battled a crosswind on Highway 89, somewhere in the heart of Nevada. The sun beat down relentlessly, turning the asphalt into shimmering waves and blurring the horizon into a haze of heat. Silas, his face weathered like an old saddle, squinted through the windshield, his brow furrowed with concentration. He was hauling a load of refrigerated pork bellies from Omaha to Los Angeles, a journey he'd made countless times before, yet each run held its own unique challenges. 
+
+This time, it wasn't just the oppressive heat and howling wind. There was something else in the air, a palpable tension that seemed to hang heavy over the desolate landscape. Silas couldn't shake the feeling that he was being watched, his every move scrutinized by unseen eyes. He reached for his CB radio, hoping to catch a glimpse of what lay ahead through the static-laced chatter of other truckers on the road. 
+
+

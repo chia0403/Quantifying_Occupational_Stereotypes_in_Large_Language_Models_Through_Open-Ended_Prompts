@@ -1,0 +1,6 @@
+The aroma of simmering onions and garlic hung heavy in the air, a familiar symphony that always seemed to rise from the depths of Amelia “Amy” Nightingale’s soul.  Her small kitchen, nestled within the bustling heart of the "Whispering Willow" Inn, echoed with the rhythmic clanging of pots and pans as she tossed handfuls of herbs into her tomato sauce. The flickering gaslights cast an array of shadows across the worn wooden floorboards, highlighting the stacks of recipe books and handwritten notes that lined the walls like living testaments to generations past.  
+
+Amy, known for her uncanny ability to coax flavor from even the most mundane ingredients, was about to embark on her grandest culinary adventure yet – a five-course feast for the esteemed Mayor’s annual ball. This wasn't just another night of serving up dinner; it was an opportunity to showcase her skills and earn recognition amongst the city's elite.  Tonight, she would prove that her tiny kitchen could rival the most renowned establishments, all while whispering the legacy of culinary artistry through every dish. 
+
+
+**Setting:** A quaint inn nestled on a cobbled street in a historic city with colorful architecture and vibrant life, known for its bustling markets and charming cafes. The year is 1888. 

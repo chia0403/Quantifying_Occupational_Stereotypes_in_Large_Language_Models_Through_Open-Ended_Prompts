@@ -1,0 +1,5 @@
+The scent of hot oil and stale coffee hung thick in the air, mingling with the metallic tang of brake fluid. Sunlight slanted through the grimy windows of "Rusty's Repairs," casting long shadows across the cluttered workbench where Silas "Rusty" Worthington was wrestling with a particularly stubborn carburetor.  
+
+He grunted as he cranked another bolt loose, his brow furrowed in concentration. Sweat beaded on his forehead, tracing paths through the grease smeared across his face. Rusty was a man of few words, his communication primarily conducted through grunts and gestures, his hands perpetually stained with the colors of his craft – black motor oil, crimson transmission fluid, the pale green of coolant.  
+
+The small town of Dustbowl, nestled in the dusty heartland of Texas, wasn't exactly known for its bustling nightlife or glamorous opportunities. Rusty had never wanted anything more than to tinker with engines and keep the sputtering lives of Dustbowl’s battered vehicles running. But lately, a strange sense of unease had begun to gnaw at him, like a loose bolt threatening to shake his world apart.  

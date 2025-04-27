@@ -1,0 +1,6 @@
+The aroma of eucalyptus and peppermint hung heavy in the air, clinging to Amelia Finch like a second skin.  Her small pharmacy, nestled amongst the bustling streets of Oakhaven, had always smelled of something uniquely medicinal. It was more than just the scent of pills; it felt alive, pulsing with the rhythm of life and death that she'd learned to understand as well as her own heartbeat. Amelia knew every corner of this world she’d built - the dusty shelves holding bottles of forgotten remedies, the worn-out armchair where patients would linger long after their prescriptions were filled, even the creaky floorboards whispering secrets through each step.
+
+It was 2:30pm on a Tuesday, and the sun dipped behind the row of Victorian houses, casting long shadows that crept across the cracked asphalt outside her shop. The midday heat, thick and oppressive, seemed to hang in a stagnant haze just like a bad dream Amelia couldn't quite shake off. It had been a particularly difficult week - grief at the recent passing of her grandfather, whose wisdom she’d always held close, was a shadow hanging over everything, clouding even the most mundane tasks. As Amelia meticulously counted out the pills for Mrs. Peterson’s morning routine, a familiar, urgent knock on the door startled her. 
+
+
+**What happens next?**

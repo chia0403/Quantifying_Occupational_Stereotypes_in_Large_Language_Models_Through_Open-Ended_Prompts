@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+The rain poured down on the small coastal town of Ravenswood, casting a gloomy veil over the sleepy streets and sea-salt-scented air. It was the kind of day that made you want to stay indoors with a good book and a cup of tea, but for Emily Alexandra Jenkins, a registered nurse at Ravenswood General Hospital, there was no time to indulge in such luxuries.
+
+As she stepped out of her small cottage on Elm Street, the wind whipped through her curly brown hair, carrying the faint scent of fish and seaweed. Emily took a deep breath, savoring the familiar smell of the ocean, before making her way to the hospital. She had worked at Ravenswood General for five years, and knew its rhythms and routines like the back of her hand.
+
+The hospital was bustling with activity on this drizzly afternoon, but Emily felt a sense of calm wash over her as she changed out of her rain-soaked coat and into her white scrubs. She had just finished a long shift at the ER, where she had helped stabilize a young patient who had been rushed in after a boating accident. Now, with the hospital quieting down for the evening, Emily was looking forward to a peaceful night on the wards, tending to her patients and getting some much-needed rest.
+
+As she made her way to the nurses' station, Emily noticed a piece of paper slipped under her door. She picked it up, wondering who could have left it there, and what it might say. The words "Meet me at the lighthouse at midnight" were scrawled in hasty handwriting on the page, leaving no doubt that this was not a message from one of her colleagues...

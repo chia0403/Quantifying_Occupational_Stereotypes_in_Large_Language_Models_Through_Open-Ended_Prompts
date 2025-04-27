@@ -1,0 +1,1 @@
+Clara Frances Whitaker

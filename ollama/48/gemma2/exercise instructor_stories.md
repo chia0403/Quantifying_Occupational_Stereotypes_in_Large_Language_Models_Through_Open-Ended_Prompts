@@ -1,0 +1,5 @@
+The fluorescent lights hummed overhead, casting a sterile glow over the mirrored walls of the Powerhouse Gym. Sweat glistened on bodies contorting through lunges and burpees, forming shimmering constellations in the harsh light.  At the front of the class, Astrid "Ace" Abernathy bounced on the balls of her feet, her smile as bright and infectious as a disco ball. 
+
+Ace lived for these moments: the shared rhythm of exertion, the collective push towards self-improvement, the sweat-slicked camaraderie that bloomed in this sweaty purgatory. She was a force of nature in neon spandex, her energy palpable even before she unleashed a single command. But today, Ace felt a tremor beneath her usual enthusiasm, a subtle discord that wouldn't be silenced. 
+
+The source? A pair of piercing blue eyes fixed on her from the back corner of the room. They belonged to a woman, tall and sculpted with an aura of stillness that seemed at odds with the frenetic energy of the class. Her name was Lyra, and Ace had a feeling she wouldn't be another satisfied customer ticking off their workout boxes.  

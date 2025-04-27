@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia Thorne’s head, casting a sickly yellow glow over the sterile waiting room. The scent of antiseptic clung to the air, a constant reminder that this was no place for the faint of heart. A lone magazine lay abandoned on a chipped plastic table, its glossy cover promising escapism from the reality unfolding within these beige walls. Amelia, her navy scrubs pressed and pristine, wiped down the armrest with meticulous care. Each day, this same routine played out: fear in their eyes, nervous fidgeting, the prick of the needle, the fleeting relief as the blood flowed into sterile vials. 
+
+Amelia Thorne was a phlebotomist at Mercy General Hospital, and she knew that for many, her presence symbolized not healing but vulnerability. But she also saw courage in their trembling hands, resilience in their clenched jaws. She was more than just someone who drew blood; she was a silent witness to stories etched on skin, whispered anxieties held behind guarded smiles. 
+
+
+The bell above the door chimed, announcing the arrival of her next patient – a young woman with eyes that mirrored Amelia’s own - filled with a mixture of apprehension and hidden strength.  

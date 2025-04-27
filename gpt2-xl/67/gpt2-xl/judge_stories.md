@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named David Nuffer. Nuffer was a strong anti-gunner who decided that Americans could not be trusted to own firearms of any kind, and that banning them was an effective approach to preventing dangerous people from acquiring firearms.
+
+It would have been possible to ignore Nuffer and go along with the NRA's interpretation of what a "beretta automatic" was. It would have been less damaging to the public interest, and more politically effective. Nuffer's views are not well studied, however, and the Supreme Court has never considered, or even hinted that it was considering, his opinions directly. Unfortunately, it would take a Supreme Court case to demonstrate how wrong Nuffer was. But if you can believe this stuff, it's an extremely powerful example of the Court's tendency to side with people who have a lot of power.
+
+Nuffer took the following reasoning to its extreme conclusion in 2005 (PDF):
+
+The NRA argues that any person who has received a license to carry a pistol must demonstrate "good cause" on a few specific types of occasions before law enforcement can issue a permit. These occasions include, but are not limited to, a complaint from a property owner or tenant regarding a possible intruder who may damage his/her property, a call for service from a physician and a complaint of a possible domestic dispute by an estranged spouse. In a case such as this, where there is an expectation that, based upon the

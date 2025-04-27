@@ -1,0 +1,7 @@
+## The Smoke and Mirrors of Saint Elias
+
+Rain lashed against Amelia's worn umbrella as she huddled on the edge of St. Elias’ grand plaza, its cobbled stones slick with water. The air was thick with the scent of incense and burnt sugar from the bustling carnival set up behind the cathedral. It was supposed to be a joyous occasion - the annual Feast of Light, a time for revelry and celebration in the city's oldest quarter. But Amelia saw only shadows and whispers, her heart heavy with the growing unease that lingered like an unwelcome guest. 
+
+Her notepad lay open on the damp concrete beneath her, its pages filled with notes about the rumors swirling around Saint Elias this past week. For months, whispers of a hidden power within the cathedral walls had echoed through the city, fueling Amelia’s investigative drive. As she flipped through the scribbles, the name 'Father Elric' stood out like a flashing neon sign: the seemingly meek cleric was being accused of witchcraft by the very people he was sworn to protect. 
+
+Amelia tightened her grip on her worn fedora, the rain clinging to it in a chilling reminder that this story might not have a happy ending. Her eyes darted between the carnival’s merry-go-round and the shadowed side of the cathedral, where she suspected the true drama unfolded. Tonight, she was going to find out what secrets lay hidden beneath the smoke and mirrors of Saint Elias. 

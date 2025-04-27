@@ -1,0 +1,6 @@
+The flickering neon sign outside cast long, wavering shadows across Esmeralda "Esme" Santiago's weary face.  She leaned against the chipped mahogany bar, idly swirling the amber liquid in her glass - whiskey neat, just like every night after closing. The air in "The Rusty Mug" was thick with the ghosts of laughter and broken promises, lingering scents of spilled beer and forgotten dreams. 
+
+It was a Tuesday in Little Havana, Miami. The usual post-work crowd had thinned out hours ago, leaving Esme alone to tend to the few stragglers: a lonely old man nursing a scotch, a couple whispering secrets in a dimly lit corner booth. The rhythmic hum of the air conditioner battled with the salsa music faintly playing from the battered jukebox, creating a melancholic soundtrack for her solitary vigil.  The humid night pressed against the windows, blurring the lines between the neon-drenched street and the bar's warm interior. 
+
+
+Esme knew every inch of this place - the worn grooves on the floor from countless tap-dancing nights, the sticky patch on the counter where a spilled margarita had been forever abandoned, the cobwebbed ceiling fan that whirred like an arthritic hummingbird. This bar was more than just her workplace; it was her anchor, a familiar haven in a city that constantly shifted and changed around her. 

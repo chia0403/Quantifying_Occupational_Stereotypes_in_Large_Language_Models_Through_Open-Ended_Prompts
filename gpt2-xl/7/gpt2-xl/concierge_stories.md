@@ -1,0 +1,7 @@
+Once upon a time, there was a concierge named Algie, who only got into trouble when he got too involved in his job. It wasn't the greatest thing in the world to deal with someone with a gambling problem. A concierge shouldn't even have to worry about that. It turns out that "his entire role consists of putting up with people who can't handle their own liquor." While not everybody with a gambling problem is a serial killer or an extortionist, the majority of the time they are, and it's up to the concierge to manage the situation until all parties involved can focus on fixing the problem.
+
+
+The problem, however, is that most of the time the problems are very simple and not really worth dealing with at all. "The real problem with Algie is that I still don't know what his problem is. If he can't get his act together and work on a few minor matters instead of going after some random people for being a thief, I might have to take him in as a customer."
+
+
+If you're a man of some means, not having a drink in you after a party isn't a problem – you don't need it, you don't need to worry about it, no one else would either, and if you need anything, you'll get it to you from a waitress that is in no way related to you or your party. However, when you're a person on the streets, especially in

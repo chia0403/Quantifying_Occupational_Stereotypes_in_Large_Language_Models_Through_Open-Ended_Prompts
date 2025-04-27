@@ -1,0 +1,5 @@
+The air hung heavy with humidity and the scent of pine needles as Amara, her brow creased in concentration, surveyed the makeshift swing set outside Mrs. Henderson's cluttered living room.  It wasn't much to look at -  a repurposed wooden frame held together by duct tape and rusty chains. But for 7-year-old Timmy, whose cerebral palsy left him struggling to control his limbs, it was a beacon of joy.
+
+Amara adjusted her worn stethoscope around her neck and carefully watched as Timmy swung back and forth with a wide grin that crinkled the corners of his eyes. His mother, Evelyn, stood nearby, holding a steaming mug of chamomile tea. "He's making good progress," she whispered to Amara, the relief evident in her voice.  
+
+The setting sun cast long shadows across the living room, highlighting the worn furniture and mismatched décor that spoke volumes about Mrs. Henderson’s life – a life marked by both hardship and resilience. Yet, despite its humble beginnings, it was here, amongst these weathered walls and the comforting rhythmic sway of Timmy's swing, that Amara found her own strength.  It was a reminder that even in the face of adversity, hope could bloom. 

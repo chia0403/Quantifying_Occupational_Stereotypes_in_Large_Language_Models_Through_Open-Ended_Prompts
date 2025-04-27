@@ -1,0 +1,1 @@
+Once upon a time, there was a barber named Tom, one who worked in the shop across the hall, and he worked with his back to both the door and the window to keep it open for those who wanted to get in. The man who opened the door to ask him for his services was a man named Al, who went in and out of Tom's shop every day to buy groceries to bring home to the woman in his life."

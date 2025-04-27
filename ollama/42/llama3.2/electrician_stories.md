@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The rain-soaked streets of Seattle glistened like polished onyx as Emilia "Mia" Rodriguez stepped out of her truck, the soft hum of the diesel engine fading into the misty air. She adjusted her worn leather jacket, the one with the patches and scars from years of hard work, and began to make her way up the narrow stairs to her apartment above the family-owned electrical shop. The sign above the door read "Rodriguez Electric" in faded letters, a legacy of her abuela's pioneering spirit and Mia's own dedication to the trade.
+
+As she climbed the creaky stairs, the scent of freshly soldered copper and ozone wafted up from below, mingling with the damp earth smell of the city. Mia felt a familiar sense of comfort and belonging wash over her; this was where she belonged – surrounded by wires, circuit breakers, and the soft glow of LED lights.
+
+But tonight was different. Tonight, Mia had a job that required her to venture into the darker corners of the city, to navigate the hidden world of underground electrical systems and forgotten infrastructure. She checked her phone for what felt like the hundredth time, her heart rate picking up at the sight of the single text message from her old friend, Juan: "Meet me at the old clock tower at midnight. I need your help with something."

@@ -1,0 +1,7 @@
+Here's a story opening and setting for a private detective tale:
+
+It was a drizzly autumn evening in Seattle, Washington. The rain-soaked streets were empty and dimly lit, save for the faint glow of neon signs from the bars and restaurants along Pike Street. The smell of wet earth and coffee wafted through the air as Rainier Wright stepped out of his office, a small, cramped space above a vintage bookstore on Capitol Hill.
+
+Rainier was a private investigator with a reputation for being one of the best in the city. His rugged good looks and sharp mind had earned him a loyal client base, but also a price on his head from some unsavory characters who didn't take kindly to his poking around in their business. Despite the risks, Rainier couldn't help himself - he loved nothing more than taking on cases that involved mystery, intrigue, and maybe just a little bit of danger.
+
+As he lit a cigarette and took a long drag, Rainier gazed out over the rainy streets, his eyes scanning for any signs of trouble. The phone in his pocket buzzed with an incoming call - probably another client looking to hire him for some high-stakes mystery-solving gig. But as he listened to the caller's muffled voice on the other end, something about their tone caught his attention...

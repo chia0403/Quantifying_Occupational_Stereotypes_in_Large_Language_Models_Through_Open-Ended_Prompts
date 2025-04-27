@@ -1,0 +1,6 @@
+The wind whipped off the exposed roofs, tearing at Arthur "Red" O'Reilly like sandpaper against flesh.  He squinted through the grit of the early morning air, his thick-rimmed glasses askew and leaning precariously on his nose. The sun was just beginning to break over the horizon, casting a sickly orange glow across the grey steel skeletons of the city skyline. Red hoisted himself onto the scaffolding, taking stock of the task ahead for him -  the familiar aches and pains in his back already protesting from hours of work. He sighed, wishing he could've stayed in bed with his wife, Maggie. 
+
+**Setting:** The sprawling concrete cityscape of Chicago, Illinois. Rain had been a constant companion for weeks, leaving its mark on the worn-down buildings and their chipped paint. Red’s crew worked tirelessly to replace the damaged shingles on the aging, forgotten houses nestled between the towering glass skyscrapers that scraped the sky. 
+
+
+**Main Character:** Arthur "Red" O'Reilly. He was a man weathered by years of work under the Chicago sky - his calloused hands and stoic demeanor a familiar sight in the tight-knit community he worked with.  He was a roofer through and through, taking pride in the craft and the responsibility that came with it.

@@ -1,0 +1,7 @@
+Once upon a time, there was a interior decorator named Barbara. And Barbara, after she had a day off, would always sit and eat her lunches in her office. She was a very funny and well-liked person. But then one day she fell asleep standing up! In her haste to get back to work, she lost her lunch. As she was putting on her coat, she walked over to the desk, grabbed the lunch that she'd lost and put it into her pocket. The desk drawer was empty!
+
+Of course, no one had come across this problem before, or even thought about it! And because Barbara was a woman, many people called her crazy. So they sent an official to find out how this woman went without notifying her office of the problem! "I'll come back later", she said. But she didn't wake up! When Barbara woke up, she went back to her desk, put that lunch back in the drawer, and carried on.
+
+But this wasn't the end! Even though Barbara put her lunch back, when she sat down at her desk she found that it wasn't there. So she went all the way out of the building and back in again! And when Barbara went back to the office, she found that the lunch box was gone.
+
+There are many kinds of people who are crazy. But sometimes there is a small and yet very annoying problem to call them. There was once, after lunch

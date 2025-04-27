@@ -1,0 +1,5 @@
+The air hung thick with the scent of stale beer and desperation, a familiar perfume in The Rusty Mug.  Neon signs cast sickly yellow light on the chipped Formica tables and sticky floors, illuminating a motley crew of regulars nursing their sorrows. On stage, bathed in the warm glow of a single spotlight, sat Amelia "Amy" Nightingale. 
+
+Her voice, rich and powerful, rose above the din, weaving tales of heartache and hope through mournful blues ballads. She sang with an intensity that belied her youthful appearance - twenty-two years old, but carrying the weight of a thousand stories in her eyes. Tonight, though, a new song lingered on her lips, one she hadn't dared to share before. A melody brimming with defiance, laced with a yearning for something more than The Rusty Mug could ever offer.  
+
+Amy took a deep breath, steeling herself against the judgment in the room. This song, this fragile sliver of dreams, was hers to own. And tonight, she wouldn't let it stay buried in the shadows any longer. 

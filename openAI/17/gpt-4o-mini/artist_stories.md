@@ -1,0 +1,7 @@
+**Title: The Canvas of Shadows**
+
+**Setting:** The small coastal town of Eldermere, where cobblestone streets wind between charming cottages with weathered facades. The salty breeze off the ocean carries the scent of the sea, mingled with the faint hint of blooming lavender from the gardens that adorn the homes. At the edge of town, where the craggy cliffs plunge into the tumultuous waves, stands an old lighthouse that has watched over Eldermere for generations. Its light, though dimmed by time, still pierces the night sky, guiding lost souls to shore.
+
+**Opening Paragraph:**
+
+As the sun dipped below the horizon, casting vivid streaks of orange and purple across the sky, Elara Maeve Whitmore stood alone in her weather-beaten studio, a converted boathouse nestled by the rocky shoreline. The scent of turpentine mingled with the salty air, a heady reminder of the countless canvases that bore witness to her struggles and dreams. Elara, an artist with a wild mane of auburn hair and stormy gray eyes, was no stranger to solitude; it was in this quietness that she found her muse. Tonight, however, a chill crept into the air, whispering of secrets long buried beneath the waves, and as she dipped her brush into the deep indigo paint, she could feel the weight of the past pressing upon her, waiting to be brought to life on the canvas.

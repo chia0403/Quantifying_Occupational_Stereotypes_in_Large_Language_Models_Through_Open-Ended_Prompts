@@ -1,0 +1,9 @@
+**Title: The Cracks in Time**
+
+**Setting**: Nestled in the heart of a quaint New England town called Willowbrook, Dr. Eliza Grace Thorne’s chiropractic clinic, “Harmony Spine & Wellness,” stands at the end of a cobblestone street, framed by vibrant fall foliage. The clinic’s warm, wooden facade blends seamlessly with the surrounding colonial architecture, its windows adorned with delicate lace curtains that flutter gently in the crisp autumn breeze. Inside, the scent of lavender wafts through the air, complemented by the soothing sound of a water fountain in the corner, providing a tranquil oasis for patients seeking relief.
+
+**Opening**: As the morning sun cast golden rays through the clinic's large bay windows, Dr. Eliza Grace Thorne meticulously arranged her therapy tools, her hands moving with the precision of a seasoned practitioner. A faint crackle of leaves underfoot signaled the arrival of another patient, and Eliza glanced up, her bright hazel eyes reflecting both kindness and determination. 
+
+She had dedicated her life to understanding the intricate connection between the body and mind, a passion that stemmed from her childhood fascination with the human anatomy. With each adjustment she made, Eliza felt a rush of fulfillment, knowing she was not just aligning spines but also helping to restore balance to souls lost in the chaos of their daily lives.
+
+However, as the clock struck ten, an unexpected visitor entered her clinic—a man cloaked in shadows, with eyes that seemed to hold centuries of secrets. His arrival would challenge the very foundations of Eliza’s understanding of healing, leading her down a path where the boundaries of time and existence blurred, intertwining her fate with the mystery that would forever alter her world.

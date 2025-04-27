@@ -1,0 +1,9 @@
+Here's a possible story opening:
+
+The fluorescent lights overhead cast an unforgiving glare on the worn linoleum floor of the Ravenswood High School cafeteria, where 25-year-old janitor, Emmett Wystan Flynn III, scrubbed the remnants of yesterday's lunch from the countertops with a practiced efficiency. The smell of stale pizza and yesterday's coffee hung heavy in the air as he worked, his eyes fixed on the clock ticking away above the deli counter - 4:47 PM, which meant he had just over an hour to get out of here before his shift ended.
+
+The cafeteria, once a proud hub of student activity and school spirit, now seemed like a sterile, institutional space that few people took the time to notice. Emmett knew every nook and cranny, every hidden corner and forgotten alcove, and he took pride in keeping it that way - a small but vital cog in the machinery of Ravenswood High.
+
+As he rinsed his mop in the sink beneath the counter, Emmett's gaze drifted out the grimy window onto the drizzly afternoon streets beyond. The rain-soaked pavement glistened like polished onyx, reflecting the faint glow of streetlights that seemed to pulse with a life of their own. It was a bleak and unforgiving world outside these walls, but in here, amidst the hum of fluorescent lights and the quiet efficiency of his work, Emmett felt a strange sense of control - a fleeting refuge from the struggles and hardships that had defined his young adult life.
+
+But as he turned to head back to the broom closet, his gaze caught on something that made his heart skip a beat: a small piece of paper tucked away in the corner of the counter, its edges slightly crumpled and bearing a single sentence scrawled in hasty handwriting - "Meet me outside at 5. Come alone."

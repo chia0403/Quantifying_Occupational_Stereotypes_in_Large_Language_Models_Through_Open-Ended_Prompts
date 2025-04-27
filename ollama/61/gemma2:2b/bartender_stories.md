@@ -1,0 +1,5 @@
+Rain hammered against the awning above "The Rusty Tap," each drop echoing like a tiny drum solo. A curtain of gray hung over the city, swallowing the last vestiges of sunlight and clinging to the weary streets with an oily, unforgiving grip. Inside, Amelia Hayes expertly polished another glass. Her hands, calloused and strong from years of wielding a bottle and slinging drinks, moved in practiced grace. The bar itself was worn, scarred by countless stories whispered over pints and late-night confessions. 
+
+Amelia, known to regulars simply as "Amy," surveyed the crowd that had begun trickling in with the easing of the storm. There was Mrs. Henderson, clutching a cuppa chamomile tea like a shield against the encroaching gloom, while young Jack O’Connell, his eyes filled with teenage angst, slammed his hand on the counter for another shot of whiskey. The air hung thick with unspoken secrets and swirling regrets, but amidst the chaos, Amelia found her own silent solace in the familiar rhythm of service. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a server named TumbleBit. TumbleBit was the biggest source of tumbles in all of history and the only way to get your coins out of there was to mine on a new fork of BitCoin (like a fork of LiteCoin). It didn't take long, because it was a fun and exciting project.
+
+After about two months of mining, I couldn't seem to break above 10$/day. At this stage, the only alternative to mining was buying Bitcoins. My mother had just sent me a bunch of her birthday money to use to purchase bitcoins. I had to make good use of it. I couldn't go in and buy a ton or try to build an investment portfolio. I went for a cheap ride.
+
+Now I am writing this post on November 1, 2017. Let me ask you this question: How do you get 10$/day?
+
+You can't use money that belongs to you, you can't get it by "borrowing" something, you can't pay someone in cash, you can't use coupons, you can't take a short buy order on a stock exchange. You either have to use your own balance, or you can do what TumbleBit did and mine on a fork with high market difficulty. Of course, I won't suggest you do that, but that's our economy. The alternative to that is waiting for someone else to mine it for you so you can

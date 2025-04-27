@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting with a roofer as the main character:
+
+**Setting:**
+
+The late August sun hammered down on the small town of Harmony Creek, nestled deep in the Shenandoah Valley. The air shimmered above the asphalt roads, thick with the scent of honeysuckle and the dry, crackling heat radiating from the surrounding cornfields. The houses, mostly modest clapboard structures built in the early 20th century, sat back from the street, their porches shaded by ancient oak and maple trees. Harmony Creek was a town where everyone knew everyone else’s business, where front porch gossip was a daily ritual, and where the most exciting event of the week was the Friday night high school football game.
+
+**Opening:**
+
+"God damn it to hellfire, and twice on Sunday!" bellowed Reginald Theodore Fitzwilliam, his voice echoing off the steeply pitched roof of Mrs. Higgins’ Victorian-era home. Sweat plastered his salt-and-pepper hair to his forehead, turning it into a shimmering halo of discomfort. He’d just dropped his nail gun, the clatter sending a flock of pigeons fluttering from the eaves. Reginald, or Fitz as he was known to everyone in Harmony Creek, cursed again, a string of colorful phrases learned from years of hard labor and general frustration with gravity. He peered down at the tool, lying nestled amongst a bed of moss-covered shingles, then sighed, a sound as heavy and weary as the August air. Another day, another near-death experience courtesy of Mrs. Higgins’ overly ornate and stubbornly leaky roof. He braced himself, the rough texture of the aged cedar shingles scratching against his gloved hands, and prepared for the slow, agonizing descent to retrieve the errant nail gun. He knew he should be grateful for the work, but sometimes, just sometimes, Reginald Theodore Fitzwilliam wondered if roofing in Harmony Creek was slowly killing him.

@@ -1,0 +1,9 @@
+**Title: The Cracks in the Foundation**
+
+**Setting:**  
+Nestled in the serene town of Maplewood, smattered with golden autumn leaves and the scent of pine wafting through the air, was a quaint brick building that housed the Maplewood Chiropractic Clinic. The clinic was adorned with large bay windows that overlooked the village square, where families strolled and children played. Inside, the atmosphere was soothing, filled with the gentle hum of ambient music and the faint scent of essential oils that wafted through the reception area. Soft hues of blue and green decorated the walls, promoting a sense of calm and healing as patients waited for their treatments.
+
+**Story Opening:**  
+Dr. Amelia Grayson always believed in the power of touch—how a simple adjustment could recalibrate not just the spine, but the entire essence of a person. She leaned against the doorframe of her treatment room, her chestnut hair pulled into a loose bun, a warm smile on her face as she observed her next patient preparing for their session. Amelia, a dedicated chiropractor in her mid-thirties, had carved out a niche for herself in the community. People didn’t just come to her for relief from aches and pains; they came for her unwavering compassion, her intuitive understanding of the human body, and her knack for connecting with every individual who walked through her doors.
+
+As the sun dipped lower in the sky, casting long shadows through the clinic’s windows, Amelia noticed a familiar figure enter the waiting room—a figure from her past, someone she had hoped never to see again. The air in the room shifted, and an inexplicable tension knotted in her stomach. For the first time in years, Amelia Grayson had to confront the ghosts that resided behind her healing hands. 

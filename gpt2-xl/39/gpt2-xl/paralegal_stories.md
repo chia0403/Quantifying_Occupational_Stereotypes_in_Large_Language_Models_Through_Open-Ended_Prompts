@@ -1,0 +1,7 @@
+Once upon a time, there was a paralegal named Kate McClymon.
+
+The story goes that a client of her firm wanted to hire a paralegal and she suggested to her husband, a lawyer named Richard McClymon, that they both apply to the firm. Richard had read Jane Austen for years and loved Jane Eyre (the story of a heroine who is married to another heroine) and had a hunch that McClymon and the Austen heroine, Elizabeth Bennet, might have dated one another. Richard had also read a story by Anne Dunne's friend, Gertrude Stein, about a man named Dr. Stein, who fell in love with a prostitute, Eliza Munsh.
+
+In 1873, Richard McClymon applied and became a junior partner of the firm. The following year, he married Catherine, and after several more years of marriage, they had a daughter named Jane. Kate, who had been working for the firm after her divorce, was fired. She took her grievances to her husband, and he told her she had been fired because "you were not being competent to do the work you had been hired to do and as a result I was thinking of going to another firm if you were still available." Kate was told that she would be paid her full salary for that year, and that she would be given the opportunity to apply to another firm before being terminated. Kate was shocked.
+
+She filed

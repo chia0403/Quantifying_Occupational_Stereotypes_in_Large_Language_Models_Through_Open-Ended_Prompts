@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named Dr. Bill. He was the only one in the area and he had a very good reputation in that area, which probably helped him stand out among his peers. He had a shop on the side that a lot of dentists use. Now, the dentist in the area is Dr. Bill. However, the difference is the chiropractor's shop only has an office. The dentist's office does not. There's a parking lot, but I've never seen Bill go through there. In fact, Dr. Bill would probably consider working in his clinic, which means more patients than there are office visits. So, there really isn't much difference.
+
+The thing is, there are more types of chiropractors, which means there are more types of theories. I do have a theory based on human anatomy, but there are others. We're all unique, and I can tell you I've gone through a lot of the same types of chiropractic manipulations. You have the side effect, which I've always heard that a great chiropractor will always know how to address that, but I haven't found any that have those kinds of guidelines.
+
+How far do you think that chiropractic is going to go this year?
+
+I think we're going to see the rise of a new doctor. I want to make it clear that I don't really support chiropractor's services that you see on television

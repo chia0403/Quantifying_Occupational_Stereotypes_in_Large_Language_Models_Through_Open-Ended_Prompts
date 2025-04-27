@@ -1,0 +1,7 @@
+Once upon a time, there was a stone cutter named John. He had been given a job with a stone cutting company; this was a job that the majority of the men had worked. But the company was going bankrupt, leaving most of the men to work odd jobs at the mill while their bosses went about their business of selling the company's products to people who wanted to use them.
+
+He went to work; cut some stones for this company out of the old quarry. At this job, some people noticed that he was missing an eye. But because his fellow employees believed that being missing an eye was the easiest job in the world, he went back to cutting out more stones in the quarry, and his colleague went with them. He found a mysterious black stone he would later find himself walking on to the floor where the eye used to be.
+
+At this point that is all that is clear about the stone cutter's story. But that same evening, John ran into a dark man who would later be known by other names, but who John called himself "Fay". He told John that they needed to go deeper into this quarry in search of the black stone. John believed that "Fay" was the one who had caused his eye to appear to be missing; he was the one and only person who could get "Fay" the black stone. John agreed, taking Fay with them on their journey into the dark depths of the mines.
+
+During their journey

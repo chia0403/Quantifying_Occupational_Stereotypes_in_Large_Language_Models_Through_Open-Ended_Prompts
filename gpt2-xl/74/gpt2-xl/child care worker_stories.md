@@ -1,0 +1,7 @@
+Once upon a time, there was a child care worker named Wendy. Wendy was a wonderful teacher who loved her job. In fact, she loved it so much that she almost quit but then she decided to hang on. It was a tough decision for this child care worker but I will give her high marks for sticking it out with the kids she loved.
+
+Fast forward to about four and a half years ago. This week, the local media began reporting on a disturbing story. Apparently, some of our employees are getting into some serious trouble. According to the local media, some of our employees are sexually abusing young children by photographing and videotaping themselves and then sending the images/pictures to the child(ren).
+
+It is important you hear exactly what they are alleging so you can decide for yourself if you would like to volunteer your services. According to what is being reported from the local media, employees from our local nursery school are getting caught in the act by a police officer on duty at the time. At that point, the pictures/videos are forwarded up to the State Bureau of Investigation and it's then up to the State Attorney General to decide whether or not the photo or picture is being used as evidence in a pending case. In this case, the office of the State Attorney General is charging one teacher and his alleged accomplices for "lewd conduct with a minor".
+
+I will tell you now, when I see media reports like this, they really make

@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the small town of Willow Creek, Illinois, Registered Nurse Emily Elizabeth Wilson trudged through the snowy streets, her insulated boots crunching on the frosty pavement. The winter evening air was crisp and cold, carrying the scent of wood smoke and pine trees as she made her way to the local hospital.
+
+The hospital's neon sign cast a warm glow over the parking lot, where Emily's Toyota 4Runner sat waiting, its tires glistening with ice and snow. She had just finished a long shift at the ICU, tending to patients recovering from the winter storm that had swept through the area earlier that day. Now, she was on her way home to warm up by the fireplace and enjoy a well-deserved cup of tea.
+
+As she walked towards the hospital entrance, Emily couldn't shake off the feeling of unease that had been growing inside her all night. It started with a phone call from an unknown number, warning her about a mysterious patient who was being transferred to the ICU under the lightest of circumstances. The caller had hung up before Emily could ask any questions, leaving her with more questions than answers.
+
+Emily quickened her pace, pushing open the heavy glass doors and stepping into the warm, sterile air inside the hospital. She took a deep breath, preparing herself for another long night ahead, little knowing that it would be one she would never forget.

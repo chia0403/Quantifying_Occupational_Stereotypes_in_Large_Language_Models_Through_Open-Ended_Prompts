@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+As the last rays of sunlight faded behind the towering palm trees, casting a warm orange glow over the bustling streets of Waikiki, Kailani Akua Kanakaokalani made her way back to her small studio apartment above the massage shop she owned and operated. The scent of frangipani and saltwater filled the air as she walked, carrying with her the weary bodies of her clients from a long day of work.
+
+Kailani, or Kae as she was known to those who knew her well, had spent the past few years building up her massage practice from scratch. She'd always been drawn to the healing arts, and after completing her training in traditional Hawaiian massage, she'd set out to share her gift with others. Her shop, "Aloha Massage," had quickly become a favorite among locals and tourists alike, who flocked to experience her skilled hands and soothing presence.
+
+As Kae climbed the creaky stairs to her apartment, her mind began to wander to the upcoming anniversary celebration of her own family's sacred site on the Big Island. Her thoughts were interrupted by the sound of her phone buzzing with an incoming text from her best friend and business partner, Leilani. The message read: "Hey girl, need a favor - something big is coming to town and I have a feeling it's going to shake things up for us..."

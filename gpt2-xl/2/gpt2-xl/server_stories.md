@@ -1,0 +1,7 @@
+Once upon a time, there was a server named The Ghetto Bitch. It had a huge black ass and used the phrase, "No More Black People On My Server." The server, owned by a young African American girl, could be accessed using the username blackgirlnomore. She even had the ability to host her server on her school's IP. When I logged into her server, I noticed that the server did have a huge black ass. I thought it had to be a joke, because there were so few African American people on the internet.
+
+
+I decided to put her blackness to the test. I tried accessing her website using the same username and password. It didn't work. I logged on to Ghetto Bitch and saw some white people in there. I tried logging back in. Again, it didn't work. I then learned that I couldn't go to The Ghetto Bitch's website using the username blackgirlnomore. I also learned that her username was not the server because she had replaced it with one of a black girl.
+
+
+I went on to look up The Ghetto Bitch's website for information about the server. I found that she owned a small, yet hugely successful domain, nameserver.org. This domain had a list of IP addresses. I used that list to find the IP address of The Ghetto Bitch's server, and it was located at a website called Nana's Black Chick, which took

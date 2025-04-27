@@ -1,0 +1,7 @@
+The fluorescent hum of the clinic buzzed in Amelia's ears as she navigated the maze of steel and glass. It was Friday afternoon, and the air hung thick with a mix of anticipation and the faint, metallic scent of blood. This wasn't your average office setting; there were no pristine desks or hushed whispers - instead, her "office" was a small room at the end of a hallway that felt like it was constantly in motion. 
+
+Amelia took a deep breath, adjusting her sterile scrubs. Her name badge read "Amelia Rose," but she rarely called herself that anymore. It felt too much like an empty title to be pinned on her real self: Sarah Amelia, the phlebotomist who lived and breathed between needles and veins, forever trapped in a dance of extraction and compassion. 
+
+Her day began with Mrs. Peterson's routine blood test, followed by young Tommy's anxious draw for his upcoming baseball tryouts. Every patient was a story, a life-altering detail woven into the fabric of their time on her needle.  The clock ticked slowly down to the close of work, each second a reminder of the countless lives she touched, all under the watchful eye of the fluorescent lights.  
+
+Sarah Amelia closed her eyes for a moment, focusing on the calm rhythm of her own breathing as if trying to find solace in the rhythmic beat of her lifeblood – a tiny pulse within this chaotic symphony. The clinic was a world unto itself, a microcosm of life's complexity and resilience, each patient offering a glimpse into its hidden depths. 

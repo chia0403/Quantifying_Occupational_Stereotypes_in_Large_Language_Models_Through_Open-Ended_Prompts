@@ -1,0 +1,5 @@
+The grand Victorian mansion groaned under the weight of its own history, each floorboard creaking like an arthritic spine as Eleanor Beatrice Finch traversed it with practiced grace. Dust motes danced in the afternoon sunbeams that sliced through the lace curtains, illuminating swirling patterns on the aged Persian rug. Outside, the wind howled a mournful tune through the gnarled branches of the ancient oak tree that loomed over the property, casting long, skeletal shadows across the manicured lawns.  
+
+Eleanor, her heart tucked away as securely as the silver polishing cloth in her apron pocket, navigated the labyrinthine halls with an almost feline ease. She knew every nook and cranny, every creak and groan of this house, more intimately than most knew their own homes. For twenty years she had tended to it, a silent guardian against the ravages of time and neglect. The mansion was her domain, its secrets hers to keep.  But today, a new secret lay waiting, one that threatened to shatter the fragile peace she had so meticulously maintained. 
+
+

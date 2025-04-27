@@ -1,0 +1,7 @@
+Once upon a time, there was a pharmacist named Robert M. Hinton who worked at his local pharmacy in Boston's South End. As with many other pharmacists, Robert Hinton's father was on a bit of a crusade against a practice from which people were suffering. Hinton was a member of Massachusetts State Pharmacists Association who wrote the "Pharmacy Rule" in 1934 with a view to reducing pharmacy abuse. The "Rule," though a controversial one, set forth a code of ethics for pharmacist's, not unlike today's Medical Ethicists.
+
+The Code, as one would expect, was rather contentious amongst pharmacy students as a number of the ethical and legal issues raised by the code of ethics have resurfaced lately. So what was the Pharmacy-Hinton Rule? Below follows an original version with an essay by Robert Hinton, along with some commentary from several other notable pharmacists at the time. Also available in the form of this page, in two parts, is the translation of the Code into French. This page is a compilation of all of the original material, plus translation of its part 2.
+
+The following summary of the "Pharmacy-Hinton Rule" appeared in The Pharmacist: A Historical Quarterly, edited by Stephen L. Anderson, pp. 25-42.
+
+The principles of medicine in these days do not agree with the Hippocratic oaths of Hippocrates as laid down by Galen and other Greek and

@@ -1,0 +1,9 @@
+## Opening and Setting:
+
+The air hung thick and heavy, a soupy mix of humidity and diesel fumes that clung to the back of Ronald Theodore Higgins' throat. He spat, the dark wad landing with a wet plop on the cracked asphalt. Another Tuesday, another mile of I-80 east of Des Moines, Iowa. The endless cornfields stretched out on either side, shimmering in the heat haze, broken only by the occasional dilapidated barn or wind turbine struggling to catch a breeze.
+
+Ronald, or "Ronny" as most folks knew him, squinted at the sun beating down on his safety vest. The fluorescent orange seemed to vibrate against the dull gray of the highway. Today's mission: patching potholes. A Sisyphean task if ever there was one. They filled them up, and the relentless Iowa winters, coupled with the constant pounding of eighteen-wheelers, would just spit them right back out, bigger and meaner than before.
+
+He leaned heavily on his shovel, the metal hot against his calloused hands. He’d been doing this for twenty years now, ever since dropping out of community college and realizing his dreams of being a marine biologist were about as likely to come true as the Chicago Cubs winning the World Series. Back then, he’d scoffed at the idea of spending his life under the Iowa sun, but now, the rhythm of the work, the quiet camaraderie of his crew, and the satisfaction of a smooth stretch of highway behind him… well, it wasn’t so bad.
+
+He wiped a bead of sweat from his forehead with the back of his gloved hand. A beat-up Ford F-250, caked in mud and sporting a bumper sticker that read "I <3 Gravel," rumbled to a stop beside him. It was Dale, his crew foreman, and he looked about as thrilled to be there as Ronny felt. This was shaping up to be a long, hot day. And Ronny had a feeling it was about to get a whole lot longer.

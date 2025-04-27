@@ -1,0 +1,5 @@
+Once upon a time, there was a tailor named Kip Tcholakian, who took a vow of silence and lived on a farm. Then, one day, a young girl named Lizzie came to him seeking to make herself one of his shirts and asked his advice on how she might do so. The tailor replied, "Lizzie you do not need to make one of my shirts, nor is it necessary that you be a girl. The trick to achieve this is to look like one." Lizzie replied, "No, I am not a girl. I can do both if I have a little help from my mother." The tailor replied, "Then it is no good calling yourself Lizzie, you must first learn to see that you look like a girl, then you will be one."
+
+Now Kip was a very wise man, but the daughter wasn't too keen on being called Lizzie. She made a point always to remember to do what Lizzie said, and whenever she did so her mother would chastise her. When Kip told her about what Lizzie needed to do, Lizzie was eager to learn. She taught herself how to speak and how to brush her hair, and after about a week of trying she began to speak very much like a girl.
+
+This made Kip very happy, and he always wished that he too could look as much like an attractive young girl as he did.

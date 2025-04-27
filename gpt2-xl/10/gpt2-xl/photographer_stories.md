@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Dave Rissler. His work was widely respected. And the photos in his book "The Rissler Collection" are all on the level of the very best photography of the 20th century. It is a work of incredible and profound beauty. The best photography that shows America's cultural diversity and national unity. The best photography of the Civil Rights Movement is in Dave Rissler's book. And the best photographs of World War II are taken by Dave Rissler. His work was widely respected everywhere. It was the greatest photographer of 20th century, and his photographs are all on this level, of the very best that photography has to offer.
+
+And that is where Dave came in. Dave Rissler was a professional photographer. This wasn't a hobby. This was his profession. So when he was asked to take pictures of some veterans, they wanted their faces. Not their hands or any of their tattoos, and he shot them. It was a great honor as it could not have been asked for better.
+
+One day the photo agency brought Dave Rissler in for a final session as they were closing the book on them. He had all of them out in front, and they were all showing their faces for the first time.
+
+One by one, he looked at them; and then one by one he asked the veterans if they could show the world their faces, the ones they had fought the

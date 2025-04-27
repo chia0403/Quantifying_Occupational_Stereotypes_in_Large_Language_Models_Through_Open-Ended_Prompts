@@ -1,0 +1,7 @@
+Once upon a time, there was a electrician named Dave.
+
+
+Dave lived on the first floor of a small block of condos on Beach Haven Street. He was married and he had a four-month-old daughter, but Dave didn't feel like he could make a career out of building electrical systems. It didn't even make sense to him that he would ever do anything with his life as a profession. He was a good guy who had a good heart and he had a good head on his shoulders, but he wasn't very good looking. He wore plaid button down shirts and slacks, but most of his wardrobe was in the form of thrift store finds. He was in the car buying a DVD when the phone rang. He got out of the car to answer it, but couldn't bring himself to go back. He just couldn't face getting home. "Hey," he said softly to the caller. "How you doing?" The voice was a little strained, but Dave couldn't understand why. The man sounded afraid to ask what was wrong, so Dave figured he must be feeling ill. "Hey," he said, his voice cracking. "We're having some problems with your power." "Oh." Then he said, "I don't want to deal with that right now. I'm going to walk down the block and I'll call you back."
+
+
+Dave walked down the street toward the block, turning down a few side streets, and when

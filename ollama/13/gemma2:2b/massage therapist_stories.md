@@ -1,0 +1,7 @@
+The air in the cramped Salt Lake City apartment hung thick with the lingering scent of lavender and tension.  Esmeralda “Elsa” Rodriguez sighed deeply, massaging her weary shoulders as she listened to the steady hum of traffic outside. The late afternoon sun painted long shadows across the worn linoleum floor as a gentle but insistent drizzle began to pitter-tap against the windows. Her fingers traced circles on Ethan's temple, her touch soothing his furrowed brow. He was a writer, she knew, and words always seemed to flow out of him in a torrent when he was trying to get his creative juices flowing. Or maybe they were just trying to drown his anxieties away, like Elsa’s massages did. 
+
+Elsa loved her job at "The Willow", a cozy spa nestled in the heart of Salt Lake City's bustling downtown area.  She saw people come and go through the doors - artists, lawyers, accountants, shop owners, each carrying their own unique load – and helped them to shed it. But tonight, Elsa felt like an islander trapped in her own personal storm. Her landlord was threatening eviction, and her savings were dwindling faster than a bowl of lukewarm soup on a summer day.  
+ 
+She glanced at Ethan’s face as he closed his eyes, seeking solace in the rhythm of her touch. The rain outside seemed to drum a slow beat against her windowpane, mirroring the growing unrest within her. Elsa yearned for something bigger - a chance to make a real impact, to help people heal not just their bodies but also their souls. 
+
+

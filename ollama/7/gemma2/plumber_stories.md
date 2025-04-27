@@ -1,0 +1,5 @@
+The stench of stagnant water and despair clung to Bartholomew "Barty" Fitzwilliam like a second skin. He squinted through the grimy window of the dilapidated apartment building, his brow furrowed in grim determination. Rain lashed against the warped glass, blurring the already chaotic scene below: overflowing gutters spewing brown torrents onto the cracked pavement, stray cats slinking for cover between overflowing trash cans, and a lone lamppost flickering precariously, casting long, skeletal shadows that danced with the wind. 
+
+Barty was on his third call of the day – all plumbing emergencies – and he was starting to feel the weight of the city's misery pressing down on him. He tugged at his grease-stained overalls, a sigh escaping his lips like a leaky faucet. This wasn't just another job for Barty; it was a daily battle against the relentless decay of forgotten corners, where hope dripped away with every overflowing pipe and burst water heater. But beneath the fatigue, a flicker of satisfaction sparked within him – he was their last line of defense against chaos. And he wouldn't let them down. 
+
+

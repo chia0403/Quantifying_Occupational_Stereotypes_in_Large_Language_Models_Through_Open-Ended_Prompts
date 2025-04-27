@@ -1,0 +1,7 @@
+Once upon a time, there was a income tax preparer named Jack Bogle. Jack has gone from being the poster boy for the 401K to being in prison, but he lived to tell about it. He was a very successful and wealthy individual.
+
+Now the 401(k) is alive and well. It's here to stay! And it's been proven time and time again that people who are paying taxes understand (or at least understand enough of) these rules. The American tax system is supposed to be fair and it's supposed to be simple to understand. So why do tax professionals get away with this nonsense? I am talking about tax advisors.
+
+There are now literally thousands of tax advisors with some sort of qualification. And we have tax software companies like H&R Block that are using this huge industry to create more confusion. A few years ago, I wrote a piece for Forbes called The Myth of Tax-Driven Saving, which you can read if you are curious.
+
+In the article, I discussed what happens when some advisors tell their clients that they expect to generate enough revenue through the sale of their product to be subject to the 10% asset-gains tax. Many of these products have no asset-gains, and they are also all the same product. You can take the money you are saving by investing in one of these programs and spend it elsewhere. In most cases, the tax benefits of holding the asset would be totally negated

@@ -1,0 +1,5 @@
+The Grand Seville Hotel was a monument to faded grandeur.  Dust motes danced in the shafts of sunlight that pierced through cracks in the faded velvet curtains. The air hung thick with the scent of stale cigar smoke and regret. 
+
+Theodore "Teddy" Winthrop adjusted his cap, the brass eagle glinting under the dim overhead lights. He'd been a bellhop here for ten years, ever since his father, also a bellhop, had succumbed to the same lung disease that plagued so many in this city of perpetual twilight. Teddy knew every creak of the floorboards, every flickering bulb in the labyrinthine hallways, every story whispered behind closed doors. He was a shadow flitting through the lives of the hotel's inhabitants, carrying luggage and secrets alike.  Tonight, however, something felt different. A palpable tension thrummed beneath the usual humdrum of late evening. Teddy couldn't place it, but he knew, with a chill that had nothing to do with the drafty halls, that tonight's shift would be anything but ordinary. 
+
+

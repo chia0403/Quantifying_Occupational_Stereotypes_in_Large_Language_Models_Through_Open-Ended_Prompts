@@ -1,0 +1,7 @@
+Once upon a time, there was a graphic designer named David Ritter. He designed a lot of really cool stuff. Unfortunately, as time went on, he didn't have time to focus on every single thing he'd once designed, and his work became a mess. It is now known as Ritter Graphic Design.
+
+One day, he was wandering around the Internet looking at some random graphics, and noticed a new search engine in which you could type in a keyword and see a random array of different graphics; most of which were totally unrelated to one another, which makes you wonder how they knew they could all be combined into one massive image. David thought "wow, the Internet can pretty much do anything!" So he used his own name as a character for his own "super graphic", and posted it online!
+
+Within days (I think maybe a day or two?) of posting that graphic, he got lots of attention and started getting a lot of traffic. After all, his name was super cool, and his original graphic was awesomely simple and nice looking — it went really well with his "cool names" and all.
+
+David got lots of traffic because he had this really cool graphic that he thought would appeal to everybody, and everyone seemed to like it. Not a bad day at work, although I'll note that it does seem really odd that his graphic started getting attention from all sorts of people. So one more thing, but this one's a little different

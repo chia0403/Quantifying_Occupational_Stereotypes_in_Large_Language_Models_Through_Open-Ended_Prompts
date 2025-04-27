@@ -1,0 +1,5 @@
+The rain lashed against the attic window like angry ghosts, each drop exploding in a miniature geyser against the dusty glass.  Eleanor Hawthorne, her gaze fixed on the swirling grey chaos outside, felt a familiar tension knotting its way up her spine. The smell of mildew and forgotten dreams hung thick, almost tangible, in the air as she sat hunched over her worn typewriter. Outside, the storm raged on, mirroring the turmoil churning within Eleanor's soul. 
+
+Eleanor was a writer by trade, by necessity. Not blessed with talent like some celebrated authors who seemed to weave magic from ink and paper, she had learned that real words were forged in the fires of experience. She lived alone in this decaying Victorian mansion, its grandeur overshadowed by years of neglect. Yet, it was here that she found solace, that her stories bled onto the pages, her characters coming alive against the backdrop of dust-covered furniture and faded photographs.
+
+As she tapped out a sentence, the words seemed to echo the storm's fury, each one a defiant scream against the encroaching darkness that threatened to swallow her whole. 

@@ -1,0 +1,6 @@
+The scent of lavender oil hung heavy in the air, mingling with the faint aroma of sandalwood incense and the ever-present whisper of chamomile tea brewing on the back burner. Eleanor Anya Petrova ran a hand over the smooth surface of the heated table, checking for any stray hairs or wrinkles in the linen sheet. Her studio, tucked away on a quiet side street in Brooklyn, was her sanctuary – a place where worries melted away like tension knots under her skilled touch. 
+
+Eleanor loved the work. There was a strange poetry to it, weaving her hands into another person's pain, listening to their sighs and whispers as she coaxed relief from aching muscles. She knew each body was a universe unto itself, holding stories in its lines and textures, secrets revealed through knotted shoulders and tense jawlines. 
+
+
+Tonight, however, the usual calming hum of the space felt different. An undercurrent of unease thrummed beneath the surface, leaving Eleanor with a prickling sensation on the back of her neck. She couldn't pinpoint the source – perhaps it was the way the streetlight outside flickered ominously, casting long, dancing shadows across the walls, or maybe it was the unsettling feeling that someone, or something, was watching her from just beyond the window. 

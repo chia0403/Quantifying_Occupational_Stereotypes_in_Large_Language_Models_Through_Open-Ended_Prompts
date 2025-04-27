@@ -1,0 +1,7 @@
+Once upon a time, there was a theatrical director named Alan Eustace at New York's Old Vic Theatre who had a special talent for the absurd -- he loved to pull off feats even the highest fliers in our profession would find impossible. "Sometimes, he would throw a bunch of bottles and they would all hit and crash all over the stage at the same time," writes his successor, Sir Edward Elgar. "And the actors would just look at me. I was like, 'Are you serious?'"
+
+A bit later, there was a musical director named Thomas Edison in charge of the New Jersey Orphan Asylum for the Feebleminded. If one of the children in the asylum had a talent for singing, Edison would send these "talented orphans" out to sing on his own projects. "For some of them, he was willing to pay handsomely," Elgar writes in his memoir.
+
+The list goes on. Some of today's actors may feel like they've been given the keys to a new car and are just waiting for it to park itself. "When the car stops, what do you do? Turn around?" says Liev Schreiber, who has directed some of our finest performances. "You take it for its journey. The journey is what is important."
+
+Of course, most of us don't have the time to spend on "the journey." The journey is often a journey not of discovery but of escape -- of living happily

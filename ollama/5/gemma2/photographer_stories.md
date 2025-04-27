@@ -1,0 +1,6 @@
+The air hung thick with the scent of saltwater and brine as Amelia Celeste Hawthorne squinted at the horizon. The ferry lurched, jostling her against the rough wooden railing, but she held steady, her camera clutched tightly in one hand. Her other hand gripped a worn leather notebook, its pages filled with sketches and notes, all dedicated to capturing the fleeting beauty of this storm-tossed island.  
+
+Amelia had come to Skellig Michael, a remote Irish outcrop jutting from the Atlantic like a weathered tooth, seeking solitude and inspiration. The islanders whispered tales of ancient monasteries clinging to impossible cliffs, of wild storms that raged with mythical fury, and of secrets buried deep beneath the windswept earth. Amelia, driven by a relentless need to capture these stories through her lens, had ignored their warnings about the treacherous winds and unforgiving sea. She was here for the truth, whatever it might reveal. 
+
+
+The setting sun cast long shadows across the churning waves, painting the sky in hues of bruised purple and molten gold. As dusk deepened, Amelia knew she needed to reach the shore before nightfall. But something about the storm brewing on the horizon held her captive, a sense of imminent drama that thrummed through the air like an unspoken promise. 

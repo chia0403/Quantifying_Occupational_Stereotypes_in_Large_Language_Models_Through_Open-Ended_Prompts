@@ -1,0 +1,5 @@
+The air hung thick with the scent of salt and brine, a humid shroud clinging to Eleanor Grace Blackwood like a second skin. She stood perched on a crumbling jetty, its weathered wood groaning beneath her weight, the Atlantic roaring a constant symphony beside her. Her camera, a battered Nikon F3, was an extension of herself, always at the ready to capture the fleeting moments that whispered stories across the vast canvas of the sea.  
+
+Eleanor’s world wasn't the bustling city life she had left behind in London; it was this rugged Cornish coast, where the wind howled secrets through the craggy cliffs and the waves crashed against the shore with a primal force. This desolate beauty was her muse, its melancholy landscapes etching themselves onto her soul as vividly as they did on her film negatives.  Today, Eleanor sought to capture the ethereal glow of dawn breaking over the horizon, bathing the sea in hues of apricot and rose. But more than just a picturesque image, she yearned for something deeper, a sense of connection with the raw power that pulsed beneath the surface of this seemingly placid world. 
+
+

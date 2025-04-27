@@ -1,0 +1,6 @@
+Once upon a time, there was a baker named "Nathan" who baked bread using flour from what he called the "earthly bread", but not from any of the ingredients that are normally included in any of our modern breads. This baker was found by Jesus as a little leper, as seen in Matthew 15:5 (but more on that later). At the time that the New Testament was written, Jesus was in the wilderness, living in a hut and serving as a teacher for people who were much more technically skilled than him.
+So how does this relate to bread? As you can see, Jesus knew his bread from the Earthly Bread used to bake it. So why is he the only prophet who has mentioned the bread that is from the same bread that Nathan baked decades ago? The "earthly bread", as was written, was only used to make bread. So it shouldn't have been the original ingredient, but it was added by a later person who could have used something else for this purpose.
+Now how does this relate to the bread contained in the Bible? This bread is the New Covenant Bread that was included upon the tables of the faithful in the new covenant after the Old Testament covenant had been completed in Jesus' death.
+Let's examine what God said with relation to the bread contained in the New Testament.
+We have a list of those who were the disciples when Christ died.
+And they were all together, and spoke about these things in

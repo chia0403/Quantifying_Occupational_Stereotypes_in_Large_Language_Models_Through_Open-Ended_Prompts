@@ -1,0 +1,9 @@
+**Title:** *Shadows of Assurance*
+
+**Opening:**
+
+The air in Millstone Grove was thick with the scent of impending rain, a scent that mingled oddly with the lingering notes of freshly brewed coffee from the café across the street. It was a small town, the kind where everyone knew everyone else’s business, and where secrets were dug up like weeds in the cracks of cobblestone streets. The rhythmic ticking of an old clock tower echoed ominously in the background as Amelia Jane Davenport stepped out of her simple, brick office adorned with a modest sign that read “Davenport Insurance Agency.” Clutching a leather binder filled with policies and claims, she paused to look at the darkening sky.
+
+Amelia, in her late thirties, wore her chestnut hair pulled back in a neat bun, and her dark green blouse contrasted sharply with the gray environment that surrounded her. She had spent over a decade working in the insurance industry, helping families reclaim stability in the wake of loss. People in Millstone Grove regarded her as a pillar of support—reliable, efficient, and always ready to lend an ear. Yet as she glanced down the street, a prickle of unease shivered through her, an instinct she had honed during her years of assessing risk and navigating uncertainty.
+
+Today marked the first anniversary of a tragic accident that had rattled the community—a family lost in a fire that had consumed their home. Amelia never could have anticipated that a simple policy review would lead her down a path of tangled lies and buried truths. As she tucked a loose strand of hair behind her ear, she steeled herself for the conversations ahead. There were still lingering questions, unclaimed whispers of safety that felt far less secure than the policies she sold. In this town, every promise carried a weight of its own.

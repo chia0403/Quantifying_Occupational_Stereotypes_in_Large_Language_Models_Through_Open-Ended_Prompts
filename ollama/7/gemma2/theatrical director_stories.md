@@ -1,0 +1,8 @@
+The air in the rehearsal hall hung thick with the scent of stale coffee, sweat, and desperation.  Sunlight, filtered through grimy windows high above, cast stripes of dusty gold across the worn wooden floorboards. Eleanor Beatrice Cartwright, or Ellie as she preferred (though her father insisted on "E.B."), paced like a caged tigress, her gaze flitting between her actors and the script clutched in her hand. 
+
+"No," she snapped, her voice cutting through the silence like a shard of glass. "That's not heartbreak, that's a bad cough."  She gestured dramatically to Amelia, a lanky woman with a penchant for dramatic pronouncements and an even stronger penchant for underplaying everything. "Think about it, Amelia. You just lost your entire life savings to a fraudulent alpaca investment scheme. This isn't the time for theatrical sniffles!"
+
+Ellie wasn't known for her gentle approach. She was a whirlwind of chaotic energy, demanding perfection from herself and everyone around her. But beneath the sharp edges lay a fierce passion for theatre, a belief that it held the power to move hearts, challenge minds, and ultimately change the world. This production, "The Alpaca Con", a darkly comedic take on the perils of greed and ambition, was her magnum opus, a testament to that belief. And she wasn't about to let anything, not even a subpar rendition of heartbreak, get in her way. 
+
+
+Ellie scanned the rehearsal space, settling on Henry, a seasoned actor with more wrinkles than lines memorized, who seemed perpetually on the verge of falling asleep. "Henry," she barked, "give me that fire! Where's your ruthless ambition? You're supposed to be the mastermind behind this whole alpaca debacle!"

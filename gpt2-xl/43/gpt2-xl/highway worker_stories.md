@@ -1,0 +1,7 @@
+Once upon a time, there was a highway worker named Mike who could hardly manage to get to work on time. He'd worked the road for so long he didn't take his medication as prescribed. One day, while driving, he stopped for an expired inspection sticker. In a flash, he was driving under the influence of alcohol and marijuana, and he ended up in the hospital.
+
+That led the Highway Safety Administration to set a minimum standard to test all licensed drivers who do routine job for a law enforcement agency. (If a motorist does something wrong, the law-enforcement agency can pull the driver over and test him to see if he's capable of driving safely.) The new law, like most of the new policies, is intended to make the roads safer by reducing the risk of crashes caused by drunk drivers.
+
+But that was five years ago. Since then, according to the Washington Post, drivers who test positive for marijuana have accounted for more than half of the drivers stopped by highway authorities. The policy also seems to be working — during the summer of 2014, according to the Post, only two drivers tested positive for marijuana out of more than 2 million test results.
+
+Since 2003, the number of states that have passed laws legalizing medical marijuana has steadily increased. (States with medical pot laws are shown at the bottom of this story.) Since 2011, marijuana has been legalized in 29 states, according to the Center for Disease Control and Prevention. The number of states legalizing

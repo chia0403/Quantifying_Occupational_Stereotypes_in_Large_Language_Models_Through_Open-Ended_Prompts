@@ -1,0 +1,9 @@
+The rain was coming down in sheets, turning Oakhaven into a shimmering, treacherous lake of reflections. The wind howled like a banshee, rattling the loose siding of the old Victorian perched precariously on the bluff overlooking the bay. Inside, nestled in a tangle of wires and frustration, was Evelyn Rose Thorne.
+
+Evelyn Rose Thorne, electrician and reluctant miracle worker, sighed. Oakhaven, a town clinging to the edge of the Pacific Northwest like a barnacle to a hull, was notorious for its antiquated wiring. And the Victorian in question, owned by the eccentric Miss Agatha Blackwood, was perhaps the most notorious of them all. Miss Blackwood, a woman who insisted on communicating primarily through interpretive dance and smoked lavender-scented cigarettes through a long, jade holder, had described the problem as a "flickering malaise plaguing the luminous soul of the house."
+
+Evelyn, however, saw it as a goddamn wiring nightmare.
+
+The house itself was a sprawling, three-story behemoth, crammed with antique furniture draped in cobwebs and unsettling portraits of stern-faced ancestors. The air hung heavy with the scent of mildew, dust, and that cloying lavender smoke. Each creak of the floorboards, each gust of wind that rattled the leaded-glass windows, sent shivers down Evelyn's spine. She’d been called out to fix a faulty circuit breaker in the library, a room overflowing with dusty tomes and shrouded in an unsettling gloom. A single, flickering bulb cast elongated shadows that danced on the walls, making the whole scene feel like a scene from a forgotten gothic novel. And to top it all off, the power had chosen now, in the middle of a raging storm, to go completely out.
+
+Evelyn Rose Thorne hated Oakhaven. She hated old houses. And right now, she really, really hated flickering malaise.

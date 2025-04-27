@@ -1,0 +1,5 @@
+The neon sign outside "The Rusty Mug" buzzed like a tired hornet, its sickly green glow reflecting in Amelia Harper's wide, hazel eyes. The air hung thick with the scent of stale beer, burnt onions, and desperation – a familiar perfume to anyone working nights in this part of town. Inside, the bar was half-empty, littered with sticky tables and crumpled napkins. A lone figure hunched over a pint at the far end, his face swallowed by shadow. Amelia smoothed down her already pressed uniform, a burgundy dress clinging to her slender frame despite the stifling heat. 
+
+It wasn't glamorous, but it paid the bills, allowed her to study for her nursing exams in stolen moments between taking orders and refilling glasses. Tonight, though, something felt different. The air crackled with an unseen energy, like a storm gathering just beyond the grimy windows. It settled on Amelia's skin, raising goosebumps despite the stifling heat. As she approached the bar, a low voice rasped from the shadows, "I need to speak to you." 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named Jules Verne. He wrote a series of novels about a time-traveling, space-traveling, science-fiction-loving dentist who's trying to get his teeth fixed so he can travel through time—and fix an old mistake.
+
+
+Jules Verne would have an easy job: His main characters are fictional, the time travel is fictional, and he's dealing with fictional-to-realistic situations. His hero, Dr. Samuel Smith, does indeed want to do everything right—save us from getting too old and dying, for once! And I suppose when I read those novels, I imagined that Dr. Verne didn't know what was happening. He kept missing the train of destiny that was trying to destroy him—and the fact that he got away so quickly is sort of like him not reading a damn sign when he got to the dentist's waiting room. I don't know that all of his novels actually take place in the future, although he definitely had his characters in more than one of these ones—and there may have been at least one in the past. For instance, "For the Advancement of Science" deals with the present situation, where the narrator thinks he is a dentist "on a second voyage" and he is in fact traveling to the Middle Ages, where the time machine will be built.
+
+
+Another bit that got me was the protagonist's obsession with the tooth fairy.

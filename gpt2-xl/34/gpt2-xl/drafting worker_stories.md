@@ -1,0 +1,6 @@
+Once upon a time, there was a drafting worker named "Tobias Tannin", who had worked hard to craft a great deck for his guild, however, the deck was in tatters, and the guildmaster lost it by not getting the proper materials to finish it! Tobias became jealous of the rest of the crew, because he lost his masterwork. He therefore set out to create his own masterpiece, complete with cards, and proceeded to create the first-ever Legendary Deck. To make matters worse, Tobias was unaware that, in order to craft it, he would have to make it to his deck's legendary power threshold, or else he would have no deck at all!
+
+Then, Tobias saw an opportunity! After all, he could have created a legendary artifact deck, only using artifacts as the key component! This means that Tobias could have the "only-legendary-the-week Legendary's-Duff" of his creation...
+
+
+The following Legendary Deck was created via a process that was, somewhat, "reverse engineering." You see, the purpose of Tobias' legendary-making quest was ultimately to find a way to replicate him into the first true Legendary Spell. He could have created a classic Spellblade deck, but this would not have been the Legendary Deck we love to see! In his quest, I found that a Legend of the Five Rings creature could be used to duplicate one (although not in any way resembling his original build). Thus the

@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The rain-soaked streets of Edinburgh gleamed like polished stone as Emilia Helena MacTavish stepped out of the Scottish National Library, her worn leather boots making soft squelching sounds on the wet pavement. She pulled the hood of her waterproof jacket up over her curly brown hair, the faint scent of damp earth and book paper wafting up from the streets. As she walked towards the gleaming white stone façade of the Royal Mile, Emilia's mind began to wander back to the stack of old novels she'd spent the afternoon researching.
+
+Just as she was about to cross the street, a gust of wind sent her umbrella flying out of her hands and tangled itself around a nearby street performer. The musician, a young man with a wild shock of blond hair, laughed good-naturedly and tried to untangle his instrument from the umbrella's grasp. Emilia watched as he finally managed to free himself, his bright blue eyes meeting hers in a fleeting smile before he continued playing for the small crowd that had gathered around him.
+
+The music was haunting and beautiful, but Emilia's thoughts were elsewhere. She felt a nagging sense of unease settle over her, like a faint whisper in the back of her mind. It was a feeling she couldn't quite explain, one that seemed to be connected to the old book she'd been researching - a tattered leather-bound volume with strange symbols etched into its cover. As she watched the musician disappear into the crowd, Emilia felt an inexplicable sense of foreboding settle over her.

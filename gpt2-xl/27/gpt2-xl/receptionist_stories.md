@@ -1,0 +1,7 @@
+Once upon a time, there was a receptionist named Carol. She met an old friend, a man called John. He was a nice guy, and so she invited him along on her latest trip to her hometown, where she'd get to stay in an old apartment building where John was living. Now, John was a bit of a romantic. The two bonded over their love of books and history, and Carol discovered that the kind of man she wanted with her for the rest of her life had a habit of showing up at every party.
+
+Carol invited John to her family's big dinner, and the two hit it off like old pals, until she told him about her last two boyfriends; one of them was gay. The man she'd had a thing for had left her for another woman - an unhappy one, at that. They went on a few dates, and in a few years John married Carol's older sister.
+
+Of course, they hit it off well enough, and Carol fell in love with John's new wife. He was a much happier man, too - his husband, a well-travelled guy, had told Carol that he'd never felt more at ease in his life. But one night, Carol, by her own confession, turned up at John's place to meet his wife.
+
+The meeting was less than smooth. Carol couldn't get her mind around her former partner, so, against Mary's advice, she walked him

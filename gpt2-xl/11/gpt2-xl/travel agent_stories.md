@@ -1,0 +1,5 @@
+Once upon a time, there was a travel agent named "Bartleby" [Footnote 7/3] who took a vow of silence, and kept no account of the business and receipts of his agency. [Footnote 7/4] He would no more show his customers and clients the bills for the articles for which they had paid, than would a shoemaker refuse to show the price of his stockings to his customers and clients at the time, whereupon they would retry the price every time the stockings should go out of season. But in the present world of travel-agency business, with its "accountables," receipts and disbursements, the most exactions of this kind are now seldom or never practiced. And in the latter case, the traveler in one state is still more apt to be a victim of fraud, than he would be of suspicion, in another state, where it is not necessary for him to conceal his identity or character from each other. [Footnote 7/5]
+
+[Footnote 7/1]
+
+See "Admonition," 2 Opinions of the Justices (1789), pp. 10-11; note, "Admonition," 5 L. of Lawyer (1802), p. 27; id., Comment on "Admonition," p. 11; 1 Hale, C.C.C. (4th ed.), p. 859; 1 Smith, Notes and Queries, p

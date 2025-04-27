@@ -1,0 +1,7 @@
+Once upon a time, there was a auto mechanic named Ben. It was a very old time.
+
+Ben, was never fond of the notion of a girl who loved to fish and hunt. He disliked the notion that a girl who ate food and didn't like to get her hands dirty, could ever be a real girl.
+
+Ben was never known to be a bad, mean person and Ben was so proud of his work that he often didn't mind getting in trouble. His best friend and partner, Ben is also known to be lazy and is more than willing to ignore any orders that he thought were dumb. He has no friends but Ben, one, Ben is a man and doesn't take orders from women and two, The two of them are not close friends and rarely do any of the things that Ben did before Ben went to college. A man, Ben is not a boy anymore.
+
+Ben was a loving brother and best friend to a young, redheaded girl named Emma. Emma and Ben had been best friends since Ben was in middle school and grew up together. Ben's relationship with Emma was just like any other boy would's relationships with girls and he never considered being with a girl as good or nice as anyone else. As the years went by, Emma started to be more accepting of Ben and accepted his "badass" ways. She was willing to forgive him though after a fight with Emma and Ben broke up with her. Ben's feelings towards Emma

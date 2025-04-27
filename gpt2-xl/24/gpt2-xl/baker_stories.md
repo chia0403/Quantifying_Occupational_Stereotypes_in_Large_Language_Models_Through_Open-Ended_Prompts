@@ -1,0 +1,7 @@
+Once upon a time, there was a baker named Mary Baker Eddy, who made a cake that had a small hole drilled into the middle, which allowed a small amount of light to fill it – no problem, as many people liked baking without light, hence their desire for a cake with a hole in it. As someone once said, they were "pushing the boundaries".
+
+While that particular piece of cake technology has long since passed into the dustbin of history, in the case of the new device described by German researchers it actually isn't that far removed from what we're dealing with below. A team of researchers from the University of Freiburg in Germany, at the Technical University of Dresden, and at the Technical University of Munich have come up with a device which could allow you to see through objects, as well as the light inside them.
+
+The idea behind the new device is to harness the same physics that allows photons to pass through black holes, allowing light to be guided through an object and even shine through it. The researchers have already been successful in using the technology to bounce a laser through objects, and have even been able to cause a laser to shine through a hole.
+
+All of the team's previous experiments have relied on using microwave radiation for the guiding of light. While this has proved to be relatively safe, the technology is limited as it only sends out photons, and the direction in which they are travelling is determined by the energy of the light itself

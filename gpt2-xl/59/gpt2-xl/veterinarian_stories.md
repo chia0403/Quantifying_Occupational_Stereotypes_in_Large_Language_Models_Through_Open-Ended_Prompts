@@ -1,0 +1,7 @@
+Once upon a time, there was a veterinarian named Joe Hill that ran two small animal clinics in San Francisco. One day, just after his 40th birthday, Hill was sitting across from Dr. Michael Vazquez at the clinics office when he turned to the veteran animal physician and said in a hushed voice, "Dr. Vazquez, the animals are going to come back to life!"
+
+Michael Vazquez, one of the city's most respected vets, took an instant liking to Joe Hill. Over the years, Vazquez and Hill became good friends. They regularly walked up and down Market Street in their neighborhood. Hill also spent part of every Thursday afternoon in Vazquez's office, explaining to the veteran the medical facts of why certain animals were allowed to live or die. Vazquez had no real medical training. He had only taken a class once, back when he was an undergraduate student at UCSF, and his doctorate was about to finish his second year of study at UCLA.
+
+One day, as Vazquez stood near one of the animal doors in Hill's clinic, a patient, a male white macaque, made his way to the vet's office door. The cat began to climb the side of the building on the third floor. Vazquez stepped to the side and attempted to catch the cat. The cat jumped and landed on Vazquez below the left elbow.
+
+Once the cat stopped struggling, Vazquez

@@ -1,0 +1,7 @@
+Okay, here's a story opening, setting, and the main character's full name:
+
+**Setting:** The biting wind whipped across the exposed helipad of County General Hospital in rural Montana, a place where the majestic Rocky Mountains met endless, unforgiving plains. The air smelled of jet fuel, pine, and the ever-present, metallic tang of blood and adrenaline that clung to everything. It was just after sunset, painting the sky in bruised purples and fiery oranges, a beautiful but mocking contrast to the grim realities within the hospital walls.
+
+**Story Opening:**
+
+The rotor wash buffeted Dr. Amelia "Amy" Esperanza Reyes, MD, as she ducked low, her short, dark hair plastered to her forehead. She gripped her medical bag tighter, the worn leather warm against her gloved hand. The familiar thrum of the MedEvac helicopter always set her teeth on edge, a primal trigger that meant someone, somewhere, was fighting for their life. This time, the call had been vague: "Farm accident, multiple trauma, unresponsive patient."  Vague usually meant bad.  She exchanged a curt nod with the flight paramedic, Jed, who was already barking orders to the waiting ambulance crew. The double doors of the helicopter slid open with a hydraulic hiss, revealing a scene she’d witnessed hundreds of times, but one that never failed to tighten the knot in her stomach: a battered gurney, a tangle of tubes and wires, and the ghost-white face of the victim beneath a blood-soaked blanket. "Alright," Amy said, her voice firm and cutting through the noise. "Let's get to work."

@@ -1,0 +1,6 @@
+The scent of jasmine tea and old paper hung heavy in Amelia Beatrice Cartwright's office.  It was a comforting aroma, one she'd cultivated over years spent tucked away in her cluttered corner of the "Adventure Awaits" travel agency. The walls were plastered with faded postcards from exotic locales – the pyramids of Giza, the Taj Mahal bathed in sunset hues, a vibrant coral reef teeming with life. Each one whispered tales of faraway lands, stories Amelia longed to re-experience but couldn't afford anymore.  
+
+She stared at the cluttered desk before her, the surface littered with brochures, crumpled maps, and half-empty coffee mugs. A stray postcard depicting a snow-capped mountain peak caught her eye – a reminder of a trip she'd planned for a client last year, a journey that had gone spectacularly wrong, leaving Amelia reeling from a whirlwind of cancellations, lost luggage, and irate customers.  The memory stung, but Amelia pushed it down, focusing on the stack of envelopes before her. Each one held a dream waiting to be fulfilled, a new adventure yearning to unfold. 
+
+
+Amelia was determined to reclaim her passion for travel, one carefully curated itinerary at a time. After all, wasn't that what she was good at?  She just needed to find a way to believe in the magic again.  

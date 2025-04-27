@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Charlie Black that was very upset that the Sanity Police was keeping people from his show for their insane beliefs, and he set out trying to do something about that. Instead, it was his own actions that led to being exiled from the forum, by that very same Black, as well as other members. Charlie wrote a letter of resignation, explaining how he was being punished for acting in accordance to the forum's rules instead of his beliefs. The only person to approve Charlie's resignation was Pompy, who was none other than Michael Black.
+
+Following this, Charlie again tried to work his way up the ranks, as Black was one of the moderators in charge at the time. While that was happening, Black had a falling out with another user (also a moderator) named TheHoodedOne, who suggested that any changes to the forums' code were up for discussion between the moderators and the board's owners, Black and Zekent. The argument escalated, and Black threatened to delete the forums unless TheHoodedOne shut his page down. Black had also been having personal issues with another moderator, the notorious jordan_chavez.
+
+Black then had Jordan remove the mods, telling him they had a "special plan" for the new moderators. Black was only interested in Jordan and all the other newcomers because he thought they could be used to change the forum's code and change the community.
+
+In this

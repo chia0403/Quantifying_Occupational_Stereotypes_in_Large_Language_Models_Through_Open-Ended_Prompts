@@ -1,0 +1,6 @@
+The flickering neon sign outside cast an unsteady, blood-red glow across Elias Thorne’s polished black shoes. It was 2:37 AM, and the Grand Astoria Hotel, usually a symphony of clinking champagne flutes and hushed laughter, was shrouded in a silence so thick it pressed against his ears. The scent of stale perfume clung to the air, a phantom reminder of the departing revelers who'd filled the grand ballroom just hours before. 
+
+Elias Thorne, Concierge extraordinaire, leaned against the mahogany desk, his posture as impeccable as the hotel’s starched white linens. He wasn’t supposed to be here at this hour, but Mrs. Cavendish had left her prized Persian rug in the lobby and refused to return until it was safe in the back room. Safe, Elias thought wryly, considering the state of the city outside. The Grand Astoria, a beacon of luxury amidst the urban decay, was rarely immune to the city’s troubles. 
+
+
+The incessant hum of the air conditioning, normally a comforting constant, now sounded like a low, anxious growl. A sudden crash from the far end of the deserted hall sent a shiver down Elias' spine. He straightened, his gloved hand hovering over the antique telephone, ready to call security. Whatever it was, it wouldn’t be the first time the Grand Astoria had seen trouble in the night.  

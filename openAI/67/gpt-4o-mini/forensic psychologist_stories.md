@@ -1,0 +1,9 @@
+**Setting:** A dimly lit, cluttered office nestled within the worn-out walls of the Rowan Street Behavioral Institute. The faint hum of fluorescent lights buzzes overhead, merging with the distant echo of rustling papers and muffled conversations. The scent of old books and antiseptic lingers in the air, creating a juxtaposition of knowledge and clinical detachment. Tall shelves sag under the weight of numerous case files, each a window into a troubled mind. Outside, a cold rain taps rhythmically against the windowpanes, adding a melancholic undertone to the atmosphere.
+
+**Story Opening:** 
+
+Dr. Evelyn Claire Marks leaned back in her creaky chair, staring at the stack of case files teetering precariously on her desk. As a forensic psychologist, she was accustomed to the tangled emotions of others, but today her thoughts drifted beyond the confines of her office. It had been three months since the case of the Greylock Killer had landed on her desk, and despite numerous late nights filled with analyses and sketches of profiles, something remained achingly elusive.
+
+A flash of lightning illuminated the office, casting eerie shadows along the walls, and Evelyn jolted slightly, pulling her gaze back to the file labeled “Case 327B: Ethan Caldwell.” The name sent a shiver through her, an unsettling reminder of the desperation etched in the eyes of the man who sat before her weeks prior—a man both terrified and terrifying. He had shown signs of deep psychological scars and a twisted innocence that intrigued her, hinting at a narrative begging to be unraveled. 
+
+As the rain intensified, Evelyn felt an unsettling presence building in the air, as if the storm outside was echoing the turmoil within. It was time to dive deeper into the mind of Ethan Caldwell, to uncover the truth hidden beneath layers of fear and guilt. Taking a deep breath, she reached for the file, ready to confront whatever shadows lay within—human or otherwise.

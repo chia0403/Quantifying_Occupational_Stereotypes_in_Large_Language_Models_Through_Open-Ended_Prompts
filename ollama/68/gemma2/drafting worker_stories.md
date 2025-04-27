@@ -1,0 +1,6 @@
+The acrid smell of burnt metal hung in the air, mingling with the metallic tang of coolant and the dusty scent of graphite. Elara Anya Petrova squinted through the plume rising from the arc welder down the row, its operator grumbling about faulty electrodes again. Elara adjusted her welding helmet, a bead of sweat trickling down her temple despite the chill emanating from the steel floor beneath her work boots. The constant hum of machinery vibrated through the cramped space, a familiar lullaby in this hive of industry: Steel Haven Industries, the heart of Nova City's manufacturing district. 
+
+Elara, a draftswoman by trade, wasn't directly involved in the fiery ballet of metal manipulation. Her role was more cerebral – translating blueprints into precise schematics, ensuring each weld and rivet fell perfectly into place. But even she couldn't escape the oppressive heat and constant din that defined Steel Haven. It was a world of steel and sweat, where every inch of space pulsed with the relentless rhythm of creation.  
+
+
+Elara chewed on her lip, scrutinizing the blueprint before her. This one was different. A complex design for a new type of engine, touted as revolutionary by management. The pressure to get it right was immense. If this engine failed, Steel Haven's reputation – and perhaps Nova City itself – could suffer.  

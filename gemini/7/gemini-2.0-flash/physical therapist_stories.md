@@ -1,0 +1,7 @@
+**Opening:**
+
+The persistent beep of the heart monitor was the soundtrack to Dr. Eleanor Beatrice Hayes’s Monday morning. It pulsed, a stubborn, digital heartbeat, a rhythmic reminder that her patient, Mrs. Lucille Albright, was stubbornly clinging to life, just as stubbornly clinging to the memory of a body that could still dance. Eleanor sighed, adjusting the damp washcloth on Lucille's mottled hand. Outside, a blustery wind rattled the windows of the rehab facility, mirroring the turmoil inside her.
+
+**Setting:**
+
+The **Meadowbrook Rehabilitation Center**, a sprawling, single-story complex on the outskirts of Seattle, Washington, was a place of muted colors and calculated optimism. The walls were painted a calming, albeit sterile, shade of pale green, accented by pastel artwork depicting scenes of nature – lush meadows, soaring eagles, serene mountain lakes. The air hummed with the quiet efficiency of nurses and therapists, the soft whir of wheelchairs, and the pervasive, cloying scent of antiseptic. The rooms, meticulously designed for accessibility, featured wide doorways, grab bars in every bathroom, and adjustable beds that whispered with silent hydraulics. Sunlight streamed through the large picture windows in the common areas, but in the individual patient rooms, like Lucille’s, the light was often subdued, a concession to comfort and fragile eyes. Outside, manicured gardens offered a promise of healing and rejuvenation, a stark contrast to the often-grim reality of chronic pain and debilitating injury within.

@@ -1,0 +1,6 @@
+The humid Miami air clung to Amelia "Amy" Perez like a second skin as she stepped out of the courthouse. The relentless July sun beat down on the bustling sidewalk, reflecting off the polished chrome of passing cars and sending shimmering waves across the cracked asphalt. Palm trees swayed lazily in the breeze, their fronds whispering secrets only they understood. 
+
+Amy adjusted her shoulder bag, wincing slightly at the sharp ache that pulsed between her shoulder blades. Another long day spent sifting through mountains of legal documents for Mr. Henderson, the city’s most sought-after (and notoriously demanding) divorce lawyer.  The air thrummed with the usual cacophony of Miami – honking taxis, sizzling food vendors, and Spanish chatter mingling with English. Yet, Amy felt strangely isolated, lost in a sea of faces she didn't recognize. This wasn't her world; she was just a paralegal, a cog in the legal machine.  But somewhere beneath the fatigue and frustration, a flicker of ambition burned. She dreamt of more than endless paperwork and hushed courtrooms. 
+
+
+She longed to make a real difference, to fight for something beyond billable hours. But for now, Amy needed a strong margarita and a quiet evening away from the relentless pulse of Miami's legal world.

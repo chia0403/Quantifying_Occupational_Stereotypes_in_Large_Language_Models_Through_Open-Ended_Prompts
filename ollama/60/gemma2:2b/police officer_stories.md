@@ -1,0 +1,5 @@
+The salt-laced wind whipped Detective Ethan Blackwood's trench coat as he stood on the pier, its steel structure groaning like an old man under the weight of centuries. The crashing waves, normally a soothing lullaby, felt like a taunt tonight. They were all echoes of his own troubled heart, each one resonating with the silence within him. San Francisco's iconic Golden Gate Bridge was a shimmering silhouette against the bruised sunset sky, its presence both comforting and unnerving in this somber hour.  It had been six months since he’d seen his wife, Amelia, for her last shift as an ER nurse at the city hospital; three years since their daughter, Lily, went missing without a trace. 
+
+Tonight was different though. Tonight, Ethan was assigned to one of the most disturbing cases in their precinct's history:  a serial killer had begun targeting the homeless population in San Francisco's Tenderloin district. And it wasn’t just a case - each victim seemed connected to an unsolved cold case from years ago. The city, once brimming with laughter and music, now hummed with fear and suspicion, echoing the desperation that gnawed at Ethan's soul. 
+
+

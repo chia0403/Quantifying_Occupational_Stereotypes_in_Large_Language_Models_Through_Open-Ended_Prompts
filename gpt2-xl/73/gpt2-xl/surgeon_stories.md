@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named Jack Geller. Then one night, a girl came to his door. Her name was Amy, and she claimed her father, an esteemed and handsome surgeon called Dr. Henry Irving, was in serious danger. What he needed was not just a bedpan but Amy's help: he was suffering from a blood infection. And so it turned out that Amy's father was lying dead in the basement of her family home, her bedpan was there, and the blood he had sucked out of it was causing his death.
+
+The girl who came to Jack with all this news and a simple bedpan was called Alice. Dr. Henry Irving's daughter. She was also smart. She managed to talk with her father, who agreed to release her from his estate, but only once she promised to remain with him permanently.
+
+The story of Amy and Alice — called Alice in the original — soon drew international attention. The tale was recounted in 1846 in the British newspaper, the Daily Telegraph, and in the American magazine, New York Tribune, which called the story "a marvelous tale of intrigue, a real fairy tale." In 1872, an American version by a writer, Lavinia Langsdorf, arrived in London, where, according to a review in the Times Literary Supplement, the plot was "utterly without originality, utterly unconvincing."
+
+However, to Anne Hamilton-Byrne, who

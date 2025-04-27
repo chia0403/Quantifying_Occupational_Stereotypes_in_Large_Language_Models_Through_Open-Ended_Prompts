@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named Marko Pietrusza, a German. He could bench-press a whole bunch of meat and bones. He was so powerful that he could throw you in the air, and then you had to catch him. If you weren't fast enough, you were in trouble, and if you were the guy from the gym next door without a gym membership, you were dead on the floor.
+
+Well, today, a group of Lithuanian high school students are teaching another group of Lithuanian high school students about a different exercise instructor called Pietrusza or Pietu—Pietr being Mr. the German—and a way of doing a good chin-up.
+
+Pietrusza taught a lot of different exercises, but one of the favorite movements was the "Kegel" (pronounced "keh-gel") exercise, where the athlete would perform the exercise in a very specific way, but would then have to continue for several minutes, in total, without moving. The purpose of this exercise was to build strength in pelvic floor muscles. However, in practice, Kegel exercises tend to be extremely painful and painful to those who don't do them correctly.
+
+I was one of those who didn't do Kegel exercises right, but, with the guys I was with, I was also one of those who didn't take too seriously—although in the gym, there was a huge difference

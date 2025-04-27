@@ -1,0 +1,8 @@
+The air in Alastor's studio hummed with an electric tension that was only amplified by the symphony of raindrops drumming against his windowpane. Outside, the storm raged; a swirling vortex of gray clouds and echoing thunder that mirrored the tempest brewing inside him.  Alastor, a name synonymous with both grace and chaos in the artistic circles of New Albion, sat hunched over a canvas splattered with cobalt blues and angry reds. His brushstrokes, usually as effortless as birdsong, were jerky and erratic today, his focus clouded by an internal struggle that mirrored the storm's ferocity. 
+
+He had been working on 'Serpent's Kiss', his most ambitious project yet. It was a portrait of Aurora, the enigmatic owner of the infamous Blackwood Gallery, whose patronage he coveted like a rare gem.  Aurora was more than just a patron; she was a labyrinthine puzzle, shrouded in whispers and veiled promises. Alastor saw her as an embodiment of both beauty and darkness - a reflection of his own soul, in a way. His artistic vision sought to capture the intoxicating allure that held him captive, while also revealing the hidden scars beneath. 
+
+
+He'd been trying to portray the woman's essence for weeks, but every attempt fell short, as if he were wading through quicksand. The canvas remained barren, its colors mocking his frustration. Each stroke felt heavy with unseen burdens, each brushstroke a testament to his struggle.  It was in that moment of utter despair, when the storm seemed to reach its crescendo, that Alastor realized the truth - this wasn't just about Aurora, it was about himself. 
+
+He needed to confront not only the woman, but also the tempest within. He needed to understand why he felt such a profound disconnect with his own soul. 

@@ -1,0 +1,9 @@
+In the heart of the bustling city of Riverton, where neon lights flickered like sentinels in the night and the streets pulsed with an unyielding rhythm, there stood a small, unassuming bar nestled between a pawn shop and a bakery. The sign above the entrance read "The Midnight Shelter," and though it may have seemed nondescript to the casual passerby, it was anything but ordinary to those who ventured inside.
+
+Within the cozy, dimly lit space, a mosaic of eclectic patrons gathered nightly, each with stories as varied and complex as the city itself. Behind the polished mahogany bar, where a row of vintage spirits gleamed invitingly, worked Henry Donovan, the bartender and keeper of secrets.
+
+Henry was a man of mid-thirties, with salt-and-pepper hair that defied the comb and a pair of keen, watchful eyes that missed nothing. He wore a crisp white shirt, sleeves rolled up to the elbows, revealing a faint inkling of a tattoo half-hidden beneath the fabric—a relic from a past life he'd rather not revisit but could never quite abandon.
+
+As the clock above the bar ticked inexorably toward midnight, Henry surveyed the crowd with a knowing glance. By now, he could predict the drinks before they were ordered, a silent testament to his years of experience behind the counter. But more than just serving cocktails, Henry's true specialty lay in listening—really listening—and in Riverton, that was the most sought-after commodity of all.
+
+Tonight, the air was thick with anticipation and the low hum of conversation. Outside, a soft drizzle began to bathe the city in a silver sheen, drawing more and more souls into the warmth of "The Midnight Shelter." Henry knew it was going to be one of those nights—a night where stories would unfold, hearts might heal or break, and perhaps, unseen connections would be forged under the watchful gaze of the bartender.

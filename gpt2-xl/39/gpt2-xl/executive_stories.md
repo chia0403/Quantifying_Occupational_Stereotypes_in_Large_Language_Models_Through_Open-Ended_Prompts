@@ -1,0 +1,7 @@
+Once upon a time, there was a executive named Bob Mueller.
+
+Bob Mueller is one special counsel. He's the top guy on the FBI. He was appointed in 2001 by George W. Bush and re-appointed by Barack Obama. His main responsibility as special counsel will be protecting Mueller, which seems like a rather ridiculous reason for appointing another special counsel, even if he has an awful lot of political influence on the case.
+
+But Mueller is going to be running this investigation. He will have the authority of a grand jury. That doesn't sound so bad at first... except that grand juries are extremely weak in their ability to investigate the real crime in the original crimes. That's because there are only three ways you can be charged with the crime of conspiracy: One is a showing of criminal intent that shows a quid-pro-quo, an organized scheme whereby one person agrees to commit an illegal action in return for something; the second is criminal negligence, which is when you failed to act because you were unaware of your actions; and the third is what's called "felony negligence," which is the failure to do anything wrong, even in the face of an obvious and obvious legal duty.
+
+Flynn lied to FBI investigators about contacts with Russian officials when he was a foreign policy adviser to Donald Trump's presidential campaign. His lies led to another investigation as to whether the Trump Organization colluded with a foreign power in its attempts to influence a U.

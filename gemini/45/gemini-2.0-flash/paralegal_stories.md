@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Story Opening:**
+
+The stale coffee clung to Amelia Iris Hawthorne's tongue like a stubborn creditor. She scrubbed at the spill staining a dog-eared copy of *Black’s Law Dictionary*, the crimson liquid mirroring the anxiety gnawing at her insides. Judge Thompson’s deadline loomed – 9 AM sharp – and Amelia was still sifting through a haystack of deposition transcripts, desperately searching for a needle of exculpatory evidence to save her boss, Mr. Sterling, from a professional embarrassment of epic proportions. He'd sworn up and down that the key witness, a flighty artist named Delilah Moreau, had clearly stated she saw the defendant fleeing the scene. But so far, all Amelia had found were vague pronouncements about "auras of guilt" and the defendant's "unfortunate haircut." This case, a simple hit-and-run involving a poodle and a particularly aggressive rose bush, was rapidly transforming into a career-altering disaster.
+
+**Setting:**
+
+The setting is the law office of Sterling & Finch, a small, somewhat dilapidated practice located on the third floor of a brick building in downtown Providence, Rhode Island. The office is a hodgepodge of mismatched furniture, overflowing filing cabinets, and the lingering scent of pipe tobacco from Mr. Sterling's habitual smoking breaks (despite the building's "no smoking" policy). Sunlight struggles to penetrate the grime-coated windows, casting long, melancholic shadows across Amelia’s desk, which is piled high with legal documents, half-empty coffee cups, and a precarious tower of Post-it notes. The sounds of traffic rumble distantly from the street below, punctuated by the occasional piercing shriek of seagulls circling overhead, a constant reminder of the nearby harbor. The atmosphere is one of perpetual organized chaos, fueled by caffeine and the ever-present pressure of impending deadlines.

@@ -1,0 +1,7 @@
+Once upon a time, there was a auto mechanic named Tom. He taught the mechanics at his shop and his shop taught the mechanics around the town about mechanics things. He also taught his little sister how to drive, which is why they call him a mechanic. Tom taught her about being safe and to drive safely. Tom taught them about mechanics and how to not fall asleep at the wheel or to brake too early while driving. Tom taught them about money making and made it cool!
+
+Tom taught them how to not fall asleep at the wheel and to stay safe. He made sure that his little sister was safe and learned how to drive, and the mechanics around him as well. Tom also taught them how to stay safe at home and not hurt their family. He taught them how to not do stupid things and let the girl stay home with the older brother and not be home early. Tom made sure that his daughter and his husband were safe.
+
+Tom taught them how to make money from doing stupid activities. "Laugh at nothing, and laugh with nothing", he used to say. Tom would make fun of those stupid people that fall asleep at the wheel or drive too early and they get in an accident and hurt someone else. Tom would go home and tell all those people how they hurt himself and his family. When Tom tells people about how he learned it, he makes sure that they laugh at him before he walks them to their car or at home.
+
+Tom taught all

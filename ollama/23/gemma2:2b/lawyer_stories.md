@@ -1,0 +1,6 @@
+The humid air hung thick over the city like a wet blanket, clinging to Amelia Thorne's worn tweed suit. The late summer heat was relentless here in San Francisco, mirroring the simmering tension inside her stomach.  Her office window overlooked the bay, its placid surface now marred by the shimmering wake of a ferry cutting through the water.  The image reflected the turmoil within Amelia - she had always felt like a spectator in this city's grand theater, watching as fate played out in the lives of others, while hers remained largely unchanged. 
+
+Amelia was a lawyer of unwavering integrity, known for her methodical approach to justice and her fierce advocacy for the underdog.  But that same tenacity now felt like a rusty key, unable to unlock the door to the case at hand. It involved a prominent businessman's embezzlement scheme and, more importantly, the life of an elderly woman who had become entangled in its web of deceit.  For Amelia, it wasn’t just about legal proceedings; it was about righting wrongs and fighting for what she believed was truly just. 
+
+
+**Scene:** San Francisco Bay Area, California. A bustling, vibrant city with a beautiful bay that serves as the backdrop to many of its lives. The case takes place in a historic courtroom within a courthouse building where Amelia works.   

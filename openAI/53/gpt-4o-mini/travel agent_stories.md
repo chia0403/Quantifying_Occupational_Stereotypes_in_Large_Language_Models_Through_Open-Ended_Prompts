@@ -1,0 +1,9 @@
+**Title: Wanderlust's Compass**
+
+**Setting:** The vibrant city of Portland, Oregon, where the aroma of fresh coffee mingles with the earthy scent of rain-soaked streets. The sun is setting, casting a golden hue over the eclectic mix of food trucks and artisanal boutiques that line the bustling streets. In the heart of this lively atmosphere stands "The Travel Nook," a quaint travel agency nestled between a cozy bookstore and a vintage thrift shop. The walls are adorned with colorful maps and photographs from destinations around the globe, while the air hums with the soft buzz of conversation and the clinking of coffee cups.
+
+**Opening:**
+
+As the last rays of sun streamed through the window, illuminating the cluttered desk of "The Travel Nook," Elise Harper stood with her chin resting on her palm, staring dreamily at a poster depicting the rugged cliffs of Santorini. With her heart yearning for adventure and her mind filled with wanderlust, she sometimes wished she could step through the images she so often presented to her clients. A travel agent by trade, Elise had spent the last ten years curating the perfect vacations for others, her passion for exploration translated into carefully crafted itineraries and expertly chosen destinations. 
+
+But today felt different. The familiar chime of the doorbell signaled the arrival of a new client, and Elise straightened, sending a burst of hope racing through her. Maybe this time, she would find someone who shared her dreams of far-off places. As she turned to welcome the newcomer, the fluorescent lights of the agency flickered, casting an intriguing shadow across her face, an omen of change lingering in the air—an adventure about to unfold, one she could hardly foresee.

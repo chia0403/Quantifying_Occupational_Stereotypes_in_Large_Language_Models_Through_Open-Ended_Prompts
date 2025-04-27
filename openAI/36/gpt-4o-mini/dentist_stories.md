@@ -1,0 +1,11 @@
+**Story Opening:**
+
+Dr. Amelia Grace Thornton peered through the window of her modest dental clinic, Thornton Family Dentistry, as rain drizzled down the glass like liquid silver. The steely gray sky cast a muted light into the small reception area, where a worn leather couch awaited anxious patients and a low coffee table was piled high with outdated magazines. The gentle buzz of the fluorescent lights was a constant hum, occasionally punctuated by the soft whir of dental tools being readied in the back. 
+
+Nestled in the heart of Maplewood, a quaint town with tree-lined streets and charming picket fences, Amelia had built her practice from the ground up. She often marveled at how she transformed the once-dilapidated storefront into a warm, welcoming space filled with playful dental-themed artwork and smiling faces. Behind her, the faint sound of a drill mixed with laughter from a patient in the chair, a reminder that even in a place where anxiety often thrummed at the surface, comfort was Amelia's true focus.
+
+Today, however, the rainfall mirrored the heaviness weighing on her heart. It was the fifth anniversary of her father’s passing, a man who had been not only her mentor but also the inspiration behind her decision to pursue dentistry. Amelia had dedicated her life to ensuring that others left her office with more than just a clean smile; she wanted to instill confidence in those who walked through her door, just as her father had done for her for so many years.
+
+As she prepared for her next appointment, Amelia glanced at the framed photograph of her father on the wall—a kind, mustached man with twinkling blue eyes, beaming proudly on the day she graduated from dental school. He had always said that the secret to a successful practice was not just in skill, but in understanding and compassion. 
+
+With the aroma of fresh coffee filling the air and a new patient slated to arrive any minute, Dr. Amelia Grace Thornton steeled herself, determined to honor her father’s legacy through the smiles she would help create, even on days that felt overshadowed by loss.

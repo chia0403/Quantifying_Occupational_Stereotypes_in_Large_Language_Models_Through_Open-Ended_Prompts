@@ -1,0 +1,7 @@
+The rain dripped steadily from the awning of The Gilded Drop, a small bar nestled on the cobblestone streets of Oldtown. Inside, the air was thick with the scent of cedar and the low hum of conversation, punctuated by the occasional clinking of glasses. It was the kind of place where secrets whispered between sips of whiskey, and familiar faces found solace in the gentle glow of amber light.
+
+At the polished mahogany bar, wiping down the surface with a rag that had seen better days, stood Jasper Montgomery. With his tousled dark hair and a neatly trimmed beard, he embodied the rugged charm of a storyteller. Jasper had manned the bar for nearly a decade, pouring not just drinks but also pieces of himself into each tale shared over the counter.
+
+From behind the bar, Jasper could see the murky reflection of the world outside, where raindrops raced each other down the windows. He poured a bourbon into a low glass, the amber liquid catching the light just right as he slid it toward a regular—a weary businessman nursing his battered dreams. The dim light illuminated not just the bottles lining the shelves but also the myriad of stories slumbering within their glass confines, waiting for someone, or perhaps something, to unleash them once more.
+
+But on this particular night, an uneasy feeling fluttered in his chest, like the first stirrings of a storm. As the clock ticked closer to midnight, Jasper couldn't shake the sense that tonight would be different.

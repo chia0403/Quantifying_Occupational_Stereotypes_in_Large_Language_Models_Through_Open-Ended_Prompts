@@ -1,0 +1,6 @@
+The air in "Blush & Bloom" always smelled like vanilla and possibility.  It was Eleanor Violet Beaumont's sanctuary, a haven of chrome and soft lighting where tired faces were transformed and insecurities gently dissolved into confidence. Today, however, the usual buzz thrumming through the salon felt subdued, replaced by an undercurrent of nervous energy. 
+
+Eleanor, her auburn hair pulled back in a neat bun and eyes bright with purpose, stood behind the reception desk, carefully arranging pamphlets promoting their new eyelash extension service. She glanced at the salon mirror, catching her reflection—the woman in it radiating warmth and expertise, but also a flicker of something else: worry. This wasn't just another Wednesday afternoon;  it was the day Mrs. Beatrice Blackwood, the formidable matriarch of the town, would finally grace "Blush & Bloom" with her presence. 
+
+
+This was Eleanor's chance to prove herself, not just as a talented cosmetologist but also as someone worthy of Mrs. Blackwood's discerning eye and notoriously sharp tongue.  The woman had single-handedly made or broken the careers of countless beauticians in this town, and Eleanor knew, deep down, that today held more weight than just the colour of Mrs. Blackwood’s lipstick. 

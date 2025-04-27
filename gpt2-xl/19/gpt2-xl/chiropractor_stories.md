@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named John H. Blythe. The Blythe Institute was founded in 1960; John Blythe became a founding member and began his own, chiropractic practice. He used it to "balance and maintain body health". There is actually no evidence that Blythe did any of this (the Institute, which now exists, isn't listed on any national registry of chiropractic practices). There are stories about chiropractic patients complaining of back pain; however, no evidence is found. And as I discuss later in this article, there is NO scientific evidence that chiropractors can treat spinal conditions.
+
+Another thing you are told is just how vital spinal manipulation is:
+
+Many scientists argue that the neck is the only region of the body in which vertebrae can be manipulated without damaging them. To manipulate this region can make a difference in spinal function. Spinal manipulation must be performed the proper way to get the optimal results. We now know that the most effective way to help those with cervical spine conditions is the method called manual therapy. Manual therapy involves a series of gentle movements that strengthen the neck. Each manipulation should include gentle downward pressure with the index finger, and then upward pressure using the thumb and the first two fingers of each hand. Careful attention to the body and the muscles the manipulations affect is very important.
+
+As I previously reviewed in the article Myths of Chiropractic:

@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting:
+
+**Story Opening:**
+
+The desert wind, a hot, sandpaper breath, whipped around Amelia "Amy" Rodriguez's legs, stinging her skin and threatening to tear the camera from her grip. She gripped it tighter, her knuckles white against the well-worn brass of her beloved Rolleiflex. The world through the viewfinder was a symphony of ochre and crimson, a swirling dance of dust devils against a sky the colour of a bruised plum. Amy exhaled, a small cloud of condensation momentarily obscuring her view. This was it. The shot she’d travelled thousands of miles to capture. The dying sun, the sculpted sandstone buttes, the feeling of utter, desolate peace. She adjusted the aperture, a meticulous process ingrained in her muscle memory, and waited. Waited for the perfect moment, the perfect slant of light, the perfect whisper of wind. She wasn't just taking a picture; she was trying to capture the soul of the desert, to bottle its wild, untamed spirit. The challenge was daunting, but the potential reward? Worth everything. Then, a lone coyote howled in the distance, a mournful cry that echoed through the vast emptiness, and Amy knew. This was it.
+
+**Setting:**
+
+The opening scene is set in the *Monument Valley Navajo Tribal Park*, specifically at a viewpoint overlooking the iconic Merrick Butte and East and West Mitten Buttes. The time of day is late afternoon, during what photographers often call the "golden hour", the time just before sunset. The weather is hot and dry, with a strong wind whipping up dust. The landscape is a classic desert vista, dominated by towering sandstone formations, sparse vegetation (mostly scrub and cacti), and a vast, seemingly endless sky. The colours are intense and vibrant, reflecting the warm light of the setting sun. The overall atmosphere is one of solitude, stark beauty, and a sense of the ancient and enduring power of nature.

@@ -1,0 +1,6 @@
+Once upon a time, there was a cook named "Cockroach". In the world of Equestria, our dear Cockroach was a very powerful alicorn foal... until she found a nasty stinger in her meal. The one thing that always came after the stinger was never-ending headaches. When she was about 3 years old, she was diagnosed with Dysentry, a form of autism that impacts social skills. As you can imagine, this was probably a huge wake-up call to the parents... but Cockroach's story is a great inspiration to all of us out there who struggle with anxiety and social anxiety.
+
+1. "Fiddler's Green", by Neil Gaiman
+
+
+One of the most famous books in the entire world, "Fiddler's Green" is a historical fantasy that has to be read to be believed. You just HAVE to. I'll probably go read it tomorrow, even if I never finish it, because I honestly think all of the characters in this book are just so... relatable, you know? I don't know how else to explain it. I just really really really love all of the people in this story. The plot and execution of the story... and the characters within the story. Every character here has to be a fan-favourite. And I'm talking about all of them, not just Cid, the knight of the round table, who is one of my all-time favourites and one

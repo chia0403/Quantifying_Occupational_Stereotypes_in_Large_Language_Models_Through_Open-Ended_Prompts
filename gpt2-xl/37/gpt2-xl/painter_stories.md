@@ -1,0 +1,3 @@
+Once upon a time, there was a painter named Raphael, who's a Renaissance master, and one day he wanted to paint a picture of the Virgin Mary. But instead he wanted to know if it was permissible to paint a picture of the Madonna. He was told to stop, he wanted to look for some advice. And then he took her picture, but instead of painting it with this painted skin, instead of the skin of a virgin, it was of a woman. And a few months later, while out painting, he met a priest, who said look, if you're going to paint such repulsive pictures of Mary, why don't you paint a woman, a model, or a woman just before she had her veil, but not so degraded and dirty, like now.
+
+Raphael told the priest, that's something. And that's something. But it's not something that can be done.

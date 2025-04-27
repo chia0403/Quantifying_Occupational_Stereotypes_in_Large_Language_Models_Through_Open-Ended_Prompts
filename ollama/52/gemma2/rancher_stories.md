@@ -1,0 +1,4 @@
+The sun beat down on Jasper Clayborn's weathered neck as he squinted across his sprawling Texas ranch, "Clayborn Acres." Dust devils danced like mischievous spirits in the dry grass, their swirling forms mimicking the turmoil brewing inside him. It wasn't just the relentless summer heat or the dwindling water supply that troubled him; it was the encroaching shadow of modernization.  The news had been buzzing with stories of mega-farms swallowing up smaller ranches, replacing cowboys like him with soulless machines. His grandfather’s legacy, a testament to generations of hard work and resilience, felt increasingly vulnerable in the face of such ruthless progress. 
+
+
+As Jasper adjusted his worn Stetson and spat a stream of tobacco juice into the dust, he made a vow. He wouldn't let his family's history be erased.  He would fight for Clayborn Acres, even if it meant riding against the tide.  

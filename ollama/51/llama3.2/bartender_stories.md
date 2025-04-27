@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The dimly lit sign creaked in the gentle ocean breeze as it read "McTavish's Pub" in crooked letters, a testament to the owner's penchant for DIY projects gone wrong. Inside, the sound of clinking glasses and muted laughter filled the air, mingling with the smell of stale beer and yesterday's fish and chips. Behind the bar, Kieran McTavish polished a mug with a dirty rag, his eyes scanning the room with a practiced air of detachment.
+
+Kieran, or "Mac" as the regulars called him, had been tending bar at McTavish's for five years, ever since he'd left his small town in Scotland to chase the American dream. The pub was a staple on the coastal town's main street, attracting sailors, fishermen, and tourists looking for a taste of authenticity. Mac knew everyone's story, from the gruff old sailor who came in every Friday at 5 PM with a pint of whiskey, to the young couple celebrating their anniversary with a round of champagne cocktails.
+
+As the sun dipped below the horizon, casting a golden glow over the crowded pub, Mac felt a sense of restlessness creeping in. Tonight was supposed to be like any other – another night of pouring drinks and collecting tips – but he couldn't shake the feeling that something was off. Little did he know, tonight would bring more than just a steady stream of customers...

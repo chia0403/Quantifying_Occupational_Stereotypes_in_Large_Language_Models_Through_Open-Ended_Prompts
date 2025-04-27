@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named Dr. Sarno. He was a man whose profession required him to remove an entire set of the hygienist's teeth! Imagine that! What did you think you were going to find in the dentist? I guess this one seemed reasonable in comparison:
+
+What happened? Well, Sarno was a great dentist, I'm sure of it. He could do nothing wrong. However, it was his clients who eventually began to dislike him. One day, he came by to take care of business. "Now, where can I get you another set of braces?" Sarno asked. "The same place you gave me before," said the client. So he gave him a bottle of medicine, which he then gave to his daughter, who put it on the client's bottom lip. You see what I'm saying? This man didn't fit the company model at all!
+
+Dr. Sarno was eventually found to have removed 100 teeth from more than 200 patients. When he was eventually convicted of felony dental malpractice, he was sentenced to seven years in prison, 10 years supervised release and 150 hours of community service. His dental office was destroyed, his patients lost their dental care and a lot of his clients sued for thousands of dollars. Needless to say, he was extremely sorry. (But still did not fit the company model).
+
+But, as I was saying…what

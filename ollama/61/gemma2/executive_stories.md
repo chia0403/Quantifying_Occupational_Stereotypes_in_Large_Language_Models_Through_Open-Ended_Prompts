@@ -1,0 +1,5 @@
+The scent of mahogany and desperation hung thick in the air of Alexander Thornton III's private office. Rain lashed against the floor-to-ceiling windows overlooking the glittering cityscape, mirroring the turmoil brewing within him. He drummed his manicured fingers on the polished oak desk, each tap a staccato beat of anxiety.  The company he’d inherited from his father and grandfather was teetering on the brink, its stock price plummeting faster than a meteor shower. 
+
+Alexander, a man who prided himself on control, felt a knot of helplessness tightening in his chest. His phone, usually glued to his ear throughout the day, lay silent, adding to the oppressive silence of the room. A single amber glow from his desktop computer illuminated the lines of worry etched onto his face. The projected numbers for the next quarter flickered before him, a horrifying display of red that threatened to consume him whole.
+
+He had just one last, desperate chance: a merger with a rival firm – a gamble that could either save his family legacy or crush it beyond repair.  

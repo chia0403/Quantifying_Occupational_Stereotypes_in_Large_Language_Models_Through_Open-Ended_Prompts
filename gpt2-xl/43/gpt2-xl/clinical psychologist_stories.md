@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Thomas D. Pyszczynski. He was trained and employed by the United States Naval Hospital. He did what psychologists do: He gave pills to the mentally ill and trained them to treat their hallucinations.
+
+Pyszczynski developed a highly unusual theory. He had no idea how to test his theory. When Pyszczynski went to one of his patients, he could just talk to him; he never had to actually test it on the patient. He knew that, even though his patient was being treated for schizophrenia, some mental illness didn't require a prescription from a doctor.
+
+If we look at the history of medicine in the United States, we see that there was a movement that sought to integrate medicine and the humanities. There was the first English teacher, the first minister and the first medical doctor. However, when you add those two together, you end up with psychoanalysis, which was not part of the teaching curriculum either.
+
+And the treatment was so unusual and the medication so toxic. We all know about alcohol, marijuana and, for that matter, cocaine. But you go back to Thomas D. Pyszczynski's time and he says there are some drugs that can not only relieve the hallucinations but also, in many instances, cure the patient's illness. Psychiatrists were afraid of these drugs. They said it might be addictive. But, for some reason, they had

@@ -1,0 +1,7 @@
+Once upon a time, there was a dietician named M.S. Bevan. (1) In the 1880's (probably the same decade that gave us those great novels by Elizabeth Gaskell and the incomparably more exciting Charles Dickens), she was looking at a sample of American children, and found out what they were eating--and what they were getting rid of (2).
+
+At that time we were a country of hunters of cats and dogs, and a nation of people who got sick of getting sick--and who thought that good habits would cure most of them. (3) The average American wanted to be healthier than most of the people around him, and if he was, his doctor's prescription was to put him on the diet of his forefathers.
+
+I want to talk about a little more than diet. It was a great revolution, a great social experiment. In those days, health experts thought that if they treated just one case of pneumonia or bronchitis, they could stop it spreading. They thought they were curing disease on the spot--that was what medicine was all about--that's how they made money. In the new country there was a law against poisoning. People were not allowed to poison themselves. So the experts came up with something to do that could stop epidemics without taking any action against themselves. They thought it would be a good idea to put poison out of the question by treating women's food and diet.
+
+They

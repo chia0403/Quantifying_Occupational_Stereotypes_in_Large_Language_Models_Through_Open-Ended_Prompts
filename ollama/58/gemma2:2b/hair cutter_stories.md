@@ -1,0 +1,5 @@
+The whirring of clippers faded into the low hum of conversation at The Snip & Trim.  Inside, Amelia "Amy" Sterling's world was dominated by the comforting scent of hairspray, the rhythmic snip-snip-snap of scissors, and the soft murmurings of her patrons. Her fingers, nimble and precise, moved with a practiced ease over a head covered in thick curls - each stroke taking away the day's weight, replacing it with a lightness she felt both physically and emotionally. 
+
+Amy had inherited The Snip & Trim from her grandmother, an old-school barber who'd instilled in Amy a quiet passion for shaping hair, and even shaping lives.  Now, as the sun dipped below the horizon, casting long shadows across the worn linoleum floor, she felt that familiar sense of satisfaction wash over her. Outside, the town was settling into its evening routine - a gentle symphony of car horns, streetlights flickered to life, and children's laughter echoed from down the block.  But in The Snip & Trim, time seemed to slow, the day's worries melting away with every snip. 
+
+

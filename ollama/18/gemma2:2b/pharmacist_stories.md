@@ -1,0 +1,6 @@
+Rain lashed against the windows of Alastor Pharmacy, each drop drumming out a frantic rhythm on the glass. Inside,  the air hung thick with the scent of antiseptic and old paper, a familiar comfort to **Alaric Blackwood**, whose hands moved with practiced grace as he dispensed a prescription for a heart-rate medication to Mrs. Henderson's anxious grandson. 
+
+Outside, the storm raged, mirroring the turmoil inside Alaric. He'd been working tirelessly - hours blurring into each other in a ceaseless cycle of dispensing, filling, and refilling prescriptions. His usual calm demeanor had been replaced by a simmering anxiety, punctuated by an almost imperceptible tremor in his hand as he checked Mrs. Henderson's medication bottle one last time. The storm was mirroring the tempest within him: a sudden shift in the life he'd always known, a change brought on by the arrival of a new resident at the old Victorian house next door - someone who had awakened a dormant past and threatened to unleash secrets long buried. 
+
+
+The storm hadn't just hit the town; it seemed to be tearing through Alaric’s carefully constructed life.  He glanced out the window again, seeking solace in the swirling chaos outside, hoping the darkness would reveal something, anything, about his new neighbour and the ominous whisper of her presence that lingered like a phantom scent on the air. 

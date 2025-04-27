@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting, including the full name of the main character, who is a hair cutter:
+
+**Story Opening and Setting:**
+
+The afternoon sunlight, filtered through the grime-streaked windows of "Snips & Dips," painted dust motes dancing in the air like tiny, defiant ballerinas. Bartholomew "Bart" Finchley squinted, his hands still hovering over Mrs. Hawthorne's impossibly permed head.  The sharp scent of hairspray and stale coffee hung heavy in the air, a familiar comfort to him after fifteen years in this cramped, slightly dilapidated salon on Bleaker Street.
+
+He glanced at the chipped, retro-style clock on the wall. 3:17 PM. Mrs. Hawthorne was due at the bridge club by four, and she was *very* particular about her 'do.  Bart sighed, a quiet sound lost in the hum of the vintage, avocado-green hair dryer. This was his least favorite part of the day, the pressure cooker of afternoon appointments, where his patience was stretched thinner than over-processed hair. He yearned for the quiet of the early morning, when the city hadn't fully woken, and only the regulars – the newspaper delivery man, the baker from across the street, and the occasional insomniac – were stirring. Then, the rhythm of his scissors was a meditative dance, not a frantic race against the clock.  Today, however, felt like a sprint to disaster. And if Mrs. Hawthorne wasn't happy... well, let's just say Bleaker Street would hear about it.

@@ -1,0 +1,6 @@
+Once upon a time, there was a physical therapist named Dr. Harold Stiller. He had invented a new type of treatment called "fuzzy therapy," and as a result, almost everyone who went through it was transformed. He created what he called the "Stiller-gaze," a peculiar phenomenon which can be best explained in the following way.
+
+Advertisement
+
+
+A patient was handed a piece of paper and asked to look at it. The paper depicted a very attractive, yet somewhat sad thing. Then, the patient looked around, to see if there was any other person in the room who was similarly sad. In this state of mind, the patient was capable at least of looking at a series of "Stiller-gaze faces." The faces were made up from thousands of ordinary (and not so ordinary) faces. (For example, a "Pepsi face" would be an ordinary face, made up only of Pepsi). As Stiller made this process, he would periodically ask the patient one of the following questions: "Are you happy right now?," "Are you sad?" "Do you have pain in your face?," "Is there any tension in your body?" In a few seconds, the face would go through a change—a kind of "pep-a-pep," a sudden reversal of the typical pattern of happiness to sadness. Often, though, a single face would not undergo an appreciable change—usually, Stiller

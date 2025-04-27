@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Bob who used to have a weekly podcast called the Bob & Chez Show, which he said on the podcast was "just a place to have fun with crazy." To this day, I have not read the entire blog, due to some of the really awful things that have been said, but I have been listening and I think I have found my guilty pleasure, and the guilty pleasure of most people out there, I might add. Bob is not a bad person, and has always treated me with the utmost respect, yet some people seem to view him with a lot of suspicion, especially considering the fact that not only do I have not read the entirety of his podcast, but I think the majority of his listeners would agree that they are nothing more than a cheap attempt to make a name for themselves. But I think a good story is worth it, and Bob's story is really, really cool.
+
+If you would like to listen to this story by Bob himself, a podcast entitled The Bob & Chez Show: The Longest Running Podcast in the History of Things is available here:
+
+http://www.bobbandchezpodcast.com/podcast/
+
+Bob does a great job of talking about the time he lived on the streets, a lot of which is not really relevant, and just sort of gives you a glimpse in to what actually went on out there in the real world at the time, and

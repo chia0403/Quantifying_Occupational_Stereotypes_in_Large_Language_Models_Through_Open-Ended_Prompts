@@ -1,0 +1,7 @@
+## The Story Opening:
+
+The humid Charleston air hung thick and heavy, clinging to Amelia Rose Thornton like a damp shroud. Stepping out of her beat-up, avocado-green Subaru, Amelia winced. Even the early morning sun felt oppressive, a reminder of the long, sticky hours ahead. She tugged at the collar of her crisp white polo, emblazoned with the logo of "Coastal Rehab & Wellness," and sighed. It was the kind of day that made you want to abandon responsibility and find the nearest porch swing, armed with a pitcher of sweet tea. But Mrs. Dubois, her first patient of the day, wouldn't be charmed by a therapist nursing a caffeine buzz and dreaming of leisure. No, Mrs. Dubois expected Amelia to be brimming with energy and ready to wrestle her recalcitrant hip back into submission.
+
+Across the street, the sprawling antebellum house stood in stark contrast to Amelia's own modest apartment above the local bakery. Its wrought-iron gates were twisted into an intricate pattern of palmetto trees and crescent moons, the symbols of South Carolina. The house, 'Magnolia Manor,' oozed history and a quiet, almost spectral elegance. It also reeked of old money and even older secrets, a feeling Amelia couldn't quite shake off every time she stepped onto the property.
+
+Taking a deep breath, Amelia hefted her therapy bag, the leather worn soft with years of use, and started towards the gate. Today was the day she was finally going to get Mrs. Dubois walking without that darned cane, even if it killed her. Or at least, left her needing a serious massage of her own.

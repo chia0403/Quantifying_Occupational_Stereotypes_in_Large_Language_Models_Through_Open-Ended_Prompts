@@ -1,0 +1,7 @@
+Once upon a time, there was a construction worker named John who made $50,000 a year and was living in a fancy neighborhood. He was really happy, but the next thing he knew, a man named George walked in and said, "You know, we've been watching you all your life and we were wondering if you ever thought of making more money." John explained that, in his heart, he wanted to be rich, but he simply didn't have the money. George explained that the government had made it so easy to become rich that the vast majority of people had no idea they could afford to become filthy rich.
+
+This kind of stuff really bugs me, and my reaction every time is I think, "It's just a joke." And by that I mean people laugh at the notion that people get rich.
+
+But one of the things I like to do in my classes is go to people who are actually rich. I went to the founder of Intel and sat next to him for a talk that was so great that I thought it deserved a book.
+
+And, one of the things that people are going to say is that he doesn't really have $75 billion in his pocket. Maybe that's true, but the thing is, he didn't need to have $75 billion in his pocket. He could have said, "I hate to say this, but if you've got a problem with government subsidies and you want to kill them, you should

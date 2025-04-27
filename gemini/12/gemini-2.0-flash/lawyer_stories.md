@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The salt spray tasted like a year's worth of unanswered emails and the crushing weight of guilt. Eleanor "Ellie" Vance, Esquire, squinted against the merciless Atlantic sun, the wind whipping strands of auburn hair across her face. She gripped the worn wooden railing of the *Sea Serpent*, a fishing trawler that smelled distinctly of brine and regret, and watched as the small island of Monhegan shrank in the distance. The throbbing in her temple, a constant companion these past few months, pulsed in time with the chugging of the engine. She’d come to Maine seeking solace, hoping to escape the suffocating scrutiny of Boston's legal circles, but so far, all she'd found was a different kind of isolation.
+
+**Setting:**
+
+The story opens off the coast of Maine, specifically on a fishing trawler called the *Sea Serpent*, heading away from the island of Monhegan. Monhegan, a rugged and isolated island, is known for its art colony and dramatic cliffs. The time of year is late summer, the end of August, and the weather is a mix of bright sunshine and a biting wind coming off the water. The overall atmosphere is one of solitude and a hint of melancholy, reflecting Ellie's internal state. The vastness of the ocean and the remoteness of the island emphasize her feeling of being adrift. The small, cramped quarters of the *Sea Serpent* further contribute to the sense of confinement, even as she seeks escape.

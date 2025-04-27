@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named Robert T. Bennett. A man by the name of Robert T. Bennett was a defense attorney. As a defense attorney, the attorney represented clients before the courts and in the courts of law. Some of the lawyers in the legal world are called "defense attorneys", but this particular Bennett is not one. He is not a defense attorney because he is not going to be a defense attorney. While a defense attorney is going to be a defense attorney, a lawyer who only does defense work is not. He only represents his clients on all legal fronts. He would advocate for his clients in the courts, in the legislature, and even if need be, out on the streets, representing them before the law.
+
+In the early 1990's, another man named Robert Bennett started getting a lot of attention in the legal community because he was representing a very well known guy he is not all that fond of. These two lawyers with different viewpoints were both saying the same thing, that if his clients didn't settle, then they would go to another attorney that would help them resolve the matter in a better and more reasonable way.
+
+While Robert T. Bennett wanted to see justice done, his opponents were saying that if someone didn't settle then perhaps he should get out of their way. His opponents were very vocal but Robert T. Bennett was well liked and well respected among the legal community.
+
+The reason that Robert T. Bennett became so highly

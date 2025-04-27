@@ -1,0 +1,7 @@
+Once upon a time, there was a pilot named Jack Sparrow. So we need to take our time. The Captain, played by Javier Bardem, is a total baller of a dude with a great sense of humor and an affinity for high fructose corn syrup, but he's not exactly a role model for men of his age. It's a shame, really; it's an exciting idea, albeit one that takes a few too many trips to the metaphorical barrel.
+
+The plot is as straightforward as any fantasy I can think of; the titular character is trying to stop a ship full of pirates from heading straight for America (yes, the good old days. So great). So much so that the film's biggest problem is just being itself. Not just the movie's story, but its production design and editing, which both bear more than a passing resemblance to those of Peter Jackson's films, as well as some of those of a certain someone named J.J. Abrams.
+
+In many respects, the film doesn't feel like a blockbuster: It's not filled with the thrills of a certain summer blockbuster (in its opening moments, for instance, you're given a few more details on the plot than we ever see in the rest of the film). Rather, it feels like a self-serious examination of a particular time and place. There's even a reference to Thomas Pynchon.
+
+Yet despite its self-seriousness, the film ultimately

@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting for a story featuring a stone cutter:
+
+**Setting:**
+
+The sun beat down on the small village of Atherton, baking the cobblestone streets and turning the air thick and hazy. Nestled in the foothills of the Dragon's Tooth Mountains, Atherton was known for two things: its hardy folk and the abundance of slate that formed the very bones of the surrounding landscape. The houses were built of slate, the fences were lined with it, and even the crude children's toys were carved from the dark, grey stone. The only splash of color came from the occasional stubborn wildflower pushing its way through the cracks in the slate pavement, or the vibrant dyes used in the tapestries sold at the market. The air constantly held a fine grit of stone dust, clinging to everything and everyone.
+
+**Story Opening:**
+
+The rhythmic *thwack* of chisel on stone echoed across the square, a familiar sound that both soothed and irritated the villagers of Atherton. Today, however, the cadence was off, slower and more hesitant than usual. **Eleanor Beatrice Thorne**, her brow furrowed and sweat beading on her forehead, stared intently at the block of slate before her. Usually, the stone seemed to sing to her, revealing the form hidden within. Today, it was stubbornly silent. Eleanor, her hands rough and calloused from years of wielding a hammer and chisel, wiped her brow with the back of her leather glove, leaving a streak of grey across her skin. She was carving a simple headstone, a commission she would normally complete in a day, but the words she was meant to etch seemed to mock her. *Beloved Wife, Devoted Mother*. The woman it was for had died birthing her fifth child, a common fate in Atherton, and one that resonated too deeply with Eleanor's own unspoken fears.

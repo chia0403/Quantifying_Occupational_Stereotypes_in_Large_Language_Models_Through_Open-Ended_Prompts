@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named Gogol," said Gogol. "A painter whose pictures were no less attractive than they had been when first he made them; at the first view they seemed to have grown like grapes. His works I once saw, but, on looking again, found that the whole picture had gone."
+
+"What, I don't understand at all," said Arnold.
+
+"I am, if nothing else, a very acute observer as to my own and other people's thoughts," said Gogol. "I did not see any such paintings then as I had seen afterward in the shops; I did not see them at all. Yet there was something in their beauty which seemed to take me by surprise, such as I have never since seen. I asked myself, Why am I so struck by such a beauty? In my opinion, they are no more beautiful than any other pictures in a shop, in which I seldom saw any such beauty. They were not more beautiful, then, for I saw them, but rather like certain flowers in a garden to which I was indifferent. The shop was so lovely to me. There was a smell of fresh, of newness, of flowers; freshness of mind, freshness of being, and freshness of nature, a freshness that seemed to be a newness of life, a freshness of the world that was at the moment passing before me."
+
+"But

@@ -1,0 +1,3 @@
+Once upon a time, there was a architect named Walter Johnson and he had this crazy plan to make a cathedral in the most remote spot in the mountains (Mount Rainier) and use the surrounding area to grow a forest, which would be home to a very special crop — walnuts.
+
+The idea was to create a self-sustaining cathedral from nothing, just from walnuts. Now, I'm not very good at math, but I like to imagine that they must have used math in their math because the cathedral was so big and the walnuts grew so fast that they ended up in the food supply. I'll bet they made it from walnuts.

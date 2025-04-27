@@ -1,0 +1,10 @@
+Okay, here's a story opening and setting:
+
+**Setting:**
+
+The bell above the door of "Serenity Nails & Spa," a tiny oasis tucked between a dry cleaner and a discount phone store in the bustling, perpetually-under-construction neighborhood of Astoria, Queens, jingled a cheerful, yet slightly strained, welcome. The air inside smelled of acetone, jasmine scented lotion, and simmering anxieties.  Three mismatched pedicure chairs, upholstered in faded pink vinyl, lined one wall.  Against the opposite wall, four manicure stations, each a mirrored galaxy of polishes, tools, and the scattered debris of artistic expression, stood ready. Sunlight, struggling to penetrate the grimy windows, cast long, distorted shadows across the linoleum floor. A single, wilting orchid perched precariously on the reception desk, a testament to someone’s good intentions, long since abandoned.
+
+**Opening:**
+
+Bernadette Isabella Rodriguez hummed along to the reggaeton blasting softly from her phone, expertly filing the edge of Mrs. Donatella’s nail into a perfect almond shape. Mrs. Donatella, a regular whose loyalty was directly proportional to the amount of glitter Bernadette dared apply, was currently recounting, for the fourth time this week, her disastrous blind date with a man who apparently wore socks with sandals *and* ate his soup with a fork. Bernadette, her dark hair pulled back in a messy bun, her brow furrowed in concentration, nodded sympathetically, even as her mind raced.  She had an art show to prepare for, a dwindling bank account to consider, and a growing suspicion that her landlord, Mr. Goldstein, was starting to confuse her with his late wife, Gladys. Glitter, she thought, was probably the answer to at least *one* of those problems.  “And then,” Mrs. Donatella continued, oblivious, “He said he was a *vegan*! Bernadette, darling, a vegan in Little Italy? Is that even legal?" Bernadette squeezed Mrs. Donatella's hand gently. "Legal or not, Mrs. Donatella, some things are simply crimes against nature."
+

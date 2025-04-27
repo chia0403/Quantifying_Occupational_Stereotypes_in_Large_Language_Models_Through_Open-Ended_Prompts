@@ -1,0 +1,7 @@
+## Story Opening:
+
+The rain was a greasy curtain, blurring the neon signs of Chinatown into distorted smears of color. It mirrored the grime that coated everything in this part of the city, and frankly, the grime that seemed to be permanently etched under Detective Alistair James Blackwood's fingernails. He swore he could taste the city grit on his tongue, a familiar tang of desperation and decay. Alistair pulled the collar of his damp trench coat tighter, the threadbare fabric doing little to ward off the November chill that seeped into his bones. He took a drag from his cigarette, the ember flaring in the darkness, a defiant spark against the oppressive gloom.
+
+He’d been waiting outside the Golden Dragon Dumpling House for over an hour, nursing a lukewarm cup of coffee that tasted suspiciously like dish soap. The air hung thick with the smell of ginger, pork fat, and something vaguely floral, something he couldn’t quite place but knew was probably illegal. He shifted his weight, the springs of his ancient Buick groaning in protest across the street.
+
+He wasn’t expecting trouble, not exactly. But he’d learned a long time ago in this business, trouble was usually waiting just around the corner, steeped in secrets and ready to bite. Tonight, it was wearing a fur coat and a desperate expression, at least according to Mrs. Eleanor Ainsworth’s frantic phone call. And Mrs. Ainsworth, despite being draped in wealth, always paid on time. And in Alistair James Blackwood's line of work, that was enough to brave a deluge and a dubious cup of coffee.

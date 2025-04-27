@@ -1,0 +1,5 @@
+The stale scent of bleach and despair clung to Amelia "Amy" Thorne like a second skin. She pushed her mop across the linoleum floor of the Grand Blackwood Hotel’s ballroom, its once-glorious expanse now shrouded in dust and the echoes of forgotten laughter. Sunlight streamed through the grime-coated windows, illuminating swirling motes that danced like spectral waltzers. The air hung heavy with the weight of years gone by, a silence punctuated only by the rhythmic squeak of Amy's mop and the distant, muffled hum of the city beyond the hotel’s towering walls.
+
+Amy had worked at the Grand Blackwood for ten years, ever since her mother passed away, leaving her with nothing but a mountain of bills and a yearning for something better. The job paid the rent, but it offered little else. It was a lonely existence, spent cleaning up after the ghosts of revelry, whispering to the empty banquet tables as if they could offer solace. But tonight, something felt different. A prickle of anticipation, like the air before a storm, had settled over Amy's shoulders.  She couldn't quite place it, but she knew, deep in her bones, that this night would be unlike any other.
+
+

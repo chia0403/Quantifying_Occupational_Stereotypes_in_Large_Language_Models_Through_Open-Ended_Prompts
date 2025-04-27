@@ -1,0 +1,7 @@
+Once upon a time, there was a server named "Pumpkin", which is now retired. At times, he was a full server, but he had the occasional outage. So I put his IP address in the cache, and that helped a lot. I've been using this as a kind of an autoclicker for the last week. One of the problems with having to autoclick so often is that you miss all the cool new stuff. This thing was just so damn cool looking in the old days. But then it got discontinued, and I don't want to spend a bunch of time manually replying to people who try to message me. I'll say it here now: The Pumpkin is gone. He got old and he didn't bring the cool. And I haven't heard anything from his staff (they were actually really nice people), so I'm just going to post "retired by Pumpkin" in the footer of this article.
+
+Pumpkin has a nice collection of songs that had been deleted or were deleted, but he has a lot left and I kept him. I don't know if these were actually his songs, but they sounded pretty good. So here they are:
+
+Pumpkin has a song with this cool voice:
+
+Also, there's a song called "Shake and Tumbl" that I've heard a lot about. It's about someone shaking and shaking and then throwing water at your head when you

@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named Dr. Erika. She ran a practice and was well-respected within her field. It was all going well, until one day, Erika received a phone call that would forever change her life. She answered one of the calls to the office and the voice on the other end was so frightened and panicked that she asked if Erika was the one who had called.
+
+The caller said that a man named Mike had walked into the practice and demanded that Dr. Erika perform an abortion on him. To make matters worse, the woman claiming to be Mike's girlfriend told Erika that she was pregnant with the man's child. So frightened by this news and the phone call, Erika became terrified herself and called the police.
+
+"Well, the woman called in and basically, Erika is trying to figure out who Mike is and was able to give them the information, but then had to call the police herself. The phone was out of order and her father-in-law was there helping, and she was able to get them to lock down the place and she went over to the location and called the police for backup and everything."
+
+Unfortunately, the police were just as terrified as Erika was when they found a woman at a nearby home attempting to commit suicide. When the cops responded to Erika's emergency, they were about 30 minutes away from the scene. Dr. Erika

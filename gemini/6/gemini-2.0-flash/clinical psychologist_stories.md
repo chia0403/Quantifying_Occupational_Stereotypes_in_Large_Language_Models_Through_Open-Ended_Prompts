@@ -1,0 +1,15 @@
+## Story Opening:
+
+The aroma of damp wool and old paper clung to Dr. Eleanor Ainsworth's oversized cardigan as she pushed open the door to her consulting room. October had arrived with a vengeance, bringing a relentless rain that hammered against the tall, leaded windows of her century-old brownstone. Eleanor, a creature of habit and comfort, relished the stormy weather, even as it cast long, distorted shadows across the Persian rug and the familiar spines of Freud, Jung, and Rogers on her bookshelf.
+
+She sighed, a wisp of breath clouding in the cool air, and placed her overflowing tote bag on the worn leather Chesterfield. Thirty minutes until her first patient of the day, and the usual pre-session anxiety was already beginning to prickle beneath her skin. It wasn't the fear of inadequacy, not after fifteen years of untangling the intricate knots of the human psyche. No, it was something else entirely. A low, persistent hum of unease that had been vibrating in her chest ever since the peculiar phone call she received yesterday. A call that had stirred up something long dormant, something she had painstakingly buried beneath years of academic rigor and the steadfast belief in rational thought.
+
+She forced herself to focus, smoothing imaginary wrinkles from her tweed skirt. Time to center. Time to prepare. But as she closed her eyes, the distorted voice from the phone echoed in her mind: *“She’s waiting for you, Doctor. The truth is waiting in Blackwood Asylum.”*
+
+## Setting:
+
+Dr. Eleanor Ainsworth's practice is located in a beautifully restored brownstone in the historic Back Bay neighborhood of Boston, Massachusetts. The exterior, a rich, dark brown brick, speaks of old money and quiet sophistication. Inside, her consulting room is a haven of warmth and tranquility. The walls are painted a soothing sage green, and the room is filled with comfortable, oversized furniture – the Chesterfield sofa, a plush armchair, and a sturdy oak desk cluttered with books, papers, and a vintage desk lamp.
+
+A large, hand-woven Persian rug covers the hardwood floor, muffling sound and adding a touch of luxurious comfort. Floor-to-ceiling bookshelves line one wall, showcasing Eleanor's extensive collection of psychology texts, philosophy books, and even a few well-loved novels. The room is lit primarily by the soft glow of the desk lamp and a strategically placed floor lamp, creating a peaceful and intimate atmosphere. Framed prints of impressionistic landscapes and abstract art adorn the walls, adding pops of color and visual interest.
+
+The overall effect is one of quiet competence and empathetic warmth, designed to put her patients at ease and create a safe space for vulnerability and self-discovery. However, today, the cozy ambiance feels somehow…off. The rain beating against the windows seems to amplify the darkness, and the shadows cast by the furniture take on a more menacing quality. The familiar comfort of the room is tinged with a disquieting premonition, a sense that something unsettling is about to disrupt the meticulously curated order of Eleanor's world.

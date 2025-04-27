@@ -1,0 +1,7 @@
+Once upon a time, there was a graphic designer named Tom Watson. He was an average guy with an average hobby. His life looked like many of our lives: he went to work, he had a kid, he enjoyed his hobbies. He was a man who was known throughout the world. But his hobby was creating some of the most iconic artwork in video games.
+
+But even Tom was not immune to the pressures, setbacks and frustrations of the video game industry. When Atari released Pong in 1972, it marked the arrival of a phenomenon. It would later be recalled as the game that helped to launch gaming into its own era. It would become a huge icon, a game that changed the world.
+
+Tom came up with the design for the Pong paddle in about a day. He began by drawing pictures of paddles. He then used his imagination to create realistic, three-dimensional drawings of what he intended them to look like. He then went into a garage or a home studio and began creating the pieces. Most of the work was done by hand, but some parts were created with computers. One of the final pieces was a circuit board.
+
+Tom was a creative person. He loved to draw, but he could not draw at the times or sizes that existed in the world at that time. So he had to rely on his imagination. The Pong concept was not original when his prototype was created, but when he saw the final product, it became so

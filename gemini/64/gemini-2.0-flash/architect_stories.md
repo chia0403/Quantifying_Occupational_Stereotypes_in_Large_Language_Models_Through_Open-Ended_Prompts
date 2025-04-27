@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** The biting wind whipped off the Firth of Forth, stinging Elias Thorne’s cheeks as he stood on the crumbling ramparts of Tantallon Castle. The grey stone absorbed the pale winter sunlight, radiating a damp chill that seeped through his layers of tweed and wool. Below, the choppy waves crashed against the jagged cliffs, a symphony of relentless power. The year was 2048. The landscape, stubbornly wild, remained largely unchanged, but a network of sleek, autonomous drones buzzed in the distance, monitoring the delicate balance of the coastal ecosystem.
+
+**Story Opening:**
+
+Elias Thorne, his breath misting in the air, tugged his scarf tighter around his neck. He wasn't here for a romantic stroll, nor to contemplate the ghosts of Scottish lords and warring clans. He was here for the bones – the architectural bones, that is. He’d been commissioned by Historic Environment Scotland to assess the feasibility of preserving Tantallon, not just as a ruin, but as a functioning historical site integrated with a cutting-edge renewable energy research facility. It was a ludicrous proposition, a marriage of ancient grit and future tech, but it was *his* ludicrous proposition, the one he’d tirelessly championed, and now, standing on the precipice of what could be his masterpiece, a cold dread tightened in his chest. The wind seemed to whisper accusations, reminding him that some things, perhaps, were best left to crumble gracefully into the sea.

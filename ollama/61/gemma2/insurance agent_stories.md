@@ -1,0 +1,6 @@
+The humid Jacksonville air hung thick and heavy, clinging to Amelia Rose Hawthorne like a damp blanket. The cicadas thrummed their incessant song from the oak trees lining her driveway, a relentless chorus that mirrored the persistent anxiety buzzing in her chest. Today was "Renewal Day" -  the day she juggled stacks of policy forms, squeezed into too-tight client meetings, and chased down delinquent payments like a debt collector with a smile plastered on her face. Amelia Rose Hawthorne, Insurance Agent extraordinaire, had traded the sunshine for spreadsheets, swapped bikinis for blouses, and somehow convinced herself this was fulfilling. 
+
+Her small office, tucked between a greasy spoon diner and a dusty pawn shop, was as far from "extraordinaire" as possible. The floral wallpaper, faded to the point of being beige, peeled at the seams.  A worn-out couch sat in the corner, its springs groaning with each rustle of the worn fabric. And a framed motivational poster featuring an overly tanned man with a cheesy grin proclaimed, “Reach for your Dreams!” 
+
+
+Amelia Rose sighed, pushing a stray strand of auburn hair behind her ear. Her dreams hadn't involved fluorescent lighting and insurance jargon. But here she was, coffee stained keyboard clicking away, another day in the life of Amelia Rose Hawthorne.   

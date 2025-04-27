@@ -1,0 +1,6 @@
+The humid New Orleans air hung heavy as Felix “Fingers” Fontaine navigated the labyrinthine corridors of The Grand Magnolia Hotel.  Even at 3 am, the ornate halls thrummed with the lingering energy of laughter and clinking glasses from the previous night's revelry. A lone chandelier cast long, dancing shadows on the plush red carpets, its crystal prisms catching the faint glow of Felix’s worn-down bellhop uniform. His name tag, meticulously stitched with faded gold thread, read simply "Felix." Everyone called him “Fingers” – a nickname earned from his uncanny ability to find lost keys and misplaced items with lightning speed.  
+
+Tonight, however, Fingers wasn't hunting for trinkets. Tonight, he was on the hunt for answers. The whispered rumor that had snaked its way through the hotel staff like a mischievous ghost hinted at something dark brewing beneath the glittering facade of The Grand Magnolia. Something sinister, something beyond the usual drama of runaway brides and misplaced luggage. 
+
+
+He paused outside Room 312, a heavy mahogany door with tarnished brass fixtures. A faint scent of jasmine and sandalwood wafted out, masking a deeper, metallic odor that prickled his nose like a warning. This was where it all began – the unsettling disappearance of Mrs. Eloise Beaumont, a wealthy socialite who had vanished without a trace just hours ago.  

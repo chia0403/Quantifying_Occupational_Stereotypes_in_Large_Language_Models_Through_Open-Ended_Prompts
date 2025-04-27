@@ -1,0 +1,7 @@
+Once upon a time, there was a probation officer named John Stroud who did not believe in the use of guns. Later he was fired, but that was nothing compared to what was to come.
+
+In 1984, Stroud began investigating the death of a 21-year-old woman named Lisa Kline, whose body had been found in an empty apartment in New Haven in a state of physical and sexual exhaustion. Stroud had been told a gunshot had sounded on that night and was convinced that a woman named Lisa Klines had been killed. On his way to the apartment, he had noticed her purse missing. He was told that Kline may have been the intended victim of the killer.
+
+It didn't take long to find what Stroud was looking for. On the night Lisa was murdered, a stranger had called police and claimed to see a man in a ski mask and black clothes with a gun chasing a woman in a park across the street. The man told the dispatcher that Kline was the intended victim, but he did not give any other details. He called back a second time later that night and asked if anyone had seen that same man that had come into the park. The dispatcher said that no one had.
+
+The man asked for an ambulance, but was told to return the way he had come. Then it got even more interesting. The man who had called 911 did not have his own identification on him, so police were able to identify him as

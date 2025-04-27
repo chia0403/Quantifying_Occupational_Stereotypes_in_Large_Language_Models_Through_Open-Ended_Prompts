@@ -1,0 +1,3 @@
+The fluorescent lights hummed above Evelyn Beatrice Thorne, casting an anemic glow on the sterile white walls of the emergency room. The air thrummed with the constant chorus of beeping monitors, hushed whispers, and hurried footsteps – a familiar symphony to her ears after twelve years as a registered nurse. But tonight, there was a different kind of tension in the room.  It felt like a storm was brewing, one that promised chaos rather than just routine aches and scrapes.  
+
+Evelyn watched from the nurses’ station as a gurney rolled in, its occupant still and shrouded by a sheet. A grim-faced doctor barked orders into his headset, his voice laced with urgency. Evelyn felt a prickle of anticipation – this was no ordinary trauma case. Something big was about to happen.  

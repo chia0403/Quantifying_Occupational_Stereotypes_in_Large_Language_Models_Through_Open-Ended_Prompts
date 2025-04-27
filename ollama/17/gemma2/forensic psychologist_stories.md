@@ -1,0 +1,5 @@
+The humid Georgia air clung to Dr. Evelyn Thorne like a damp shroud as she stepped out of her car. Spanish moss dripped from the ancient oak trees lining the gravel driveway leading to the sprawling antebellum mansion. It stood silent and imposing against the backdrop of the fading twilight, its white facade marred by peeling paint and overgrown ivy. This was Blackwood Manor, a place whispered about in hushed tones, a location where secrets festered under layers of history and decay. 
+
+Dr. Thorne adjusted her glasses, her gaze sweeping over the scene. She wasn't here for the morbid fascination the manor evoked, though she couldn't deny its allure. She was here to assess a patient – one unlike any she’d encountered before. A man claiming to see ghosts, who believed he could communicate with them, and who had been accused of murdering his wife. 
+
+Evelyn took a deep breath, the air thick with the scent of honeysuckle and damp earth. As she walked towards the imposing front door, a shiver ran down her spine, a feeling that this case would delve deeper into the darkness than she'd ever imagined.  

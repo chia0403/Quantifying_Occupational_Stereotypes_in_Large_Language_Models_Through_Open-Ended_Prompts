@@ -1,0 +1,5 @@
+The greasy wrench slipped in Amelia "Millie" Bartholomew's hand, sending a shower of rusty sparks across her work boots. She grunted, catching it before it hit the floor of the ancient bathroom she was fixing. Millie had never understood why people built houses with plumbing systems that looked like they were designed by someone who'd never seen running water. 
+
+The setting sun cast long shadows through the grime-coated window, turning the dusty room into a canvas of reds and oranges. Outside, the familiar cacophony of New Orleans was starting to wind down; the distant jazz music from Frenchmen Street muffled into a lazy hum, replaced by the rhythmic click of cicadas serenading the humid night.  Millie pulled her bandana tighter over her forehead, wiping away a bead of sweat that had escaped her ponytail. This wasn't just another leaky pipe job. This house, with its peeling paint and creaky floorboards, felt different. It held secrets beneath its rusted facade, secrets Millie was about to uncover. 
+
+

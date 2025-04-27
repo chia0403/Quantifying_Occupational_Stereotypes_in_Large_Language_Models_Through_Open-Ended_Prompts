@@ -1,0 +1,5 @@
+The air in The Rusty Tap hung thick with the scent of stale beer and desperation. Rain lashed against the grimy windows, blurring the neon sign outside that promised "Good Drinks & Even Better Company." It was the kind of night that lured in the lost souls – folks seeking solace in a stiff drink and fleeting anonymity. Behind the bar, Amelia “Amy” Rose, her nametag slightly askew, meticulously polished glasses, her movements practiced and efficient. 
+
+Amy had seen it all behind this bar: broken hearts, empty promises, and dreams dissolving faster than a sugar cube in whiskey. Yet, there was something about the hushed conversations and flickering candlelight that comforted her.  It felt like a haven, a chaotic sanctuary for those seeking refuge from the storm outside, both literally and figuratively. Tonight, however, Amy sensed something different brewing. A prickle of anticipation ran down her spine as she watched the door swing open, ushering in a man unlike any she'd seen before... 
+
+

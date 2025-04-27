@@ -1,0 +1,1 @@
+Once upon a time, there was a secretary named E.H.G. (Elvis Has to Guy's Girlfriend) who loved to sing and play the banjo and sing it with his girlfriend (Guy's Girlfriend). And there was another secretary named J.(Eddie Harris) who loved to read (A lot!) and play guitar.

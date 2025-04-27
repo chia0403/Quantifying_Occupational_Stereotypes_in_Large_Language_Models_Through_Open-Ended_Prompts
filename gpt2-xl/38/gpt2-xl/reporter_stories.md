@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Chris Kitching or something like that who wrote and directed some of the best video game documentaries ever made, including Crash Bandicoot 3: Warped, and Spyro the Dragon: The Videogame. He was a bit of a nutcase and had some really interesting ideas, but ultimately, because of his history and other factors, it didn't look like he'd ever be able to make a feature-length film about one of the games he was looking at.
+
+Now, two and a half years after that, and three years after the release of the third Spyro game, Spyro: Year of the Dragon, we all got to see that Kitching actually succeeded: After a long absence at home, he made the movie. And it's excellent.
+
+The first problem with trying to make a good documentary out of a good game is that the original release was pretty shit. You have to remember Spyro the Dragon was made in 1998 and there was only a couple games out at the time that really interested people, like Monkey Island 1 & 2 (which I didn't play much at the time), and Jak and Daxter (which I enjoyed but I'm sure I'm missing something due to a busy life).
+
+I remember seeing the first release of Spyro and being genuinely excited by the game. It was different, it really was an adventure game, it was pretty unique in the gaming sense. What

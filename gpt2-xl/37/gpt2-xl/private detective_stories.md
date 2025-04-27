@@ -1,0 +1,7 @@
+Once upon a time, there was a private detective named John Doe. In 1971 he began writing to people, starting with a mail order bride from Hawaii, looking to trace her down. He then contacted various law enforcement agencies, eventually writing to the Department of Justice. He knew that the American authorities would not send him any of the more than five million missing women who turned up dead.
+
+He began by posing as a woman himself, and said that his name was "Joan Doe". He explained that he had a "sensate personality" and, when he was with a partner or lover, she was "dissolving to a subatomic level with ecstatic euphoria". He continued by suggesting that he should become "part of the solution". Then he asked her to provide him with photographs of herself. She obliged, and he began sending pictures. The letters ended with these words: "The last and most important thing I would ask you before you're dead is to print this note and send it out."
+
+Facebook Twitter Pinterest Joanne Chesimard with her mother at a reunion for the surviving Black Panthers in New Orleans in 1994. Photograph: John Montgomery/John Montgomery/AP
+
+No one ever did. The Justice Department told him that "all correspondence with the Department of Justice is under our control". And it was true: the department never responded. But more than two decades have passed, and still little has been heard from the Doe of the FBI files.

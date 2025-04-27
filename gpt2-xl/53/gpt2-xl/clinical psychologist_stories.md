@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Richard Berk of Cornell University. Berk was a radical liberal because of his belief in the transformative power of psychology. One of his more radical policies was a controversial "treatment plan" that included the use of electric shock therapy. In 1971, Berk was accused of using electro-shock treatment on a patient. Later, his wife also filed for divorce and was awarded custody of their son. It didn't stop there. Three years afterward, Berk resigned his position as the assistant university president in order to take medical leave. Berk claimed that he was sick and needed time off. Later on, he was seen visiting psych ward and later to psychiatrists, and was under psychiatric evaluation. After his resignation, the wife and the son filed for custody of his son. Berk said he wasn't the family's best interest and said his children weren't his. Berk ended up getting his son and the son's mother separated. The situation spiraled out of control, the parents divorced, and Berk filed for divorce himself.
+
+In the end, the mother won, and she regained custody of her son.
+
+Here's how it all went down:
+
+The parents (Eugene J. and Lillian O'Neal) had gotten divorced in 1972 and had separated several times because of Eugene's alcoholism and the mother's inability to accept either of her husbands for who he was. Eugene was a loner and Lillian was not the type of person

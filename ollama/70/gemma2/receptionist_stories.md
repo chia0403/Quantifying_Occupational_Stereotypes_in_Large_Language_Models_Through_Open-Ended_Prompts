@@ -1,0 +1,5 @@
+The flickering fluorescent lights buzzed overhead like trapped bees, casting an anemic glow over the worn reception desk in Dr. Evans' office. Penelope Everly smoothed down her polyester blouse, adjusting the tiny pearl necklace that felt as heavy as the weight of boredom pressing down on her.  It was Tuesday afternoon, the lull between lunch rush and the usual swarm of anxious patients filing in for their appointments. Penelope drummed her fingers lightly on the chipped Formica surface, her gaze drifting to the dusty potted plant wilting in the corner.  
+
+The air hung thick with the scent of antiseptic and old magazines left abandoned from previous patients. Outside, the late summer sun beat down on the faded brick facade of the building, a stark contrast to the sterile coolness within. Penelope sighed, willing herself to focus on the crossword puzzle spread out before her, but the monotony was starting to seep into her bones. This job, she thought, was about as exciting as watching paint dry.   
+
+

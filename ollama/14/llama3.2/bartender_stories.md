@@ -1,0 +1,7 @@
+As the last wisps of sunset dissolved into the murky waters of the harbor, Jack Michaelson polished a mug with a white apron wrapped snugly around his waist. The neon sign above the bar creaked in the gentle ocean breeze, casting a gaudy glow over the weathered wooden deck and the handful of patrons who lingered long after the dinner crowd had dwindled.
+
+The smell of saltwater taffy and stale beer wafted through the air, mingling with the sound of seagulls crying overhead as Jack surveyed his domain. It was a typical evening at McGillicuddy's Pub, where Jack had worked for nigh on five years, pouring drinks and listening to tales of sailors, fishermen, and the occasional lost soul who stumbled in off the docks.
+
+The door swung open, admitting a blast of cool night air and a young woman with piercing green eyes and raven-black hair, her skin bronzed from days spent working on the boats. She scanned the bar, her gaze lingering on Jack before moving on to take in the other patrons – a handful of locals, a group of rowdy tourists, and a lone figure huddled in the corner, nursing a whiskey on the rocks.
+
+Jack's instincts told him to keep an eye on that last one, but his curiosity got the better of him. Who was this stranger, and what brought them to McGillicuddy's Pub on a night like any other?

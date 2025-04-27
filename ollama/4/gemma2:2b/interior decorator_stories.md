@@ -1,0 +1,9 @@
+## The Gilded Cage
+
+**Opening:**  Dust motes danced in the sunlight filtering through the arched window of Cecile Beaumont's sprawling living room. It was a space that screamed 'excess', every surface laden with lavish antiques, shimmering fabrics draped over intricately carved armchairs, and towering bookshelves filled with leather-bound volumes, their titles both exotic and intimidatingly obscure.  Cecile herself stood amidst the chaos, her face a mask of concentration as she meticulously straightened a gilded mirror framed in a design that looked like an oversized dragonfly's wings. 
+
+**Setting:** The Beaumont residence was nestled within the sprawling hills of Malibu, California - a city where dreams were built on sunshine and aspiration, but also held the weight of secrets whispered beneath its glittering façade. Cecile, a renowned interior decorator known for her ability to transform even the most mundane spaces into breathtakingly beautiful worlds, had inherited this sprawling mansion from her late grandmother, Lady Evelyn Beaumont. 
+
+**Character:** Cecile Beaumont.  A woman of striking beauty and undeniable talent, she possessed an almost artistic understanding of how to orchestrate a room's mood through texture, color, and the use of light. Her touch was both delicate and bold, creating spaces that whispered stories of luxury and history. Yet, beneath her elegant exterior, Cecile harbored a secret she desperately tried to keep buried: The house itself, while a testament to her family's wealth and legacy, held within its gilded cage an air of foreboding that no amount of silk or silver could erase. 
+
+**Prompt:**  As the sun dipped below the horizon, casting long shadows across the room, Cecile found herself staring at a message etched onto a tiny sliver of antique wood she had discovered beneath a dusty tapestry: "The door unlocks." 

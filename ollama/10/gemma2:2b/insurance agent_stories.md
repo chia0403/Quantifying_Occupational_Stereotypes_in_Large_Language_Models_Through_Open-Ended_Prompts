@@ -1,0 +1,5 @@
+Rain hammered against the windows of Thomas "Tom" Finch's tiny office in a historic brick building on Oak Street, blurring the world outside into a watercolor wash of gray and green. The air inside was thick with the scent of old paper and the faintest hint of vanilla from the vintage perfume his grandmother left him.  Tom ran a tired hand through his thinning hair, the weight of another day's insurance claims pressing down on his chest like an unsorted pile of paperwork. 
+
+He had inherited the agency when his father passed away two years ago, and while he enjoyed the quiet predictability of his routine, the reality was that even a comfortable existence could feel suffocating in this town where life moved at the pace of a glacier.  The only excitement seemed to come from the unexpected – a burst pipe in a family home, a car accident with a sudden storm surge, a fire that mysteriously destroyed an antique shop on Main Street.
+
+Tom sighed. Even the mundane was fraught with potential for chaos. Tonight, he would face another pile of claims and hope they wouldn't swallow him whole before the sun set over his uninspired town. 

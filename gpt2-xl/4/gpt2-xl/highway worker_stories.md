@@ -1,0 +1,7 @@
+Once upon a time, there was a highway worker named William who worked for the state. He was very kind and had a good heart, and he was very loyal to the people and to the system. But something changed for him, and from the day that Highway 61 was carved through his hometown, he never worked again. He left because he would never do what the state wanted him to do. He had a vision and an idea of how he wanted to work and what he wanted to do, to be a businessman, to be the kind of person I want. So he left and went the interstate route and lived the life that people wanted to lead. Because it's a very, very lonely road, and he got to that point and nobody would sell him a ticket. So what can you do? You have to find a new path of what you want to do."
+
+A month later, while driving across Texas to get an education in journalism, he met the writer Terry Anderson, and Anderson wrote it up, and the rest is history. You can read the full story here
+
+The highway workers and highway worker organizations have been in a state of stalemate with the state – mostly because state officials have not given enough support and they seem unwilling even to talk about a possible deal.
+
+It was this past Monday that the Texas Department of Transportation and a bunch of workers at the State Highway System's office in Austin were making their most serious push yet to start working together on

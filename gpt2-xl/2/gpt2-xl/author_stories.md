@@ -1,0 +1,6 @@
+Once upon a time, there was a author named James T Ketchum. I think his surname is Ketchum, or something like that. Now I'm not 100% right with his name, but this is what I thought: Ketchum has been to a bunch of conventions, and he is pretty much a star at these kinds of things. The last time he was to this convention in New York, a bunch of the staff of the convention went out and did their best to get him something cool, but not get too close.
+
+
+Eventually, some staff members in attendance of this convention started chatting him up, and one day, it was Ketchum who approached his seat about a foot or two away from the exit of the convention. He was, you guessed it, wearing a tuxedo. And here's where I get into trouble.
+
+When you hear of the Ketchum Tuxedo Incident, you probably picture his face covered in a giant tuxedo. Well, you'd be right if you were picturing Chris Ketchum. However, when you see photos of him dressed as Tuxedo James, Ketchum looks like he wears a really nice robe with a little bow tie attached to it. And why do you see him wearing the tie? Because there's an under coat that the bow tie is hanging from. A bow tie. And because Ketchum looks bored with being in tuxedos in general.

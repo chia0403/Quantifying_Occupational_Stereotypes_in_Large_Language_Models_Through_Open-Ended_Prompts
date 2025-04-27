@@ -1,0 +1,7 @@
+## Story Opening & Setting:
+
+The high-pitched whine of the drill sliced through the crisp morning air, a sound Dr. Eleanor Abigail Hawthorne both loved and loathed. It was the sound of progress, of decay vanquished, of a confident smile restored. But it was also the sound of fear, the soundtrack to countless anxious glances and white-knuckled grips on the armrests of her meticulously sanitized dental chair.
+
+Dr. Hawthorne’s practice, Hawthorne Dental Wellness, was nestled in the heart of the historic district of Charleston, South Carolina. The building itself was a beautifully preserved Georgian townhouse, its exterior a soft, dusty rose brick, accented by intricate ironwork balconies overflowing with vibrant bougainvillea. Inside, however, Eleanor had painstakingly curated a modern, minimalist space, hoping to create a sense of calm and clinical precision. Sunlight streamed through the large windows, illuminating polished concrete floors, sleek white cabinetry, and the occasional strategically placed orchid. The air was subtly scented with lavender and peppermint, a deliberate attempt to counteract the lingering aroma of eugenol that clung to everything despite her best efforts.
+
+This morning, however, the lavender seemed to be struggling to compete with the palpable tension in the air. Her first patient of the day, a young man named Thomas O’Malley, was visibly sweating despite the air conditioning and his gripping of the armrests had turned his knuckles a stark, ghostly white. Eleanor sighed internally. It was going to be a long day.

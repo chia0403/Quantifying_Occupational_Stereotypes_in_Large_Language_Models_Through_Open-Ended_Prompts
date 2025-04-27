@@ -1,0 +1,7 @@
+Once upon a time, there was a veterinarian named Mike.
+
+Yes, if you saw what happened to this dog on "America's Most Wanted," you would likely think he was just a nice guy at first. Mike was a loving husband and father, a dog trainer, and a good dog owner. He was just doing what he thought was best for his pet. After all, it is not like Mike was a felon with a gun.
+
+Then, one day, a car thief ran the stop sign and ran over Mike's dog, then dumped him on the side of the road. The little guy died while his dad was rushed to the hospital, where he was forced to watch his dog die while he was dying. He was then hauled into court, where he was found guilty of not stopping the car when he knew he didn't have a stop sign, and was sentenced to 18 months in jail. This did not sit well with Mike, who went back to law enforcement to get justice for his dog. In return for his service to the community, Mike was eventually rewarded with the opportunity to keep his beloved pug.
+
+It's amazing how quickly people forget. It is equally amazing how quickly the world forgets. The dog's name was Sammy – Mike named him Sammy. He was a wonderful companion to these two men, who loved Sammy dearly. But what's really astonishing is the number of people who have forgotten what happened to Sammy – and why it even matters

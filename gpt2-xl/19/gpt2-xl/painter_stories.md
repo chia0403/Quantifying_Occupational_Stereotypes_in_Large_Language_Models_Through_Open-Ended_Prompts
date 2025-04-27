@@ -1,0 +1,5 @@
+Once upon a time, there was a painter named Vincent van Gogh in the Netherlands. After he was found hanged in 1890, he was said to have burned some of his own canvases. His assistant, a Dutchman named Rembrandt Harmenszoon van Rijks, who would go on to found the Rijksmuseum, kept some of van Gogh's canvases in a large, elaborate safe. The only one known to exist is called "The Battle of the Bulge" (1898–1915), and it is painted to Van Gogh's own specifications. You can see the painting in the Rijksmuseum now but you can't really get too close to it (it's in a secure room).
+
+Vincent van Gogh was a very peculiar individual. He liked to paint bloody, bloody paintings. In "The Battle of the Bulge" (1898–1915), a man with a skull tied around his head has been reduced to nothing. A few men have been reduced to splinters by a shell, and a couple more—two men and a woman—are holding onto life by the skin of their teeth. Most of the faces have been smashed apart, and a few are missing their eyes.
+
+"The Battle of the Bulge" is what you think of when you hear "van Gogh." There's blood, and skulls, and the bodies of dead soldiers. This seems to be his

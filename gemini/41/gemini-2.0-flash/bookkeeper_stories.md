@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Story Opening:**
+
+Agnes Beatrice Plumtree sighed, the sound like a deflated balloon escaping a punctured tire. The flickering fluorescent light above her head hummed a discordant tune, a familiar soundtrack to her solitary evenings. Outside, the rain lashed against the grimy windows of "Figgleworth & Sons, Purveyors of Fine Teas and Imported Spices," but Agnes barely noticed. Her entire world was contained within the ledger open before her, its pages a chaotic landscape of debits and credits. A single, rogue penny, a microscopic tyrant, refused to align, threatening to throw the entire balance sheet into disarray. Agnes rubbed her tired eyes, the scent of dust and old paper clinging to her fingers like a stubborn perfume. Tonight, that penny felt like the weight of the world.
+
+**Setting:**
+
+The scene unfolds in the cramped, back office of Figgleworth & Sons, a time-worn establishment nestled on a cobbled lane in the heart of York, England. The year is 1928. The office, no bigger than a generous broom cupboard, is crammed with towering stacks of invoices, ledgers bound in cracked leather, and an assortment of faded bills. The air is thick with the aroma of Earl Grey, ginger, and decades of accumulated dust. A worn, green eyeshade rests on a shelf above Agnes's desk, casting the room in a perpetually muted light. The only window offers a limited view of the rain-slicked street outside and the shadowy outline of York Minster looming in the distance, a silent, stone witness to Agnes's accounting woes. The furniture is functional and antique, reflecting the age and frugality of the Figgleworth family business. A small, pot-bellied stove, cold and silent now, sits in the corner, a reminder of the chill that permeates the building in the winter months. This cramped space is Agnes's domain, a sanctuary of numbers and meticulous record-keeping in a world on the cusp of change.

@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+It was a drizzly autumn evening in the small coastal town of Ravenswood, where the misty sea air clung to the skin like a damp shroud. Inside the old-fashioned beauty parlor on Main Street, Luna Rose Winters was scrubbing out the day's last client, a faded bouquet of dried seashells and feathers that had been left behind by a hasty departing tourist.
+
+Luna, with her wild tangle of curly brown hair and perpetual streaks of bright pink dye running through it like wispy scars, surveyed the cluttered space with a practiced eye. She knew every nook and cranny of the Winters' Beauty Parlor by heart, from the faint scent of old perfume that lingered in the back rooms to the exact spot where the light streaming through the grimy windows hit the floor just so.
+
+As she finished up the last touches on her latest client's blowout, Luna's gaze drifted out into the rain-soaked night, where the streetlamps cast long shadows across the deserted sidewalks. It was a time of day that usually made her want to retreat to the safety of her small apartment above the parlor, curl up with a good book and a cup of tea. But tonight, something felt different.
+
+Luna's fingers itched for a distraction from the humdrum routine she'd grown accustomed to – a sudden urge to get out into the rain, to feel its weight on her skin and taste the salt spray in the air. And as she locked up the parlor and set off down Main Street, her eyes scanning the deserted streets with an uncharacteristic sense of restlessness, Luna couldn't shake the feeling that tonight was going to be different – that something was waiting for her just beyond the edge of town.

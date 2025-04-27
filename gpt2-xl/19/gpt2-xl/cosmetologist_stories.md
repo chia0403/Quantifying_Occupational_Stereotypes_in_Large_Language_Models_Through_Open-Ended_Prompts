@@ -1,0 +1,7 @@
+Once upon a time, there was a cosmetologist named Dr. T.O.L.S.Y. and he was an absolute mess. He didn't know how to treat hair and skin problems, so he did just about whatever he damn well pleases in the name of curing patients with his magic potions of snake venom and various other types of herbal therapy. Eventually, when he decided to just tell the truth instead of lying, he ended up being sent to be experimented on by the government for reasons known only to those with an interest in science and magic, which is to say no one besides his closest friends.
+
+When he was brought to a facility where the science went further than just curing people, like creating mutants who'd eventually turn into mindless bloodsuckers, he decided to escape to try to find some cure for his sickness. To make sure he got that, he tried to steal one of the most valuable weapons in the area, which at the time was the original prototype of the Hellfire Rocket Launcher. Unfortunately, with only twenty rounds left in his gun, T.O.L.S.Y. was caught in an explosion he wasn't expecting (or maybe he was).
+
+Advertisement
+
+After suffering a few very painful burns on his head, stomach, and arms, T.O.L.S.Y. was eventually sent back to his cave to get in better physical condition so he could go out and stop the experiment when it

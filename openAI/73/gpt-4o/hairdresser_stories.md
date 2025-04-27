@@ -1,0 +1,9 @@
+The morning sun filtered softly through the lace curtains of the small salon, casting delicate patterns across the tiled floor. The faint aroma of lavender and lemon verbena filled the air, mingling with the distant melody of a street musician playing on the bustling avenue outside. Inside, the ambiance was serene, a hidden sanctuary amid the chaos of downtown Verona.
+
+Genevieve Marlow stood behind her stylist's chair, her fingers meticulously organizing the gleaming tools of her trade. Hairpins, scissors, and brushes all lay arrayed like instruments on a surgeon's tray, each one essential to the art she practiced. Genevieve had always found solace in these quiet moments before the day's clientele arrived, the world narrowing down to simple, elegant precision.
+
+The salon, an eclectic blend of vintage charm and modern sophistication, was Genevieve's labor of love. Antique mirrors adorned the pale blue walls, reflecting the sunlight in fractured rainbows that danced across the room, while plush velvet chairs invited her clients to relax and unwind. Shelves lined with an array of hair products added pops of color, their labels promising luster, hold, and nourishment.
+
+As she glanced at the old clock perched atop the reception desk—a relic from her grandmother’s attic—Genevieve wondered what stories she would hear today. Each customer who crossed the threshold brought with them tales of their lives, and over time, her role had expanded beyond that of a hairdresser to confidante, friend, and occasional therapist.
+
+Today, however, as she flipped the sign on the door from 'Closed' to 'Open', she felt a new kind of anticipation dancing beneath her usually calm exterior. A letter had arrived the day before from an old friend, its contents hinting at a mystery that would soon entwine with her everyday routine. With a slight sigh, she adjusted her apron and prepared to meet the day, the excitement of the unknown buzzing at the edges of her thoughts.

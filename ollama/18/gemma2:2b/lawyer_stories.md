@@ -1,0 +1,5 @@
+Rain hammered against the grimy windowpanes of Eleanor Vance's office, mimicking the frantic rhythm of her thoughts. The worn leather chair groaned beneath her weight as she stared out at the deluge, the flickering neon sign of the diner across the street offering a sickly yellow glow through the downpour. 
+
+Eleanor Vance was not just a lawyer; she was the last line of defense for the downtrodden.  But tonight, even she felt the city had turned against her. The case – a wrongful termination suit against a notoriously ruthless tech giant, Titan Industries – was a heavy stone in her gut, threatening to crush her spirit. 
+
+The air hung thick with tension, punctuated by bursts of static from the old rotary phone on her desk. A name flashed across the receiver: "Mr. Thorne," it read, an unwelcome reminder of the man whose wealth and influence threatened to drown even the most righteous legal battle.  Eleanor took a deep breath, steeling herself for the call. Tonight's storm wasn't just about rain; it was about the kind of battles fought in the shadows where justice sometimes seemed lost. 

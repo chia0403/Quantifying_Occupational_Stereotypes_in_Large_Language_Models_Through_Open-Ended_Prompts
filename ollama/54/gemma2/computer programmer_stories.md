@@ -1,0 +1,7 @@
+The rhythmic click-clack of Amelia "Amy" Everly's keyboard was the only sound breaking the sterile silence of her apartment. Fluorescent lights hummed overhead, casting a pale glow on her hunched figure as she wrestled with a particularly stubborn line of code. Outside, the Chicago skyline glittered like a million shattered diamonds, but Amy barely registered it. Her world was confined to the illuminated screen before her, where lines of text swam and pulsed, demanding solutions only she could provide.
+
+Amy’s apartment wasn't glamorous, but it was hers. Walls painted a calming shade of teal fought against the sterile white of the furniture and exposed brick. A single potted cactus, stubbornly surviving on neglect, perched precariously on a shelf crammed with books about algorithms and artificial intelligence. The scent of instant ramen lingered in the air, a testament to her late-night coding sessions.  
+
+This wasn't how she imagined her life at 25. She dreamt of revolutionizing cybersecurity, not fighting off bugs in a web application for a mid-tier insurance company. But dreams often took a backseat to reality, especially when rent was due and the only job offers came with a hefty dose of corporate tedium.  Yet, tonight felt different. A flicker of excitement danced within her as she neared the solution, a whisper of something bigger on the horizon. This project, this code, could be her chance to break free from the mundane and make a real impact. 
+
+

@@ -1,0 +1,5 @@
+The air hung heavy with the scent of granite dust and damp earth in Jasper Thorne's workshop. Sunlight streamed through the grime-streaked windows, illuminating swirling motes dancing in the stillness.  Jasper himself was hunched over his latest project – a delicate carving of a hummingbird mid-flight, its tiny wings seemingly poised to catch the breeze that rustled through the nearby willow tree. His calloused fingers moved with practiced precision, the rhythmic tap of his chisel against the cool stone a soothing counterpoint to the hammering of his own anxious heart. 
+
+Jasper Thorne wasn't just any stone cutter; he was the last in a long line of artisans who had honed their skills in this secluded valley nestled deep within the rugged Scottish Highlands. Generations before him had carved intricate tapestries from granite, each piece imbued with the magic and melancholy of the ancient land. But times were changing, progress encroaching on the edges of their timeless world.  His own heart ached for the legacy his ancestors had built, yet he couldn't shake the gnawing fear that it was all slipping away, just like the sandstone beneath his hammer. 
+
+

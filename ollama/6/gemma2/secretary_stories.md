@@ -1,0 +1,5 @@
+The air hung heavy with the scent of stale coffee and desperation in Amelia Beatrice Winthrop’s cramped office cubicle. Sunlight streamed through the grimy window, illuminating the dust motes dancing like frenzied fairies in its golden rays. Papers piled precariously on her desk, threatening to cascade onto the worn carpet if she so much as shifted in her seat.  
+
+Amelia, a woman whose spirit had been slowly ground down by years of answering phones, scheduling meetings, and deciphering cryptic memos from her boss, Mr. Bartholomew "Barty" Butterfield III, sighed heavily. Her fingers flew across the keyboard, composing yet another email to a disgruntled client while simultaneously battling a persistent migraine brought on by the fluorescent lighting and the cacophony of ringing phones surrounding her. 
+
+It was just another typical Tuesday at Butterfield & Sons Inc., a middling accounting firm nestled in the grey belly of a nameless city. Nothing ever particularly exciting happened here, Amelia had long since decided, just the mundane grind that kept the gears of commerce turning, one spreadsheet at a time.  

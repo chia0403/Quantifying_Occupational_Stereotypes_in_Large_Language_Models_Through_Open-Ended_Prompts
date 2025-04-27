@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named Susan Eller. She wasn't an attractive person. She'd been sick for a while, and after a lot of pain and a nasty wound had developed, she had died. She would have been a nice person to hold, in her prime, the way she held those patients. But no. She was kind of ugly. The people in the hospital were all afraid of her and she was so scary that they didn't want to move her. The nurses who knew her were scared also, but what were they supposed to do? They were useless to her.
+
+Once a day the nurse would move over to where the patient on the cot was being examined, and she would start to wipe the floor with them. And then she would make a joke, like this one:
+
+"You'll notice that I don't wipe around the patient so you won't get sick. How do you like my new style? I think I like it better than yours, but don't worry, I'll wash it away when you get better."
+
+And they thought this was funny, but a few patients said that it wasn't funny. There were people who didn't get along with her. The hospital staff came to me and said, "Susan needs to go, that's it." I was the hospital administrator. So I took her away. I told her, "It's a long way away, she won't get

@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The clapperboard snapped shut with a resounding *thwack*. "Cut!" shouted Alistair Finch, his voice laced with the fatigue of a fourteen-hour shoot day. He rubbed his temples, the sharp scent of fake smoke and cheap hairspray clinging to him like a second skin. The silence that followed was thicker than the fog rolling in off the Thames. He knew it wasn't the good kind of silence; it was the silence of polite disappointment. He glanced at Clara, his lead actress, whose face was a porcelain mask of practiced neutrality, and then at Ben, his cinematographer, whose shoulders were slumped in a posture that screamed, "This is a disaster." Alistair sighed. This wasn't working. Not even close. And if "The Crimson Corsair," his passion project, a swashbuckling epic three years in the making and funded by a loan that could probably buy him a small island, went down in flames, he was going down with it.
+
+**Setting:**
+
+The story opens on the set of "The Crimson Corsair," a period drama being filmed in a disused and cavernous aircraft hangar on the outskirts of Dagenham, East London. The hangar, usually cold and echoing, had been transformed, at considerable expense, into a makeshift dockside tavern. Dim, flickering gas lamps (electric, thankfully) cast long, dramatic shadows across the cobbled floor, which was actually a meticulously painted canvas spread over a concrete slab. Ropes hung from the rafters, alongside tattered pirate flags and netting laden with plastic fish. The air was thick with the smell of damp wood, fake sea salt, and the aforementioned hairspray. Outside, the late October sky was a churning grey, mirroring Alistair's mood. The real London docklands, with their modern cranes and bustling activity, were just a blurry silhouette in the distance, a constant reminder of the authenticity Alistair craved but couldn't quite capture in this artificial environment.

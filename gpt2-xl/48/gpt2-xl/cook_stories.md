@@ -1,0 +1,6 @@
+Once upon a time, there was a cook named Dolly from New York City's famous "Mile High" restaurant community. She was the first woman in the history of the cooking show. She was also the reason why women did not participate in the Food Network until just recently. Dolly was the first female judge on America's Next Top Chef and host of a cooking show from 2007 to 2014. Over her career with the show (including her time as a judge of Top Chef Junior, Top Chef: Rivals, and Top Chef: U.S.), she became one of the most recognizable chefs in the U.S. by providing some of the country's best tasting meals — from meatloaf to chicken and steak fettuccine.
+
+
+We're here at Humble Pie to talk about the things that make the New York City restaurant food scene so unique—and how important Dolly was to the development of food on the show. Dolly also is one of the women that started one of our favorite things here: the annual "Dolly Day."
+
+On the show, she was paired with a chef each week who she knew would impress her. These chefs included a variety of "douchebags," and the show helped introduce more chefs to the American cooking community. On Dolly Day, Humble Pie hosts events to give away the top three chefs from each week. Dolly Day is one of our favorite holidays, which this year came on April 16.

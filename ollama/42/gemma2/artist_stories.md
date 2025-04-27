@@ -1,0 +1,5 @@
+The scent of turpentine and linseed oil hung thick in the air, mingling with the faint aroma of chamomile tea steeping on Amelia Clementine's stovetop. Her small studio apartment was tucked away on the fourth floor of a converted Victorian building overlooking a bustling street in New Orleans. Outside, the jazz notes from a nearby bar drifted through her open window, a lively counterpoint to the quiet rustle of paintbrushes against canvas that filled the room.  
+
+Amelia squinted at her latest creation, a portrait of an elderly woman with eyes that held both sadness and wisdom. The woman’s name was Madame Josephine, Amelia's neighbor, who lived downstairs in the apartment building.  Amelia had been capturing her spirit on canvas for weeks, mesmerized by the wrinkles etched deep into Madame Josephine’s face, each line telling a story of resilience and joy. But today, Amelia felt a block, a frustrating absence of inspiration. The vibrant colors she usually embraced seemed dull, the strokes clumsy. She sighed, wiping her brow with a rag, wondering where her artistic spark had gone. 
+
+

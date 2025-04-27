@@ -1,0 +1,5 @@
+The sun hadn't even begun to peek over the horizon, but Silas "Si" McCready was already out on Highway 69, his thermos of lukewarm coffee clutched in one gloved hand. The air was still crisp with autumn frost, and the smell of pine needles mingled with the distant rumble of eighteen-wheelers. Si squinted at the road ahead, the pale light struggling to pierce the pre-dawn darkness. He adjusted his battered hardhat, his breath misting in the cold air. This stretch of highway, winding through the heart of the Ozark Mountains, was their responsibility: him, Jake, and old man Benny, keeping these lonely miles safe for everyone else. 
+
+Today, Si had a feeling it was going to be different. A gut feeling, he called it. He couldn't quite place it, but there was something about the silence that felt heavy, expectant. Like the mountain itself was holding its breath. He hoped whatever it was, it wouldn't be another busted guardrail or fallen tree.  He just wanted to get through his shift and head home to Maggie and her warm apple pie. 
+
+

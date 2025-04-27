@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named Martin Brest. Martin Brest was great. Martin Brest was a good director, but he was also a woman. He had a reputation as being too feminine, but he was a good director -- he directed two very popular movies. But Martin Brest was also gay. Martin Brest was gay and his career collapsed. We've had gay Hollywood men before. Most of them are dead or not with us yet. But he's got an autobiography coming out soon that recounts everything about his life. He talks openly about being gay and about the gay experience in the movie business.
+
+
+Actors, directors, writers, producers -- when they go around and talk about what it's like, a lot of them talk about it with trepidation. To some extent it's like going to a gay bar -- people don't want to go in and talk about who they are or why they're gay. Everybody seems to have a different idea of what it means to be gay. The Hollywood establishment does not like to talk about it. They only want to talk about how they got there, and how it was cool when they got there.
+
+
+All the same, I don't know that anybody is going to try to keep Martin Brest out of the public eye. But if he has a book out, he's not going to talk about how he got where he was. Martin Brest did it his own way. It

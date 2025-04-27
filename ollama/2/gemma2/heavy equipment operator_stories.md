@@ -1,0 +1,6 @@
+The sun beat down on Bartholomew "Bear" Callahan's weathered neck as he wrestled with the controls of the 360 Excavator. Sweat beaded on his brow, mixing with the grime that clung to his face like a second skin. Dust devils danced across the barren plains, kicking up plumes of red earth in their wake.  The air was thick with the metallic tang of oil and diesel, punctuated by the rhythmic clang of Bear's shovel as it gouged into the unforgiving ground. 
+
+He squinted at the sprawling construction site before him, a chaotic canvas of steel beams, half-built foundations, and rumbling dump trucks. The future city of New Canaan stretched out in all its ambitious glory – a monument to human progress that was slowly being carved from this desolate expanse. Bear felt a flicker of pride, knowing his hands were helping to build it. He wasn't just moving dirt; he was laying the groundwork for tomorrow.
+
+
+But today, Bear wasn't focused on the future. His mind was consumed by a gnawing worry – the news he’d received that morning about his younger brother, Jesse. A troubled soul who had always sought refuge in fleeting thrills, Jesse had finally hit rock bottom. He needed help, and Bear was his only hope. 

@@ -1,0 +1,9 @@
+The sun beat down on Elias Thorne's neck, sweat stinging his eyes as he maneuvered the asphalt roller across the fresh patch of road.  A thick plume of dust billowed behind him, momentarily obscuring the endless ribbon of asphalt that stretched out before him like a pale blue snake winding through the arid Nevada desert. 
+
+Elias squinted, adjusting the brim of his worn Stetson to shield his eyes from the glare. The air shimmered with heat, and the only sound besides the rhythmic chugging of the roller was the wind whispering through the skeletal branches of sagebrush that dotted the landscape. He took a swig from his water bottle, the cold liquid bringing a fleeting relief before the sun quickly reheated it in his calloused hands.
+
+This stretch of Highway 95 was notorious for its unforgiving heat and desolate beauty. It snaked through miles of scrubland, the only break in the monotony being the occasional roadside diner or gas station, their neon signs flickering like dying stars in the distance.  For Elias, these stretches of road were more than just a job – they were a testament to the human will to conquer the harshness of this land, a ribbon of civilization pushing back against the vast emptiness.
+
+
+ 
+He wiped his brow with the back of his hand, leaving a greasy streak across his forehead. As he rolled on, Elias couldn't help but feel a sense of quiet satisfaction in his work, knowing that even in this desolate place, he was building something, creating a path for others to follow.  But as the sun climbed higher and the air grew thicker with heat, a creeping unease began to settle over him. Something felt off. The silence seemed heavier, the wind more oppressive. And then, in the distance, Elias saw it – a dark shape moving along the horizon, its silhouette stark against the blinding white of the midday sky.

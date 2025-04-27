@@ -1,0 +1,9 @@
+**Title: Whispers of the Forgotten**
+
+**Setting:**  
+The story begins in the bustling city of Eldenbrook, where vintage brick buildings tower over cobblestone streets, housing a tapestry of cultures and histories. A thin veil of mist hangs over the early morning, wrapping around the city like a shroud. The air is crisp, carrying the scent of wet earth and the distant sound of the ocean waves crashing against the rocky shoreline only a few blocks away. Nestled among the cafes and small bookstores, the Eldenbrook Chronicle, the local newspaper, sits at the center of it all, its neon sign flickering above the entrance. Inside, the faint hum of chatter and the clattering of keyboards create a symphony of urgency and ambition.
+
+**Main Character:**  
+As the clock strikes eight, Lila Mayweather, a tenacious investigative reporter with a reputation for unearthing the truth, strides purposefully into the office. At thirty-two, she has a well-worn leather bag slung over her shoulder, filled with notepads and a trusty old camera. Her light brown hair is pulled back in a messy bun, a few wisps framing her determined green eyes that always seem to be searching for the story behind the story. Lila’s sharp wit and unyielding resolve have made her a formidable presence in the cutthroat world of journalism, but beneath her tough exterior lies a deep-rooted empathy for those she writes about.
+
+With a steaming cup of coffee in hand, Lila scans the crowded newsroom, her heart racing as she recalls the cryptic message she received late last night—an anonymous tip that promised to lead her into the shadows of Eldenbrook's forgotten past. She can feel the air thickening around her, as if the very walls are whispering secrets, and a thrill of excitement courses through her veins. Today, she is determined to uncover the truth, no matter where it leads her.

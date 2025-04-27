@@ -1,0 +1,9 @@
+Title: Whispers of the Forgotten
+
+In the quaint coastal town of Eldermere, where the cliffs met the restless sea, stood a crumbling Victorian mansion known as Willowcrest. Its weathered façade, adorned with ivy and shadows, told tales of a bygone era, when it had been the pride of the affluent Pembroke family. Now, it lingered on the edge of nostalgia, holding secrets within its rotting walls.
+
+As the sun dipped below the horizon, painting the sky in hues of orange and purple, Eleanor Beatrice Cartwright settled into her favorite nook by the grand bay window. The room was dimly lit by a solitary lamp, casting a warm glow across the scattered pages and ink-stained notebooks that surrounded her. A faint scent of salt and old paper mingled in the air, reminding her of the stories waiting to be told.
+
+Eleanor, a struggling author in her mid-thirties, had come to Eldermere seeking solace and inspiration. With her chestnut hair pulled back into a messy bun and her glasses perched on the tip of her nose, she couldn’t shake the feeling that there was a story lying dormant in the heart of Willowcrest, a narrative just waiting for the right words to bring it to life. She often lost herself in the echoes of the past, imagining the lives of those who had walked its halls long before her.
+
+Outside, the wind howled like a restless spirit, urging her to step into the unknown. Little did she know, the mansion held more than just whispers of the forgotten; it guarded a truth that would entwine her fate with its own, pushing her to confront not just the shadows of its history but the depths of her own soul.

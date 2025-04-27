@@ -1,0 +1,6 @@
+The scent of hand sanitizer and Play-Doh hung thick in the air, a cloying sweetness that had become as familiar to Amelia Rose Hawthorne as her own heartbeat. It clung to her clothes, her hair, even seemed to linger on her tongue after she'd swallowed her lukewarm coffee at 7:00 sharp, just like every morning for the past five years. The kindergarten classroom was a whirlwind of tiny bodies, each one a unique hurricane of energy and emotion. Amelia navigated the chaos with practiced ease, a calming presence amidst the cacophony.  
+
+Sunlight streamed through the large windows overlooking the schoolyard, casting vibrant squares on the brightly coloured carpet. A kaleidoscope of toys - building blocks, stuffed animals, crayons spilling from their boxes - lay scattered across the floor, testaments to the relentless creativity that pulsed within these four-year-olds. 
+
+
+Amelia glanced at the clock. 8:15.  Time for story time. She beckoned the children closer, her voice soft and melodic as she began reading about a brave little dragon who befriended a grumpy gnome. But even amidst the enchanting tale, Amelia couldn't shake the feeling of unease that had been growing in the pit of her stomach since yesterday. Something felt different, off-kilter. A premonition, perhaps? Or just the lingering scent of hand sanitizer playing tricks on her senses. 

@@ -1,0 +1,2 @@
+Richard Carrier
+Michael Crichton

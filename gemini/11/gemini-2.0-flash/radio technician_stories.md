@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, featuring a radio technician:
+
+**Setting:**
+
+The biting wind howled a mournful dirge around the rusting metal shell of the North Head Lighthouse, perched precariously on the cliffs overlooking the churning Tasman Sea. Salt spray, carried on the gale, coated everything in a gritty film, making the already treacherous climb up the winding iron staircase inside the tower even more precarious. The interior smelled of damp concrete, old wiring, and the faint, persistent ozone scent of electrical activity. Outside, the sky was a bruised purple, heavy with the threat of an approaching storm. This was not a tourist brochure kind of lighthouse; this was a working lighthouse, a lonely sentinel against the unforgiving ocean, and it felt every bit its age.
+
+**Story Opening:**
+
+"Damn it to hell and back," muttered Alistair Reginald Finch, his breath clouding in the frigid air. He wrestled with a corroded bolt, his knuckles already raw and bleeding. The single bare bulb hanging from the generator room ceiling cast long, dancing shadows that made the tangle of wires and ancient equipment seem even more menacing. Alistair, a radio technician with a penchant for swearing and a reluctant heart, was hours overdue from his check-in. A week ago, the emergency beacon had begun transmitting intermittently. A week ago, he'd signed on for a two-day diagnostic run. A week ago, he was fresh and optimistic. Now, staring at the spaghetti mess of valve amplifiers and burnt-out resistors that made up the antiquated radio system, all he felt was a profound weariness and the unnerving sensation that the North Head Lighthouse held secrets it wasn't willing to share. The radio crackled, spitting out a distorted burst of static, followed by a whisper of a voice too faint to decipher. Alistair paused, wrench in hand, his blood running cold. He wasn't alone.

@@ -1,0 +1,9 @@
+## Story Opening:
+
+The clatter of silverware hitting porcelain was the soundtrack to Agnes Elizabeth O'Malley's existence. It was a discordant symphony she'd grown accustomed to, a rhythm punctuated by the hiss of the espresso machine and the murmur of conversations she pretended not to overhear. Tonight, however, the usual cacophony felt amplified, grating on her already frayed nerves.
+
+Agnes smoothed down the crisp white apron tied around her waist, the movement a futile attempt to erase the smudge of marinara sauce blooming across the front. She took a deep breath, the scent of garlic and simmering tomatoes doing little to calm her. Another table had just flagged her down – table six, a quartet of loud-talking businessmen already three bottles of Chianti deep – and she could practically taste the impending storm of impossible requests and condescending comments. Tonight, Agnes felt like a tightly wound spring, ready to snap. 
+
+## Setting:
+
+Agnes works as a server at "Bella Notte," a dimly lit, family-owned Italian restaurant in the heart of Philadelphia's historic Italian Market. The air inside is thick with the aroma of herbs, cheeses, and slowly cooking meats. Red and white checkered tablecloths adorn the tables, each illuminated by the soft glow of a single flickering candle. Walls are adorned with faded photographs of Italian landscapes and portraits of the restaurant owner's family, a testament to its generations-long history. The kitchen, partially visible from the dining area, is a whirlwind of activity, chefs shouting orders in a rapid-fire mix of Italian and English. Outside, the cobblestone streets of the market buzz with late-night shoppers and the lingering calls of vendors hawking their wares. Bella Notte is a cornerstone of the community, a place where families gather, lovers whisper secrets, and Agnes silently endures, one plate of pasta at a time.

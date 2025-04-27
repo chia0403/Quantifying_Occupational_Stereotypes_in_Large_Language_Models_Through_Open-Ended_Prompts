@@ -1,0 +1,7 @@
+Once upon a time, there was a graphic designer named Brian Vang. He's a graphic designer. He has a blog. I would go to this website every once in a blue moon and just laugh at these things that he was making, like when he was trying to make '90s memes based on the 90s. It was just like, 'What, what? And just when I was ready for him to give up on the whole thing, he would make these posts. He has a very specific vision for how a user interface looks to him and he'd be like 'That's not fun and games, that's cool.'
+
+Now it's something where people think everyone is the same way. People have completely turned it into something very specific to something they created for themselves. I'm all about people pushing themselves to get this stuff to reflect their personality, their interests, their tastes.
+
+It's actually more about getting people to go and talk about these things, rather than to just accept everything as the only option. That's why he was a cool graphic designer. Just to get people to talk more. He thought it was OK to come out and be like "Wait a second, that's not that funny." To give that person some other perspective so they could just sort of understand why someone might find their piece of art to be funny or not funny.
+
+How do you take the things you love in life and put them into other things and come up

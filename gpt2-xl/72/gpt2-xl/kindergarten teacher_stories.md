@@ -1,0 +1,7 @@
+Once upon a time, there was a kindergarten teacher named Edith Macefield, whose job was to teach the children who couldn't read — and not one to be bullied, a tall order for such a tough, stern lady. She would do what she could, of course, as she was expected to take care of the small children, no matter what they lacked.
+
+Edith Macefield was a kind woman and was very kind to her students, whether they'd been abused, had run away or weren't in the right language to learn. However, when she saw that students were being victimized because they couldn't read, she became frustrated and decided to do something about it. So she decided to make a "book table" out of an old bulletin board. The children would leave the room to pick up more books, while Macefield would fill the book table with books in other languages to be left alone. Her solution was to teach children the first two letters of each foreign word in their home language. Then, on their return, the group would learn the second letter. Then, by the time they were through, both the children and the adults would know the entire word, the foreign words of the lesson being one letter removed from the original.
+
+Here's a picture of a "book table" in the Edith Macefield classroom…
+
+And that's a map of Edith Macefield, who taught at the school as a kindergarten teacher, making a book table

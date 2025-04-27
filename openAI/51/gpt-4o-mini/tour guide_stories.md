@@ -1,0 +1,11 @@
+Title: Shadows of the Past
+
+Setting: The cobbled streets of Old Town, Edinburgh, cast in the soft amber glow of street lamps as dusk falls. The air is laced with the scent of rain-soaked stone and the distant notes of a bagpipe echoing through the narrow alleys. Ancient buildings loom overhead, their grey facades steeped in secrets, while the majestic silhouette of Edinburgh Castle watches protectively from its perch atop Castle Rock. It’s a time when the city seems to breathe deeply, an amalgamation of history, myth, and the whispers of those who once walked these streets.
+
+Opening:
+
+Amelia Christine MacLeod stood at the head of the group, her breath misting in the cool evening air as she adjusted her plaid scarf against the chill. Every evening, she transformed into a living link between the past and present, a storyteller drawing visitors into the rich tapestry of Edinburgh’s history. With her auburn hair tumbling in soft waves and a pair of inquisitive green eyes sparkling beneath the glow of the street lamps, she exuded both warmth and an undeniable air of mystery.
+
+“Welcome to Edinburgh, where every cobblestone tells a story!” she began, her voice melodic and engaging. The tourists clustered around her, their faces eager in the fading light, eyes wide with anticipation. “Tonight, I invite you to journey through the hidden alleys and shadowy corners of Old Town, where secrets linger and the echoes of long-gone voices waft in the crisp autumn breeze.”
+
+As she gestured toward the winding alleys, her heart raced with the excitement that never failed to accompany her tours. Yet, beneath the thrill, a flicker of trepidation stirred within her—tonight was different. Rumors had spread through the quiet corners of the city about a new discovery unearthed during renovations at a nearby old tavern, one that could shift the very foundations of the tales she told. Little did she know, shadows were gathering, and the past was about to rise in ways she could never have foreseen.

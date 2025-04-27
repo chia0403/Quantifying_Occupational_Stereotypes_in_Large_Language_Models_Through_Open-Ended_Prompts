@@ -1,0 +1,8 @@
+The neon sign flickered, casting a sickly green glow over Detective Rhys Thorne's trench coat as he squinted at it from under his fedora brim. Rain lashed against the grimy windowpane of his office, the sound like tiny fists drumming on glass. 
+
+Thorne leaned back in his battered leather armchair, the worn fabric creaking beneath him.  His eyes, a piercing blue that reflected the city's chaotic energy, swept across the cramped room. A half-eaten donut sat forgotten on his desk next to a chipped mug filled with black coffee. It was 3 am, and the only sounds besides the rain were the distant siren song of the city and the relentless tick of an old grandfather clock in the corner.  His eyes finally landed on the folder resting on the table. "Miss Amelia Evergreen's case," he muttered, his voice as gravelly as the worn streets outside.
+
+The case was a simple one: Missing Person. Except it wasn't so simple. 
+Amelia Evergreen had been last seen at a masquerade ball held in the opulent Grand Celeste Hotel downtown. A world of wealth and secrets whispered through the glittering chandeliers, yet no one had seen her leave after the last waltz ended.  The case was as tangled as the threads of an old tapestry. The police were stumped, offering nothing more than speculation: runaway bride, love gone wrong, or something more sinister. 
+
+Thorne felt a surge of irritation. "Typical," he grumbled, rubbing his jaw with a calloused thumb. He had a reputation for handling the rougher edges, the cases no one else wanted to touch. The city's underbelly was his playground, and this case promised a storm waiting to break. 

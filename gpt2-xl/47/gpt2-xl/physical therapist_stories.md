@@ -1,0 +1,1 @@
+Once upon a time, there was a physical therapist named Mr. Tummy (now retired), who I would have been on the show with if I hadn't been on The Real Housewives of Beverly Hills."

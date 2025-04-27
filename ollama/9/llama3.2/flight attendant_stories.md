@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the sky, casting a warm orange glow over the small airport terminal, Aeropex "Rae" Thompson stretched her weary arms over her head, arching her back in a gentle attempt to shake off the fatigue that had been building all day. With a worn leather name tag pinned to her uniform, Rae gazed out at the scattered passengers, each one more frazzled than the last, as they waited for their flights to take off.
+
+As a seasoned flight attendant on the regional airline, Aeropex Airlines, Rae was no stranger to the stresses of air travel. But tonight felt different - perhaps it was the lingering scent of smoke from the pre-flight catering kitchen or the eerie silence that seemed to have fallen over the usually bustling terminal. Whatever the reason, Rae's instincts were on high alert, and she couldn't shake the feeling that this flight was going to be a long one.
+
+Just as she began to scan the crowd, a harried-looking woman rushed past her, clutching a tattered suitcase handle in one hand and a toddler clutched tightly to her other arm. The little girl's eyes widened as she took in Rae's crisp white uniform, and for an instant, their gazes locked in a fleeting connection that left Rae feeling a sense of unease.
+
+With a practiced smile, Rae watched as the woman hurtled toward the gate, wondering what lay ahead - would it be just another routine flight to the city, or something more? Little did she know, this evening was about to take an unexpected turn.

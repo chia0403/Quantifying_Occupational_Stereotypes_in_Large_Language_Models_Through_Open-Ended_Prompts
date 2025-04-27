@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named Dr. Frank Smith who created a device designed primarily to replace the sinuses. He called his device the Fricidator, and his goal was to be able to replace his patients' sinuses at the lowest level possible by using the Fricidator. Not only was this the largest device in the world at the time, it also had a long reach, since its blade could reach from the mouth to the throat and back.
+
+It seems fitting that, as he was so successful as an entrepreneur, Frank Smith would also create the first vacuum cleaner. He began working on his device in 1920, and it was shown at the 1920 World's Fair. The following year, Frank Smith sold his company to a Chicago company called United Air Lines and he continued to focus on his device.
+
+In 1951, an air-filtration system called the Vacuum Drum was introduced. These devices used air flow through pipes to remove dust and bacteria. Although these devices did a good job of removing the dirt and dust, they also allowed all sorts of nasty, potentially harmful bacteria and viruses to contaminate the air. This was because the air was still allowed to circulate throughout the air-filtration system, and these bacteria and viruses could be introduced while the contaminants were still passing through the system.
+
+On January 20th, 1955, President Dwight D. Eisenhower, while addressing a joint session of Congress, presented us with a gift

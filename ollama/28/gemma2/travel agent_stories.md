@@ -1,0 +1,6 @@
+The scent of jasmine and burnt sugar hung heavy in the air, mingling with the stale perfume of tourists and anxieties about missed flights. Amelia Rose Cavendish, proprietor of "Amelia's Adventures," surveyed her cluttered office with a weary sigh. Sunbeams slanted through dusty windows, illuminating shelves crammed with guidebooks and postcards depicting every corner of the globe. A half-eaten croissant sat on her desk, its flaky edges hardening as she stared at the map of Thailand spread before her. 
+
+The humid Bangkok air hummed outside, a constant reminder that this was Amelia's escape from the dreary drizzle of London. She’d dreamed of opening a travel agency in a vibrant, exotic locale since she was a child poring over National Geographic magazines, and finally, after years of saving and scraping, she’d made it happen. But sometimes, amidst the chaos of her ever-expanding client list, Amelia missed the familiar comforts of home. 
+
+
+A sudden chime announced an email notification. Amelia clicked it open with a flicker of hope. Perhaps this was the trip that would finally bring some much-needed calm to her hectic life. The subject line read: "Dream Vacation - Unforgettable Experience." She leaned back in her chair, taking a deep breath before diving into the message. 

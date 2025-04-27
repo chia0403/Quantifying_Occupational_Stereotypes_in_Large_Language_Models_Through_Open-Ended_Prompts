@@ -1,0 +1,5 @@
+The air hung thick with the smell of sawdust and varnish in Bartholomew "Bear" Blackwood's workshop.  Sunbeams, slanted through grimy windows, illuminated motes dancing in the dust, illuminating forgotten tools hanging on the walls: rusty hammers, chipped chisels, a saw with a blade duller than an old man's wit. Bear himself stood hunched over his workbench, a frown etched deep into the weathered lines of his face. His hands, gnarled and strong from years of coaxing wood into submission, meticulously carved a delicate flower into the side of a mahogany box. It wasn't just any box – it was for his daughter, Elsie, her tenth birthday fast approaching. 
+
+Bear's workshop was nestled at the edge of Hollow Creek, a sleepy town tucked away in the foothills of the Blue Ridge Mountains. The creek itself babbled merrily past his ramshackle building, its constant murmur providing a soothing soundtrack to his work. But today, even the music of the water couldn’t drown out the knot of worry tightening in Bear's chest. He wasn’t just carving a box – he was trying to carve away the shadow of fear that had settled over him ever since… 
+
+

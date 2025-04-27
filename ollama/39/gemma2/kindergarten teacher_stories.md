@@ -1,0 +1,5 @@
+The morning sun slanted through the windows of Ms. Amelia Willowbrook's brightly colored classroom, painting stripes across the carpet of interlocking foam squares. The air buzzed with pre-school energy - the excited squeals of children arriving, the rhythmic clinking of building blocks, and the occasional thump of a dropped toy.  Ms. Willowbrook, hair pulled back in a cheerful braid and a bright yellow cardigan stretched over her floral dress, surveyed the scene with a smile. 
+
+It was picture day, and the room thrummed with an extra layer of anticipation. Amelia loved picture day. It was a chance to capture those fleeting moments of innocence, the unbridled joy that radiated from these tiny humans as they donned their best smiles for the camera. But this year, something felt different. A prickle of unease ran down her spine. Perhaps it was the way the sunlight seemed to cast long, distorted shadows across the room, or maybe it was the heavy silence that descended between the bursts of laughter. Whatever it was, Amelia couldn't shake the feeling that something was just a little... off. 
+
+

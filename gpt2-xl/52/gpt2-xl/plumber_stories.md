@@ -1,0 +1,7 @@
+Once upon a time, there was a plumber named Harold, living in a house with three other guys and their wife. As time passes, Harold was moved to his fourth house, which was only half the size of the first three houses. It's hard to imagine that a large house can be a nice place to live, but because those houses were only half the size of the first three, most folks were shocked that even in Harold's four houses, the three original guys were still in their twenties.
+
+So one day, the five of them decided to split. However, there was a problem with that plan. Not only did the original guys want out of the house, there was also a third guy who wanted to live here.
+
+Why does it have to be one guy and not more people? Harold asked his friends and found that the guys wanted out because of all of the issues that came up in the house. The house had a number of problems, so there was already some talk of starting another house somewhere else in the area.
+
+The problem Harold and his friends had was that the current house had too much space and had no real space for the three original guys to live. Harold's friends couldn't have the problem of being in the house for half the year, though, so the three original guys decided to move in with them. However, Harold couldn't be bothered to move out himself, because he wasn't sure of how much of the original guys

@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named Dr. Fredric Steinberg.[2] His services were very expensive and not very convenient for most people. A large majority of patients preferred the care at a local doctor, especially when the doctor did not have any prior experience on the topic of chiropractic. Dr. Steinberg is noted for prescribing powerful drugs that were not as effective as the drugs already available and that had not been clinically tested. They were simply known as "adjusting agents" according to many of his patients.[3]
+
+At that time, his office was located in an unassuming building at 1485 Chestnut St. in Philadelphia. The building had no windows or doors and appeared to have been constructed by a construction company for the insurance industry, but this was soon discovered to be false, as there was no insurance company using the building.[4]
+
+Another of Dr. Steinberg's treatments involved a procedure commonly known as "piggy-backing."[5] It is essentially a variation of the back flip, where the chiropractor's arms are bent in such a way that he can twist the spine into and out of the desired position. In the back flip, the patient is pushed backwards while in the piggyback, the chiropractor's arms stay in the same position.
+
+The technique used on a piggyback is essentially the same as the one used when it is performed on a spine. When the spine in the

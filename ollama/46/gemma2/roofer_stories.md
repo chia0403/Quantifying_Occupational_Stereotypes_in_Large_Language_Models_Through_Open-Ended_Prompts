@@ -1,0 +1,6 @@
+The sun beat down on Elias Bartholomew Thistlewick's neck like a blacksmith's hammer, making the sweat trickle down his temple and sting his eyes. He wiped it away with the back of his hand, leaving a streak of grime across his already dusty face. Elias squinted through the haze, surveying the sprawling Victorian mansion before him. Its slate roof, once proud and imposing, now lay in patches, like a patchwork quilt hastily sewn together by an amateur. 
+
+Elias was perched precariously on the edge of the roof, his work boots dangling above the overgrown garden below. The air hummed with the drone of bees buzzing around a patch of lavender that stubbornly refused to be consumed by the encroaching ivy.  He took a deep breath, the scent of earth and decaying leaves filling his lungs. This wasn't his usual gig; he preferred the simple symmetry of modern houses, their clean lines and predictable angles. But this old mansion, with its sprawling turrets and gargoyles that seemed to leer at him from the eaves, held a certain allure. A challenge, perhaps. Or maybe just an escape from the mundane reality of fixing leaky roofs in cookie-cutter suburbs. 
+
+
+He shifted his weight, adjusting his toolbox strapped across his chest, and reached for the roll of roofing felt. This one was going to be a doozy.   

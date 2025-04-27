@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named Arthur Koestler. His book, The Quest for Meaning, was published in 1968, the same year, coincidentally, as the publication of The Unabomber Manifesto. And the book was a big hit. It sold 250,000 copies in the first year alone and has been on the New York Times bestseller list ever since. It won Koestler the National Book Award for Nonfiction in 1979, became the first book to ever appear on the cover of Time, and has been a huge bestseller ever since.
+
+What's unique about The Quest for Meaning is that it tells the story of an entire culture, from its earliest stages until it reached a critical mass. The book is a cultural masterpiece, and now more than ever it has never been more relevant.
+
+Kostner's book also covers the rise of the culture from its earliest days, covering the founding of the United States, establishing the first government-mandated education, and the introduction of industrialization and the mass production of goods in this period. It also covers, through the centuries we are discussing here, the expansion of the western world, its religious awakening, the birth of socialism, the American-European conflict, and the emergence of the culture that is currently known as modernity.
+
+The book is an incredible feat of historical research and it deserves every ounce of attention that exists. It's absolutely the perfect book to supplement your reading

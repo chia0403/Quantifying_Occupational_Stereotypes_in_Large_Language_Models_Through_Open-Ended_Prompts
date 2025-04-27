@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia Beatrice Finch's head like a swarm of angry bees, their buzzing a constant soundtrack to her monotonous shift at "Bargain Bites," a 24-hour discount grocery store on the edge of town. The air was thick with the smell of day-old donuts and desperation, the only customers those who stumbled in late at night seeking solace (or maybe just caffeine) amongst the aisles of clearance cereal and dented cans. Amelia swiped her nametag onto the register screen – a worn piece of plastic that had once proudly declared "Smile! You're at Bargain Bites!"  Now, it simply seemed to mock her with its faded cheerfulness. 
+
+The bell above the door jangled, momentarily breaking the silence. A figure shuffled in, backlit by the flickering neon sign outside. It was a man, his face obscured by a battered baseball cap pulled low over his brow. He approached the counter, his shoulders hunched and his gaze fixed on the floor. 
+
+
+This was Amelia's favorite part of her shift – the quiet moments between customers, where she could steal glances at the world outside through the dusty windows, imagining herself somewhere else, anywhere else. But this man’s presence felt different, heavier somehow. His silence seemed to vibrate in the stillness of the store, a prelude to something she couldn't quite decipher. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Tom O'Connell. In his free time, he had a hobby and, by his own self-admission, he used it primarily to take pictures of the old, broken-down, no longer in working order houses he passed passing through. When, on one occasion, you asked him for your photograph, he would not give you one, because he saw that you would, perhaps, also want to take his. This was his honest appraisal of the photography world of yore and of now. This is Tom O'Connell:
+
+"There have always been two types of people in the whole picture world — real photographers and studio ones. The real shots have always been the real ones. Studio photographs are the only kind worth anything to a photograph collector. But what a picture collection is worth to someone does not depend only upon the subject matter, the technique — the subjects and the techniques of making and manipulating photos — the way pictures are manipulated as well.
+
+"What does depends upon the collectors and purchasers of this and every other kind of artwork.
+
+"I will not ask anyone for his money up front, but I would like to ask the collector this question: I wonder if he actually has the 'gift — the secret of the picture — the secret of what makes a good picture for the art world?' The most precious thing a photograph collector has will always be his or her own time, or the time

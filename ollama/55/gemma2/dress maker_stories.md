@@ -1,0 +1,5 @@
+The scent of lavender and freshly ironed silk hung heavy in the air, mingling with the faint tang of cinnamon from the bakery next door. Sunlight streamed through the dusty windows of Eloise Amelia Beaumont's workshop, illuminating threads of gold dancing in the air motes. Outside, London bustled with the energy of a new century – horse-drawn carriages clattering over cobblestones, hawkers shouting their wares, and the ever-present rumble of industry rising from the factories beyond Whitechapel. 
+
+But within Eloise's haven, time seemed to move differently. Here, amidst spools of vibrant silk, stacks of velvet as deep as midnight, and a thousand pins piercing delicate patterns, the rhythm was one of quiet focus, each stitch a deliberate act, a whispered story woven into fabric.  Eloise, her fingers stained with ink from pattern sketches and dye, hummed a forgotten melody as she adjusted the bodice of a gown destined for the grand ball at Buckingham Palace. The weight of expectation hung heavy on her shoulders – this dress could make or break her reputation. 
+
+

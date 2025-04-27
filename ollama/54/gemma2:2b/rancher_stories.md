@@ -1,0 +1,6 @@
+The dust devils danced across the parched plains, swirling red and gold in the relentless sun.  They were almost as familiar to Jebediah "Jeb" Carter as his own calloused hands, yet even after thirty years of living on Dust Devil Ridge, they still held a particular, unnerving allure. The wind moaned through the skeletal remains of last season’s wheat field, carrying with it the acrid scent of desperation that hung heavy in the air like a shroud over Jeb's weathered face.
+
+Jeb was the sole guardian of his family's land: 4,000 acres of barren earth stretching towards the horizon.  He ranched on this unforgiving landscape, where every drop of rain seemed to vanish into the cracks of the parched earth and every gust of wind whispered tales of drought and hardship. His weathered face bore the map of a life lived on the edge of survival - lines etched deep from years spent under relentless sun, etched with worry, but also tempered by a stubborn resolve that ran deeper than the canyons of his home.  Jeb was everything he could be: tough, resilient, and driven to the core. 
+
+Tonight, however, even the familiar sting of disappointment couldn't compete with the gnawing unease in his gut. For three days now, he’d been searching for something – a lost calf, a whisper on the wind, a glimmer of hope. All that had been found was more dust and despair.  
+ 

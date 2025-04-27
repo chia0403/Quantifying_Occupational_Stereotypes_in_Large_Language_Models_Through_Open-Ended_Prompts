@@ -1,0 +1,2 @@
+Aweida
+Shokuni

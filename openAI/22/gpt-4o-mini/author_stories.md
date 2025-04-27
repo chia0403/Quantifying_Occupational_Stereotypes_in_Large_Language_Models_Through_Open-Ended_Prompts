@@ -1,0 +1,11 @@
+Title: **Whispers of the Forgotten**
+
+Setting: The story unfolds in the quaint coastal town of Eldridge Bay, where the relentless roar of the ocean meets the lush embrace of ancient forests. Nestled between jagged cliffs and misty shores, Eldridge Bay is a mosaic of weathered cottages, old bookstores, and charming cafés, each bearing the weight of countless untold stories. The air is thick with salt and nostalgia, and a pervasive fog often blankets the town, adding to its air of mystery. On the outskirts, a crumbling lighthouse stands sentinel, its beam slicing through the evening gloom like a forgotten promise.
+
+Opening:
+
+Mira Ellison leaned against the weathered railing of her balcony, the chill of the salty breeze nipping at her skin as she gazed out at the turbulent waves crashing against the rocks below. The rhythmic sound of the ocean had become her muse, inspiring countless novels steeped in intrigue and shadow. Yet tonight, as the sun dipped below the horizon and painted the sky in hues of crimson and indigo, Mira felt an unusual pang of restlessness. 
+
+A publicist once described her as a "chronic curator of the past," a title that both thrilled and terrified her. After all, her novels often wove together the threads of history, exploring how long-buried secrets could ripple through time. But in that moment, with the last light of day fading into twilight, Mira wondered if she was merely a vessel for the stories of others—she longed to uncover the narrative that had eluded her for so long.
+
+Returning inside her cozy cottage, filled with the comforting scent of musk and parchment, she settled at her worn oak desk, the surface cluttered with half-finished manuscripts and tattered books. The shadows danced around her, whispering tales of despair and hope, and deep down, she knew that tonight was the night she would confront the ghosts that lingered not only in her writing but also in her heart. With the soft scratch of her pen against the page, she began to shape an unwritten story—one that would not only redefine her as a writer but would also lead her to the truths hidden in the sands of time.

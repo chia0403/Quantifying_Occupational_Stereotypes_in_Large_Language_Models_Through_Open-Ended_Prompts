@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The antiseptic smell of the OR never failed to prickle the hairs inside Eleanor Riley's nose, a subtle reminder that she was, in fact, still alive. The same couldn't be said for everyone who ended up on this table. Eleanor adjusted the surgical mask biting into the bridge of her nose and glanced at the monitor, a chaotic jumble of beeps and squiggles that she translated in an instant. Blood pressure plummeting. Heart rate erratic. Not good. "Epinephrine, five milligrams," she barked, her voice surprisingly steady despite the knot of dread tightening in her stomach. Tonight wasn't just about another long shift at County General; it was about fighting against the odds, against the grim reaper hovering just beyond the sterile blue drapes. Tonight, it felt personal.
+
+**Setting:**
+
+The story is set primarily within **County General Hospital**, a sprawling, perpetually understaffed, and perpetually bustling public hospital located in the heart of **Detroit, Michigan**. The year is **2023**. The hospital, a gray, concrete behemoth built in the 1970s, hums with the constant thrum of fluorescent lights and the echo of hurried footsteps. Walls are painted in drab, institutional hues of beige and green, doing little to alleviate the stress that permeates the air. Outside, the grimy city streets are a tapestry of broken dreams and resilience, reflecting the diverse population that relies on County General for their care. Inside, the hospital is a microcosm of that same struggle, where lives are constantly being salvaged, lost, and everything in between. The specific scene is taking place in **Operating Room 4**, a sterile, brightly lit space filled with complex machinery, instruments glinting under the surgical lights, and the palpable tension of a life hanging in the balance.

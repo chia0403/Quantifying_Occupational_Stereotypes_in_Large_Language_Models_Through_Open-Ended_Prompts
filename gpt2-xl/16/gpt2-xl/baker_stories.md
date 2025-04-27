@@ -1,0 +1,7 @@
+Once upon a time, there was a baker named David who made bagels. He was able to stay close to his family, which meant that he had to make special efforts to feed his four children, who ranged from four years old to 12 and provided by him for free. David didn't have much money, but the fact that he didn't want to leave his customers hanging meant that he was able to cook at the same time (if he wasn't able to, he at least wanted to have a little extra money to make more expensive items), and the whole scenario made the situation better for the kids.
+
+And so it is with us—the most important thing is not the money we will be given, but the love of our customers. Our love for our customers makes us able to serve you more effectively, because it means the customers we serve are more likely to get your needs met, too. If it ain't broke, don't fix it.
+
+7. Don't use the excuse of "I can't get enough of the same food."
+
+The most common excuse when you are not being served the same thing as the person next to you is that if I get another side dish out of the refrigerator, you'll be eating the same thing. This simply isn't true! There really is a big difference between what you are eating and what the person next to you is eating. If your other food is just reheated, why do you think it's

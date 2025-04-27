@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named John Wayne Gacy, and a few years ago he escaped this cruel existence by committing unthinkable atrocities -- his murderous acts are the stuff of nightmares... that, and he is still smiling. Not that I am aware of. But now, in these dark days and a few more to come, the people of Chicago are faced with a terrifying scenario: Can John Wayne Gacy walk free again?
+
+Gacy is the poster boy for serial killing: a child molester and killer he himself claimed to have been sexually abused as a child. The details of his depraved life are gruesome, but for a killer it doesn't seem that bad. The guy is an ex-con, convicted of killing more than 30 boys. He was also very creative: he carved his initials into his victims' cheeks while they were still alive. The only way to stop Gacy, who is still believed to be on the run, was to bring him back: to execute him like an animal.
+
+The only problem is, John Wayne didn't do very much of that. He did, however, die of AIDS.
+
+This was the case in late February; and this week, in a few short hours, three victims were found in a home next to where the crime had taken place. All of them had been tortured before being murdered... and their suffering did not end there. The police and reporters are trying to find out whether there will

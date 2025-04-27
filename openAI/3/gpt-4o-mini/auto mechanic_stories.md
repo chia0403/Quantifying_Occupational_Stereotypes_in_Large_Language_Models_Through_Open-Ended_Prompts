@@ -1,0 +1,11 @@
+**Title: Iron Hearts**
+
+**Setting:** The small town of Crestwood, bordered by dense pine forests and distant rolling hills, is a place where everyone knows each other's names. The air is thick with the scent of pine and gasoline, where the sun sets in a riot of orange and purple hues over the one-stoplight intersection that serves as the heart of the community. Among the worn storefronts and cozy homes, there stands a humble garage, its windows streaked with grease and its doors emblazoned with the faded emblem of a racing phoenix.
+
+**Opening:**
+
+Lucas Timothy Harris wiped the sweat from his brow with the back of his grease-stained hand, regarding the vintage Mustang sprawled across the open bay like a patient waiting for a diagnosis. It was a Sunday afternoon, and while most of Crestwood was nestled in the comfort of their homes, Lucas found solace amidst the familiar clatter of tools and the soothing hum of the hydraulic lift. He always believed that working alone in the garage was like piecing together a grand puzzle; every nut and bolt had its place, just as every soul in Crestwood had their story.
+
+Today, however, the Mustang wasn’t just another project; it belonged to an old friend, a relic of their shared youth when dreams were vivid and the roads seemed endless. He could still picture the summer days cruising down those winding highways, the wind whipping through their hair while cherry-red sunsets blurred the lines between aspiration and reality. Now, as he examined the faded paint and rusted fenders, Lucas couldn’t shake the feeling that the old car—and the memories it held—was about to lead him down a road he hadn’t expected to travel.
+
+As he leaned over the engine, the sound of the garage door creaking open pulled him from his reverie. Turning, he saw a figure appear in the doorway, framed by the golden light of the setting sun. With tools in hand and worry etched across his brow, Lucas knew that whatever happened next would change the course of his quiet life forever.

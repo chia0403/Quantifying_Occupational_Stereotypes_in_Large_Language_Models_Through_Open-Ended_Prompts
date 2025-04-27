@@ -1,0 +1,9 @@
+In the heart of the bustling city of Metrosburgh, where the skyline pierced the heavens with gleaming towers of glass and steel, there nestled a building that seemed to whisper stories of yore through its brick-and-mortar façade. The Sentinel, an aged yet revered newspaper office, stood resilient against the modern urban landscape, its charm reminiscent of a bygone era.
+
+Within The Sentinel, as the city stirred to life under the hazy hue of dawn, a soft hum emanated from the labyrinth of hallways and cubicles. It was here, in the hushed, predawn hours, that Harold Montgomery flicked on his flashlight and pushed his trusty broom along the well-trodden corridors with quiet resolution. 
+
+Harold, known to many simply as "Monty," was a janitor of distinction, a man whose life was woven into the very fabric of the building. His peppered hair hinted at years of wisdom, and his patient, deliberate movements conveyed a deep respect for his task. Though his eyes were gentle and often appeared lost in reverie, they bore witness to countless stories, secrets, and whispered confidences shared between these storied walls.
+
+The Sentinel, despite its prestige, had its share of hidden quirks and mysteries. Monty had discovered many of these over his thirty-five years of service, from forgotten letters tucked behind radiator grates to mysterious footprints leaving their mark on dusty floors late at night. And yet, this particular morning felt different, as if the building itself was on the brink of unveiling a new secret.
+
+Monty halted by the sprawling mural in the atrium—a depiction of Metrosburgh's rise from a trading post to an urban titan—letting his eyes trace the brushstrokes, each saturated with history. He couldn't shake the feeling that today held something unexpected in its grasp, lurking just beyond the reach of his flashlight beam.

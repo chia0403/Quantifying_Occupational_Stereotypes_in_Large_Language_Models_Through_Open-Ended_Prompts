@@ -1,0 +1,6 @@
+The humid Manila air clung to Eloisa “Lola” Reyes like a second skin, heavy with the scent of exhaust fumes and blooming sampaguitas. Her worn leather sandals slapped against the cracked pavement as she navigated the bustling streets, dodging stray dogs and overloaded tricycles. A sea of faces flowed past her – weary vendors hawking their wares, office workers clutching steaming cups of coffee, children chasing each other with laughter. 
+
+Lola stopped at a small eatery, its walls adorned with faded posters of boxing legends and local beauty queens. She slid onto a plastic stool, the worn surface cool beneath her fingertips. "Usual?" the owner, Tita Josie, asked without looking up from a pile of mangoes she was slicing. Lola nodded, grateful for the familiar comfort in the chaos. 
+
+
+The scent of adobo simmering on a stove filled the air, a comforting aroma that promised solace after another long day chasing leads and uncovering stories hidden within Manila's vibrant tapestry. But today, Lola felt a different kind of unease, a knot twisting in her stomach that had nothing to do with the familiar heat. This was a story she hadn't anticipated, one that threatened to pull her into the dark underbelly of the city, a place where truth could be as fleeting as the mango-scented haze hanging over Manila.

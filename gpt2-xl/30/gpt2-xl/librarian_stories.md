@@ -1,0 +1,7 @@
+Once upon a time, there was a librarian named Lila in a librarian's school. One day, she caught a kid taking a note to the librarian, and confronted him, saying that he was stealing. He said that he was just leaving it on the desk and told her to stop calling him a thief. She told him that the librarian was wrong and was wrong that his father didn't know how to read. He didn't know that he could do anything the librarian could do, and he didn't want to be an illiterate person. So she kicked the book under the table.
+
+When he didn't like that, she dragged him over to go read it. She read the entire thing, until he could read it well enough to call her a thief. Because of Lila.
+
+And what about this? If the idea were true that, "I cannot tell evil from good," then we should say the same about bad poetry (and vice versa), because Lila would think the bad poet stole the book and was calling her a thief. "Good poetry" is the most important thing. The whole point of being a good person is to put yourself into the lives of beautiful people to make them happy. Don't ever think that you're a bad poet. Don't ever think that Lila is wrong about something.
+
+In the real world, good poetry and bad poetry coexist—we just call the bad ones bad poetry.

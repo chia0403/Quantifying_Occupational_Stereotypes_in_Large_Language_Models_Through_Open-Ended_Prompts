@@ -1,0 +1,6 @@
+The bell above the door jingled its tired tune as Amelia Beatrice Hawthorne swept up stray strands of auburn and silver, her movements practiced and graceful. The air in "Amelia's Ambitions" was thick with the scent of rosemary shampoo and faintly sweet lavender oil, a comforting aroma that permeated every corner of her little shop nestled on Mulberry Street. Sunlight streamed through the dusty windowpanes, illuminating the rows of colourful hair clips and shimmering combs lining the shelves, casting long shadows across the worn wooden floorboards. 
+
+Amelia, a woman with eyes as warm and inviting as freshly baked bread and hair streaked with silver like moonlight on snow, paused in her sweeping. Her gaze fell upon the reflection in the polished mirror behind the counter. She was a woman of contrasts – weathered hands that expertly wielded scissors amidst youthful eyes that sparkled with a passion for her craft.  A lifetime spent weaving magic into unruly tresses had etched lines around her mouth and eyes, but they were the lines of laughter and contentment, not regret. 
+
+
+Today, however, Amelia felt a prickle of anticipation. A new client was about to walk through her door, someone whose story she longed to unravel, strand by strand.  

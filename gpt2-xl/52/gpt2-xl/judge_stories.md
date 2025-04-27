@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named Roger Federer. And, for whatever reason, Roger didn't have an office. His clothes hung off the back of his black van. He had a tennis rack in the back, which is the way you keep the back end of a tennis player's rack clean.
+
+Roger Federer was a good man. He did a lot of things right. He made a lot of money. He supported a lot of good causes. His charity work was extraordinary.
+
+In his heyday, Roger Federer was one of the greatest tennis players in the world. When Federer wasn't trying to win games, he was playing charity matches to help other kids, to raise money for organizations like Children's Miracle Network Hospitals, to help the little leaguers at his beloved New York tennis club. And, to make some extra cash, he played in a lot of exhibition tournaments, which is what the sport's governing bodies do, to generate extra revenue.
+
+In 2011, the last time Federer played in the US Open (and, to be fair, his last ever Grand Slam tournament), in fact the last time he played in the majors, he won $23 million. But he wouldn't be able to play for that sum—at all—if the money were to be redistributed to the other players on the tour who would be sharing in the revenue. That's not the case, of course. The tour is owned

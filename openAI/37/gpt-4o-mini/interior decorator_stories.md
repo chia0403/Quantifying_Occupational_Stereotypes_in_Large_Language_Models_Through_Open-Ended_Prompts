@@ -1,0 +1,7 @@
+**Setting: A Quaint Coastal Town Named Windward Bay**
+
+The salty breeze from the ocean whispered through the narrow streets of Windward Bay, a picturesque coastal town where pastel-colored cottages lined cobblestone walkways. The sun dipped low on the horizon, painting the sky in hues of pink and orange, while the sound of seagulls echoed softly overhead. Beneath a weathered awning outside "Seaside Whimsy," a charming boutique filled with artisanal trinkets and coastal décor, stood a woman with a determined glint in her eye.
+
+Isabelle Marie Thornton adjusted the oversized tote on her shoulder, glancing down at her sketchpad filled with ideas for her next interior design project. With her auburn curls spilling down her shoulders and an effortless sense of style, she was known around town not just for her keen eye for aesthetics but for transforming ordinary spaces into enchanting retreats. Isabelle had a talent for breathing life into the mundane—every room she touched seemed to exude warmth and personality.
+
+Today, her heart raced with a mixture of excitement and nerves as she headed to her latest assignment—a historic lighthouse that had stood sentinel over Windward Bay for over a century, now in need of a complete makeover. Isabelle had always been drawn to the stories hidden within walls, and this lighthouse promised a tale of its own. As she approached the weather-beaten structure, the scent of the ocean mingling with fresh paint filled her lungs, and she couldn't help but smile. The adventure was just beginning.

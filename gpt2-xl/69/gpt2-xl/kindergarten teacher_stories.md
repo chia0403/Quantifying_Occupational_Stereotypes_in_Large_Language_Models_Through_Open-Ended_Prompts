@@ -1,0 +1,7 @@
+Once upon a time, there was a kindergarten teacher named Mrs. O. She taught her kindergarten class in the basement of a building on the outskirts of town. Mrs. O didn't know much about the students. She just had the feeling that some children wouldn't get along very well with others of their group of class. One of the students in the class was a young boy named Jack. Mr. O, who was a man, noticed the same thing. Jack didn't seem to get along well at all with their other classmate in the class, Mr. O's child; that boy also happened to be a girl. After a few days of trying to teach Jack about some very basic knowledge that he was required to memorize in order to pass his end-of-the-year exam, they discovered that Jack only had the courage to learn things at the last minute.
+
+One day Jack had come home very hungry. Mrs. O ran to the refrigerator and opened it, hoping to see Jack's stomach turn over. She was surprised to see Mr. O's stomach, instead.
+
+"Jack, you've got to help Mrs. O. We don't have a lot of time. I can't explain it, but you're doing some really, really bad things. Don't you realize what you're doing?"
+
+Jack took that in like he'd been told never to do, as he walked down the hallway, carrying a tray of food for the young

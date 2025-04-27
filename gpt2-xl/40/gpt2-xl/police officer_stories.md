@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named Officer J.B., who was a man of good morals, but with a strong streak of irresponsibility. Once, he was working a difficult job, and as a result of his recklessness, a fellow officer, officer F., was killed, and the officer's son, officer G., was injured.
+
+As this story goes, Officer J.B. became very upset, and on top of being deeply upset, he was a little drunk. He went to his superior officer, and spoke a few choice words that put him on the wrong side of the law. The superiors then disciplined him for being a drunk and a bad officer, and fired him with two weeks' pay as punishment. Officer J.B. then sued the county for discrimination. He won the case.
+
+In the meantime, the county had tried to hire someone with lots of experience who was the family's candidate for the job. One of the other men on that side of the board was a man named Officer K. He turned the job over to Officer B.
+
+After a few days, when he and Officer J.B. were sitting in the bar, and Officer B., in an aggressive fashion, put his free hand around J.B.'s throat to hold him down, and Officer J.B. realized that he was bleeding, he tried to resist, but the two men held him down and he told them to let

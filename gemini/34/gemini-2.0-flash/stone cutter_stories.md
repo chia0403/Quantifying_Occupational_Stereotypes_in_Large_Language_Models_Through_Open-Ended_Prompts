@@ -1,0 +1,7 @@
+## Story Opening:
+
+The rasp of steel against granite, a sound as familiar to Arthur Penhaligon as his own heartbeat, echoed across the windswept moor. He squinted, the late afternoon sun glinting off the dust motes dancing in the air around him. Another blow, another shower of stone chips, another millimeter clawed from the stubborn face of the monolith. Arthur was chasing the curve now, coaxing it from the heart of the rock like a sculptor breathing life into clay, but this was harder, colder, more unforgiving. This was death itself he was trying to capture.
+
+## Setting:
+
+The year is 1888. Arthur works in the desolate beauty of Bodmin Moor, in Cornwall, England. His workshop, more a crude lean-to than a proper building, clings to the edge of a granite outcrop. The moor itself is a patchwork of heather, gorse, and peat bogs, crisscrossed by ancient stone walls and the crumbling remains of tin mines. The air is thick with the scent of salt and damp earth, and the only sounds, besides the rhythmic clang of Arthur’s hammer, are the cries of circling buzzards and the mournful whisper of the wind through the sparse vegetation. In the distance, the skeletal outline of a ruined church stands against the horizon, a silent testament to the harsh realities of life and death on the moor. It's a place where the past feels ever-present, woven into the very fabric of the landscape, and where the stones themselves seem to hold secrets whispered on the wind.

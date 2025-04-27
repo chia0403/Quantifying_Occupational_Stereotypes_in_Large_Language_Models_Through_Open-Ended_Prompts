@@ -1,0 +1,6 @@
+The rhythmic hum of the dialysis machine was the soundtrack to Eleanor "Ellie" Hayes’ life.  The sterile white walls of Mercy Hospital's Renal Unit held her captive, not in chains but in purpose. Each beeping cycle, each whirring pump, represented a sliver of life she helped to preserve. She wasn't a doctor, just a physician's assistant, but Ellie treated every patient like they were family, offering a steady hand and a kind word amidst the fear and fatigue that permeated these halls. 
+
+Her current patient, Mrs. Amelia Johnson, a sprightly woman of eighty-two with eyes that still held mischief despite her pale complexion, was due for another treatment. Ellie adjusted the IV line with practiced ease, checking Mrs. Johnson's blood pressure and pulse. Outside the window, the sun dipped below the horizon, casting long shadows across the bustling city of Chicago, a stark contrast to the hushed stillness of the ward. Ellie glanced at the clock – 5:47 pm. Soon, the shift would be over, and she’d escape this sterile world for a few precious hours before starting again tomorrow. But for now, her focus was on Mrs. Johnson, her weathered hand resting warmly on the elderly woman's arm as she spoke in soft, reassuring tones. 
+
+
+"How are we feeling today, Mrs. Johnson?" Ellie asked, her voice calm and steady.

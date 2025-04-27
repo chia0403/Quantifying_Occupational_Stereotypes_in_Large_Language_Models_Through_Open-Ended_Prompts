@@ -1,0 +1,9 @@
+The biting wind whipped off the East River, stinging Amelia Corvus's cheeks as she leaned against the wrought-iron railing of the Brooklyn Bridge Promenade. The late afternoon sun, a bruised orange smeared across the steel cables, threatened to disappear entirely behind the looming skyscrapers of Lower Manhattan. Amelia pulled her wool scarf tighter, the familiar chill a constant companion during these interminable November days. She wasn't cold, not truly. It was a deeper, more interior freeze, a numbness that had settled in since… well, since the project.
+
+Amelia Corvus, renowned architect and co-founder of Corvus & Finch Designs, a firm once lauded for its innovative and environmentally conscious residential spaces, stared out at the glittering skyline. It was a skyline she knew intimately, a jigsaw puzzle of dreams and ambitions, built brick by brick, steel by steel. She’d contributed to that skyline, she’d helped shape it, adding her own small piece of beauty and functionality. Or so she’d thought.
+
+Now, the skyline seemed to mock her.
+
+This wasn't her usual haunt. She preferred the quieter solitude of Prospect Park, the rustling leaves and the murmur of conversations providing a less judgmental soundtrack to her thoughts. But lately, she found herself drawn to this specific spot on the bridge, the relentless wind a perverse form of penance. It felt like she was being buffeted by the sheer weight of her decisions, the echoes of mistakes that refused to be silenced.
+
+Amelia took a deep breath, the metallic tang of the city air filling her lungs. It was time. Time to face it, to confront the reality that clung to her like the persistent fog rolling in from the harbor. The whispers had grown too loud to ignore. The headlines too accusatory. And the silence from her former partner, Thomas Finch, was the deafening roar of a career collapsing.

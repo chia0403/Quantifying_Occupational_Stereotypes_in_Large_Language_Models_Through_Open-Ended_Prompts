@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun was setting over the small town of Willow Creek, casting a warm orange glow over the quaint streets and neatly manicured lawns. It was a sight that Julian Ryder had grown to love as a child, watching his father tend to their family's landscaping business from the kitchen window. Now, at 32 years old, Julian was determined to make a name for himself in the industry, just like his dad before him.
+
+As he loaded up his truck with an array of gardening tools and equipment, Julian couldn't help but feel a sense of pride and ownership. Ryder's Roots, his own landscaping business, had been up and running for six months now, and despite the long hours and early mornings, it was starting to take off. He had just landed a big contract with the local park district, and was scheduled to start work on a new project tomorrow.
+
+As he finished securing the last of his equipment, Julian's phone rang, shrill in the quiet evening air. He glanced at the screen, expecting it to be one of his regular clients or maybe even a potential new business lead. But instead, he saw an unfamiliar number and a message that made his heart skip a beat: "Meet me at the old oak tree on Elm Street at midnight. Come alone."

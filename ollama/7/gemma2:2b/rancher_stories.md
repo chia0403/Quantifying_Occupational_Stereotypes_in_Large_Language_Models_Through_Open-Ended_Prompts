@@ -1,0 +1,7 @@
+The sun bled crimson across the vast Montana plains, painting the sky in hues that mirrored the firestorm brewing inside Jebediah "Jeb" Tucker's gut. His hands were raw from endless days of mending fences and tending to his cattle, the calloused skin a testament to years spent on this land.  He stood at the edge of the Johnson Ranch, a sprawling spread that seemed to stretch forever under the unforgiving gaze of the setting sun. Jeb ran the ranch with the stoicism of a weathered oak, its roots deep in the soil of his life.
+
+But even oaks grow weary. 
+
+A chill wind cut through the air, carrying the scent of pine and woodsmoke from the distant foothills. It wasn't just the encroaching winter; something else lingered on the breeze, an unsettling sense of wrongness that had followed Jeb since Mrs. Johnson, his lifelong companion and confidante, passed a fortnight ago.  He ran a hand through his thinning hair, a stark white streak against the rugged backdrop of his weathered face. The land, once a source of immense comfort, now felt more like a cage, each fence post echoing the silence that had swallowed her laughter, her wisdom, her gentle touch.
+
+Jeb knew what he had to do. He would ride south, find solace in the familiar rhythm of his life, and try to navigate this sea of grief with the same stoicism that had served him well for decades. But a nagging unease clung to him like dust after a storm. 

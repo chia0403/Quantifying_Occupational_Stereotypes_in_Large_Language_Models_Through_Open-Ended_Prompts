@@ -1,0 +1,7 @@
+Once upon a time, there was a singer named Jennifer Lopez, I'm pretty sure. She made her début in 2010 with a song called "The Way That You Move," and went on to find huge success in 2010 and 2011. That was all that was required to break the Internet when her debut album, Jennifer Lopez: The Movie, dropped. Since then, she's released eight songs with the title Jennifer Lopez (with just one more being slated to be released before the end of the year), with the most recent, "Happy," featuring Justin Bieber, getting a ton of airplay.
+
+Lopez is, of course, famous for singing in a style that's almost entirely original and original things tend to be pretty popular, making it a very unlikely candidate to make it into the Billboard Hot 100. However, the singer's recent success with "The Way That You Move" has forced the Billboard charts to stop counting the artist's songs, making her hit on the charts a true fluke.
+
+In order to keep the chart valid for the Billboard Hot 100, one has to earn the number, which she did this past weekend. That's what means she's not just getting off the hook a few more times over thanks to the hit "Let's Get It Started." After making Jennifer Lopez: The Movie last year, the release of Jennifer Lopez: The Movie & Jennifer Lopez, 2 Songs, hits the chart in 2013.
+
+There hasn't been an artist with

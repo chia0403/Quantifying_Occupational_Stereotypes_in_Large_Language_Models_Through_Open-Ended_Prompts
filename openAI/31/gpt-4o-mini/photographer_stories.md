@@ -1,0 +1,13 @@
+Title: **Whispers of the Past**
+
+Setting: A rugged coastal town called Ravenswood, known for its steep cliffs, ancient ruins, and the haunting calls of seabirds that echo through the salty air. The town holds a tapestry of stories woven into its cobblestone streets and weather-beaten cottages, some dating back to the early 1800s. It’s a place where the wind carries secrets and the ocean’s waves whisper tales of love, loss, and redemption. A lighthouse stands sentinel at the edge of the cliffs, its beam cutting through the fog that often envelops the coastline, guiding not only ships but also weary souls seeking their own way home.
+
+Story Opening:
+
+Amidst the roar of the ocean and the sharp tang of brine, Lysandra Jane Morgan stood at the edge of the cliff, her camera poised like a magician’s wand. The late afternoon sun painted the sky in hues of orange and gold, casting a warm glow over the craggy rocks below. A pot of wildflowers danced in the gentle breeze, their vibrant colors a stark contrast to the monochrome landscape of stone and sea. This was her favorite time of day, when the world seemed to hold its breath, and the light wrapped everything in a tender embrace.
+
+Nestled in her well-worn leather bag was a collection of lenses, filters, and memories—fragments of life captured through her lens. Each click of the shutter told a story, but today, Lysandra felt an unfamiliar tug of anticipation. She had always been drawn to Ravenswood for its beauty and mystery, but lately, she sensed the town was hiding something, like a flickering shadow just out of sight.
+
+As a photographer, Lysandra had a unique ability to see beyond the surface, to capture the essence of her subjects in a way that breathed life into her stills. But it wasn’t just the landscape that compelled her; it was the stories untold, the ghosts whispering from the cracked walls of the abandoned buildings, and the old sea captain who frequented the local café, each wrinkle and scar telling tales of adventure and heartache.
+
+Lysandra's heart raced as she recalled her last encounter with the captain—the way he’d gestured toward the ocean, his eyes shimmering with memories long faded. He had said, "This place has a heartbeat, my dear. Listen closely, and you may find it has something to share." Now, standing on that misty cliff, with the wind tousling her hair and the waves crashing below, she couldn’t shake the feeling that today was the day she would finally uncover the town’s secrets. With a steadying breath, she adjusted her lens, ready to capture not just the beauty of Ravenswood, but its soul.

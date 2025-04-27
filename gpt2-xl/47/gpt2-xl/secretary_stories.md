@@ -1,0 +1,7 @@
+Once upon a time, there was a secretary named Bill Clinton who wrote a book called "My Life: My Own Story" in 1995. The gist of the book: Bill Clinton wasn't really a president. He was a political hack who sold himself as the "greatest president ever."
+
+The book is a classic example of how a book like this could cause a controversy. It was the book that first got me aware of the infamous "vast right-wing conspiracy" theory that President Obama was a Muslim who was hiding something about his place of birth. I had no idea that the book would spread so violently and negatively, but hey, it worked for me
+
+Now, with the release of the book "He's Not There," a story about Clinton's presidency is making the rounds on other right-wing websites which was initially debunked by FactCheck.org — a Pulitzer Prize award-winning web site focused on journalism and politics. FactCheck.org reported on what they called an "urban myth," a fantasy, a lie — an urban myth from a man who says he's the last person in the world who should have heard of Clinton, from a man who is willing to tell it to the world in front of millions of people. The Urban Legends Reference Library explains what the urban legend is:
+
+A false rumor started about President Clinton. Supposedly, it turned out, he didn't leave the White House that day wearing a blue checked shirt in December of

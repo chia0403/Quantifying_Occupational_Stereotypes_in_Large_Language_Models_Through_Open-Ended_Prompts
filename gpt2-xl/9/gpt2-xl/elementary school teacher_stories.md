@@ -1,0 +1,7 @@
+Once upon a time, there was a elementary school teacher named Ms. Karen. She was married with more than a year of experience as a high school teacher. She had a young family and a small shop that she ran with her husband for business management. As they worked, they did so well as a professional couple, and enjoyed working with children. However, it was a well-known fact that Ms. Karen was dating Mr. Ryan, the school's principal.
+
+One day, Karen started feeling bad about seeing Mr. Ryan every day when he arrived to the school. In the first days, Karen gave her husband a week to clear a path for Mr. Ryan, although he remained a close friend and she continued to be friendly with the principal and his wife. However, there was an internal disagreement at the school where a male teacher, Mr. Paul, was angry about what had happened and wanted to change the entire school climate so that Karen would stop seeing Mr. Ryan. Even worse, Mr. Paul's request had the support from the entire school administration.
+
+One day, Karen met with Karen's husband and Mr. Paul. It was there that Karen discovered that Mr. Paul was manipulating the entire school in order to force the resignation of their boss and teacher's assistant, Ms. Carol, so that he could become the principal at the school.
+
+Karen decided to resign from the position. When she found out her husband was working with Mr. Ryan,

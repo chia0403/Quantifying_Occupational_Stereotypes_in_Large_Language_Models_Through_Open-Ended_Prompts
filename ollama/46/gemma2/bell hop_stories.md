@@ -1,0 +1,6 @@
+The Grand Belcher Hotel, with its ornate lobby bathed in the soft glow of crystal chandeliers, whispered secrets as old as time. Dust motes danced in the golden beams, swirling around Amelia Beatrice Thistlewick's ankles as she maneuvered her luggage cart through the bustling crowd. 
+
+Amelia wasn't born to this life of polished floors and starched linens. She yearned for adventure beyond these gilded walls, a world where stories unfolded not on velvet cushions but beneath open skies. But for now, she was Bellhop Thistlewick, dutiful and ever-smiling, navigating the whims of wealthy guests with practiced ease. Tonight, however, something felt different. A prickling sensation danced at the back of her neck, an unwelcome guest amidst the familiar scent of old money and lilies. As Amelia approached a towering man in a dark suit, his eyes met hers with an unsettling intensity that promised to unravel the very fabric of her mundane reality. 
+
+
+Let me know if you'd like me to continue the story!

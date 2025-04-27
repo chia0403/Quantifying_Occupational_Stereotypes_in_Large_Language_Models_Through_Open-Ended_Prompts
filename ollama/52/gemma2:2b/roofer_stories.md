@@ -1,0 +1,5 @@
+The wind whipped at Ethan "Hawk" Hayes's worn leather jacket as he scaled the chimney.  Rain lashed down in sheets, turning the soot-stained bricks into slippery paths. The old Victorian on Maple Street was notoriously stubborn, refusing to relinquish its secrets until Hawk had wrestled with its gnarled rooflines for an entire day. 
+
+Ethan crouched, squinting at the frayed shingles, his calloused hands expertly maneuvering a pry bar. He was used to working alone, preferring the rhythmic clang of tools to the babble of other workers.  The solitude felt like a familiar embrace – one that held memories of lost loves and quiet triumphs. Tonight, though, the air felt different, pregnant with an unseen weight. A low groan resonated from the attic above him, followed by the creak of floorboards. 
+
+He glanced up at the clock on his weathered belt buckle - midnight.  The moon hung like a pale eye in the sky, casting long shadows across the rain-slicked street. A shiver ran down his spine. Something was off, unsettlingly so. He tightened his grip on the pry bar, steeling himself for the night's unexpected challenge. 

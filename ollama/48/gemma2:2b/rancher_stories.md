@@ -1,0 +1,5 @@
+Dust devils danced across the cracked earth, painting fiery streaks against the vast, eternally blue expanse of the Arizona sky.  The air hung heavy, thick with the heat that clung to everything like a second skin – even the wind itself seemed sluggish, as if the day's relentless sun was forcing every molecule in it to stand still.
+
+It all belonged to Jedediah "Jeb" Miller, son and heir of this land. Jeb wasn’t young – his weathered face bore the map of countless sunsets and a lifetime spent under the unforgiving gaze of the desert. His calloused hands had tamed both the land and the stubborn cattle that grazed on it with a fierceness born from years spent alongside them.  But today, even his usual quiet strength seemed to crackle beneath the oppressive heat. 
+
+Jeb walked slowly towards the barn, each step measured and heavy. A hawk circled overhead, its keen eyes reflecting the harsh sunlight as Jeb's gaze followed it. He knew, somehow, that this was a day when fate would play its hand, and he wasn't sure what to expect. But one thing was certain: change was coming, like the inevitable shift in wind from west to east.

@@ -1,0 +1,7 @@
+The sun had just begun to set on the vast expanse of the Red Rock Canyon, casting a warm orange glow over the rugged terrain as the sound of diesel engines roared in the distance. In a small clearing surrounded by towering rock formations, Ryder Jameson, a seasoned heavy equipment operator with over a decade of experience under his belt, sat perched atop the cab of his trusty Caterpillar 609F hydraulic excavator. The wind whipped through his dark brown hair as he gazed out at the seemingly endless expanse of desert landscape, his eyes scanning the horizon for any sign of the day's task.
+
+Ryder had spent years working on some of the toughest construction projects in the region, earning a reputation among his peers as one of the most skilled and reliable heavy equipment operators in the business. But tonight was different - tonight, Ryder had received an unusual call from an old friend, requesting his services for a mysterious excavation job deep within the canyon.
+
+As Ryder's thoughts turned to the impending project, the phone on his dashboard crackled to life, shrill tones piercing the air as he answered the call. "Hey, Ry," a gravelly voice spoke on the other end, sending a shiver down Ryder's spine. It was old man Jenkins, a fellow excavator operator and friend who had gone missing six months prior under mysterious circumstances.
+
+"Ryder, I need your help," Jenkins said, his voice laced with urgency. "I'm in trouble, buddy - big trouble. Meet me at the old quarry on the canyon rim at midnight. Come alone."

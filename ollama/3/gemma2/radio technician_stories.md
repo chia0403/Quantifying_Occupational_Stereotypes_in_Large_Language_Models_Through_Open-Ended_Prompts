@@ -1,0 +1,5 @@
+The static hissed through Alistair Finchley's headset, a familiar symphony accompanying his solitude. Outside the cramped confines of the comms shack at Cape Canaveral, Florida, 1968 buzzed with controlled chaos – a whirlwind of technicians scurrying about, engineers barking orders, and the ever-present low rumble of rockets being prepped for launch. But inside, Alistair’s world was narrowed down to the dials and wires before him, a universe of circuits and frequencies that responded to his touch.  
+
+He tightened a bolt on the receiver, the metal cold beneath his calloused fingers. The rhythmic click echoed in the silence of the shack, punctuated only by the occasional crackle from the transmitter. He had hours to kill before the next test run – another chance to ensure the voice of NASA’s Apollo program was clear, strong, and unwavering as it spoke across the vast emptiness of space. It was a weighty responsibility, one Alistair carried with quiet focus.  The fate of astronauts, and perhaps even humanity's future, rested on his ability to keep the lines open. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named Mike Leigh whose films had a lot more to do with his native England than the rest of British cinema does on this side of the Channel. Leigh is the great storyteller but he's far from the best filmmaker. Still, the films he has made are really good, and they're mostly about people, and mostly about working, and Leigh has always had a lot of respect for other people and their work.
+
+This year, he has made two films in which he is a protagonist, and two films that are much more about his own work than his own life. The former, which won the Bafta a year ago, is The Act of Killing, about the Indonesian executions of members of a political faction. The latter, a recent American feature called The Double Life of Veronique, is about an actress named Edie Falco, and her two years spent helping a fugitive Algerian get caught. But there's one other Mike Leigh movie you probably haven't heard of:
+
+"A couple of years back," says Leigh, "I was invited to attend a press screening for Quentin Tarantino's Inglourious Basterds. I couldn't have been more unimpressed."
+
+This isn't exactly surprising, given that Tarantino doesn't think much of a lot of actors. The director has said that when he's playing him, he feels a "complete lack of empathy for it" –

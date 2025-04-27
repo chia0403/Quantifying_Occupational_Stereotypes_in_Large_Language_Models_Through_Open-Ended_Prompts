@@ -1,0 +1,7 @@
+Dr. Amelia Rivera sat in her sun-drenched office, the warmth of the morning light filtering through the large windows that overlooked the bustling streets of downtown Portland. Her office, a sanctuary of calm in the midst of urban chaos, was filled with the soothing scent of lavender and the quiet rustle of leaves from the potted plants that thrived in every corner. Bookshelves lined the walls, filled with volumes on human behavior, trauma, and healing, interspersed with personal mementos from her travels and small gifts from grateful patients.
+
+The room was thoughtfully arranged to provide a sense of safety and openness to those who entered. Two comfortable armchairs faced each other, separated by a modest wooden table holding a box of tissues and a softly glowing Himalayan salt lamp. Her desk, a carefully organized chaos of papers and files, was tucked away in the corner, intentionally unobtrusive during her sessions.
+
+Amelia, with her warm smile and perceptive eyes, had built a reputation as a compassionate and insightful psychologist, specializing in trauma therapy. Her clients sought her expertise in the hope of emerging from their darkest moments, much like the golden light emerging from behind the gray clouds that often blanketed the city.
+
+As she prepared for the day, reviewing her schedule and familiarizing herself with her patients' notes, she couldn't shake a feeling that today would bring something unexpected—something that might challenge her as much as it might change the life of whomever walked through her door.

@@ -1,0 +1,5 @@
+Rain lashed against the worn awning of "Mr. Mac's Repairs," turning the street into a chaotic ribbon of grey and black.  Inside, a man named **Arthur Finchley**, his weathered face illuminated by the flickering light from a vintage toolbox, was wrestling with a stubborn wiring harness. 
+
+He hummed a melancholic tune as he tightened screws, the rhythmic clinking sound almost drowning out the roar of the storm outside. Arthur had been working on this repair for hours - a faulty electric motor in a local bakery's ventilation system.  The air hung heavy with the scent of flour and old grease, an aroma that reminded him of his father, a master electrician who had taught him everything he knew about the intricate dance of electricity. 
+
+He ran his calloused fingers over a chipped metal plate on the toolbox.  "Dad," he whispered to himself, "I still haven't figured out the right way to use these damn spark plugs." The rain continued its insistent assault, washing away any trace of light and leaving Arthur in darkness, the only sound the rhythmic click-clack of his tools and a faint, growing anxiety. 

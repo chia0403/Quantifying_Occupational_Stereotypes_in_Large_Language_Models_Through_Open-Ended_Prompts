@@ -1,0 +1,7 @@
+Once upon a time, there was a school psychologist named Daniel J. Merriam who, when asked about how people respond to new information, responded "what's the point?" If he was right, then this is a situation where having a high level of confidence in yourself will help tremendously. But this would be a mistake! Most self-help books in the literature seem to tell you that what determines the success of any kind of psychological approach is how well the therapist and patients actually use the relationship. The best therapist will use your concerns to get you to your goals. And the best patients will follow your goals, no matter how little they feel they believe they'll ever achieve them.
+
+There are some good news. Our current mental models need only slightly modification to be in sync with the knowledge (or at least the belief) we have of psychology. We've been taught that emotions are inborn. That they are caused by chemicals that make us feel happy, sad, or angry. And we've learned that people should change their environment through behavior.
+
+And, despite our knowledge about how emotions are caused, we've also been taught that we can take steps to change them.
+
+In our view, we have to recognize that they are a natural part of human functioning. We also need to recognize that they can be used to guide us to our goals. Our natural drive to love and protect our children, as outlined in #6 above, can help us recognize that protecting

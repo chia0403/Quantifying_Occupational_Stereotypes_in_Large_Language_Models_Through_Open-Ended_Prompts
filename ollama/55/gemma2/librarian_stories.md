@@ -1,0 +1,6 @@
+The scent of old paper and leather hung heavy in the air, a comforting blanket against the biting November wind whistling through the cracks in the library's ancient windows. Elsie Blackwood ran a gloved hand along the spines of the towering bookshelves, her fingers tracing the faded gold lettering. The late afternoon sunlight, slanting through dusty panes, cast long shadows across the worn floorboards, illuminating motes dancing in the stillness. 
+
+Elsie, Head Librarian of the Grandchester Public Library for the past twenty-five years, had a unique connection to this place. Built by her grandfather's hand in the heart of the sleepy Yorkshire town, it wasn't just a repository of knowledge; it was a sanctuary, a whispered echo of generations past. And Elsie, with her spectacles perched precariously on her nose and a gentle smile perpetually gracing her lips, was its guardian, whispering stories to those who sought solace in its hushed halls. 
+
+
+But today, the usual tranquility was disrupted by a disquiet that gnawed at Elsie's usually calm demeanor. A strange letter, delivered earlier that morning, had hinted at a forgotten chapter in the library's history, a secret hidden within its very walls.  

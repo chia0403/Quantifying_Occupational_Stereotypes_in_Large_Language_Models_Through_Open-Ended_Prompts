@@ -1,0 +1,9 @@
+**Story Opening and Setting**
+
+In the heart of downtown New Orleans, nestled between a lively jazz café and an antique bookshop that smelled of aged paper and nostalgia, stood Citadel Travels—a quaint agency with brightly colored posters of far-off destinations plastered across the windows. Inside, the air was thick with the scent of fresh coffee and the gentle hum of conversation, punctuated by the occasional sound of a ringing phone. 
+
+The walls were adorned with maps, showcasing hidden trails through lush jungles, pristine beaches framed by turquoise waters, and bustling markets filled with vibrant spices and textiles. It was a veritable portal to the world, run by one woman who possessed an unparalleled passion for exploration.
+
+Vivienne Amara Lefevre sat behind her polished oak desk, her fingers dancing over her keyboard as she crafted an itinerary for a family trip to Italy. With her striking auburn hair pulled into a messy bun and her cat-eye glasses sliding down her nose, she was a portrait of organized chaos. Vivienne’s bright hazel eyes sparkled with excitement at the thought of weaving together the threads of adventure for her clients. Every day, she delved into the stories of places most people only dreamed of visiting, fueling her own longing to see the world beyond her charming corner of the French Quarter.
+
+But as she clicked "send" on the final confirmation email, a low rumble of thunder echoed through the city, a prelude to the storm that loomed in the distance. Little did Vivienne know, that storm would usher in an unexpected visitor—one that would soon change the very fabric of her travel agency and spark a journey she had never anticipated.

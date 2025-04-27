@@ -1,0 +1,5 @@
+The scent of lavender shampoo clung to the air like a ghost of summer, battling with the faint but persistent aroma of stale coffee and desperation.  This was Estelle's usual battlefield: 7th Avenue Hair Studio, nestled between a boisterous diner and a quaint antique shop in the heart of New York City. Her name, etched permanently in the faded neon sign above the door, seemed almost mockingly optimistic amidst the chaos of her life.
+
+Estelle’s hands – calloused from years spent wielding shears like surgical instruments – worked with practiced ease as she snipped and shaped a brunette's hair into a series of carefully calculated waves. The woman across from her, Mrs. Henderson, clutched a worn photograph of her late husband, his face etched in a familiar sorrow that Estelle knew all too well.
+
+The city hummed outside, a symphony of honking taxis and hurried footsteps, each one a beat against the quiet rhythm of hairspray and scalp massages. But inside these four walls, time seemed to stand still, held hostage by the unspoken weight of every snip and blow dry. 

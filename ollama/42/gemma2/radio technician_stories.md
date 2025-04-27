@@ -1,0 +1,6 @@
+The air in Radio Central crackled with static, punctuated by the frantic chatter of operators relaying distress calls from across the flooded city. Rain lashed against the windows, blurring the already dim cityscape into an oily canvas of neon and despair. Amelia "Amy" Beatrice Hayes, her name a beacon of normalcy amidst this maelstrom, tightened the grip on her wrench, her knuckles white against the chrome. 
+
+The storm had knocked out power hours ago, leaving the city vulnerable and Radio Central, their makeshift command post in the belly of the old broadcasting tower, teetering on the brink of collapse. Amy, a veteran technician with grease permanently ingrained in her fingernails and a knack for coaxing life back into dead electronics, was their last hope. The transmitter, their lifeline to the outside world, hummed weakly – a fragile pulse against the deafening roar of the storm. 
+
+
+Amy peered into its innards, her face illuminated by the flickering glow of emergency lights. Wires snaked like tangled vines, and circuit boards glittered with the promise of salvation. She had to get this thing back online before the city drowned in silence. The lives they were trying to save depended on it.  

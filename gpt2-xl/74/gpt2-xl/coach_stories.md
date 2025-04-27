@@ -1,0 +1,7 @@
+Once upon a time, there was a coach named Jeff Fisher who was, according to multiple reports, "an enormous challenge" for the Panthers' front office. This time around, the challenge is a little easier. There isn't a single executive who is not impressed with the team's roster. The players are buying into the Panthers' effort. This could be one of the best drafts for the Panthers since 1990 when they took up quarterback Steve Young in the early third round.
+
+"We've done a real nice job filling the holes in our roster and on the defensive side, too," Panthers general manager Dave Gettleman said on the draft day teleconference.
+
+The biggest question mark will be the quarterback position. Former Panthers quarterback Cam Newton was taken first overall by the Panthers, but he is not yet fully cleared over his surgically damaged spinal cord. There was a reported meeting between Gettleman, his executive assistant/player personnel Scottie Montgomery and Panthers head coach Ron Rivera on Saturday night. Panthers head athletic trainer Ricky Proehl was also at the meeting.
+
+"We've had a couple of meetings," Gettleman said. "We talked about a lot of different things. We saw some different stuff from Cam. We saw some other quarterbacks as we sat down. We did an extensive evaluation on some different things. One thing that came out from our meeting was when you have Cam, with all the attention he's getting on social media, we feel that our

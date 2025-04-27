@@ -1,0 +1,5 @@
+Rain hammered against the windowpanes of Dr. Amelia Finch's therapy clinic, creating a rhythmic drumming counterpoint to the soft crackling of the electric heater struggling to combat the chilly December air. Outside, the city was submerged in a gray haze, mirroring the melancholy that clung to Amelia's heart. She stared at her hands, tracing the worn grooves of her favorite tennis ball, an act she usually found soothing, but tonight felt hollow. 
+
+Amelia's mind was a tangled mess of worry and fatigue, swirling around the case of Mr. Davis, a gruff man with a history as long and knotted as his gnarled hand. He'd come in last week after suffering a debilitating stroke.  His wife, bless her heart, had been frantic but Amelia saw something deeper than fear - a silent, stubborn fight in those dull eyes that refused to yield.
+
+The weight of the case pressed down on Amelia, heavier than any gym routine or set of exercises could ever be. She was supposed to help Mr. Davis regain his mobility, his lost independence, but all she felt was trapped behind the heavy doors of a broken man's life, mirroring the storm raging outside and gnawing at her own soul. 

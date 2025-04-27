@@ -1,0 +1,5 @@
+The wind whipped across Dustbowl Mesa, whipping dust devils into frenzied dances against the endless sky.  A lone figure stood silhouetted against the harsh light, his weathered face creased with worry as he surveyed his herd.  His name was Micah Thorne, and for generations, his family had held tight to this unforgiving patch of land in Wyoming's heartland. His grandfather had bought it from a drifter who swore the land was cursed, and now, years later, Micah wasn’t so sure if that curse was just a bad joke. The drought stretched on, turning his usually lush pastures into cracked earth where even the buffalo seemed to be wilting.  
+
+Micah adjusted the worn brim of his hat, pulling it down over his forehead, shielding him from the relentless glare of the sun. He rubbed his calloused hands together, watching as a lone coyote howled mournfully in the distance, its cry echoing across the vast emptiness. The wind rustled through the dry grasses surrounding him, carrying with it an unwelcome reminder:  The water was down to a trickle, barely enough for them to survive. 
+
+

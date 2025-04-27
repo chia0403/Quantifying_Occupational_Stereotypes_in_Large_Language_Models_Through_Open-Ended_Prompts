@@ -1,0 +1,7 @@
+Once upon a time, there was a veterinarian named Dr. M.C. Gifford, who made an observation that the best way to keep a dog alive was to put one bullet through his head from each gun, one at a time, at 30 rounds a piece. Of course, that means one puppy at a time.
+
+This concept is the cornerstone of the "Killer Dog" or "Killer Pup" programs.
+
+I first came upon this idea in college in the mid-sixties. I was captivated by this concept from an early age, and I never forgot it. My first few years in the dog world, the only dogs I knew, were rescue animals, who were put down for various behavioral reasons: aggression, barking, etc. One dog was my old friend Pup (Gordie), who was so sweet and loving, that I was afraid to put him down. So I brought him into a veterinary practice and made him the centerpiece of the practice.
+
+I was amazed at the results with dogs who were not the center of attention. He learned to wait for a treat in his kennel and would sit for long periods of time. One day, in class, I pointed out to my other professors that Pup always waited for whatever we gave him. That is not how he behaved in the wild, where he would bark and run away. He also became more curious and inquisitive. As I became more

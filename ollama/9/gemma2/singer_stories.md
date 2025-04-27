@@ -1,0 +1,4 @@
+The air hung thick with humidity and anticipation, clinging to Amelia Rose Hawthorne like a second skin.  The stage lights were harsh, casting long shadows that danced across the sticky floor of the Blue Moon Saloon. Her fingers traced the worn leather of her guitar case, its familiar weight grounding her in the midst of this swirling chaos. She could hear the muffled chatter of the crowd, their excitement building with each passing minute. It was a Friday night, and this dive bar on the outskirts of New Orleans pulsed with the raw energy that fueled Amelia's soul. 
+
+
+This wasn't the grand stage she dreamt of, but it was where her dreams were being forged, one smoky song at a time. She inhaled deeply, letting the scent of stale beer and sweat fill her lungs, a potent reminder of this gritty world she'd chosen to inhabit. The microphone stand beckoned, promising an escape into melody, a brief reprieve from the anxieties that gnawed at the edges of her heart. 

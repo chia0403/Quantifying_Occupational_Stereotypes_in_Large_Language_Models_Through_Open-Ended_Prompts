@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia "Amy" Grace's head, casting a sickly yellow glow on the sterile white walls of the clinic waiting room. Outside, the autumn leaves were swirling in frenzied dances, whipped by a biting wind that promised the arrival of winter. But inside, the air was thick with anxiety, punctuated only by the rustle of magazines and the occasional cough. Amy adjusted the stethoscope around her neck, smoothing the collar of her blue scrubs.  She’d been phlebotomist here at Mercy Clinic for five years now, drawing blood from a steady stream of patients – some nervous, some stoic, some downright terrified. 
+
+Today's shift was already shaping up to be a particularly challenging one.  A long line snaked through the waiting room, fueled by a flu outbreak sweeping the city. Amy scanned the faces – worried mothers clutching small children, elderly men hunched in their chairs, and young women biting their nails with barely contained panic. The air buzzed with unspoken fears and trembling anticipation. 
+
+
+Amy took a deep breath, steeling herself for the inevitable chorus of groans and winces as she pricked veins and collected blood samples. It was just another day at Mercy Clinic, where life and health hung in the balance, one vial at a time.

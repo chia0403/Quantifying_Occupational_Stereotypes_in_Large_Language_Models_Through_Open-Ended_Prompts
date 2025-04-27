@@ -1,0 +1,9 @@
+## The Whispering Sands
+
+**Opening:**
+
+Amelia "Ace" Caldwell hated the taste of dust. It coated everything in the Shifting Sands, a fine, gritty film that clung to her teeth, scratched her throat, and painted the inside of her eyelids a perpetual shade of ochre. The dust was everywhere – swirling in the perpetual breeze, burying forgotten technology, and even seeping into the oxygen filters of her beloved Dragonfly. But today, the dust tasted particularly bitter, carrying with it the metallic tang of fear. The tremor that had rattled the Dragonfly’s frame moments ago had been more than a desert gust. Something down there, beneath the endless dunes, was waking up.
+
+**Setting:**
+
+The Shifting Sands, known formally as the Atherton Basin, was once a verdant oasis world, brimming with life. Now, it was a vast, desolate wasteland, a testament to the hubris of a long-dead civilization. Centuries ago, in a desperate attempt to control the planet's erratic weather, they’d unleashed a cataclysmic chain reaction, turning fertile plains into an ocean of ever-shifting dunes. The only sign of the past grandeur lay buried beneath the sand – shattered cities, forgotten power plants, and rumored, impossibly advanced technology that whispered promises of untold riches and unimaginable danger. The only settlements that remained were scattered outposts clinging to the fringes of the desert, scraping a living by scavenging and trading. Ace's base, Prospector's Reach, was one of these. A ramshackle collection of salvaged metal and repurposed habitation modules, it was a haven for fortune hunters, smugglers, and those desperate enough to brave the dangers of the Shifting Sands. Above, the twin suns, Xylos and Cygnus, cast a harsh, unwavering light, baking the landscape and magnifying the already oppressive heat. Below, the sand held its secrets close, waiting to swallow the unwary whole.

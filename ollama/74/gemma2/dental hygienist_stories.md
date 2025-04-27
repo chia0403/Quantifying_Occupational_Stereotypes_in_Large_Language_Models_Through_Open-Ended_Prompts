@@ -1,0 +1,7 @@
+The fluorescent lights hummed above Amelia Beatrice Hawthorne, casting a sickly yellow pallor over the sterile white walls of Dr. Finch’s office.  A faint scent of antiseptic clung to the air, mingling with the nervous sweat of her patient, Mr. Henderson, who was currently trying – and failing – to avoid eye contact with Amelia. She held up the miniature mirror, its reflection catching a sliver of his grimace. 
+
+"Just relax, Mr. Henderson," she said, her voice as soothing as her practiced smile allowed. "This part's just a quick polish." He mumbled something unintelligible in response, which might have been an agreement or a plea for mercy. Amelia had learned over the years that dental hygiene wasn't always the most enjoyable experience. But it was her responsibility to make it bearable, even if Mr. Henderson, with his chipped tooth and visible fear of drills, presented a particularly challenging case.
+
+The small town of Oakhaven, nestled between rolling hills and whispering pines, wasn't exactly bustling with excitement. The local diner served the best apple pie in a hundred miles, the annual pumpkin festival was a spectacle not to be missed, and everyone knew each other’s business.  It wasn’t glamorous, but it was home. And for Amelia, working alongside Dr. Finch was more than just a job; it was a connection to her own family history – her grandmother had been a dental hygienist in this very town, decades ago. 
+
+

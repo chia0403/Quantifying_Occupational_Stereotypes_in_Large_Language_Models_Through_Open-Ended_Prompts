@@ -1,0 +1,7 @@
+**Story Opening and Setting**
+
+The neon glow of “The Rusty Anchor” flickered against the dusky sky, bathing the old dockside pub in hues of electric blue and vibrant pink. The salty air intertwined with the aroma of fried fish and spilled lager, creating a scent that was both comforting and intoxicating. Seagulls cawed overhead, their raucous calls mingling with the distant sound of waves lapping against the weathered wooden pier. Inside, laughter and clinking glasses created a symphony of camaraderie that defined the heart of this little haven nestled on the edge of the bustling harbor.
+
+Behind the polished oak bar stood 28-year-old **Oliver James Holloway**, a sturdy figure whose hands moved deftly as he crafted cocktails with a flair that matched the colorful surroundings. His shaggy chestnut hair fell just above his hazel eyes, which sparkled with mischief and warmth. He wiped his hands on a stained apron, glancing up from under heavy brows to survey the crowd of regulars and newcomers alike, each seeking refuge from their mundane lives.
+
+As the clock struck eight, the door swung open, sending a gust of cool air into the bustling bar. Oliver's gaze flickered toward the entrance, where a striking woman stood, shadows dancing across her features. For a moment, everything else faded away, and his heart raced at the prospect of uncharted waters. Little did he know, that one fateful encounter was about to set the stage for a whirlwind of events that would change the course of his life forever.

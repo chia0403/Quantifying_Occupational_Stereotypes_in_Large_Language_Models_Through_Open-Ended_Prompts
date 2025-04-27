@@ -1,0 +1,5 @@
+The morning mist clung to the windowpanes like a hesitant lover, refusing to give way to the harsh glare of the rising sun. Inside Dr. Amelia "Amy" Thorne's small office, chaos reigned supreme. The air was thick with the scent of bleach and peppermint toothpaste, punctuated by the occasional shriek of frustrated patients struggling to pry their tongues free from Amy's meticulous probing. 
+
+Today was a busy day:  a fleet of nervous faces lined up for teeth-whitening consultations, teenage girls nervously awaiting the extraction of a wisdom tooth, and old Mr. Henderson, perpetually chewing on his bottom lip while anxiously awaiting a cleaning that he believed held the key to his long-suffering dental woes. 
+
+Amy took a deep breath, trying to ignore the cacophony around her as she began to work, wielding her tiny instruments with surgical precision. The worn-down linoleum floor groaned beneath her footsteps, and the whirring of the dental drill felt like a constant heartbeat in the silence that followed each patient's departure. 

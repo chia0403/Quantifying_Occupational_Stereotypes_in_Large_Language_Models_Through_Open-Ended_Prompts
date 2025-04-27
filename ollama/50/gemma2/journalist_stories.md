@@ -1,0 +1,5 @@
+The air hung thick with the scent of salt and brine as Eleanor "Ellie" Grace Harding squinted at the churning sea. Seagulls screeched overhead, their calls swallowed by the ceaseless roar of the waves crashing against the jagged cliffs overlooking the Cornish fishing village of Polperro. Ellie hunched deeper into her worn leather jacket, tugging her wool scarf tighter against the biting wind. This wasn't the glamorous metropolis she was used to reporting from in London, but a story this big couldn't be ignored - a missing fisherman, an abandoned boat, and whispers of a monstrous creature lurking beneath the waves. 
+
+Ellie knew it would be a tough case, even for someone with her tenacious spirit and sharp instincts honed by years of chasing after elusive leads and uncovering hidden truths.  But as she watched the sun bleed into the horizon, casting long shadows over the deserted harbor, Ellie felt a surge of excitement course through her veins. This wasn't just another story; it was an opportunity to unravel a mystery that had gripped this close-knit community for generations. 
+
+

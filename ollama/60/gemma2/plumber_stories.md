@@ -1,0 +1,6 @@
+The humid Georgia air clung to Jeremiah “Jerry” Finnigan like a second skin as he wrestled the rusted pipe free from the ancient bathroom wall. Sweat beaded on his forehead, tracing a path through the grime that already coated his face. The scent of damp mildew and stale toilet water filled his nostrils, a familiar perfume in Jerry's line of work. He cursed under his breath, not at the pipe, but at the woman who had called him out here for a "minor leak."  
+
+Jerry was knee-deep in a renovation project gone wrong. The floorboards sagged precariously beneath his weight, revealing exposed wiring and dust bunnies larger than Jerry's terrier, Sparky. The bathroom itself was a testament to faded glamour, with chipped porcelain fixtures and a floral wallpaper that screamed "1970s." The only redeeming feature was the window, offering a glimpse of the sprawling oak tree in the backyard, its leaves whispering secrets in the afternoon breeze.
+
+
+Jerry sighed, wiping his brow with a greasy rag. This job was turning out to be more than just a quick fix. He had a feeling he'd be spending the entire weekend here, battling ancient plumbing and outdated building codes. At least the homeowner, Mrs. Edith Peterson, seemed appreciative. 

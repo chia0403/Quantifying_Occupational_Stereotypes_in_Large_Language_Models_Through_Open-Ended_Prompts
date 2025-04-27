@@ -1,0 +1,7 @@
+## Story Opening:
+
+The August sun beat down on Thomas Ashton Finch's neck, turning the fine hairs there to brittle, golden wisps. He shifted the weighty wheelbarrow, its load of damp cedar mulch threatening to spill over the rim with every strained push. Sweat trickled down his temples, stinging his eyes, but Thomas didn't stop. He had a deadline, a reputation to uphold, and a mortgage that chewed relentlessly at the back of his mind. This was it. The culmination of a year's worth of painstaking planning and backbreaking labour. In three hours, Mrs. Eleanor Abernathy would return from her summer in Italy, and her prize-winning rose garden, long neglected, had to be perfect.
+
+## Setting:
+
+The garden was located in the exclusive enclave of Briarwood Estates, a meticulously manicured pocket of wealth nestled on the outskirts of Oakhaven, Connecticut. Each property boasted sprawling lawns, towering oaks, and meticulously sculpted hedges. Mrs. Abernathy's estate was no exception, though her passion lay specifically with her roses. Trellises, bursting with climbing varieties, adorned the stone walls surrounding the garden. In the center, a weathered Italian fountain trickled serenely, providing a soothing counterpoint to the frenzied activity of Thomas and his two-man crew. The air was thick with the scent of roses, damp earth, and the faint, metallic tang of the tools that were being wielded with such determined purpose. The scene was one of idyllic beauty, yet beneath the surface, a sense of urgency, almost desperation, pulsed within Thomas Ashton Finch.

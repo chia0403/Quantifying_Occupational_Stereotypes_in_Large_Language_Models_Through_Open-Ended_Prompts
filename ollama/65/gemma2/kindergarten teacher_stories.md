@@ -1,0 +1,6 @@
+The bell above Miss Amelia Beatrice Periwinkle's classroom door jingled merrily as five-year-old Maya burst in, her pigtails bouncing like over-eager puppies.  A rainbow of handprints decorated the back of her bright pink dress - evidence of yet another triumphant crafting session at home. "Miss Periwinkle!" she declared, breathless from her dash, "I made a new friend! He lives under my bed and he's purple!"
+
+Amelia smiled, her gaze sweeping over the familiar chaos of her kindergarten classroom in Sunnyside Elementary. Colorful alphabet blocks lay scattered like fallen confetti on the carpet, while a half-finished mural depicting a majestic unicorn with mismatched wings adorned one wall. A gentle melody drifted from the corner where Liam, usually engrossed in building elaborate block towers, sat lost in the world of his imaginary tea party, complete with plastic dinosaurs as guests.
+
+
+Amelia loved this morning ritual - the excited chatter, the messy fingerprints on every surface, and the boundless energy that filled the room like a fizzy drink. But today, a knot of unease tightened in her chest. She couldn't shake the feeling that something was different, that this familiar symphony of childhood had a discordant note she couldn't quite place. 

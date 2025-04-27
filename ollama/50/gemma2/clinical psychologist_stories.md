@@ -1,0 +1,5 @@
+The rain hammered against Dr. Evelyn Aisling's office window, mimicking the relentless drumbeat in her chest. She sat behind her desk, staring at the file before her – "Johnathon Hayes, 32, presenting with acute anxiety and insomnia."  A wave of weariness washed over her. This was the fourth case this week with similar symptoms, each seemingly triggered by an inexplicable loss of memory. The city felt heavy, saturated with an unspoken fear that seeped into her bones.
+
+Her office, nestled on a quiet side street in downtown Seattle, usually offered a sanctuary from the urban chaos. Today, it felt claustrophobic. Rain streaked down the glass, blurring the view of the vibrant cherry blossoms clinging stubbornly to life outside. A lone taxi splashed through a puddle on the sidewalk below, its headlights slicing through the gloom like fleeting sparks. Evelyn took a deep breath, trying to center herself. Johnathon Hayes was waiting. He needed her.  She couldn't afford to let her own anxieties cloud her judgment. 
+
+

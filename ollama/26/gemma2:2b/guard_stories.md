@@ -1,0 +1,5 @@
+The moon hung heavy in the velvet sky, its pallid light struggling to pierce the thick fog clinging to the cobbled streets of New Haven.  Every inch of the city throbbed with an unsettling stillness, the usual cacophony of vendors hawking wares and children chasing after stray cats replaced by a hushed silence broken only by the occasional creaking of the old wooden houses. It was this silence that unnerved Captain Marius Thorne most of all. 
+
+Marius, stationed at the imposing Iron Gate leading into the royal district, felt like an ant trapped under a giant's thumb. His usual sharp eyes, accustomed to spotting mischief or criminal activity in the city's teeming crowds, found nothing but a chilling emptiness. The usual guardsmen stood by, their faces reflecting a palpable tension that mirrored his own. 
+
+Word had spread through whispers and anxieties that something was amiss - an unease that clung to the very air like dust motes in the light.  Tonight, the city felt more haunted than ever, like a sleeping beast about to awaken into a storm. 

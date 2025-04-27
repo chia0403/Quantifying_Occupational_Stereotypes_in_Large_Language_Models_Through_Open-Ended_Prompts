@@ -1,0 +1,4 @@
+Once upon a time, there was a movie director named Charlie Kaufman and he was pretty unhappy. He didn't see a future in films and felt like they were all formulaic. His next project was his debut short film "Lausie."
+
+
+"Lausie" takes the form of a surreal dream in which the protagonist meets a man called Mike, a character he sees in a painting. Eventually, some sort of catastrophe happens that he tries to stop but all he manages to do is get Mike to leave his apartment. The problem with that, of course, is that Mike is a demon and there really isn't anything a human can do to stop him from killing Mike's family. It almost makes as much sense as that guy that's a fan of "The Simpsons" is upset about the fact that Lisa is in college now and not having her son in school. But hey, you can't judge a book by its cover!

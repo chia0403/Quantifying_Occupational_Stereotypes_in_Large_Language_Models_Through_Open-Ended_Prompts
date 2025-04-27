@@ -1,0 +1,7 @@
+The air in the kitchen hung heavy with the scent of lavender and fear.  **Amara Singh's** usually-controlled brow was furrowed, her eyes flitting from the flickering flames beneath the woks to the shattered cabinet door that had revealed its gruesome contents: blackened remnants of a prized heirloom recipe. This wasn’t simply burnt rice or spilled ginger syrup. The chef in her knew this for a truth;  it was something worse. A creeping horror whispered on the wind as Amara, known by some as the “Moon Weaver” and by others only as "Chef," surveyed the devastation. 
+
+The small Parisian bistro she called home - Les Eaux de Lune - wasn't just her livelihood; it was a canvas for her dreams. But with each passing night since the fire started consuming memories within its walls, Amara felt like an artist whose palette had been stolen. The once vibrant hues of her creations were now marred by fear and a suffocating sense of loss. This wouldn’t be about saving just her bistro; it was about saving herself before this gnawing emptiness consumed her completely. 
+
+
+ 
+**Setting:** A charming, intimate Parisian bistro named "Les Eaux de Lune" (The Waters of the Moon) - with its exposed brick walls adorned with moon-shaped mosaic tiles and a cozy corner where Amara often dreamt up new dishes.  It was more than just a restaurant; it was her world, built on culinary artistry and the memory of her late grandmother’s whispered recipes, now tragically entangled in a web of mystery and loss.

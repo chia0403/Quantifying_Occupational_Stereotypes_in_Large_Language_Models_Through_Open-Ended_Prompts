@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the horizon, Dr. Emily Anne Thompson adjusted her glasses and surveyed her practice with a practiced eye. Her small office in the heart of downtown was a haven for those seeking relief from the aches and pains of modern life. The soft hum of a gentle jazz melody wafted through the air as she made her way to the back room, where the evening's first patient awaited.
+
+Outside, the streets were alive with the sounds of laughter and conversation, but within the walls of Thompson Chiropractic Care, time stood still. Emily had spent years honing her craft, earning a reputation for her compassionate bedside manner and precise spinal adjustments. She took pride in helping people like Sarah Jenkins, a young mother of two who had been struggling with chronic lower back pain since having her children.
+
+As she changed into a crisp white lab coat, Emily's thoughts turned to the evening ahead. A new patient would be arriving soon, one who required a different kind of care altogether. The phone on her desk jangled, shrill and insistent, breaking the silence. "Dr. Thompson's office," she answered, her voice smooth as silk.
+
+"Hello? I'm so glad I got through to you. My name is Rachel Lee, and I've been referred by my doctor. I need to see you about a serious back injury."

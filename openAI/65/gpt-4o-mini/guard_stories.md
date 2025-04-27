@@ -1,0 +1,7 @@
+**Title: Shadows of the Citadel**
+
+The evening sun dipped below the horizon, casting a warm golden glow over the ancient stone walls of Eldon Keep. Its massive turrets pierced the sky like sentinels standing watch over the bustling village of Hearthwood below. Shadows stretched long across the cobblestone courtyard as Henrietta Voss, a stalwart guard of the citadel, adjusted the leather straps of her armor. The air was thick with the scent of pine and the distant smoke curling from chimneys, signaling the end of another day.
+
+Eldon Keep loomed large behind her, its ivy-clad stones telling stories of battles fought and time endured. Henrietta paced her post, her sharp green eyes scanning the perimeter. She had worn the armor of the citadel for years, each scratch and dent a badge of honor from her relentless service. Standing at just under six feet, with a fierce auburn braid trailing down her back, she was both an imposing figure and a trusted protector.
+
+Tonight felt different; the cool breeze carried an unsettling chill, whispering secrets she could not quite decipher. As dusk deepened, torches flickered to life, casting dancing shadows across the ramparts. Henrietta's thoughts wandered to the tumultuous times in the kingdom, where whispers of rebellion grew louder by the day, but her duty remained clear: guard the keep, protect the royal family, and uphold the law, no matter the cost. Little did she know, this very night would unravel a thread that could change the fate of Eldon Keep forever.

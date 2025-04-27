@@ -1,0 +1,5 @@
+The fluorescent lights hummed their monotonous melody in the empty halls of Westview Academy, casting long, distorted shadows that danced across the worn linoleum floor.  Dust motes swirled in the stagnant air, illuminated by the harsh glare of the overhead light. 
+
+Felix “Fingers” Cartwright, known to most as just Fingers, ran a calloused thumb over his grease-stained uniform while navigating the maze of deserted classrooms and laboratories. He was a fixture at Westview, his presence as steady as the ticking clock on the janitor's closet door. His life, though quiet and seemingly mundane, was anything but boring.  He had secrets tucked away in the crevices of his soul, whispered stories hidden behind tired eyes and a worn-out smile.
+
+Fingers’ fingers worked deftly over the metal edge of a rusted locker, its paint chipping like dry scabs. He paused, a strange glint in his steely gaze.  Tonight, something was different. The air felt thick with an unseen tension, almost tangible. It sent shivers down Fingers' spine as he pushed open the heavy steel door and stepped into the shadows of the abandoned library. 

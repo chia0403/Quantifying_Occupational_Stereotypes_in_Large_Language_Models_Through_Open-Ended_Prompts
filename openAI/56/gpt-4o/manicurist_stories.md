@@ -1,0 +1,9 @@
+In the coastal town of Seabreeze Cove, where whispers of the ocean's waves laced every conversation, Ivy Thompson worked her magic with colors and brushes in a quaint shop called "Nailed It." Nestled between a bakery that wafted sweet aromas of vanilla and cinnamon, and a bookstore that had seen generations of eager readers, her salon was a tapestry of vibrant polishes and the soft hum of soothing music.
+
+Ivy, a woman in her mid-thirties with a cascade of chestnut curls and an infectious laugh, had become something of a confidante to the town's diverse array of characters. With each client that settled into the plush lavender chair, a story unfolded, painted onto nails as unique as the hands that wore them. Her delicate touch and the flick of a brush were almost like a ceremony, turning each manicure session into a mesmerizing ritual.
+
+The salon, with its large bay windows, offered a picturesque view of the ocean. Sunlight spilled across the wooden floors, casting playful patterns that danced with the sea breeze. The walls were decorated with framed photographs of Ivy’s travels, showcasing different nail art trends she had encountered from around the world. Tiny succulents lined the shelves, adding a hint of green to the airy, light-filled space.
+
+Despite the rhythmic lull of waves and the serenity of her surroundings, Ivy felt a restlessness in her heart. Over the past few months, a series of cryptic postcards had arrived, addressed to her in neat, looping handwriting she couldn't quite place. Each card depicted a different location—a bustling city market, a serene mountain lake—and ended with the same line: "Wish you were here to see this, Ivy."
+
+As she buffed and polished, Ivy couldn’t shake the feeling that her own adventure was calling, perhaps waiting just beyond the horizon, where the ocean met the sky.

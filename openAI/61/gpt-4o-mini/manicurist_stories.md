@@ -1,0 +1,9 @@
+**Story Opening**
+
+In the heart of Ashwood, a quaint little town draped in the golden hues of autumn, the hum of chatter mingled with the sweet scent of pumpkin spice wafting through the air. As the sun began to dip behind the cobblestone buildings, casting a warm glow over the bustling streets, a delightful shop nestled between a family-run bakery and a vintage bookstore glimmered with promise. Its window displayed a vibrant array of nail polish bottles, each hue more vivid than the last, inviting passersby to indulge in a bit of color.
+
+Inside, the scent of lavender and citrus filled the air, harmonizing perfectly with the soft sound of calming music playing in the background. Jade Montgomery, a talented manicurist known for her artistry and meticulous attention to detail, delicately painted a cobalt blue manicure that danced with flecks of silver. Her fingers, adorned with a multitude of rings, moved with the grace of a painter creating a masterpiece. 
+
+Jade was more than just a manicurist; she was an artist who transformed the mundane into the extraordinary, channeling her emotions onto the small canvas of nails. Yet, as she worked on her client, a thought nagged at the back of her mind. Something was shifting in Ashwood, an undercurrent of unease that had woven itself into the fabric of the town, whispering secrets in the rustling leaves. Jade had always been attuned to the feelings of those around her, and she could sense that change was coming—something that might just alter her reality forever. 
+
+Little did Jade know, the arrival of a mysterious newcomer to Ashwood, just days away from unveiling a hidden truth, would intertwine her life with secrets long buried beneath the surface of this charming town.

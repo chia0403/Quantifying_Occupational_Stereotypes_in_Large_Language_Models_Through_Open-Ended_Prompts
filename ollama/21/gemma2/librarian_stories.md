@@ -1,0 +1,6 @@
+The worn, oak shelves groaned under the weight of forgotten stories, their hushed whispers carried on the cool air of the Grand Blackwood Library.  Eleanor Beatrice Finch, known to everyone as Ellie, ran a gloved finger over the spines, her touch feather-light against the leather and faded cloth. Dust motes danced in the shafts of sunlight filtering through the arched windows, illuminating a thousand worlds within these ancient tomes. 
+
+Ellie loved this sanctuary, its comforting silence broken only by the rustle of turning pages and the rhythmic tick of the grandfather clock that stood sentinel in the corner. The scent of aged paper and leather clung to her like a familiar perfume. But today, something felt different. A prickling sensation danced along her spine, as if an unseen presence was watching her from the shadows cast by the towering bookshelves.  
+
+
+The Grand Blackwood Library was no ordinary institution. Built in 1889, it housed not just countless volumes of fiction and non-fiction, but also a rumored collection of ancient grimoires and forgotten histories. It was whispered that some stories held within these walls were best left undisturbed, their secrets buried deep under layers of time. Ellie had always dismissed these tales as fanciful rumors, until now. 

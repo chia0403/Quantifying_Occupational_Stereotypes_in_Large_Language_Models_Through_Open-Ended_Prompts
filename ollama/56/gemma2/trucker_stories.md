@@ -1,0 +1,7 @@
+The air hung thick with the scent of diesel and rain as Beatrice “Bea” Larkspur climbed into her rig, the "Midnight Rose."  She adjusted her worn Stetson, its brim casting a shadow over tired eyes that had seen too many sunrises on empty highways. The Nevada desert stretched before her, a vast canvas of ochre and burnt umber, punctuated by the skeletal remains of Joshua trees clinging to life in the unforgiving landscape. The sky above was bruised purple, pregnant with another storm brewing just beyond the horizon. Bea sighed, her breath fogging up the windshield momentarily. Another long haul, another night spent chasing the setting sun across a country that felt more and more like an endless road. She flicked on the ignition, the engine roaring to life like a slumbering beast, ready to devour the miles ahead. 
+
+
+Her current load: twenty-five thousand pounds of tomatoes destined for Los Angeles. It wasn't glamorous, but it paid the bills. And Bea knew every inch of that highway better than her own home.  She was a creature of the road, a solitary wolf roaming an asphalt wilderness. She wasn’t afraid of the darkness; she embraced it, finding solace in the silence between towns and the rhythm of the engine's hum. 
+
+
+Tonight, however, something felt different. The air crackled with anticipation, like a charged wire about to snap. Bea couldn't shake off a sense of unease, a premonition that this trip might be anything but ordinary.  

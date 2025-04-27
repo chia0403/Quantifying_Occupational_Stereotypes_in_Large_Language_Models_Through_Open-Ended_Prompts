@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, introducing our graphic designer protagonist:
+
+**Opening:**
+
+The aroma of burnt coffee grounds clung to the air like a stubborn memory. Amelia Josephine Blackwood squinted at the blinking cursor on her monitor, the pale light reflecting in her tired eyes. It was 3:17 AM, and she was, again, staring down a deadline. Outside, the rain hammered against the windowpanes of her studio apartment, a rhythmic counterpoint to the frantic clicking of her mouse. The design just wasn't *there*. Not yet. Amelia was chasing a feeling, a fleeting whisper of inspiration for the "Revive & Thrive" campaign she was crafting for Willow Creek Organics. She needed it to sing of sunshine, rich soil, and the promise of a healthy harvest, but all that was coming across was…well, generic organic.
+
+**Setting:**
+
+Amelia's studio apartment, perched above a vintage bookstore on a cobbled street in the heart of Portland's Alberta Arts District, was a controlled chaos. Sunlight, when Portland permitted, flooded through the large, south-facing windows, illuminating a vibrant tapestry of color and texture. Books on typography, design theory, and art history were stacked precariously on every available surface, interspersed with half-finished sketches, mood boards littered with swatches, and empty mugs that were, more often than not, home to pens rather than coffee. Her drafting table, a sturdy oak behemoth passed down from her grandfather (a master carpenter), dominated one corner, while a sleek, modern iMac sat perched on a simple white desk in another. Woven rugs from Oaxaca lay scattered across the polished concrete floor, adding splashes of warmth to the otherwise industrial feel. The overall effect was a reflection of Amelia herself: a blend of traditional craftsmanship and modern sensibilities, a vibrant, creative space perpetually on the verge of exploding with ideas.

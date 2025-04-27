@@ -1,0 +1,9 @@
+Title: **Under Pressure**
+
+In the heart of the bustling city of Riverton, where the skyline jutted skyward like a jagged set of teeth, there lay a network of secrets hidden beneath the pavement. The air was thick with the scent of urban life—a mix of exhaust fumes, street food, and the occasional waft of rain-soaked earth. The streets bustled with pedestrians, taxi cabs honked angrily, and the distant sound of a train rattled past.
+
+In the midst of it all, at a small, nondescript plumbing shop wedged between a flower boutique and an old bookstore, was Leonard "Leo" Thompson. Standing at a modest five feet eight inches, Leo’s broad shoulders were more than capable of lugging around heavy tools, but it was his strong hands and agile mind that had earned him respect among his clientele. He wore a faded blue jumpsuit with his name stitched over the pocket, and his cap sat slightly askew on his head, underlining an approachable charm that radiated warmth.
+
+Leo had been a plumber for over a decade, but his hands were not just skilled at fixing leaky pipes and unraveling clogged drains; they held the stories of the city. Every day, he donned his boots and ventured into the underbelly of Riverton, exploring a labyrinth of pipes and tunnels that whispered tales of runaways, buried heartbreaks, and the occasional hidden treasure. 
+
+As the sun dipped lower in the sky, painting the clouds in shades of violet and gold, Leo wiped his brow and stared at the list of work orders pinned to the wall. Today was no ordinary day; a frantic call from an upscale penthouse high above the city promised an urgent job—one that could very well lead Leo to discover something that would change the course of his life forever.

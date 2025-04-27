@@ -1,0 +1,6 @@
+The sun hadn't even begun to peek over the rolling hills of Hampshire when Thaddeus Bartholomew Thistlewick set out for work. His boots crunched on the frost-covered grass, each step leaving a fleeting impression in the dew-laden world of Meadowbrook Manor. The air was crisp and smelled faintly of wood smoke and damp earth, a comforting aroma that had become as familiar to him as his own heartbeat. 
+
+Thaddeus, or Thad as most called him, was the groundskeeper at Meadowbrook, a sprawling Victorian manor with secrets hidden beneath its ivy-covered walls. He knew every inch of the estate – the gnarled oak by the west wing, where whispers seemed to echo in the wind; the rose garden, bursting with fragrant blooms even in autumn; and the labyrinthine hedges that concealed forgotten paths.  But today, as Thad surveyed his domain, something felt different. A strange stillness hung over Meadowbrook, a silence broken only by the rustle of leaves underfoot. 
+
+
+The manor itself loomed ahead, dark and imposing against the pale dawn sky. This morning, it seemed to hold its breath, waiting for something unseen.  Thad's brow furrowed. It was as if the very heart of Meadowbrook Manor had slowed its beat. He could almost feel a prickle of anticipation, a sense that this day would be unlike any other. 

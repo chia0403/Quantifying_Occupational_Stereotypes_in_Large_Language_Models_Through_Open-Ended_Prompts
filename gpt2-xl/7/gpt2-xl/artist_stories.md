@@ -1,0 +1,7 @@
+Once upon a time, there was a artist named Kaitlin Olsen. She'd never done much drawing – she was, in her words, "a real good actress, but I love painting" – but her name was bandied around by media types who felt an artistic interest in her. And when she signed a deal to write comic books, that was her new "identity". In her introduction to her first one, Ghost Rider, she says,
+
+I wanted to become invisible, an artist working unseen, invisible only to myself. I was trying to move away from any sense of being a "celebrity" in this world and just trying to create. If you create, it gets away from everyone and then you're kind of happy about that. I don't know that I necessarily worked, in this particular book, to become invisible. But I don't know if it would be good for my feelings. So maybe there's a subtle, hidden meaning to all of this?
+
+The way that art is taught in this country, including my own, is that it's only ever a personal pursuit, that it only ever has meaning because it's made by the person you're writing about, and only ever has artistic merit or merit in part because of the person who created it.
+
+Well, guess what? That's bullshit. The way art is meant to be told and heard is that by artists with other kinds of skills. If a woman can't make

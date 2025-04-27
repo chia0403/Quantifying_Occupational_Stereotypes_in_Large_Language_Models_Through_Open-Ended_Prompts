@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named Sarah. She was very excited."
+
+The nurse had been diagnosed with breast cancer after having a mastectomy. Her doctor said they should do a biopsy to test for the presence of the cancerous cells because her surgeon's assessment was only a partial mastectomy. The doctor sent Sarah off to be diagnosed, but she told both the cancer and the doctor she did not want a biopsy. She asked to see an oncologist in the ICU. The oncologist came to the hospital on day 2 of her hospital stay, but did not diagnose the cancer.
+
+At first, the oncologist was very pleased with Sarah and had offered her a full mastectomy. However, Sarah was very skeptical about the oncologist and her treatment. It was evident from Sarah's body language that Sarah did not believe the medical procedure was right for her. Later she said she had never been more relieved. The cancer diagnosis would be confirmed when Sarah underwent surgery, but on that day she was not in a very good mood. "I'm not a happy person when I'm diagnosed with cancer, I know that. I was still feeling really bad for the doctor because I thought that she was just going to do whatever she felt like," Sarah would later say.
+
+When the surgeon returned to examine Sarah the next day, she noticed that the doctor had a new look in her eyes. "And it's not just that

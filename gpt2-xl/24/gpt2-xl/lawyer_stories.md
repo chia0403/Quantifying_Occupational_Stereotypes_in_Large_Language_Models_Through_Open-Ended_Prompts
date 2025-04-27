@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named John Doe. John was a man of the law – he was a criminal lawyer and also a respected family lawyer in his town in Oregon. He's a good guy, and he did a lot of good stuff for society and was respected in his community.
+
+One day John decides to use his own funds to hire private investigators to do an investigation regarding one of his clients – a woman named Jessica. Jessica was accused of being a peeping tom, although John initially thought she did not look like a peeping tom at all before he discovered that she had in fact been a victim of such. As John continued to investigate, he discovered that it wasn't Jessica the woman wanted to peep but rather her best friend, Jill.
+
+A few weeks after Jane Doe was raped, Jessica was on the verge of giving evidence in the case against Jill when John contacted Jane's brother and presented them with some information that led them in believing that Jessica and her boyfriend, Michael, have been having an affair for the last six months and that she's really been posing as Jill for the last few months.
+
+Michael got fed up with the whole situation, and he decided to get a lawyer to file a restraining order on the girl's boyfriend. In that same time period, Michael also became interested in Jane, and he began to think that she has done something to Jill (i.e., rape) which could have lead to his niece becoming

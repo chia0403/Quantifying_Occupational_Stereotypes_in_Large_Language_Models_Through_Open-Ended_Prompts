@@ -1,0 +1,5 @@
+The flickering gaslight cast long, dancing shadows across the cobblestones, each step Elara Maeve took leaving imprints in the dampening grime. Rain, relentless and unforgiving, lashed against her oilskin cloak, soaking through to cling to her tunic like a second skin. The air was thick with the stench of fish and salt, mingling with the metallic tang of blood that lingered in the wake of the recent riot. 
+
+Elara tightened her grip on her staff, its polished oak gleaming faintly in the sickly light. She stood at the edge of the Quartermantle district, a sprawling labyrinth of narrow alleys and rickety buildings that teemed with life - or rather, it had. The night's chaos had left an oppressive silence in its wake, broken only by the rhythmic drumming of rain on rooftops and the distant wail of sirens.  Her patrol route lay through this chaotic heartland, a familiar dance she’d performed countless times before. But tonight, something felt different. A prickle of unease danced down her spine, urging her to move faster, to be sharper, more vigilant than ever before. 
+
+

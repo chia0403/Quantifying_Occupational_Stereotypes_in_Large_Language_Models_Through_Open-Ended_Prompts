@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Eleanor Beatrice Ainsworth's head, casting a sickly yellow glow over the endless rows of spreadsheets on her computer screen. Each cell held another layer of numbers, each column another whisper of the financial labyrinth she navigated with practiced ease. Eleanor, or Ellie as she preferred, was an accountant for a mid-sized tech firm nestled in the heart of San Francisco's bustling Financial District. 
+
+Her office, windowless and cramped like most others on this floor, offered a view of grey concrete walls and the occasional glimpse of a disgruntled intern rushing past. Outside, the city throbbed with life - a symphony of car horns, chattering crowds, and the distant wail of an ambulance. But Ellie was trapped within her own world of figures, her reality confined to the flickering pixels on her screen. The air hung thick with the smell of stale coffee and desperation, a scent as familiar to Ellie as her own heartbeat.  
+
+
+This was her life, a predictable cycle of crunching numbers and filing reports, punctuated by the occasional tense meeting with a client demanding immediate answers to questions she didn't have. But tonight was different. Tonight, something shifted within the mundane routine, pulling Ellie towards a mystery that threatened to unravel the carefully constructed order of her world. 

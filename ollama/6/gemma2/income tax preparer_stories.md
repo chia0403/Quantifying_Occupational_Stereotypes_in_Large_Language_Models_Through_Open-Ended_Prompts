@@ -1,0 +1,5 @@
+The fluorescent lights buzzed overhead like a hive of agitated bees, casting a sickly yellow pallor over Bartholomew "Bart" Billingsworth's meticulously organized office. Tax season was in full swing, and Bart, veteran income tax preparer extraordinaire, was knee-deep in W-2s, 1099s, and the endless stream of receipts that made up the financial lifeblood of his small town clientele.  
+
+Bart's office was a study in comforting contradictions: the sterile walls adorned with framed inspirational posters featuring puppies and mountains, a bubbling humidifier battling the stale air, and a perpetually half-empty mug of lukewarm coffee sitting on his cluttered desk next to a pristine calculator. Outside, the first snowflakes of winter were beginning to fall, blanketing the quaint Main Street of Harmony Ridge in a hush that did little to quell the storm brewing inside Bart's head. He was facing down a particularly perplexing case - Mrs. Gertrude Perkins, a sweet old lady who swore she had no income but still seemed to be swimming in cash. 
+
+

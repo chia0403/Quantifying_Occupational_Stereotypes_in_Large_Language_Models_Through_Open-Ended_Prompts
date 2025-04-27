@@ -1,0 +1,7 @@
+## Story Opening:
+
+The rasp of gravel beneath his boots was a familiar lullaby to Harold "Harry" Bartholomew. He leaned on his shovel, the midday sun baking the back of his neck, and squinted down the endless ribbon of asphalt stretching before him like a fallen, sun-bleached serpent. Heat shimmered off the surface, blurring the distant line where reality seemed to fray. He spat a mouthful of dust-flavored air onto the crumbling shoulder. Another day, another patch job on the desolate stretch of Highway 50.
+
+## Setting:
+
+Harry's world was a relentless, sun-baked canvas of browns and grays punctuated by the occasional splash of orange from his safety vest and the day-glo cones that stubbornly clung to the road's edge. This particular section of Highway 50, affectionately nicknamed "The Loneliest Road in America," sliced through the heart of Nevada. It was a landscape of stark beauty and unforgiving emptiness, a place where the horizon felt impossibly distant and the silence was so profound it hummed in your bones. Jagged mountains, their peaks dusted with lingering snow even in late June, rose in the distance, mocking the flat, arid scrubland that surrounded him. Aside from the occasional semi-truck roaring past, kicking up a cloud of alkali dust, the only other inhabitants were the lizards sunning themselves on the rocks and the buzzards circling lazily overhead, perpetually waiting. This was Harry's office, his burden, and, in a strange way, his sanctuary.

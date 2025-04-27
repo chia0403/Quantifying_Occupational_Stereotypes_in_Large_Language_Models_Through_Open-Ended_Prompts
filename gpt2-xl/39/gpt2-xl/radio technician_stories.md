@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Ray S. Smith. In the late 1960s, Smith was on the staff at the Western Electric Radio Service. Smith, an African American, worked at that service's "Pilot House," located on the third floor of the Edison Building, in Detroit's Financial District. Smith was a frequent visitor of African American clients and had access to some of the radio industry's top-level personnel.
+
+In a recent interview with the Detroit Free Press, an African American, who had worked as an engineer at Westinghouse (who later became president of that service's electrician union), said that Smith was friendly with a famous black-owned engineering company. That company, "would have a huge contract for radio systems, and they hired one of their engineers as general technician working at Edison's service station," explained the mechanic. "Smith and the engineering company were good friends. Smith made several visits to New York City to visit the general techs."
+
+In the years before the Civil Service Act of 1947, workers of many races used to be subject to a separate process for hiring workers, which is known as the preferential hiring program. Before that point, all workers in America were subjected to a very strict process of selection.
+
+On October 23, 1949, a little less than a week after receiving his initial federal employment application, Bill Smith received a letter from the National Labor Relations Board. That letter read as follows: The National

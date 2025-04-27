@@ -1,0 +1,3 @@
+The flickering neon sign outside "Lucky's Liquors" cast an unsettling green glow across Bartholomew "Barty" Finch's rain-slicked trench coat. He adjusted his fedora, pulling it low over his brow to shield his eyes from the deluge. Barty hated this part of town – a labyrinth of dingy bars and pawnshops clinging precariously to the edge of respectability in New Orleans East. But that's where he found himself tonight, investigating a claim for Mrs. Eloise Dupree, owner of a beloved (but somewhat ramshackle) antique shop rumored to be haunted. The downpour intensified, mimicking the churning unease in Barty’s gut. He wasn't sure what he was more afraid of: the swirling storm outside or the secrets lurking within the dusty walls of Mrs. Dupree's shop. 
+
+

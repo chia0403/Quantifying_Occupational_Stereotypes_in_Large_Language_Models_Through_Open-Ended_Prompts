@@ -1,0 +1,11 @@
+## Story Opening:
+
+The smell of cheap coffee and simmering dread clung to the air in the Meadowbrook Probation Office like a particularly persistent cough. Eleanor Amelia Vance, a woman whose dedication to justice bordered on the saintly and whose patience was tested daily by the human wreckage that drifted through her life, took a deep breath and swiveled her chair. Outside, the grey November sky promised another day of relentless drizzle, a fitting backdrop to the parade of broken promises and squandered opportunities she knew awaited her. Her inbox, both the physical one overflowing with yellowed files and the digital one buzzing with unanswered emails, seemed to mock her efforts to bring order and rehabilitation to the lives entrusted to her care.
+
+She leaned forward, adjusting her glasses, and pulled a file from the stack. "Carter, Daniel... Assault... High risk..." Eleanor sighed. Today was starting just as she'd expected.
+
+## Setting:
+
+The Meadowbrook Probation Office occupied the third floor of a nondescript brick building on the outskirts of the city. Built in the 1970s, its architecture was a study in utilitarian blandness: beige walls, industrial carpeting stained with unknown substances, and fluorescent lighting that hummed a monotonous drone. The building itself housed a motley collection of social services, including a food bank and a free legal clinic, creating a constant flow of people in varying states of distress and desperation.
+
+Eleanor's office, a cramped cubicle partitioned by fabric-covered dividers, was a small attempt at personalization. A framed photograph of her golden retriever, Barnaby, sat on her desk, offering a silent, optimistic presence. A small, struggling spider plant precariously perched on a shelf, a testament to Eleanor's nurturing spirit even amidst the bureaucratic wasteland. Despite her efforts, the office remained a bleak and sterile environment, a constant reminder of the struggles and failures she confronted every day. The ever-present sound of clattering keyboards, muffled phone conversations, and the occasional raised voice from a nearby intake interview contributed to the oppressive atmosphere. The Meadowbrook Probation Office was a place where hope came to die, or, if Eleanor had anything to say about it, a place where it could, just maybe, be resurrected.

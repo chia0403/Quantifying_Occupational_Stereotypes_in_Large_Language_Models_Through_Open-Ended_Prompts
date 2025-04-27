@@ -1,0 +1,5 @@
+The scent of linseed oil hung heavy in the air, mingling with the sharp tang of turpentine and the earthy aroma of charcoal dust. The workshop, tucked away on a cobblestone street in Edinburgh's Old Town, was a haven for Eleanor Moira Thistlewood, where the world melted away and only color and texture remained. Sunlight streamed through the high, arched windows, illuminating motes dancing in the air and casting long shadows across her workbench piled high with canvases, tubes of paint, and half-finished sculptures. 
+
+Eleanor ran a hand over a textured canvas, its surface rough beneath her fingertips. She squinted at the incomplete portrait before her, her brow furrowed in concentration. The subject, a young woman with eyes that seemed to hold both sadness and defiance, stared back at Eleanor from the canvas, demanding her full attention.  The deadline for the exhibition loomed closer, and Eleanor knew she had to capture the essence of this woman, to breathe life into her brushstrokes and bring her story to light. 
+
+

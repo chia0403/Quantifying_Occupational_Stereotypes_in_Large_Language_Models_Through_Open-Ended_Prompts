@@ -1,0 +1,6 @@
+The first rays of dawn painted the dew-kissed grass with hues of rose and gold. Elias Hawthorne, his calloused hands wrapped around a steaming mug of coffee, inhaled the crisp autumn air, its scent mingling with the earthy aroma of freshly turned soil.  
+
+Elias was the groundskeeper at Blackwood Manor, a sprawling Victorian mansion perched on a hill overlooking the town of Oakhaven. The manor's history was as tangled as the ivy that crawled up its stone walls - whispers of a tragic past and secrets buried deep within its grand halls. Elias knew every inch of the manicured lawns, meticulously pruned hedges, and ancient oak trees that cast long shadows across the sprawling grounds. He understood their rhythms, their needs, their silent stories whispered in the rustling leaves and the murmur of the wind.
+
+
+But today, as Elias surveyed his domain, something felt different. A sense of unease prickled at the back of his neck, a feeling he couldn't quite place.  A single crimson leaf, incongruously bright against the backdrop of fading greens, lay on the path leading to the manor’s imposing front door. It was out of season, unnaturally vibrant. Elias frowned, picking it up cautiously. The leaf felt warm in his hand, almost pulsing with a faint energy that sent shivers down his spine.  

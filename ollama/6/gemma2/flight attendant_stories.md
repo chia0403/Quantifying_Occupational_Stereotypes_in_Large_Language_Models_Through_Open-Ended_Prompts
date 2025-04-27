@@ -1,0 +1,6 @@
+The hum of the Boeing 747's engines vibrated through Amelia Celeste’s very bones. She adjusted her navy blue uniform, smoothing down the crisp white collar and the neatly pressed skirt. The air conditioning blew cool against her skin, a welcome reprieve from the humid July heat clinging to the tarmac outside.  
+
+Amelia worked for Stellar Airways, a company known for its impeccable service and punctual flights. She’d been with them for five years, navigating turbulence both literal and metaphorical. From delayed departures to demanding passengers, Amelia had seen it all. But this flight, Flight 704 to Bangkok, felt different. A prickle of unease danced beneath her skin, a feeling she couldn't quite place.  
+
+
+The setting sun cast long shadows across the tarmac as Amelia made her way down the jet bridge. Passengers boarded, their faces a tapestry of anticipation and exhaustion. The air inside the cabin was thick with the scent of duty-free perfume and nervous sweat. As Amelia settled into the first row, she noticed a woman sitting in window seat 2A, staring intensely out at the crowd. Her face was shrouded in shadow, but Amelia could see the glint of something sharp protruding from her purse – a silver letter opener, perhaps? The unease grew stronger. This flight, Amelia sensed, was about to become anything but ordinary.  

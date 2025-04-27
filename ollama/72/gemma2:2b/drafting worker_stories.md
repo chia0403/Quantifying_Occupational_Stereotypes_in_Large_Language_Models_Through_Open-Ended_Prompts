@@ -1,0 +1,5 @@
+The harsh fluorescent lights buzzed overhead in the cramped drafting room, their hum a constant soundtrack to Evelyn Blackwood's workday. Rain lashed against the high windows, each gust shaking the old building with an almost violent energy.  Outside, the world was awash in grey and the sky wept its misery onto the city below. Inside, however, everything felt choked with the thick, suffocating scent of dust and stale paper.
+
+Evelyn meticulously drew lines on a blueprint with her mechanical pencil, each stroke precise and deliberate. Her fingers were calloused, worn smooth from years of handling the intricate details of building plans for the upcoming skyscraper project.  But today, as she stared out at the dreary cityscape, her mind was far away. She longed for the sea breeze that danced through the coastal town where she’d grown up, a place of sun-kissed sand and vibrant turquoise water – a stark contrast to this grey concrete jungle. 
+
+Evelyn Blackwood, third year draftsman, wasn't just sketching buildings; she was building dreams, brick by brick.  But sometimes, even the most ambitious dreams felt like they were sinking into the city’s endless grayness.

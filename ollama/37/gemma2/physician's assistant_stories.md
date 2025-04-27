@@ -1,0 +1,5 @@
+The rain hammered against the corrugated tin roof of the clinic, each drop exploding in a miniature burst of sound that echoed through the small waiting room. Inside, Amelia "Amy" Harper sat hunched over her patient charts, the fluorescent lights casting harsh shadows across her face.  She was the only PA at the Hopewell Clinic, a ramshackle building perched precariously on the edge of Bayou Lafourche in rural Louisiana. The clinic served the sparsely populated community and its surrounding bayou communities, a place where healthcare access was as scarce as clean drinking water. 
+
+Amy sighed, pushing back a stray strand of auburn hair that had escaped her braid. It was always this way - the rain, the endless stream of patients with ailments both mundane and serious, the gnawing feeling that she wasn't enough. But tonight, something felt different.  A prickling sensation ran down her spine, a sense of unease that settled in her stomach like a lead weight. She couldn't shake the feeling that this storm, and the patients it was bringing, held more than just rain and sniffles. 
+
+

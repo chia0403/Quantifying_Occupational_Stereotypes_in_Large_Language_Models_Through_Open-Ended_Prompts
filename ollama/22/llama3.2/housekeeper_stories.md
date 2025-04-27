@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+The fog rolled in off the ocean, shrouding the small coastal town of Ravenswood in a damp, gray mist. The streets were empty, save for the occasional stray cat or dog making its way through the darkness. Inside the grand, Victorian-era mansion that stood at the top of the hill, Amelia Waverley moved quietly through the deserted halls, her footsteps muffled by the thick carpets.
+
+As the housekeeper for Ravenswood Manor, Amelia had grown accustomed to the rhythms of the estate's daily routine. She knew every creak and groan of its ancient wooden floorboards, every flicker of the candles in the long, dark corridors. But tonight felt different. Tonight, a sense of unease settled in the pit of her stomach as she made her way from room to room, checking the various rooms that had been left vacant by the family's departure for the winter.
+
+Amelia's own small apartment was down at the bottom of the hill, just a short walk from the manor. She had lived there for years, content in her quiet, predictable life as the keeper of Ravenswood's secrets and stories. But tonight, as she moved through the deserted halls with her lantern held high, Amelia couldn't shake the feeling that something was waiting for her - something that didn't want to be ignored.
+
+As she turned a corner into the east wing of the manor, Amelia caught sight of a piece of paper tacked to the wall. It was an old photograph, one she had seen before but never really noticed until now. The image depicted a young woman with a striking face and piercing green eyes - a woman who looked uncannily like Amelia herself.

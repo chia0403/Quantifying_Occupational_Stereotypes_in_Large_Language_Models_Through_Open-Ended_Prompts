@@ -1,0 +1,5 @@
+The smell of mildew and desperation hung heavy in the air, clinging to the peeling floral wallpaper like a stubborn vine. Rain hammered against the grimy, arched window of the basement apartment, a mournful soundtrack to the symphony of drips echoing from somewhere within the walls. Eleanor "Elle" Marie Dubois, plumber extraordinaire and eternal optimist, sighed. This was going to be one of those jobs.
+
+The address, 13 Willow Creek Lane, Belwood, had already set off alarm bells. A converted Victorian mansion, now subdivided into a warren of cramped, neglected apartments, it was practically a museum of antiquated plumbing. And the frantic, near-hysterical call from Mrs. Periwinkle in Apartment 3B had painted a vivid, if somewhat melodramatic, picture of a "bubbling, gurgling, and frankly, malevolent" toilet.
+
+Elle hefted her trusty tool bag, its worn leather softened by years of service and stained with the ghosts of countless plumbing emergencies. She adjusted her flashlight, its beam cutting a swathe through the gloom, and descended the creaking, narrow stairs into the heart of the plumbing abyss. Time to face the gurgling, malevolent toilet.

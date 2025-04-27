@@ -1,0 +1,5 @@
+The neon glow of the "Lucky Star" diner sign buzzed against the oppressive heat radiating off the cracked asphalt.  Dust devils danced in the late summer heat, swirling around the chrome-plated facade of the truck stop like ghostly apparitions. Inside, Elara Thorne adjusted her worn leather trucker hat and pulled a greasy fry from the paper bag, hoping to find some semblance of normalcy in the storm brewing outside. 
+
+Elara's beat-up '69 Chevy Silverado, christened "Rusty" by her gruff but loyal father, rumbled into life, its engine groaning like a tired bear awakening from winter slumber.  A symphony of horns and rumbling engines filled the air as a constant parade of trucks entered and left the stop. Elara, with her calloused hands and faded denim overalls, blended in seamlessly. 
+
+She'd been on the road for weeks, hauling freight across the vast emptiness of America, a lone wolf navigating the endless highway system.  Each mile seemed to etch another layer of fatigue onto her soul. The open road, once a source of freedom and adventure, now felt more like a prison she was struggling to escape. 

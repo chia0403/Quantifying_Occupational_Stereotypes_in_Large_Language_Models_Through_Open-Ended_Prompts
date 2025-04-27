@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun was setting over the ancient city of Petra, casting a warm orange glow over the narrow canyon known as the Siq. Tourist groups milled about, cameras clicking and guides shouting out facts to their entranced audiences. Amidst the chaos, Azizah Amira Hassan, affectionately known as "Azee" by her clients, stood at the edge of the crowd, surveying the scene with a practiced eye. A native of Petra, born and raised in this very city, Azee had spent years honing her knowledge of its hidden corners and secrets, and was one of the most sought-after tour guides in the area.
+
+As she adjusted her headset and took a deep breath of the dusty air, Azee's gaze fell on a small, peculiar-looking individual lingering at the edge of the crowd. Dressed in worn jeans and a faded t-shirt, this stranger seemed utterly out of place among the sea of camera-wielding tourists. And yet, there was something about him that caught Azee's attention - a look of quiet intensity, perhaps, or a sense of restlessness that belied his carefully composed demeanor.
+
+With a faint smile, Azee tucked her earbud into her ear and began to scan the group list on her tablet, preparing for another long day of leading visitors through the winding streets and temples of Petra. Little did she know, however, that this stranger was about to shake up her carefully constructed world in ways she could hardly imagine...

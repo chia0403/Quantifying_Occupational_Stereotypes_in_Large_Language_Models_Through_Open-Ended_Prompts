@@ -1,0 +1,7 @@
+Once upon a time, there was a executive named Bill Hagerty who knew his way around a baseball diamond. The Cincinnati Reds, with their young hotshot pitcher named Johnny Podres, needed a fourth starting pitcher to start the season. Hagerty was ready--in a small league in Texas. He would be a free agent some time this offseason, but he still wanted to be at the table.
+
+Like many players around that time, Hagerty was intrigued by the recent success of the Oakland Athletics' big three or "Big 3" of Barry Zito, Mark Mulder and Steve Henderson. The trio were the best trio ever assembled, and they were young and fast. Hagerty wasn't certain that he would make an impact when the Reds signed him this winter; he still had other priorities on his agenda. A few weeks before his signing, on May 19, the Reds announced they had signed Hagerty to a free agent contract.
+
+On July 4th, the Reds hosted the Atlanta Braves in the first game of a doubleheader at Riverfront Stadium. Atlanta was coming off back-to-back losing seasons and had replaced two veterans in Dontrelle Willis with another young arm in Brandon Beachy. The game was set to start around 8:00. With the game getting underway, a call appeared on the radio. It was Hagerty. He had landed a start.
+
+Hagerty, now 32, played all three

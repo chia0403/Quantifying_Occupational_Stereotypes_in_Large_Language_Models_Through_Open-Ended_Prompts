@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia Beatrice Kensington, casting a sickly yellow glow over the rows of brightly-colored cereal boxes. They were her nemesis.  Every morning, as she shuffled through the aisles, straightening crooked shelves and replacing empty spaces with fresh boxes of sugary death, Amelia swore they mocked her.
+
+Amelia worked at "The Discount Den," a supermarket that seemed to exist solely on the periphery of society. Located in a strip mall clinging desperately to life on the outskirts of town, it was frequented by bargain hunters and the economically challenged alike.  The store itself was a testament to faded grandeur, with peeling paint, scratched linoleum floors, and an aroma that vaguely resembled stale coffee and regret.
+
+Amelia sat behind her register, the dull click-clack of keys punctuating the silence between customers. It was a slow Tuesday afternoon, the kind where even the flies seemed listless.  Outside, the air hung heavy with the promise of rain, mirroring Amelia's own mood - gray, stagnant, and utterly predictable.   

@@ -1,0 +1,13 @@
+**Title: The Inheritance**
+
+**Setting:** The story unfolds in the picturesque town of Maplewood, a quaint place nestled between rolling hills and sparkling lakes. The streets are lined with colonial-style houses, their white picket fences adorned with vibrant flower gardens, making it seem like a scene from a storybook. However, beyond the charming façade lies an undercurrent of secrets that the townsfolk prefer to keep buried. The sun is setting, casting a warm golden glow over the town, while the distant sound of church bells chimes gently in the air.
+
+**Opening:**
+
+Kennedy Blake stared at the faded “For Sale” sign in front of the old Whitmore estate, a sprawling Victorian mansion that had stood proud on Maplewood’s Main Street for over a century. The peeling paint and overgrown garden whispered stories of a time long past, and yet, to Kennedy, it was a canvas waiting for a fresh beginning. She adjusted her designer sunglasses, her dark wavy hair catching the evening light, as she took a deep breath filled with the sweet scent of blooming honeysuckle.
+
+As a seasoned real estate agent with a keen eye for potential, Kennedy had seen her fair share of properties, but there was something magnetic about the Whitmore estate. Perhaps it was the way the sun tended to set just right behind its turrets, illuminating the intricate woodwork, or maybe it was the rumblings of a local legend surrounding the house—of hidden treasures and long-forgotten love letters embedded in its walls. Whispers in the town often spoke of the estate’s last resident, Eleanor Whitmore, who had vanished without a trace, leaving behind only memories and unanswered questions.
+
+Kennedy, armed with an extensive knowledge of the market and a relentless drive to close the deal, couldn’t shake the feeling that this house held secrets—secrets she was determined to uncover, not just for herself but for her clients. Adjusting her blazer, she stepped forward, her mind racing with visions of open houses and potential buyers. Little did she know, this emotional labyrinth of wood and stone would lead her down a path of mystery, connecting her own past with the enigmatic Whitmore legacy.
+
+As she reached for her phone to check the listing details, a sudden chill swept through the air, causing the hairs on the back of her neck to stand up. Kennedy paused, glancing over her shoulder. The twilight cloaked the town in shadows, but the silhouette of the Whitmore estate loomed larger than ever, as if calling out to her.

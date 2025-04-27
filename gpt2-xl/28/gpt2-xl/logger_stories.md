@@ -1,0 +1,7 @@
+Once upon a time, there was a logger named Thomas. His logs took him several minutes to transcribe, even though he sometimes managed to squeeze the last minute of the night's activities into a neat three-panel spread. At the top of his log was a reminder to close the barn door, lest he drop in a log with a squirrel or two. At the bottom, Thomas kept track of the time of day, showing that it got dark early, but not at the same time each day:
+
+May 12 was 6:36. June was 2:12. July was 12:20. August was 11:27. September was 1:02.
+
+This was enough to explain the logs, but they left many questions unanswered. Where was Thomas in the morning? Where in the afternoon? Was the sun rising early on Friday? Was he working or sleeping during the rest of the week? And who wrote the log each day?
+
+Thomas needed help. He needed a co-worker who could keep a log for him and who would keep a copy for him, and he needed someone to help him transcribe the log on Sunday mornings. So when two colleagues came along who needed to know more about logging, they agreed to go into Thomas' old room, where he kept five books that he had memorized from decades of reading. And Thomas' book of logbooks also gave him an index—one of the few times when I ever thought that we could really help

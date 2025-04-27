@@ -1,0 +1,5 @@
+Here's a potential story opening:
+
+As the sun set over the ancient city of Petra, casting a warm orange glow over the intricately carved facades of the towering sandstone cliffs, Amelia Rose Thompson stood at the edge of the narrow canyon, her eyes scanning the sea of tourists that flowed behind her like a golden tide. She took a deep breath, feeling the dry desert air fill her lungs, and smiled to herself as she began her daily routine: greeting visitors with a warm smile, sharing tales of the ancient Nabateans who had once called this place home.
+
+Amelia Rose Thompson was more than just a tour guide, however - she was also the keeper of secrets. As a descendant of a long line of archaeologists and antiquarians, she had spent years studying the hidden stories and symbols etched into the stones themselves. And tonight, as the tourists streamed in to explore the famous Treasury building, Amelia couldn't shake the feeling that something was off...

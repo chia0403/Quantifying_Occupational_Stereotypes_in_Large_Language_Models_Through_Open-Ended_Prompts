@@ -1,0 +1,7 @@
+Once upon a time, there was a interior decorator named David Siegel who, after working for decades in the interior design industry, went to the National Gallery of Art, where he worked with artists, to make portraits of the artists as they aged. Over 30 years, the pictures made for the show are truly stunning — from a young Frank Lloyd Wright to an artist's final work — and their quality is only rivaled by the original pieces.
+
+But the gallery's own David Siegel has also taken to making his own. Siegel's Siegel Designs creates the perfect look in a few weeks or even a day for any decor.
+
+But this is more than just creating a cool look. David Siegel isn't just giving his clients an amazing look. After all, the client has to be a fan of the original work — as many of the artists, including Frank Lloyd Wright, were not. So Siegel goes above and beyond by making sure to use only the original details and to choose only pieces that really look the same… or look like it was designed by Siegel himself.
+
+David Siegel's lookbook is one that will surely stand the test of time for decades. From the original photos, to Siegel's exacting instructions, to his meticulously detailed drawings, David Siegel's artistry will delight your inner artist so that you and your furniture go off to the corner for more of the same.

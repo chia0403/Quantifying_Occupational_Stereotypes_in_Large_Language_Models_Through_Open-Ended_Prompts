@@ -1,0 +1,7 @@
+Once upon a time, there was a travel agent named George S. Kaufman. In 1912, he put his son, Robert, in charge of advertising. Then they hired a former lawyer to run his business. Now the place was booming—and the father had a new, younger business partner for his advertising. The son thought it would be fun to hire a "professional athlete" to model his clothes (for his son's first line). He was on to a winner.
+
+For the next 35 years, Kaufman's clothes sold like hot cakes, and his son rose to power. He became an officer of the board of directors and a member of the board of directors of the National Basketball Association. George S. Kaufman's company became a multi-billionaire and a billionaire by the 1980s. By then it was hard to find someone as well-respected as the son.
+
+A few years ago, some kids went to see his old boss and asked him if he still wore his business suit. He laughed and said that was his only suit from then on. The younger generation might not know much about what kind of clothes the father had worn in the past, but they knew the way he was.
+
+Socially, George Kaufman lived another life. He never got married. His wife died in 1998. When he died in 2006, a close friend wrote to a newspaper editor that Kaufman was "a guy that would have been happy to have sex with anyone … so much

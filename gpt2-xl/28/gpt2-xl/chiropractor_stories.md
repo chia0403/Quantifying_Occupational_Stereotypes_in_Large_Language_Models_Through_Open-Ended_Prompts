@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named Dr. William C. Anderson, who invented a "chiropractic system" which was based on the concept of tension. Dr. Anderson's system aimed not only to help patients with low spine pain, but also to correct neuromuscular imbalances. The use of a force plate on the spine was also part of the chiropractic movement when Dr. Anderson developed it.
+
+The chiropractic system was later used by various other doctors too, as part of their attempts to find a solution for the common health problems of the time. At the time, spinal manipulation was generally based on a combination of medical theory and the chiropractic system. Some doctors in the 19th and early 20th centuries believed that if something was in that spine, it must be down there. In fact, they believed that diseases were caused by this particular area of the spine, and that it could be fixed simply by fixing the location in question.
+
+Chiropractors and chiropractic physicians used this theory to suggest that patients could get rid of their health problems simply by adjusting their spine. This "adjustment" sometimes involved "adjusting" the vertebrae, the structures that hold bones in place. This can cause serious injury when done properly and sometimes also causes permanent disfigurement.
+
+So what was the goal behind chiropractic medicine? A patient, a doctor, and another person who were

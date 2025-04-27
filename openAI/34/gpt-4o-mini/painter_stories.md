@@ -1,0 +1,9 @@
+**Title: Canvas of Shadows**
+
+**Setting:**
+In the quaint coastal town of Barrow’s End, where the chalky cliffs tower over the sea and the ocean breeze carries the salty scent of adventure, a dilapidated cottage stands at the edge of a winding path. It is painted a faded blue, the once-bright hue bleached by relentless sun and saltwater. Vibrant bursts of wildflowers line the path, and the rhythmic sound of waves crashing against the rocks provides a soothing backdrop. Inside, sunlight filters through dust-caked windows, illuminating the scattered remnants of creativity: brushes splayed like weary soldiers, paint splatters adorning the wooden floor, and canvases leaning awkwardly against the walls, each telling a story of its own. Here, amidst the chaos, resides the enigmatic painter, Eloise Mae Hargrove.
+
+**Opening:**
+Eloise Mae Hargrove stood transfixed in front of her easel, her heart racing as the sun dipped toward the horizon, scattering gold and crimson hues across the sky. The vibrant colors mirrored the turmoil brewing within her—an artist’s hunger for authenticity, coupled with the weight of an unresolved past. With each stroke of her brush, she surrendered part of her soul to the canvas, an act both liberating and terrifying. 
+
+Today, however, was different. The air crackled with a sense of impending revelation. As she dipped her brush into the deep indigo paint, Eloise caught a glimpse of movement outside her window—a flash of white, a figure dancing along the cliff’s edge. Intrigued, she stepped back from her creation, the scene before her forgotten for a moment as curiosity tugged at her. What secrets lay in the shadows of Barrow’s End, and how would they intertwine with her art? As the sun dipped lower, illuminating her world in ethereal light, Eloise felt that the answers were closer than she had ever imagined.

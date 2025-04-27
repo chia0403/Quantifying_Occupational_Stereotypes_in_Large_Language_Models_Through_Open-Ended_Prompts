@@ -1,0 +1,5 @@
+The air hung thick with the scent of acetone and jasmine as Esme Juniper filed down another layer of chipped pink polish. Her tiny workspace nestled in the corner of "Nails & Nonsense," a bustling salon tucked away on Elm Street, felt worlds away from the chaos swirling outside. Rain lashed against the windowpanes, blurring the neon signs advertising everything from discount haircuts to psychic readings. 
+
+Esme wasn't fazed by the storm. She found solace in the rhythmic scrape of her file against acrylic nails and the quiet murmurs of conversation that punctuated the clanging of dryers and the whirring of drills.  A steady hand and a keen eye for detail were all she needed to transform rough talons into works of art, each set reflecting a story waiting to be told. But today, the whispers from beneath the manicures felt different – laced with an anxious undercurrent that even Esme's practiced calm couldn't entirely soothe.  Something was brewing in Elm Street, and it had nothing to do with the weather. 
+
+

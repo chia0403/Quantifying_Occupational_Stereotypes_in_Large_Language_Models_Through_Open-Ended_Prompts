@@ -1,0 +1,7 @@
+On the sun-drenched cobblestones of Lisbon, the air buzzed with a melody of languages and the scent of roasted chestnuts mingling with salt from the nearby Atlantic. Streets wound lazily up and down the city’s seven hills, while the electric yellow trams cheerfully climbed along their rails, carrying passengers to an era gone by. At the heart of this vibrant tableau stood Eleanora "Nora" Veloso Duarte, a tour guide with an insatiable love for the stories etched into every corner of her beloved city.
+
+Nora, a Lisbon native with dark, curly hair and eyes as deep and unraveling as Fado music, wore a lively smile that welcomed travelers from all over. Her voice, confident and warm, wove tales from Portuguese history as effortlessly as the sea whispered along the city’s ancient walls. This morning, she stood at the foot of the Alfama district, where narrow alleys and aged tiles whispered secrets from a thousand yesterdays. Her group of eager tourists clustered around, their gazes tracing the lines of the aged architecture as she began to speak.
+
+“Welcome, my friends, to the soul of Lisbon,” Nora started, arms outstretched as though to embrace the city itself. “Today, we’ll wander through time, with each brick underfoot and each archway overhead telling us their story. Let’s step lightly and listen with full hearts, for this place has much to say.”
+
+This was no ordinary tour; with Nora at the helm, even the past seemed to come alive, dancing spiritedly into the present.

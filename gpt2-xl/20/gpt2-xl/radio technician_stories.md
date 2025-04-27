@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named John. His job was to be the gateway and he had no patience for the idiots that were calling in. He'd be bored to tears and it was much more fun to do this.
+
+The callers did not like being spoken to in the first instance and when he'd ask them to dial their own number, they'd answer 'Hello? Are you there?' and hang up before ever doing so. When the idiot in question hung up, the call turned into one for a real amateur and they didn't let him get away with it.
+
+Most of the callers were morons, most of them really, and John's job was to take the call that never was and find out what it was about. When he was first introduced to the calls, he was amazed at how different they were and how much they sounded alike. But he quickly became accustomed to them and now, of course, most things he's heard on the radio, he can still remember. In the meantime, some dumbass did find him out and he didn't mind. He'd become a bit of a legend in town and he found everyone to be a bit jealous over his new post.
+
+They thought him quite strange for a while and some of them had even gone so far as to call in and ask him to shut up when he tried to make himself more popular. Some of the calls did have good ideas in them. A

@@ -1,0 +1,6 @@
+The fluorescent hum of the pharmacy lights cast an anemic glow over Amelia Beatrice Hawthorne's neatly-organized counter. The air smelled faintly of antiseptic and cough syrup, a familiar scent that had become as comforting as chamomile tea to her. Outside, the humid August air hung heavy with the promise of rain, mimicking the weight settling in Amelia's chest. It wasn't just the usual Tuesday afternoon lull; something felt off, like a dissonant note in an otherwise harmonious symphony.  
+
+Amelia’s small-town pharmacy, Hawthorne Apothecary, had been her family's legacy for generations. She prided herself on knowing every customer by name, their ailments, and even the occasional embarrassing habit they tried to conceal. Today, however, the familiar faces were absent. A strange silence hung in the air, broken only by the rhythmic click of Amelia's keyboard as she updated prescriptions.  
+
+
+The bell above the door chimed, jarring Amelia from her thoughts. She glanced up, expecting a weary face needing their usual headache remedy. Instead, a figure stood silhouetted in the doorway, obscured by the encroaching twilight. A shiver ran down Amelia's spine. This stranger was different. Their silhouette held an air of urgency, their presence vibrating with a silent plea that sent a cold wave washing over her. 

@@ -1,0 +1,5 @@
+The biting wind whipped Amelia Hawthorne's crimson scarf around her neck, stinging her cheeks as she hurried down the cobbled lane.  London, shrouded in a perpetual grey mist, seemed to cling to itself like a damp shroud.  The air, thick with the scent of coal smoke and damp earth, hung heavy in her lungs, a stark contrast to the vibrant, bustling energy she felt she should be carrying.  Today, however, that energy felt trapped, a caged bird beating against its bars.
+
+Amelia, Physical Therapist, specializing in neurological rehabilitation, glanced at the crumbling Victorian building ahead.  Number 12,  Fitzwilliam Place.  A place whispered about in hushed tones amongst the city's medical professionals – a place shrouded in rumours of miraculous recoveries and baffling cases.  It was here, at the perpetually shadowed practice of Dr. Alistair Finch, that Amelia had been assigned to assist with a patient whose condition defied conventional understanding.  
+
+The name, etched into a tarnished brass plaque above the door, seemed almost to writhe under the insistent rain:  "Alistair Finch,  M.D."  This was no ordinary physiotherapy case; this was something more.

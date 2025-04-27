@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named Jeff King. It was King's job, according to his Wikipedia entry, to "identify judges who were incompetent to administer the law." In his day, King did his best to keep the good people of Florida (a state where he himself was born) from running afoul of the law. Now he has his own Wikipedia page.
+
+The page—called "Judge Mike"—was created back in 2003, in response to a dispute King had with a former law clerk in 2003; during this time, Mike had the temerity to run for election to the court, and was appointed to replace a judge who had retired. King immediately called in Mike and ordered that the entire case be remanded back to the bench, for King to investigate the clerk's conduct. Mike ended up writing a lengthy statement stating that he'd gone out of his way to be fair and honest—"not for pay," Mike wrote—and not just about the case, but about other candidates in the judicial race.
+
+The page then went viral: it was featured on New York Magazine, Business Insider, Buzzfeed, and Vanity Fair, and the judge, who was known for his "jerk-free" judicial style, became even more famous.
+
+As a member of Florida's First Circuit Court of Appeal, King presided over cases involving, among other things, "candy production, gambling establishments, and the right to vote," according to

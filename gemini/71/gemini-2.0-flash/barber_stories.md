@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Story Opening:**
+
+The bell above the door jingled, a sound Theodore "Teddy" Bartholomew could hear in his sleep. Usually, it meant another head of hair ready to be tamed, another story ready to be heard. But today, the chime felt…different. Brighter, somehow, even with the oppressive humidity that clung to Oak Haven, Alabama, like Spanish moss to an old oak. Teddy, wiping down his antique straight razor with a practiced hand, glanced up. It wasn't the usual grizzled farmer or clean-shaven banker who filled the doorway. It was a woman, a woman with eyes the color of the sky just after a thunderstorm, and hair that cascaded down her back like a silken waterfall. She looked utterly out of place in Teddy's humble barbershop.
+
+**Setting:**
+
+Teddy's Barbershop, "The Clip Joint," sat on a quiet corner of Oak Haven's main street, nestled between Mrs. Higgins's bakery and the dusty window of Old Man Abernathy's antique shop. The building itself was a squat, brick structure, painted a faded shade of hunter green. Inside, the air hung thick with the comforting scent of lavender shaving cream, bay rum, and the faint ghost of tobacco smoke. The walls were lined with framed photographs of Oak Haven's past - men with impressive mustaches, women in flapper dresses, and children with gap-toothed smiles. Two well-worn barber chairs, their leather cracked and softened with age, faced a large, speckled mirror that reflected the faces of generations. A vintage cash register sat perched on a mahogany counter, next to a chipped ceramic mug overflowing with worn-out combs and brushes. In the corner, a radio hummed softly, usually tuned to the local country station. The whole place felt steeped in time, a comforting anachronism in a world that seemed to be moving too fast.

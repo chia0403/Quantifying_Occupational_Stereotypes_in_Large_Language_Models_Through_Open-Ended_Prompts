@@ -1,0 +1,9 @@
+**Opening:**
+
+The digital 'ding' of a new email cut through the morning's quiet like a shattered champagne flute. Eleanor Vance, slumped over her lukewarm coffee and a stack of brochures promising "Waterfront Bliss!" and "Urban Oasis!", groaned. Even before she opened it, she knew what it would be: another price reduction on the Miller property, another plea from Mrs. Henderson to "consider all offers, even the slightly offensive ones," another virtual ghost town haunting her inbox. Eleanor, however, was nothing if not doggedly optimistic, a necessary trait in the volatile Charleston real estate market. This time, however, the subject line was different. It read: "Regarding Rosewood Manor - Confidential Inquiry."
+
+**Setting:**
+
+Eleanor Vance's life, and therefore her professional existence, revolved around the historic charm and simmering secrets of Charleston, South Carolina. Her office, Vance Realty, was nestled on a cobblestone street just off King Street, a meticulously restored building with wrought-iron balconies overflowing with vibrant bougainvillea. Inside, exposed brick walls were adorned with framed historic maps and sepia-toned photographs of the city's past. The air, thick with the scent of magnolia and the promise of sweet tea, was perpetually chilled by the whirring of an antique fan.
+
+Eleanor herself embodied the city's refined elegance. Her dark hair, usually pulled back in a sophisticated chignon, framed a face that held both shrewd business acumen and a disarming warmth. Today, though, the warmth was dimmed by the weariness of a market stubbornly refusing to cooperate, and the humid Charleston heat was already threatening to wilt the crisp linen dress she’d chosen with such care. Outside, the clip-clop of horse-drawn carriages mingled with the hum of luxury SUVs, a constant reminder of the city's delicate balance between tradition and modernity, a balance Eleanor struggled to navigate every single day.

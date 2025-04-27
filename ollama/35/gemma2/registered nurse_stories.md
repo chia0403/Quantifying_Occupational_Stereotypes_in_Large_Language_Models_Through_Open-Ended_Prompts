@@ -1,0 +1,6 @@
+The air hung thick with antiseptic and the quiet hum of machinery in Room 304. The pale fluorescent lights cast a sterile glow over Amelia "Amy" Sinclair's face as she meticulously checked Mr. Johnson's vitals, her brow furrowed in concern.  He lay still on the bed, his chest rising and falling shallowly with each labored breath. A tangle of tubes snaked from his body, connecting him to machines that beeped and whirred, a constant reminder of his precarious state. 
+
+Amy was used to the weight of lives hanging in the balance, the silent pleas etched into every furrow of a patient's brow. But there was something different about Mr. Johnson, something unsettling beneath the rhythmic beeping and the clinical calm of the hospital room. He had arrived that morning after a car accident, his injuries severe but not insurmountable. Yet, since she began her shift, an uneasy feeling had crept over Amy like a cold fog. It wasn't just the complexity of his case; it was something deeper, a sense of unspoken urgency hanging heavy in the air.  
+
+
+The hospital itself was a labyrinth of sterile hallways and hushed voices, always bustling with life yet strangely quiet when seen through the lens of impending loss. Outside, the city of New Haven hummed with oblivious energy, unaware of the silent dramas unfolding within these walls. 

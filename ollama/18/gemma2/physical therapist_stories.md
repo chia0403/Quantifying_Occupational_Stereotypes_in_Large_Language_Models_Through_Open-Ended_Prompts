@@ -1,0 +1,5 @@
+The stale scent of antiseptic hung heavy in the air, mingling with the faint aroma of lavender disinfectant cleaner that Eleanor “Ellie” Beatrice Hawthorne tried to use as a counterpoint. It was never quite enough to mask the hospital smell, a pungent reminder that she was perpetually walking through a battlefield of broken bodies and fractured spirits.  
+
+The sun, weak and watery through the grimy windowpanes, cast long shadows across Ellie’s cluttered workspace – a corner of the rehabilitation ward in General Mercy Hospital. A half-eaten banana sat on a stack of medical journals next to her laptop, its flesh already browning at the edges. Outside, the city of New Haven hummed with a distant energy, oblivious to the quiet struggle taking place within these four walls. Ellie watched as another patient, his face pale and drawn, hobbled through the doorway, his leg encased in a bulky cast.  She took a deep breath, adjusting her glasses, and prepared to fight another day against pain and despair. 
+
+

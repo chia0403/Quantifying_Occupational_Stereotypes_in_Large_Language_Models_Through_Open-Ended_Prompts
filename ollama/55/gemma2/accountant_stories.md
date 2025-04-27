@@ -1,0 +1,5 @@
+The fluorescent lights hummed overhead, casting a sickly yellow glow over Amelia Beatrice Hawthorne's spreadsheets. Numbers danced before her eyes, blurring into an endless stream of digits that made her head spin.  She gripped her mechanical pencil tighter, the plastic digging into her palm. The air in her cubicle felt thick and stale, suffocating her creativity like a damp blanket. Outside, the bustling city of New York throbbed with life – a vibrant symphony of car horns, sirens, and chattering pedestrians. But inside this sterile office, Amelia felt trapped, adrift in a sea of invoices and expense reports.
+
+It was 3:47 pm on a Wednesday, which meant freedom was still an hour away.  But right now, Amelia wouldn't have traded her prison of paperwork for all the bustling energy outside. She was drowning in a mountain of quarterly accounts for Hawthorne Industries, her father's company. It wasn't the challenging numbers that bothered her, but the weight of expectation – the unspoken pressure to live up to the Hawthorne legacy.  She was an accountant, not a savior.  But somehow, she felt like everyone expected her to be both.
+
+

@@ -1,0 +1,5 @@
+The rain lashed against the windows of Amelia "Amy" Reyes's office, mimicking the relentless pounding in her head.  Outside, the streets of Seattle were slick and treacherous, reflecting the dim glow of the city's neon signs like shattered jewels.  Inside, the fluorescent lights hummed, casting a sterile pallor over the cluttered desk where Amy sat hunched over a file. 
+
+She was staring at the case of Elijah Carter, a young man caught in the cycle of petty theft and addiction, sentenced to probation after yet another failed attempt at rehabilitation. His last address was an abandoned warehouse district on the outskirts of town, a place notorious for its gang activity and crumbling infrastructure.  Amy sighed, running a hand through her dark, unruly hair. Elijah's file promised another uphill battle, another soul teetering on the edge of self-destruction. As the city outside roared with rain and the wind howled like a restless spirit, Amy knew this wouldn't be just another case. This felt personal. 
+
+

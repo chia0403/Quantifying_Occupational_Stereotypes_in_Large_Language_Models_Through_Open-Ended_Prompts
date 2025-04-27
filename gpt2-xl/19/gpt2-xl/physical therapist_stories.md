@@ -1,0 +1,7 @@
+Once upon a time, there was a physical therapist named Tony Mollica. It was on the night of one of his many visits to another Tony Mollica that we first noticed this strange phenomenon.
+
+He was talking with another therapist named Jeff Zangerman. They were standing next to a pool, discussing the different techniques they were using to help their patients practice their mental agility on the water. While they were talking, there was a rumbling in the background. After Mollica and Zangerman were done, the rumbling changed and the pool seemed to be shaking with the force of some large, invisible hands slamming the bottom.
+
+Soon the entire field of the therapy room seemed to shake and Zangerman began asking us to come forward and walk through the doorway without touching anything. At the time, we thought it was just a bad reaction to the rumbling in the pool and walked through without a word. But then there was a pause, then there was a second pause, and then a third pause. The third pause was about as long as the first two, and it seemed to shake the entire room. Suddenly the rumbling stopped, but the pool remained quiet. It seemed as though whatever it was that had been rumbling was now out of control.
+
+It was at this point that Zangerman put his hand in the doorway and pulled out a large hammer. Instantly the pool began shaking and we saw it begin to move towards a corner

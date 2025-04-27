@@ -1,0 +1,5 @@
+The air in Eloise Aveline's workshop hung thick with the scent of fresh linen and lavender oil. Sunlight streamed through the dusty windows, illuminating motes dancing in the golden rays.  Outside, London bustled with its usual symphony of clattering carriages, hawkers’ cries, and the distant rumble of industry. But within the cozy confines of her shop, tucked away on a quiet cobblestone street in Mayfair, Eloise existed in a world of meticulous seams, rustling silks, and whispered dreams. 
+
+She knelt before a mahogany workbench, her nimble fingers tracing the intricate embroidery pattern on a duchess's gown. The fabric was a deep indigo velvet, shimmering like a moonless sky, and each carefully placed pearl stitch sparkled like distant stars. It was a delicate piece, requiring both precision and artistry – qualities Eloise possessed in abundance. But even as she worked, her mind drifted away from the opulent garment, pulled by an unsettling premonition, a whisper of unease that refused to be ignored. 
+
+

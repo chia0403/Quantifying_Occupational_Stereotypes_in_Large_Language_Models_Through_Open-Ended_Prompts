@@ -1,0 +1,7 @@
+As the last wisps of daylight dissolved beneath the horizon, casting a warm orange glow over the bustling streets of New Orleans' French Quarter, Elianore "Eli" Thibodeaux trudged wearily through the crowded lobby of the prestigious Hotel Montague. The soft strains of jazz music and the murmur of hushed conversations created a soothing background hum that was both familiar and comforting to Eli, a bellhop who had spent countless nights navigating the hotel's labyrinthine corridors and charming guests.
+
+Eli, with his dark hair slicked back and his bright brown eyes shining behind wire-rimmed glasses, moved with a practiced ease, his worn leather shoes making barely a sound on the polished marble floor. He wore a crisp white uniform with the Hotel Montague's logo emblazoned on the chest, a symbol of pride and dedication to the hotel's rich history.
+
+As he made his way to the front desk, Eli's mind wandered to the long night ahead, one that promised to be filled with weary travelers, late-night room service requests, and the occasional VIP who would demand special attention. It was a never-ending cycle, but one that Eli had grown to love, for in the midst of chaos, he found a sense of purpose and belonging.
+
+Little did Eli know, however, that this particular night would be different from all the others. A mysterious guest was set to arrive, one who would shake the foundations of Eli's quiet existence and set him on a path that would lead him down a dark and winding road.

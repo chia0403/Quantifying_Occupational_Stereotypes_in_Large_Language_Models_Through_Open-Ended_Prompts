@@ -1,0 +1,9 @@
+**Story Opening:**
+
+The whistle screeched, cutting through the humid August air like a rusty saw. Beads of sweat, not just from the sweltering heat but also from simmering frustration, trickled down the back of Coach Eleanor "Ellie" Ramirez's neck. Her jaw was set, a tell-tale sign for anyone who'd known her longer than five minutes. Her eyes, normally a warm, encouraging hazel, were narrowed, fixed on the cluster of bewildered teenagers struggling to execute a simple passing drill.
+
+"Alright, ladies, huddle up!" she barked, her voice carrying across the poorly maintained field. The girls, a motley crew of varying athletic abilities and levels of enthusiasm, shuffled towards her, their faces a mixture of anticipation and dread. Ellie resisted the urge to sigh. This wasn't just about soccer. It was about more than the game. It was about building something, about pushing them to believe they could be better, both on and off the field. And right now, they looked like they believed exactly the opposite.
+
+**Setting:**
+
+The year is 2024. The story takes place in the small, economically depressed town of Havenwood, nestled deep in the Appalachian Mountains of West Virginia. Havenwood High School, a brick building showing its age with cracked paint and overgrown ivy, is the heart of the community, for better or worse. The soccer field, affectionately (and ironically) dubbed "The Pitch" by Ellie, is anything but pristine. Patches of bare earth are scattered across the uneven surface, and the goal nets are riddled with holes, victims of years of neglect and underfunding. The surrounding landscape is a mix of verdant forests and the scars of abandoned coal mines, a constant reminder of Havenwood's fading prosperity. The air is thick with the smell of damp earth and, depending on the wind, the faint acrid odor from the now-defunct coal processing plant on the edge of town.

@@ -1,0 +1,5 @@
+The sun, a malevolent eye glaring down through the haze, beat relentlessly on Thomas Alistair Finch's neck as he clambered across the corrugated iron roof. Sweat stung his eyes, mixing with the grime that caked his face from a morning spent battling loose shingles and stubborn nails. Below him, Mrs. Higgins watered her petunias, oblivious to the precarious ballet unfolding above her head. Tom took a deep breath, savoring the familiar scent of hot metal and tar, a smell that was both comforting and repulsive all at once. He gripped his hammer tighter, preparing for the next step: wrestling with the recalcitrant vent cover.  
+
+The setting is a sleepy, dusty suburb just outside a bustling city. Houses huddle together like anxious children, their paint peeling and lawns unevenly manicured. The air hums with the drone of cicadas and the distant rumble of traffic. It's a place where secrets simmer beneath the surface of suburban normalcy, hidden in plain sight like a loose shingle waiting to reveal its vulnerability. 
+
+

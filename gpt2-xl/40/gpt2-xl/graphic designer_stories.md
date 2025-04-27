@@ -1,0 +1,5 @@
+Once upon a time, there was a graphic designer named Michael Bierut. The art of graphic design was his passion, and it inspired him to create a brand of music that brought people together. His most acclaimed album, Born the Hard Way, went platinum in America, but it was met with harsh words and criticism from fellow musicians. "There's this whole culture of saying, 'How dare you do that,'" the legendary Lou Reed once said about Bierut's album.
+
+But Bierut knew his name was unfairly painted as a renegade for his decision to create a more inclusive listening experience. "I thought, 'If I've done anything worthwhile, it's been in the way we've put music into the hands of people of color,'" he told Wired's John Paczkowski. "I felt it was very important to have people of color and others who might be marginalised to know that these great bands are out there that are willing to support them—not only to support them and to speak for them, but to create opportunities and to work alongside them."
+
+It's a noble objective that, if embraced with passion, will benefit people from all walks of life.

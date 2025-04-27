@@ -1,0 +1,7 @@
+Once upon a time, there was a emergency medical care named CRIO, pronounced Conroe. CRIO is a local program in Fort Worth that provides first responder services to local emergency rooms and urgent care facilities via the mobile medical vehicle (MMV). Over the past nine years, the program has been a huge hit for Fort Worth paramedics, receiving praise in the Houston Chronicle for taking emergency services in an innovative and cost-effective manner.
+
+Recently, CRIO moved into an expanded mission to provide service to an even wider swath of the city, through the expansion of medical services to two new medical centers, including one of the largest emergency rooms in the city, and a new ambulatory surgery center called Surgery Center Atelier — both conveniently located across the street from CRIO's new Fort Worth mission.
+
+In all, these renovations, according to CRIO representatives, have reduced response times in Fort Worth by approximately 20 percent, in addition to significantly lower costs for patients and physicians. All this while being more responsive to the needs of residents in a more responsive manner, thereby expanding the EMS capacity and giving the local community more access to EMS on a daily basis.
+
+As the medical center's medical director, I am happy to admit that, in all honesty, I was surprised to hear of CRIO's successful expansion. While it is amazing to think of how far our EMS network has come in just a short time, it wasn't until I

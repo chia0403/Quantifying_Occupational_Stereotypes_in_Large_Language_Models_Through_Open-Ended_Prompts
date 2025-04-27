@@ -1,0 +1,5 @@
+The scent of citrus and hairspray mingled in the air like an old friend, comforting but slightly overwhelming for Elara Vance. Her fingers danced over her palette, swirling strands of fiery red dye into a cascading waterfall of auburn down Amelia's shoulder-length, dark locks. Amelia sat rigidly, head cocked, observing the transformations happening around her like a hawk surveying its territory. 
+
+The "Salon Serenity" sign above her door was faded from years of sunshine and neglect, yet it still held an air of calm amidst the cacophony of scissors snipping and laughter spilling out onto Elm Street. Elara's haven was tucked away in a quiet corner of town - an oasis for weary hearts and frayed edges, both literal and figurative. 
+
+Elara felt a pang of nostalgia as she surveyed her canvas: the worn wooden countertop where Amelia used to sit with her dreams written down on a spiral notebook and the collection of vintage hairdressing manuals that lined the shelves like time travelers. It was a place she'd inherited from her grandmother, a woman who had turned the mundane into magic, transforming people into something more.  Something beautiful. 

@@ -1,0 +1,6 @@
+The air hung thick with diesel fumes and the smell of burnt coffee, a familiar scent to Daniel Everett “Danny” Blackwood. He gripped the steering wheel of his D9 Caterpillar, its massive tracks churning through the red Georgia clay. The sun beat down on his weathered neck, turning his already tanned skin even deeper. Sweat trickled down his forehead, stinging his eyes as he squinted at the horizon, where dust devils danced in the hazy heat. 
+
+Danny was a man of few words, his communication largely confined to gruff nods and barked commands to his crew. He spoke only when necessary, preferring the company of machines over people.  The earth beneath him was his canvas, and the D9, his tool of creation.  He sculpted mountains out of dirt, carved trenches for pipelines, and leveled fields with a precision born from years of experience and an innate understanding of this unforgiving land. Today’s job: clearing a swathe of forest for a new housing development. A job Danny knew wouldn't be easy. 
+
+
+This sprawling tract of land, on the edge of Atlanta, was home to more than just trees. It whispered with secrets, held memories of generations past, and teemed with unseen life. Danny felt it beneath his boots, in the rumble of the earth, in the rustle of leaves disturbed by the D9's relentless advance. 

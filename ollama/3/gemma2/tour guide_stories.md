@@ -1,0 +1,5 @@
+The humid air clung to Esmeralda "Esme" Bellweather like a second skin as she adjusted her straw sun hat, beads of sweat already forming on her forehead despite the early hour.  Dawn was just breaking over the ancient ruins of Teotihuacan, casting long shadows from the towering pyramids that dominated the landscape. The desert floor, still damp with morning dew, crunched softly beneath Esme's worn leather boots as she surveyed the small group gathered before her. They were a motley crew –  a boisterous family from Texas, a lone backpacker sporting a faded Nirvana t-shirt, and a pair of retirees clutching their guidebooks with white knuckles. Esme grinned, feeling the familiar thrill of anticipation course through her. This was what she lived for – sharing the magic of this ancient city with wide-eyed visitors, weaving tales of lost civilizations and forgotten gods.
+
+"Welcome to Teotihuacan," Esme announced, her voice ringing clear over the hushed silence. "Prepare yourselves to be transported back in time, my friends, because today, we walk among giants." 
+
+

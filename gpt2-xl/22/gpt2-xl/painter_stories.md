@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named John K. Barleycorn. Every Thursday, he went to the church and talked to a man about God and Jesus. In the end, they all left happy, God had answered their prayers and had delivered them from Satan's traps.
+
+A while back, I started getting into more serious, philosophical discussions with God. There's a passage in the Bible where Jesus says to the woman caught in adultery– "he that is without sin among you, let him first cast a stone." That was Jesus' point– if you have a sin, first deal with it. He wanted us to start thinking about "where things are coming from," and start wondering about "why things are the way that they are."
+
+Jesus also said that he would leave heaven if he couldn't get through this life without shedding the blood of millions of other humans. Jesus was pretty angry about everything that would happen, so he wanted us to start making some hard decisions about what we're going to leave behind– if we're going to live or if we're just going to die. We are supposed to think about what it's like to be crucified and crucified, and it's a part of our spiritual life to start looking into our own mortality and asking ourselves if we have sinned.
+
+When you get to heaven, you're supposed to ask Jesus what needs doing (or not doing, if you want it to be really hard).

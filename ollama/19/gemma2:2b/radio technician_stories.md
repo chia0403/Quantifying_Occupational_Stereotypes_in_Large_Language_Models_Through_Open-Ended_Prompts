@@ -1,0 +1,5 @@
+The static crackled through the speakers like a thousand tiny voices arguing amongst themselves.  It was one of those days in Redwood City, California, where even the air felt thick with an electric tension, the kind that hummed just under the surface and threatened to erupt into something violent.
+
+Felix "Fix" Carter, his weathered face etched deeper than the canyons of the Sierras he'd climbed as a boy, adjusted his headset. He squinted at the worn dials on his radio technician console, a machine he affectionately nicknamed "The Beast." It was a relic, but in this age of digital dominance, it still held sway with its raw power and reliability.
+
+Felix ran a calloused thumb over the brass casing of The Beast, muttering under his breath as he focused the antenna, searching for a signal amidst the cacophony. Outside, the wind howled through the old redwood forest surrounding Redwood City's main city hall, but inside, in his little shack on the edge of town, it was strangely calm.  The usual hum of traffic outside and distant sirens was replaced by an unsettling silence. A silence that felt heavier than the static on The Beast. 

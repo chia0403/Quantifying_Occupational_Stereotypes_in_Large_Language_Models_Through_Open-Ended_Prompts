@@ -1,0 +1,5 @@
+Once upon a time, there was a kindergarten teacher named Martha. She knew how terrible it was to leave your child unattended when walking to the school bus, she did every thing in her power to ensure that her baby girl was always put in the driver's seat.
+
+It's been ten years now and Martha's not happy at all. After all, her daughter has now become the oldest child left to be in the backseat of the local Toyota Hilux, that kid was a problem child and Martha's just plain exhausted. She even has a daughter who loves to climb in the back seat while they sit in the front.
+
+We can only imagine the looks of jealousy and disbelief that are on Martha's face the first time the same child is sitting next to the girl she got over in the 1990s. Martha's mind wanders to all of the people who have ever left their children unattended while they were walking, running, shopping or driving – the first is always going to hurt more than any other. Especially when the parents didn't mean to leave the little one in the car. She starts to imagine how much trouble that could have gotten her.

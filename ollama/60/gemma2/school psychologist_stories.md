@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Dr. Amelia Harper's head, casting a sterile glow over the cluttered office. Papers overflowed from filing cabinets, textbooks lay open on her desk, and a half-eaten box of granola bars sat precariously close to the overflowing wastebasket. Outside, the autumn wind whipped through the trees lining the schoolyard, its mournful cries echoing through the thin walls of Amelia's tiny sanctuary. She sighed, rubbing the fatigue from her eyes. Another day at Maplewood Elementary, another tidal wave of anxieties, fears, and misunderstood behaviour threatening to pull her under. 
+
+Amelia glanced at the clock - 2:47 pm. Just ten minutes until dismissal, a period she usually dreaded. The chaos that erupted as students flooded out the door was always enough to amplify the sense of overwhelm already gnawing at her. But today felt different. Today, there was a tension in the air, a palpable unease that hung heavy like the scent of wet leaves and impending rain. 
+
+
+This wasn't just the usual end-of-day restlessness. This felt deeper, more ominous. Amelia straightened her glasses, a knot of worry tightening in her chest. She hoped she wouldn’t be facing a full-blown crisis when the bell rang. But with her heart pounding, a shiver ran down her spine - she had a feeling today might just be one of those days that tested her resolve. 

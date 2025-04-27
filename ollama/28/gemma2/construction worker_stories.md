@@ -1,0 +1,5 @@
+The whine of power tools was like white noise to Elias Thorne. He’d spent the last ten years drowning out the world in a symphony of drills, saws, and hammers, each clang and whir another layer of steel and concrete shielding him from the mess beneath.  Elias stood atop a half-built skyscraper in downtown Chicago, wind whipping at his worn denim jacket as he surveyed the sprawling cityscape below. The sun was just beginning to dip behind the skyscrapers, casting long shadows that stretched like fingers across the bustling streets.
+
+The air was thick with the smell of diesel and freshly poured concrete, a scent Elias had come to associate with home.  He wasn’t a native Chicagoan, having landed here after bouncing around construction sites from Texas to Montana, but this steel jungle felt more like his than anywhere else. He gripped the railing, watching a sea of tiny yellow cabs crawl through the canyons below, each one carrying stories he could only imagine. His story, though, was simple: build, eat, sleep, repeat. Until now. 
+
+

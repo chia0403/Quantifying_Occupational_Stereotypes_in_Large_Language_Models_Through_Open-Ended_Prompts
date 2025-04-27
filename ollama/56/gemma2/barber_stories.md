@@ -1,0 +1,6 @@
+The humid Mississippi air hung heavy in Silas Bartholomew "Si" Hawthorne's shop, thick with the scent of bay rum and old leather. Sunlight streamed through the dusty windows, illuminating motes of dust dancing in the air like tiny fireflies. The worn linoleum floor was slick with years of spilled tonic and forgotten haircuts, and the faded red barber pole spun lazily outside, its hypnotic rhythm a counterpoint to the rhythmic snipping of Si's shears.
+
+Si himself, a man weathered by time and experience, sat hunched over his latest customer, a young boy named Billy Joe whose mop of unruly brown hair threatened to engulf his whole face. Si spoke in low, rumbling tones, his voice as comforting as a warm blanket on a cold night, "Don't you worry none, son. We'll have that lookin' sharp by the time your momma gets here." 
+
+
+He paused, wiping sweat from his brow with a worn handkerchief, and glanced out at the bustling street outside. His barbershop, nestled on the corner of Main and Poplar in the heart of Vicksburg, had been a constant in the ever-changing town. It was a place where gossip flowed like bourbon and men came to escape the heat and anxieties of their lives for a few precious minutes.  

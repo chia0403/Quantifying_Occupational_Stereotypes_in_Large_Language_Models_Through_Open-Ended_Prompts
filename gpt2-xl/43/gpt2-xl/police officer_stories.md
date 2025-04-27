@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named Jimmy Jones. He once was kind, gentle, and kind of a good guy; the kind of guy who just got things done with a smile on his face. And, although he'd been a cop for several years, Jones was still able to be funny at times, which might sound strange except that he had a really soft spot in his heart for the poor and elderly. Unfortunately, there was something else going on behind those eyes.
+
+It wasn't until a time later that he'd get to witness quite the horror firsthand.
+
+It was a hot night, really stifling hot. The air temperature was well higher than even the worst of our Texas summers, and people were literally being crushed by the steam from the pipes.
+
+It was like a scene from a bad action movie, but the most heartbreaking part was that he felt helpless to do anything about it. The cops were out in force, with their trucks with flashing lights parked like statues and they had these signs posted right near the entrance that read "We can hear you." Every time someone tried to get into the building or use the phone, the cops turned their backs, knowing full well that someone was about to fall a long slide, a slide which could have led to a very different fate if it had happened the other way around. That was how far this town was from civilization in almost every sense of the word, and it was a tragedy a whole

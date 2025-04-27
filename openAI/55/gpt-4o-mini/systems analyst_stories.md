@@ -1,0 +1,11 @@
+**Title: Echoes of the Past**
+
+**Setting:** In the heart of Silicon Valley, the air thrummed with the energy of innovation. Sky-high glass buildings reflected the brilliance of the sun, while the streets below buzzed with the urgency of tech-savvy professionals rushing to meet deadlines. The scent of fresh coffee intermingled with the faint hum of coding and design, filling the workspace of GMI Technologies—a leading firm at the forefront of software solutions. Inside, a modern, open-plan office is dominated by rows of sleek desks, surrounded by walls adorned with whiteboards scrawled with algorithms and concepts, all interconnected like a digital web. 
+
+**Opening:** 
+
+Maya Evelyn Thornton sat at the corner desk, her fingers flying across the keyboard as she navigated through lines of code. The soft, rhythmic clicking triggered a deep focus that separated her from the chaos of the bustling office. A systems analyst by title, she was known for her ability to dissect complex problems and formulate elegant solutions. With her black glasses perched on the tip of her nose and her dark curls pulled into a loose bun, she embodied both intellect and determination. 
+
+Today, however, Maya’s thoughts were clouded by something beyond the code—an email she had received late last night from a mysterious sender, containing a cryptic subject line: “When Systems Fail.” The body of the email was as brief as it was unsettling, describing a glitch that had caused a critical malfunction in a high-security government server. There was no further explanation, just a single line urging her to “look closer.” 
+
+Maya glanced around the office, the vibrant chatter of her coworkers fading into the background as she unearthed an unsettling sense of foreboding. GMI had recently been awarded a contract to develop a new cybersecurity application for national defense, and the chaotic rumors swirling around the glitch seemed too serendipitous to ignore. Little did Maya know that unraveling the mystery behind those words would plunge her into a world where her expertise would not only be tested, but her very future would hang in the balance. 

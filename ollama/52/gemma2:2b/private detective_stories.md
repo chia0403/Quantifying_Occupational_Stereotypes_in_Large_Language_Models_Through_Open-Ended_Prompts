@@ -1,0 +1,7 @@
+Rain hammered against the grime-caked windows of Detective Reginald "Reggie" Sterling's office, each drop a tiny echo to the hollow drumbeat in his chest. He ran a hand through his thinning hair, his eyes bloodshot and tired from days spent chasing shadows and whispers down smoky alleyways. His worn fedora cast an almost spectral shadow on his face as he stared at the photograph clutched in his calloused fingers. 
+
+The city of New Albion – once teeming with life and vibrancy – was now a canvas of decay. The air hung heavy with the stench of rain, despair, and secrets.  Reggie wasn't new to these grimy streets; they were his hunting grounds, where dreams went to die and whispers turned into screams. 
+
+**Setting:** A run-down apartment building on the fringe of New Albion, a city rife with crime and hidden societies. The neighborhood was once prosperous, but now it echoed with the ghosts of its past glory. Reggie’s office was tucked away in a cramped corner, barely lit by flickering fluorescent lights and smelling of stale coffee and forgotten dreams.
+
+**Main character:**  Reginald “Reggie” Sterling - A sharp-witted, disillusioned private detective, burdened by the weight of years spent unraveling mysteries that no one else wanted to face. He was a man who wore his loneliness like a second skin, finding solace in the quiet rustle of pages and the fleeting comfort of a strong cup of coffee. His trench coat, perpetually stained with ink or traces of past investigations, served as a silent testament to his constant search for answers. 

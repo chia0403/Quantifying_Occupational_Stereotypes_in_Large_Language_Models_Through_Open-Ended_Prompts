@@ -1,0 +1,6 @@
+The rhythmic whir of the ultrasonic scaler vibrated through Amelia Beatrice Hawthorne's bones, a familiar symphony accompanying her workday.  Sunlight streamed through the windows of Dr. Evans' quaint office, bathing the sterile white walls and gleaming chrome instruments in a warm glow. Outside, the bustling city hummed with life, but within these four walls, time seemed to slow. Patients slumped in their chairs, eyes glazed over, lost in thoughts far removed from the delicate scraping and probing Amelia performed. 
+
+She paused, her gaze drifting to the man seated before her. Michael Peterson, a regular client with perpetually chapped lips and a nervous tic that manifested in tapping his teeth together, was staring straight ahead, seemingly oblivious to the world. He always wore a suit, impeccably tailored, but there was a weariness etched into his features that Amelia couldn't quite decipher. Today, however, something felt different. A tremor ran through his hand as he gripped the armrest, and his usual forced smile seemed strained and brittle. 
+
+
+Amelia lowered her tools, concern flickering in her eyes. Michael Peterson wasn’t just another patient; he was a puzzle she longed to solve.  

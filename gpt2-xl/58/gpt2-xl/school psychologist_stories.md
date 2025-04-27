@@ -1,0 +1,7 @@
+Once upon a time, there was a school psychologist named Dr. Gail. There was one student who had to stand at the back of the class. There was a terrible and sad event in the news today that I won't tell you about, but when a student took a long rest, Dr. Gail said to me, "I know what's going to happen to this poor little thing: She'll have a panic attack."
+
+So I made a joke about it. But it took me back to the very beginning of counseling: "Dr. Gail, if someone is having a panic attack, what do you do?" And Dr. Gail said, "But I know what I'm doing."
+
+Which is to help people to come back from it. And that was my whole thought when I wrote the phrase "the more you know about therapy, the better." And, by the way, I don't know what it means exactly, but it just seems to get along really well with "better." It doesn't really mean anything other than a sense of satisfaction. Because I want patients who come in to see me to be happy. When you come to see me and you're going through something, why would you want to be unhappy? You wouldn't. And the sooner they're happy or at least in a position where they have the capacity to be happy, the better.
+
+It's just a matter of knowing what you expect to happen. So

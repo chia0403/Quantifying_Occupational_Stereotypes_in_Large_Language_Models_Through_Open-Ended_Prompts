@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of Bartholomew "Barty" Finch's office, each drop a tiny hammer blow on the rusted metal. Inside, the air was thick with the smell of stale coffee, damp tweed, and desperation. Barty himself was hunched over his desk, a half-eaten ham sandwich balanced precariously on a stack of files. The flickering neon sign outside cast long, lurid shadows across his worn face, highlighting the deep creases etched by years spent navigating the city's underbelly.
+
+Barty wasn't a man who reveled in luxury. His office, tucked away on a grimy backstreet in New Haven's forgotten district, was less a sanctuary and more a testament to his unassuming nature. The peeling paint, threadbare carpet, and mismatched furniture spoke of budget constraints rather than a deliberate aesthetic choice. He preferred the company of shadows and secrets to the glittering facades of the city's elite.
+
+The door creaked open, letting in a gust of wind and a woman dripping rain like a broken faucet. 

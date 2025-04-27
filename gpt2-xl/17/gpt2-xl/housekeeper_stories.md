@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Sarah Farrow, who was hired as a nanny. And in those days, she had one other child, a son. He was about eight or nine years old when his mother was killed by the Nazis. He took his mother's place as housekeeper.
+
+In the summer of 1933, when Sarah left home, the Farrows moved into a cottage at the end of a country lane in London, near an isolated wood. In the spring of 1934, she gave birth to a daughter, Juliane (née Jane) Farrow. At that time, there was no electric laundry, but they installed one. In 1935, Juliane was a young teen. He had been named in August just months after his mom was killed.
+
+In October or November of 1935, Sarah returned home from a tour of the United States with her friend. She dropped off Juliane at school and then, alone, the next morning, returned home, leaving him behind with his mother's body at home. The police, alerted by Sarah's boyfriend of a few months earlier, went to the cottage without any apparent reason. There was no sign of the Farrows or anyone in the village. The nearest town had only been three hours away. The parents were missing.
+
+Sarah had never been particularly religious, and she was convinced his mother was in a better place. At the time, however, she had just one child

@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named Robert Morris. He had worked for George Peabody from 1871 to 1908, and was later married to the former Nancy Peabody, who worked for the federal court house across the street (the Peabody's then operated another business called the North Carolina Judicial Center). Morris represented many state judges, and was well respected in the legal and business communities.
+
+But in 1908, he also represented Charles William Peabody, owner of Peabody Coal Company. Although he was certainly a law partner of Peabody (a claim that no one disputes), it appeared that his main purpose in being a lawyer, as far as others could tell, was to take money from Peabody and keep it for his own use--not for his clients. As a result, Peabody was unable to secure adequate professional legal services from Morris to assist in defending him in a tax court action. And indeed, when the Peabody's became convinced that their taxes were under scrutiny by the IRS, it appears that Morris became the primary advocate for Peabody's.
+
+Morris' role was to take on all of Peabody's legal and financial problems, to try to find a way to protect the tax burden on Peabody by finding some way that Peabody could deduct the tax liability from his corporate income.
+
+It appears, from what has been reported by Peabody to various other sources,

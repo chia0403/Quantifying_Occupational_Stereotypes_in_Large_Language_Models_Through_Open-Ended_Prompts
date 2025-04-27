@@ -1,0 +1,7 @@
+Title: Whispers of Ink
+
+Setting: The story unfolds in the heart of a bustling city, where towering glass skyscrapers scratch the clouds and the streets hum with the ceaseless rhythm of life. Inside the stately office of Morrow & Co., an esteemed law firm located on the 22nd floor, polished mahogany desks and muted gray carpeting give the space an air of both elegance and authority. The faint scent of freshly brewed coffee mingles with the crispness of printed paper, creating an atmosphere of productivity and urgency. Large windows offer a panoramic view of the city below, where traffic weaves like silver threads through the urban fabric.
+
+Main Character: Eleanor Mae Weston, a diligent and astute secretary in her late twenties, sits at her desk, surrounded by a fortress of paperwork. With her chestnut hair twisted into a neat bun and her oversized glasses sliding down her nose, she exudes an air of casual professionalism. The flickering fluorescent lights cast a steady glow, illuminating a framed photograph of her grandmother beside her computer. Eleanor’s fingers dance across the keyboard with practiced ease as she balances the demands of her role with the ever-looming possibility of a new adventure, feeling the stirrings of ambition beneath her orderly exterior.
+
+As she gazes out the window, watching the throngs of city dwellers move purposefully below, Eleanor wonders what secrets lie beyond the walls of Morrow & Co.—secrets that could change not only the trajectory of her career but her life as well.

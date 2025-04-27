@@ -1,0 +1,7 @@
+Once upon a time, there was a counseling psychologist named Jane O'Meara, who wrote books that were filled with great wisdom. It was through those books that I found out that what is required in order to become a full-fledged person, one who does one's best work in all aspects of life, one who has the skills and abilities one needs to become happy and successful, is a complete change in perspective.
+
+I was a pretty typical, if not somewhat successful individual, in which the idea of having to make big changes, making drastic changes, was not entirely foreign. I, myself, had spent a fair amount of time around people who had to make such changes, and some of these people did have to make drastic changes. I even had a cousin who, in his early twenties, left home for college and was not as successful back home as he had been. He came back later on in his life, when he was a much older and much wiser person. In all likelihood, I would never have heard of him, or his situation if it had not been for those books.
+
+This quote from a book called Self-Help and the Psychology of Happiness talks about "the three types of change" and what to do when you fall into the "third type":
+
+There are three types of change that occur to a person at one time, but which can occur in a variety of situations. The first type arises from an essential emotional need – the

@@ -1,0 +1,11 @@
+## Story Opening:
+
+The crimson slick on Dr. Anya Petrova’s glove was a familiar, unwelcome companion. It pulsed, mirroring the erratic rhythm displayed on the heart monitor beside her. Sweat beaded on her forehead, blurring the sterile glow of the operating room lights into halos. She tightened her grip on the retractor, her knuckles whitening. The air hung thick with the smell of antiseptic and cauterized flesh, a scent that usually calmed her, a reminder of the meticulous control she wielded in this space. But tonight, control felt like a phantom limb, just beyond her reach.
+
+"Pressure dropping, Anya," Dr. Ramirez’s voice, calm but laced with an edge of urgency, sliced through the silence. "We're losing him."
+
+Anya gritted her teeth, her focus narrowing to the delicate dance of her hands as she worked to repair the aorta. This was it. The critical moment. One wrong move and Leo Maxwell, the man who had entrusted his life to her, would become just another statistic on the cold, hard page of her surgical log. She took a deep breath, pushing back the knot of anxiety that threatened to unravel her composure. She had done this countless times before. She knew the anatomy, the procedure, the risks. This was her domain. She just needed to remember that. She needed to remember she was Dr. Anya Petrova, and she saved lives.
+
+## Setting:
+
+The opening takes place in the main operating room (OR) of **Mount Sinai West Hospital in Manhattan, New York City**. It is a state-of-the-art surgical suite, equipped with the latest technology: a high-definition surgical microscope, advanced monitoring equipment displaying vital signs in real-time, and a complex system of lights and cameras capturing the procedure for training purposes. The walls are painted a calming, pale blue, intended to reduce stress. However, the clinical atmosphere is amplified by the constant beeping of machines and the hushed, focused voices of the surgical team – a highly skilled group of nurses, anesthesiologists, and surgical assistants, each playing a critical role in the intricate ballet unfolding within the OR. Outside the OR, the sounds of the city - distant sirens and the rumble of traffic - are muted but present, a constant reminder of the bustling world beyond the sterilized sanctuary of the operating room.

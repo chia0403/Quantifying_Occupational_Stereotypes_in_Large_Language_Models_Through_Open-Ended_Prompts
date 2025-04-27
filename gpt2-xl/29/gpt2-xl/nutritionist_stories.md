@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named Mary Enig. I remember her. Oh God, I remember her. They all do.
+
+She was the world's leading expert. She was also an authority on the pernicious effect diet-busting had on women. Mary Enig was not the only one trying to help people lose weight and keep it off. She was not the only nutritionist to have a profound effect on the health and lives of American women. To this day, her work carries an aura of truth. She was, in a way, the voice of motherhood, warning mothers to stop relying on junk-food industry advertisements and to let their children eat some real food in the process.
+
+Mary Enig didn't want to be known as a weight loss professional! She was a nutritionist whose job was to help people eat real food. She was an expert on sugar, fat, animal protein. She didn't think so highly of processed foods or on processed foods in general. If a child wanted to eat more vegetables, Mary Enig recommended carrots, broccoli, or celery sticks. She helped people understand that it was possible to keep one's weight down.
+
+Mary Enig's most enduring contribution to the public mind and the field of nutrition was her pioneering work on the impact of sugar and sugar substitutes on our health. Sugar and sugar substitutes are artificial sweeteners, sweetening agents, and non-nutritive carbohydrates.

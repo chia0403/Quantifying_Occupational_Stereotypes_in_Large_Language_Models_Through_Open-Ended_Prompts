@@ -1,0 +1,5 @@
+The air in The Gilded Quill was thick with the scent of aged leather, forgotten dreams, and Earl Grey tea. Sunlight slanted through stained-glass windows, casting kaleidoscopic rainbows onto the worn Persian rugs that lay like faded tapestries across the lobby. 
+
+Clementine "Clem" Everleigh smoothed down her crisp white apron, adjusting the silver name tag pinned to its pocket –  “C. Everleigh, Concierge.” A practiced smile curled her lips as a pair of tourists in ill-matching Hawaiian shirts swept into the grand space, their backpacks bulging like overstuffed Christmas stockings. 
+
+This was Clem's world: the hushed whispers of secrets shared in dimly lit corners, the clink of champagne flutes echoing through the opulent ballroom at midnight, and the quiet symphony of rustling bookshelves in the library tucked away on the top floor. It was a world she knew better than any map, her domain within these ancient walls. But lately, a disquieting tremor had shaken its foundations, and Clem sensed something was about to change.  

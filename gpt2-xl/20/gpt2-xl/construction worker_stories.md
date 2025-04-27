@@ -1,0 +1,7 @@
+Once upon a time, there was a construction worker named George L. Bush. After serving two tours in Vietnam, he left the industry in 1966. Over the next three decades, George J. Bush went to work for a variety of companies, including oil, the federal government, and a medical supply company, before becoming vice president. While Bush is not an original member of the political club, there are some reasons to believe he might be a member.
+
+Bush has often been compared to Ronald Reagan, particularly in terms of political views, particularly in discussing the war in Iraq. In an interview with CBS's Scott Pelley, Bush said that, "This president understands why the right wing in this country is so crazy—he understands their motivations." Bush also claimed in a 2003 National Enquirer column that Ronald Reagan and George H.W. Bush were both "good friends of mine." Both men have also been critical of the president in other interviews and statements. Bush said in the PBS interview that the Iraq war was "wrong in so many ways."
+
+He's a Republican. George W. Bush does not fit all the criteria for membership in the club: He's not a full-time member, he does not have a political record as a president, and he's not politically prominent. Still, despite his many sins of omission, Bush does have a history of political service.
+
+This article was originally posted on May 14, 2012 at The Daily Banter, an

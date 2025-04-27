@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The fluorescent lights of the waiting room hummed a dull, persistent drone, mirroring the low-grade anxiety simmering in Dr. Eleanor Rose Cavendish's gut. She glanced at the clock above the outdated landscape print – five minutes until her next appointment. Five minutes to steel herself against the wave of pain, fear, or carefully constructed facades that was about to wash over her. Tonight, it was a new patient, a young woman referred by the university health center with what they vaguely described as "adjustment issues." Eleanor sighed, rubbing the bridge of her nose. "Adjustment issues" could mean anything from homesickness and a bad roommate to full-blown panic attacks and the creeping tendrils of depression. In her experience, it was almost always more complex than the initial diagnosis suggested.
+
+**Setting:**
+
+Eleanor's practice, "Cavendish Counseling Services," was nestled in a converted Victorian house on a quiet, tree-lined street just off the main campus of Ashwood University in the quaint, historic town of Crestwood, Massachusetts. The interior, while professional, was intentionally designed to feel warm and inviting. Plush armchairs replaced sterile office chairs, and the walls were painted a soothing sage green, adorned with abstract art she'd picked up at local galleries. Soft classical music played quietly in the background, a deliberate attempt to counteract the clinical atmosphere she knew many people found intimidating. Outside, the maple trees were just beginning to turn, painting the street in vibrant hues of red and gold. The crisp autumn air, carrying the scent of fallen leaves and woodsmoke, drifted in through the slightly open window, a temporary reprieve from the anxieties that permeated the small office.

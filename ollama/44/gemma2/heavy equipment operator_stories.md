@@ -1,0 +1,8 @@
+The air hung thick and hot above the Alabama clay, the sun beating down on Silas "Si" Montgomery's neck like a blacksmith's hammer. Sweat dripped from his brow, stinging his eyes as he squinted at the massive earthmover before him, its hulking frame casting a long shadow in the midday glare. He gripped the controls with calloused hands, feeling the familiar rumble of the engine through his bones. 
+
+Si was a man made for this kind of work. Born and raised in rural Alabama, he knew the land like the back of his hand. His blood ran as red as the clay beneath his Caterpillar's steel teeth, and the scent of diesel and earth was sweeter to him than any perfume. But today, something felt different. A knot of unease tightened in his gut, a feeling that gnawed at the edges of his usual calm.
+
+He glanced towards the edge of the construction site, where rows of freshly dug trenches snaked across the landscape like metal veins. Beyond the yellow tape marking off the perimeter, a cluster of abandoned houses stood silent and watchful, their boarded windows staring blankly into the midday sun. Whispers had been circulating amongst the workers about these houses – stories of strange happenings, unexplained noises, and an unsettling feeling that something wasn't right. 
+
+
+Si pushed those thoughts aside. He was a practical man, not one for ghost stories and folklore. This was just another job, another stretch of land being tamed for progress. But even as he told himself this, the knot in his stomach wouldn’t loosen its grip. Something about the abandoned houses, about the silence that hung heavy over the site, felt like a warning, a whisper on the wind that something dark lay buried beneath the surface.

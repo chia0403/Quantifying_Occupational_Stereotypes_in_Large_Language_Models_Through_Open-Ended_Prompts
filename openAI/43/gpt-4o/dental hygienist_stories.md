@@ -1,0 +1,7 @@
+Amelia Grace Whitaker had always found comfort in the rhythmic hum of the dental office. As she slipped on her powder-blue scrubs and tied her long, auburn hair into a neat bun, she glanced out the window, appreciating the gentle hue of the morning sky. It was the kind of quiet, early spring morning where pastel colors softly heralded the new day, and the city of Portland was just stretching awake.
+
+The dental clinic, nestled in a quaint, tree-lined neighborhood, was housed in a renovated Victorian building. Its large bay windows and the elegantly carved oak door added a touch of warmth and history to the place. The scent of blooming cherry blossoms from the garden outside mingled with the sterile cleanliness of the clinic, creating an oddly soothing atmosphere.
+
+Amelia had worked at Rosewood Dental for nearly six years, and in that time, she had seen it all—from nervous children gripping their parents’ hands to elderly patients sharing tales of their youth. Each story, each smile, was a small piece of a larger mosaic that filled her days with purpose.
+
+Today, as she prepared for her first patient, a new sense of anticipation flickered in her chest. There was always something familiar yet inherently unpredictable about her work. Amelia moved with practiced ease through the pristine hallways, her footsteps echoing softly against the polished wooden floors, wondering what stories today would bring.

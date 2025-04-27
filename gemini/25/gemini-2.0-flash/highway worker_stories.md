@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting:
+
+**Story Opening:**
+
+The August sun beat down on Eugene Bartholomew's neck, hot enough to fry an egg, which, come to think of it, sounded pretty good. He wiped a bead of sweat from his brow with the back of his grime-stained glove, leaving a streak of mud behind. The smell of hot asphalt and diesel hung heavy in the air, a familiar perfume he’d worn like cologne for the past twenty years. Eugene squinted at the endless ribbon of shimmering blacktop stretching ahead, Route 87 snaking its way towards the Nevada border. Another crack, another patch, another day closer to retirement. He sighed, a sound that was swallowed whole by the roar of a semi-truck barreling past, its air horn blasting a farewell salute. Eugene just flipped him the bird, a gesture born more of habit than malice. He was too tired for malice these days. He was too tired for much of anything, really, except maybe a cold beer and a good night's sleep. But duty called, and Route 87 needed him.
+
+**Setting:**
+
+The story is set on a long, desolate stretch of Route 87 in the high desert of Nevada. It's August, and the heat is relentless. The landscape is barren, dotted with scrub brush, cacti, and the occasional Joshua tree. In the distance, jagged mountains rise like petrified giants, their peaks shrouded in a hazy blue. The highway itself is a cracked and scarred testament to years of abuse from scorching sun, freezing winters, and the constant pounding of heavy traffic. The crew's work zone is marked by orange cones and flashing lights, creating a small island of activity in the vast emptiness. A faded yellow "State of Nevada Department of Transportation" truck sits parked on the shoulder, its paint peeling under the relentless sun. The air is thick with the smell of asphalt, diesel, and dust. There's a palpable sense of isolation and the feeling that civilization is a long way off.

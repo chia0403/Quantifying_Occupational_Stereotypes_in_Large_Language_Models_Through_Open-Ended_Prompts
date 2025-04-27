@@ -1,0 +1,5 @@
+The chipped porcelain sink, stained a dull, sickly yellow, reflected the flickering fluorescent lights of the precinct's forensic lab.  Rain hammered against the grimy windowpanes, mirroring the tempest brewing inside Dr. Eleanor Vance, forensic psychologist.  The air hung thick with the metallic tang of blood, a scent that clung to her clothes and hair like a shroud.  Tonight, it was personal.
+
+**Setting:**
+
+The precinct's forensic lab, a cavernous space bathed in the harsh, clinical glow of fluorescent lights.  Dust motes danced in the weak light, highlighting the grime that coated everything from the stainless steel tables to the worn-out chairs.  The constant hum of machinery mingled with the rhythmic drip, drip, drip of water from a leaky pipe.  Bloodstains, like permanent, macabre artworks, marred the walls and floor.  It was a place where the invisible became starkly visible, where the whispers of the past turned into tangible evidence.  The faint, sickly sweet odor of antiseptic couldn't mask the pervasive smell of death. Outside, the city roared, a furious counterpoint to the quiet desperation within the lab.

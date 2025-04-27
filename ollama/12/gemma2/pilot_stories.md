@@ -1,0 +1,6 @@
+The acrid scent of jet fuel mingled with the faint sweetness of blooming jasmine as Captain Evelyn Celeste tightened her headset.  Her reflection in the cockpit window was framed by the fiery orange glow of the setting sun over Dubai's glittering skyline. A final check of instruments, a deep breath to steady her nerves, and then she initiated the pre-flight sequence. This wasn't just another run; tonight's cargo was more than metal and screws - it was hope. 
+
+Evelyn had grown up beneath the vast, star-dusted expanse of the African savanna, yearning for skies far beyond the horizon. Now, as captain of a state-of-the-art cargo freighter, she navigated those same skies, her plane a silver needle piercing the velvet night.  Tonight's mission: transporting a precious shipment of medical supplies to a remote village in the heart of the Ethiopian highlands, where a devastating drought had left its mark on every soul. 
+
+
+The hum of the engines vibrated through Evelyn’s body as she taxied towards the runway, the city lights shrinking behind her. Her focus narrowed, the world outside dissolving into a blur of shimmering asphalt and distant sirens.  There was no time for sentimentality. She had a job to do, a promise to keep.   

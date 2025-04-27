@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The neon sign creaked in the gentle breeze, casting a gaudy glow over the deserted streets of Las Vegas's Old Town. The year was 1955, and the city was still recovering from the recent war, but the bright lights and bustling energy of its casinos and hotels were drawing in hopefuls from all over the country.
+
+In a small room above the lobby of the Silver Stag Hotel, a young bell hop named Elianore "Eli" Thompson polished his uniform with a white handkerchief, his dark hair slicked back to reveal a smattering of freckles across the bridge of his nose. Eli had arrived in Las Vegas just a few weeks ago, fresh out of the Air Force and eager to start anew after serving overseas. He had landed the job as a bell hop at the Silver Stag on a whim, promising himself that he would save up enough money to open his own small diner one day.
+
+As he finished polishing his uniform, Eli gazed out the window, watching as the sun set over the desert horizon. The air was thick with the smell of smoke and grease, but for now, it was a familiar scent that made him feel at home. Little did Eli know, this ordinary evening would soon become anything but ordinary...

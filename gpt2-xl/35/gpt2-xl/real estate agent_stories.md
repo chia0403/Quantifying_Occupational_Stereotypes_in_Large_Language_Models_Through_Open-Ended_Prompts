@@ -1,0 +1,7 @@
+Once upon a time, there was a real estate agent named Mr. Wooten, who lived with his wife and two kids in the Upper East Side of Manhattan, on the corner of Broadway and 79th Street. He and his wife had six houses on that corner but no car and no electricity, so they mostly walked – but with a two-minute walk to the station, they didn't mind.
+
+One day, Wooten woke early, and went out to the bus stop to buy a morning cup of coffee. Around that time I first met him – at The New York Times. We talked for many hours. The more he talked, the more interesting and interesting I became. He was as honest as they come, as serious as they come (and most people wouldn't have given me that many details about him).
+
+Anyway, I had read his book that was full of real estate tips and I really liked him. I wanted to do business with him, and he was willing to sell me a house and I would pay him rent. He wrote me a letter, so I asked him if the real estate he was about to throw at my feet was under contract, and what kind of contract. He said that in a couple of months he intended to sell me a house on the corner of 80th and Broadway, close to the Times Times Square Times Center. I said, "No contract. What's the house gonna be worth?"
+
+He looked at

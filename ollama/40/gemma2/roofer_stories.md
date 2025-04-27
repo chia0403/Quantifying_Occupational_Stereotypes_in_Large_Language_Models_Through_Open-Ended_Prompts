@@ -1,0 +1,5 @@
+The humid Georgia air hung heavy, thick with the scent of pine needles and sweat.  A lone cicada buzzed its monotonous serenade from somewhere high up in the sprawling oak beside Silas Jasper "Si" Crane's truck. Si wiped his forehead with a bandana already soaked through with grime and rainwater. He squinted at the massive Victorian mansion looming before him, its slate roof like a giant, moss-covered puzzle waiting to be solved. This wasn’t your average leaky faucet job; this was a full-blown restoration project, requiring meticulous attention and an iron will. 
+
+Si sighed, the weight of the contract heavier than the toolbox slung across his shoulder.  He'd known the house’s owner, Mrs. Eleanor Hawthorne, for years – a woman with a sharp tongue and even sharper eyes, who wouldn't hesitate to call him out on any imperfection. This was Si’s chance to prove he could handle more than just patching holes and replacing shingles; this was his shot at legitimacy in the world of high-end restoration. He adjusted his worn cowboy hat, took a deep breath of that humid air, and climbed the rickety ladder leading to the roof's shadowed expanse.  
+
+

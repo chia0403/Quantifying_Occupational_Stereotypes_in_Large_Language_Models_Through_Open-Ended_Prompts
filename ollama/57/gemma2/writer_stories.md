@@ -1,0 +1,4 @@
+The scent of old paper and burnt coffee clung to Amelia Beatrice Thornhill like a second skin. Her tiny flat in Edinburgh, perched precariously on a cobbled street that echoed with the clatter of boots and the distant wail of bagpipes, was her sanctuary. Rain lashed against the windowpanes, blurring the view of the ancient city below into a watercolour wash.  Amelia, hunched over her battered typewriter, barely noticed. Her fingers danced across the keys, weaving words into a tapestry of shadows and secrets. This story, about a young woman haunted by a whispering voice only she could hear, was proving to be as elusive as a phantom in the mist.  She needed inspiration, a spark to ignite the narrative's dying embers. 
+
+
+Amelia sighed, pushing away the typewriter. Perhaps a walk, even through this tempestuous Edinburgh night, would do the trick. Maybe the city itself held the answer she sought. 

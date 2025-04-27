@@ -1,0 +1,9 @@
+## Story Opening:
+
+The scent of burning garlic was the first thing Jean-Pierre Dubois registered as he lurched awake. It was a scent that usually filled him with a primal joy, a promise of flavor and creation. This morning, however, it was tinged with a bitter dread. He scrambled out of bed, the silk sheets clinging to his sweat-soaked skin, a disheveled mess of a man far removed from the Michelin-starred chef the world knew. The clock on his bedside table flashed a malevolent 3:17 AM.
+
+Jean-Pierre’s heart hammered against his ribs as he stumbled into the kitchen, a low groan escaping his lips. There, on the stovetop, a blackened, smoking pan sat abandoned, its contents a charred, unrecognizable mess. He yanked it off the heat with a muttered curse, his bare feet sticking unpleasantly to the cold, marble floor. This wasn't just a late-night mishap. This was sabotage. Again.
+
+## Setting:
+
+The opulent kitchen, despite the current culinary crime scene, was the heart of “Le Chat Noir,” Jean-Pierre’s renowned restaurant. Located in a secluded, cobblestone alleyway just off the Champs-Élysées in Paris, it was a haven of modern French cuisine, decorated with minimalist elegance. Stainless steel counters gleamed under the soft glow of recessed lighting, reflecting rows of meticulously arranged copper pots and pans. A massive, custom-built range, imported from Italy, dominated one wall, a testament to Jean-Pierre’s uncompromising standards. Floor-to-ceiling windows offered a glimpse into a small, meticulously landscaped courtyard, usually bathed in the soft glow of fairy lights. Tonight, however, the only light came from the harsh overhead fixtures, illuminating the evidence of someone’s deliberate malice and highlighting the mounting fear that gnawed at Jean-Pierre's gut. He was no longer sure he could trust anyone, even within these hallowed, culinary walls.

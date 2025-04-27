@@ -1,0 +1,9 @@
+Okay, here's a story opening with the setting and main character details:
+
+**Opening:**
+
+The humid Chicago air, thick with the scent of grilling hotdogs and exhaust fumes, barely stirred the cheap blinds in Unit 4B. Rain hammered against the windowpane, a frantic rhythm that mirrored the frenetic energy thrumming in the chest of **Eleanor Vivian Sterling**. The neon glow of her triple monitors painted her face in flickering shades of turquoise and amber. Empty ramen containers and crumpled energy bar wrappers littered her desk like casualties of a long-fought war. Another error message glared from the central screen, mocking her. "Segmentation Fault (core dumped)." Eleanor suppressed a groan that threatened to shatter the precarious focus she’d managed to cobble together after three sleepless nights. This damn bug. This insidious, code-spawned demon was all that stood between her and the release of "Project Chimera," the AI-powered medical diagnostic tool she’d poured her soul, and frankly, her sanity, into for the past year.
+
+**Setting:**
+
+Eleanor's apartment is a cramped, one-bedroom space in a pre-war building in the Uptown neighborhood of Chicago. The building itself has seen better days, the paint peeling in the hallways and the radiator perpetually clanging with a life of its own. Her apartment is a reflection of her personality: functional and efficient, but bordering on chaotic. A single, worn futon serves as both her couch and bed. Bookshelves overflowing with programming manuals, science fiction novels, and philosophy texts line one wall. A whiteboard covered in complex algorithms and scrawled notes dominates another. The kitchen is barely used, save for the coffee maker and a growing collection of mugs. The overall atmosphere is one of intense focus and a certain charming disarray, the hallmark of a brilliant mind consumed by its work.

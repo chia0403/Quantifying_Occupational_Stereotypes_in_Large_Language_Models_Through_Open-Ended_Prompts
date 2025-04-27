@@ -1,0 +1,5 @@
+The rhythmic click-clack of Amelia "Amy" Harper's shoes echoed through the nearly empty therapy gym. The fluorescent lights hummed above, casting a sterile glow on the equipment that stood silent, waiting. It was 6:45 PM, fifteen minutes before her last patient arrived. Amy stretched her neck, feeling the familiar ache in her shoulders from hours of guiding patients through exercises and manipulating joints. 
+
+The gym was tucked away in the corner of a bustling community center, nestled between a yoga studio with vibrant posters and a noisy game room filled with the laughter of children.  It was a world away from the sterile hospitals she had worked in before, but Amy loved the quiet hum of purposeful movement here, the scent of disinfectant mixed with sweat, and the stories whispered by the weary bodies she helped heal. Tonight, however, an unfamiliar tension coiled in her stomach. It wasn't just the fatigue; it was a prickling sense of anticipation, like something unexpected was about to unfold. 
+
+

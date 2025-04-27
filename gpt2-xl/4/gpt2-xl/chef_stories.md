@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named John Mackey. Then there was the owner, Sam Kass. They are both brilliant, tough, smart, passionate competitors, and they always seemed happy to be the center of attention. But it wasn't enough to carry their businesses, so they tried to add some spice, something shiny, something that might make you stop and take notice. There was something about Mackey's Red Hots, that was missing from Kass' restaurant empire. When I was in high school and college, the Red Hots always stood out from their competition. It was their way of doing things, and there was something special there. It wasn't about marketing or having their name on a product—it was about being who they wanted to be.
+
+The problem is, that's exactly what everyone else does. You can be pretty sure a dish at a fast food restaurant had been "inspired" by the chef's obsession with a particular recipe. Most McDonalds and Burger Kings don't claim to follow their own rules and standards on their menus, and those that do generally take shortcuts and gloss over the most important aspects of cooking. While those that follow their own ideals are usually a hard to pin down, they're just on the fringes of what most people are eating. Mackey, with his own original recipe, was a living definition of what a restaurant should do and be.
+
+That's what the Red Hots stood for too.
+
+The name came

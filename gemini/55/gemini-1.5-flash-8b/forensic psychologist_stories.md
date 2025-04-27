@@ -1,0 +1,7 @@
+The flickering fluorescent lights of the autopsy room cast long, skeletal shadows across the sterile white walls.  Dr. Eleanor Vance, her sharp eyes scanning the meticulously arranged body on the slab, felt a familiar knot tighten in her stomach.  The victim, a young woman named Amelia Hayes, lay still, her expression frozen in a silent scream that echoed in the hushed silence of the room.  Amelia's perfectly manicured nails, once a testament to her meticulous nature, were now stained with a crimson paint that wouldn't wash off.  The room, usually a clinical space of measured precision, felt suffocating, charged with a palpable sense of unspoken tragedy.
+
+
+**Setting:**
+
+
+The Forensic Psychology Unit at the prestigious St. Jude's Hospital, nestled within the sprawling, grey-stone metropolis of Blackwood.  Blackwood, a city steeped in both technological advancement and dark, historical secrets, pulsed with an uneasy energy, its towering skyscrapers casting long shadows over the winding alleyways below.  The air, thick with the smell of exhaust fumes and damp earth, held a persistent, unsettling stillness that mirrored the quiet despair Eleanor felt.  The unit itself was a stark contrast to the city's frantic pulse; sterile, clinical, and filled with the quiet, relentless hum of machinery, each piece of equipment whispering its own silent observations. The windows, overlooking the city's labyrinthine streets, offered a bleak, yet oddly mesmerizing view.

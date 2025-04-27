@@ -1,0 +1,7 @@
+Once upon a time, there was a income tax preparer named Jeeves B. Finch, a name with which I am too familar to continue. He was an accountant, but when pressed on his profession, said, "A tax preparer doesn't believe in the government."
+
+So what the hell. Finch, like Donald Trump, had an elaborate and plausible business plan. What he failed to understand, as the government did, was the consequences of his success. Finch was a scam artist who couldn't understand that the government, or even the public, understood what he was doing: this practice was illegal, after all. He was using someone else's money.
+
+I've already laid out Finch's plan to go public and then profit from other people's money. He sold you a product that's illegal because of the way that Americans have taken to paying taxes, with no real reason to use the IRS. He offered up false claims about what it's costing taxpayers, and then offered up false denials when he was grilled by a congressional committee.
+
+I'm not saying you shouldn't have a financial accountant or even that you shouldn't ever sell a financial product. I am saying that the way you do this might not be obvious to your customers. It might be just a little complicated. Maybe this is a deal that you make in confidence with some kind of expert. I don't know. But I did, not knowing whether it was illegal. I don

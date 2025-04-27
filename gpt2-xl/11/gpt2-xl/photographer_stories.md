@@ -1,0 +1,6 @@
+Once upon a time, there was a photographer named Robert Mapplethorpe, who shot a portrait of Marilyn Monroe in the early 1960s. Although Mapplethorpse always maintained that he never took the photo, the portrait did appear as part of an exhibit in 2009. After the death of Mapplethorpe, a book was published called Mapplethorpse: The Life and Death of Robert Mapplethorpe, with the famous photo included in the book. The photo became something of a sensation and is often claimed to be one of the best known photos in history.
+
+
+What is the real story about this iconic photo? In January 2003, Robert Mapplethorpe was found dead in his apartment in New York City, dead from an apparent overdose. There has never been a public inquest into the circumstances of his death, however, the New York Times reports, "It was later determined that Mr. Mapplethorpe had been under the influence of the drug PCP" during the evening of Jan 13, 2003 in New York City. The incident occurred between the hour of 4 p.m. and 9 p.m. and Mapplethorpe was pronounced dead at 6:06 p.m.
+
+Mapplethorpe was known for many of his memorable photographs. He photographed Marilyn Monroe on a trip to Paris for Paris Model August 1962 in the same pose as the picture used in the 2011 Mapplethorpe

@@ -1,0 +1,5 @@
+The scent of lavender oil hung heavy in the air, mingling with the faint aroma of sandalwood and eucalyptus.  Rain pattered against the large windows of Serenity Spa, creating a soothing rhythm that echoed Amelia Grace Thorne's steady breaths as she kneaded her client’s tense shoulders. Outside, the world was a blur of grey and rushing commuters, but inside, it was a sanctuary of calm. 
+
+Amelia focused on the man in front of her, his name escaping her as quickly as it entered her mind.  He was a regular – tall, with dark hair perpetually falling into his eyes and a jawline that seemed carved from granite. He always wore the same black suit, even though he frequented the spa for deep tissue massages designed to release stress, not polish an executive's image.  Today, Amelia sensed a deeper layer of tension than usual. His shoulders were clenched tight, his breaths shallow and rapid. A knot formed between her eyebrows as she pressed into the muscle, wondering what unseen storm raged within him. 
+
+

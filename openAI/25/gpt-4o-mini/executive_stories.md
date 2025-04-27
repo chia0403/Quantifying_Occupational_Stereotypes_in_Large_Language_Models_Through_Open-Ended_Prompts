@@ -1,0 +1,11 @@
+Title: Beneath the Glass Ceiling
+
+Setting: The bustling heart of Manhattan, where skyscrapers scrape the clouds and the streets pulse with the rhythm of ambition. The panorama is dominated by the shimmering façade of the Global Nexus Corporation headquarters, a modern marvel of steel and glass that reflects both the sunlight and the aspirations of those who dwell within its walls. Inside the sleek, open-plan office, the air hums with the energy of collaboration and competition, punctuated by the soft thud of heels on polished marble and the distant chime of ringing phones.
+
+Opening:
+
+Evelyn Margot Sinclair stood by the floor-to-ceiling windows of her corner office, staring out at the sprawling city that had become both her battleground and her sanctuary. The sun dipped low, casting a warm golden hue across the skyline, and for a fleeting moment, she let herself dream of what lay beyond the relentless cycle of meetings and projections. At forty-three, she had climbed the corporate ladder with a determination that burned like the midday sun, earning her position as the Chief Financial Officer of Global Nexus—a role that had not come without its sacrifices.
+
+As she adjusted her tailored blazer, she caught a glimpse of her reflection: sharp blue eyes framed by impeccably styled hair and a confident smile that belied the pressure she often felt. Evelyn had mastered the art of composure, yet today was different. A pivotal board meeting loomed on the horizon, one that could either elevate her to the highest echelons of leadership or remind her of the glass ceiling that still loomed above, cruel and unyielding.
+
+The room began to fill with her team, each member drawn in by the gravitational pull of her unyielding ambition. But as the chatter faded and her heart raced, Evelyn realized that tonight wouldn’t just be about numbers or projections. It would be an unveiling of her vision—one she had nurtured silently, a dream that could reshape the future of the company. The stakes were never higher, and with the city sparkling beneath her feet, she felt both the weight of responsibility and the exhilarating promise of change.

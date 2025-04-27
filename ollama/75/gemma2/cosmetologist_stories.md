@@ -1,0 +1,5 @@
+The humid Florida air clung to Amelia "Amy" Bellrose like a second skin as she wheeled her cart through the salon's back room. The scent of lilac shampoo and bleach hung heavy, competing with the faint tang of disinfectant that always seemed to permeate the space.  Her usual Tuesday morning chaos was amplified today – two walk-ins vying for the last open appointment, a bottle of hair dye inexplicably exploded on the floor (again), and her best friend, Lisa, perpetually glued to her phone, gossiping with the salon's resident drama queen, Tiffany. 
+
+The Sunshine Salon, nestled in a strip mall on Ocean Drive, was more than just Amy's workplace; it was her sanctuary. The walls were plastered with framed magazine covers showcasing bold hairstyles and vibrant color palettes, a constant reminder of the transformative power she wielded with each snip and stroke of her brush. But today, beneath the veneer of bustling activity, Amy felt a familiar unease brewing. A feeling that something big was about to change. 
+
+

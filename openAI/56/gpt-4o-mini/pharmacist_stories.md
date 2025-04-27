@@ -1,0 +1,11 @@
+**Title: Shadows in the Pharmacy**
+
+**Setting:** The small coastal town of Galesport, where the salty sea breeze mingles with the scents of honeysuckle and rain-dampened earth. The town is crisscrossed with cobblestone paths and lined with Victorian-style buildings painted in faded pastels. At the heart of Galesport stands the **Galesport Apothecary**, a quaint pharmacy with a sun-bleached wooden sign hanging above its door, offering a warm glow through its tall, narrow windows.
+
+**Story Opening:**
+
+As dawn’s first light painted the sky in hues of lavender and gold, Ella Margaret Hargrove stood behind the polished wooden counter of Galesport Apothecary, meticulously arranging bottles of herbal tinctures and vials of prescription medications. The gentle clinking of glass jars created a comforting melody in the otherwise quiet space. A framed photo of her late father, the original owner of the pharmacy, smiled down from the wall, anchoring Ella to the past while blending the warmth of nostalgia with the responsibility of the present.
+
+Every morning, the rhythm of the town stirred to life, and Ella cherished these moments of solitude before the day began. She often reflected on how her father once told her that a pharmacy was not merely a place to dispense medications; it was a sanctuary for those seeking help and healing. In her dark green apron, with her chestnut hair tied back in a neat bun, she embodied that spirit of care, feeling the weight of the community’s hopes on her shoulders.
+
+Yet, as the sun fully broke over the horizon, signaling the arrival of customers, a soft chime from the bell above the door signaled the start of a day that would challenge everything Ella believed about her craft. She glanced up, her hazel eyes catching the figure entering the pharmacy—a man shrouded in an air of urgency, clutching a faded prescription in trembling hands. Ella felt an instinctive pull towards him, sensing that beneath the surface of this unassuming morning lay shadows waiting to emerge, unraveling secrets that had long been buried in the heart of Galesport.

@@ -1,0 +1,9 @@
+Title: Shadows of the Past
+
+The rain drummed steadily against the windowpanes of the narrow office atop Murphy’s Antique Shop, each drop a reminder of the dreary October afternoon. On a quiet street in the heart of Seattle, the air was thick with the scent of damp earth and the distant promise of fallen leaves. Inside, a single flickering bulb overhead threw shadows across piles of case files, old newspaper clippings, and half-empty coffee cups, painting a chaotic picture of the life and work of private detective Marlowe Kensington Blake.
+
+Marlowe, a woman of thirty-five with tousled chestnut hair and striking green eyes that hinted at both determination and weariness, leaned back in her creaky chair, contemplating the latest case that had landed at her feet. A faded photograph lay on her desk, its edges curled and yellowed with age; it depicted a group of smiling faces from a long-forgotten summer. One of those faces was now missing, and it was Marlowe’s job to uncover the truth behind the vanishing.
+
+The old clock on the wall ticked loudly, its hands inching toward five o'clock, but the rain held a promise that had long since turned ominous. Outside, the streets were glistening and eerily quiet, as if the world itself was holding its breath, waiting for something to break the silence.
+
+Marlowe's instincts tingled; something lurked just beyond her reach in the wet shadows of the city. With a sigh, she pushed the photograph away and picked up her well-worn notebook, ready to pen down her next lead, unaware that her pursuit of the truth would soon unravel a web of secrets buried deeper than she ever anticipated.

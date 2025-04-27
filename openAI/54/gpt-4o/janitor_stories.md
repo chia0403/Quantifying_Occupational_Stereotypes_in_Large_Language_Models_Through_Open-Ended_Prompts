@@ -1,0 +1,5 @@
+In the heart of the bustling city of Newford, nestled between rows of towering skyscrapers, stood the aged yet dignified Hamilton Plaza. Its marble floors gleamed under the soft glow of art deco chandeliers, whispering tales of its former grandeur. The once-bustling hotel had seen better days, now serving as an office building for an eclectic mix of businesses and artists.
+
+In the solitude of the early morning, when the city's pulse was at its quietest, Francis "Frank" J. O'Hara began his day. Frank was the building's janitor, a title he bore with quiet pride and humility. He was a man of simple pleasures and unspoken dreams, content to weave through the lives that intersected within these halls. His worn, leather work boots echoed in the emptiness as he meticulously mopped the grand lobby, ensuring every inch glistened with a welcoming sheen before the first trickle of tenants arrived.
+
+The city outside may have rushed forward into the future, but within the embrace of Hamilton Plaza, Frank found a steady rhythm, each sweep of his mop a reminder of who he was and the stories that surrounded him, waiting to unfold with the dawn of a new day.

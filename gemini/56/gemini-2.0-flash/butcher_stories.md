@@ -1,0 +1,11 @@
+## Story Opening:
+
+The biting November wind whipped through Oakhaven Market, a relentless gust that rattled the metal awnings and sent stray leaves skittering across the cobblestones. Inside, the air in "Arthur Finnegan's Finest Meats" was marginally warmer, thick with the aroma of sawdust, cured ham, and the faint, metallic tang that clung to everything Arthur touched. He stood behind his gleaming mahogany counter, the fluorescent lights reflecting off his bald head and emphasizing the worry lines etched deep around his kind, blue eyes. He sharpened his boning knife, the rhythmic *shick-shick-shick* a familiar comfort in the pre-dawn gloom.
+
+He wasn't expecting anyone for at least another hour, not before Mrs. Gablethorpe started her daily gossip rounds and young Timothy Hargrave’s mother sent him in for a pound of sausages, bribing him with promises of extra screen time. But today, Arthur felt a prickle of unease, a sense of anticipation that had nothing to do with the impending rush. He glanced at the clock above the door – 6:17 AM – and sighed. Something felt different. Something…wrong.
+
+## Setting:
+
+**Oakhaven Market, Oakhaven, Maine:** A small, coastal town nestled in the embrace of rocky cliffs and whispering pines. Oakhaven Market itself is a bustling hub, a collection of weathered brick buildings arranged around a cobblestone courtyard. It's the heart of the town, a place where fishermen hawk their daily catch, farmers display their seasonal produce, and local artisans sell their wares. The air is perpetually salty and carries the scent of the sea, mingled with the various aromas emanating from the market stalls.
+
+**Arthur Finnegan's Finest Meats:** Arthur's butcher shop is a fixture of Oakhaven Market, established generations ago by his grandfather. The interior is a testament to tradition, with its worn mahogany counters, gleaming chrome scales, and walls lined with meticulously arranged cuts of meat. Strings of sausages hang from the ceiling, and a chalkboard displays the daily specials in elegant, swirling script. It's a place of pride for Arthur, a place where he carries on a legacy and serves his community with dedication and skill. The cleanliness and artistry of the displays are a testament to Arthur's meticulous nature and his deep respect for his craft.

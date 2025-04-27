@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named George Allen," said Donald Trump. "And he was really respected by all. He had great relationships—the best I've ever had with any judge. He was so respected by all and was so good to me." The judge was a white New Yorker who seemed to like both Donald and me. "Now there's a new judge in town, and I'm not at all sure it's the George Allen I know and love!"
+
+Well, it was at least the judge we had on the Trump train. But when the real George Allen became the Trump supporter whom Trump wanted to be a judge in Indiana, and when a judge in Virginia ruled that Trump's business could not discriminate against Muslims because he was a candidate for public office, the Trump train derailed.
+
+That's what happened, as Trump and his attorney general and advisor to the Supreme Court have been telling us all along: George Allen is a big loser. At first, he did not know that, since President Clinton's White House was desperate to take him down. When Allen found out, the White House changed tactics. They began using the argument about being the most respected judge on the federal bench to intimidate him, so that he could not oppose these same religious exemptions. But the new defense was that he had once lost in a case of fraud, so his judgment was suspect. They used Allen's old race against him.
+
+As Trump said in response to criticism

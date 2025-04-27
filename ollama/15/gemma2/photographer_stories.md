@@ -1,0 +1,6 @@
+The air hung heavy with the scent of brine and salt as Eleanor Beatrice Finch squinted at the sun dipping below the horizon.  She adjusted the strap of her battered leather camera bag, feeling its familiar weight on her shoulder. The rusted pilings of the old pier creaked and groaned in the evening breeze, their shadows stretching long and distorted across the sand like skeletal fingers reaching for the sea. Eleanor, however, remained unfazed by the encroaching darkness, her focus unwavering on the fiery spectacle unfolding before her: a canvas of molten orange and crimson bleeding into the deep indigo of the coming night. 
+
+This was her haven, this forgotten stretch of coast in Maine. Away from the hustle and bustle of New York City, where she'd spent years chasing fleeting moments of beauty behind a lens for glossy magazines, Eleanor found solace in capturing the raw, unfiltered essence of nature.  Tonight, the storm-tossed sea promised to be her muse, its churning waves and crashing thunder a symphony of chaos that only she could truly understand.  
+
+
+As the final sliver of sun disappeared beneath the waterline, casting long shadows across the deserted beach, Eleanor lifted her camera. It felt like a familiar extension of herself, a tool not just for capturing images but for weaving stories of resilience and beauty in the face of relentless change. 

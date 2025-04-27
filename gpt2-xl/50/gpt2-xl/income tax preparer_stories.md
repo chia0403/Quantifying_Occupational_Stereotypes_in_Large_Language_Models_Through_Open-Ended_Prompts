@@ -1,0 +1,7 @@
+Once upon a time, there was a income tax preparer named Jack. Jack's employer gave him a new business card, with the words "I work for an IRS Certified Tax Preparer." A few months on, Jack needed to file his taxes and was given a copy of a pamphlet titled The Great Tax Refund Fraud by "Jack." The pamphlet provided a false number of people who claimed to be IRS certified tax preparers, and suggested that they were being paid to file false returns with tax refund fraud being a large factor. Jack used the number Jack and the pamphlet provided to try to file a false income tax return. The IRS investigated his business, but found it to be legitimate.
+
+
+Jack did not use the number for this purpose, but used it to file a false personal tax return of around $6,500.00. The IRS discovered Jack's tax return and sent Jack a letter with instructions to file a tax credit claim for the false returns and their associated amounts. Jack's taxes showed he really spent around $4,900 on the false income taxes. When he was contacted, Jack told the IRS that he had received a copy of the pamphlet, but never read it, because he only read it to file his false tax return.
+
+
+In addition, the IRS sent Jack a letter to explain that his business was a sham. This letter stated that his business was a sham for tax refund fraud and warned him and all other businesses that could be used for tax refund

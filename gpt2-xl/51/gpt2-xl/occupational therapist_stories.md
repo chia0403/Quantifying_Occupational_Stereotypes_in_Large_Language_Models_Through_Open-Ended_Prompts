@@ -1,0 +1,7 @@
+Once upon a time, there was a occupational therapist named Joe McQuown. His real name was Richard McQuown, but most people called him "Joe." He worked at The Chiswick Manor Apartments, an apartment complex on New York's Upper East Side.
+
+McQuown lived in one of the buildings where one tenant, a young white woman named Sharon, had disappeared. Sharon had moved in with McQuown to escape a bad marriage. The couple appeared to be happy with each other. Sharon had no history of mental illness, but she'd seemed unstable. McQuown said he would have called 911 if he knew Sharon had committed suicide. She's since been found dead.
+
+But the neighbors and the police all thought Sharon was missing for one reason: She hadn't been seen in months. A witness had reported seeing Sharon, still holding hands with a man, at 11 p.m. on Aug. 30, 1980 — the time of the woman's disappearance. When the police searched McQuown's apartment, they saw blood and shoes in his living room. A neighbor told officers to "go up to his apartment and see what's there."
+
+When police later investigated Sharon's apartment — also called the Dining Room Apartments, due to the diners who once gathered there — they found blood on the walls, some furniture and more than 2,000 pages filled with notes. More than 40,000 newspapers were spread around the apartment of

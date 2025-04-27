@@ -1,0 +1,14 @@
+## Story Opening:
+
+The fluorescent lights of the Dominion Engineering drafting room hummed a relentless, low thrum, a soundtrack to Amelia Beatrice Holloway's meticulously planned existence. Each morning, precisely at 7:15 AM, she'd slide into her ergonomically designed chair, the cool vinyl a familiar comfort against her corduroy trousers. The scent of stale coffee and slightly damp blueprint paper filled the air, a smell she’d come to associate with progress, however incremental.
+
+Amelia's life was a grid, much like the blueprints she spent her days poring over. Every block of time was carefully allocated: 45 minutes for lunch (turkey and swiss on whole wheat, no mayo), 15 minutes for an afternoon Earl Grey tea, and precisely 23 minutes dedicated to sketching her personal projects - fantastical architectural designs - during the slow lull of mid-afternoon.
+
+This Tuesday, however, the grid felt like it was about to be shattered. A crisp, unfamiliar envelope lay on her desk, embossed with the Dominion Engineering logo. It wasn't the usual interoffice memo. This was heavier, more official-looking. Her heart, usually a steady, metronomic drum, stuttered against her ribs. Amelia swallowed, the dryness in her throat mirroring the arid fear creeping into her meticulous world. She knew, with a chilling certainty, that whatever was inside that envelope would be disruptive. It was a crack in the perfectly rendered facade of her predictable life, a flaw in the blueprint she’d so diligently constructed.
+## Setting:
+
+The Dominion Engineering drafting room occupied the entire third floor of a nondescript office building in the industrial sector of Havenwood, Ohio. The room was a sprawling expanse of identical desks, each topped with a drafting board angled just so, a lamp casting a pool of concentrated light, and a haphazard collection of technical pens, rulers, and T-squares. The walls were painted a pale, institutional green, punctuated by faded posters promoting workplace safety and team building.
+
+One wall was entirely taken up by shelves overflowing with rolled blueprints, organized by project number and date. The opposite wall featured a long window overlooking the sprawling Dominion Engineering factory floor, where the fruits of their labor – intricate machinery for automated assembly lines – were brought to life in a cacophony of metal clanging and whirring gears.
+
+The atmosphere was usually one of quiet concentration, punctuated by the rhythmic scratching of pencils on paper, the occasional sigh of frustration, and the hushed murmur of conversations between colleagues hunched over blueprints. The overall impression was one of order, precision, and quiet, unglamorous dedication to the art of technical drawing. It was a space where every line, every angle, was carefully considered, and where the dreams of engineers were translated into tangible designs.

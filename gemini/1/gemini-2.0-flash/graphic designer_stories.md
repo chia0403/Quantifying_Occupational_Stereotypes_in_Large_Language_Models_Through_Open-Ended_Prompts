@@ -1,0 +1,7 @@
+## Story Opening:
+
+The biting wind howled through the canyons of Chicago, whipping snow into miniature frenzies that swirled around the ankles of passersby. Elara Astrid Vance, latte lukewarm in her gloved hand, hunched deeper into her emerald green parka. She squinted against the blinding glare reflecting off the freshly fallen snow, trying to make out the storefront she was searching for. This wasn't her usual River North territory, with its chic boutiques and galleries brimming with modern art; this was the grittier edge of West Town, a labyrinth of brick warehouses and repurposed industrial spaces.
+
+Elara shivered, not just from the cold. She had a bad feeling about this meeting, a prickling unease that had been building since she’d received the cryptic email: "Portfolio viewing. Discreet location. Immediate availability paramount. - J.T." The lack of specifics, the clandestine air, it all screamed "sketchy client" in a font so bold it practically vibrated in her vision. But times were tight, freelance work had been drying up faster than her paycheck, and even a potential bad client was better than no client at all.
+
+Finally, tucked between a faded graffiti mural of a snarling wolf and a loading dock piled high with pallets, she spotted it: a barely noticeable sign above a heavy, steel door. The letters, etched in a font that screamed "ransom note," read: "Clockwork Curiosity." Elara took a deep breath, tossed the dregs of her latte into a nearby snowbank, and pushed open the door, steel biting against the biting wind.

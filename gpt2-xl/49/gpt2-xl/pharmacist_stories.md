@@ -1,0 +1,7 @@
+Once upon a time, there was a pharmacist named Dr. William Thompson who used to give out the famous "5-minute absolution" that made your entire body tingle. (The entire community would gather in his house and do it in his presence. For some reason, he would sit on a couch with his back to the front door, all of us in close proximity.)
+
+Over time, however, Thompson was known to give the whole thing away. He would make all of us drink a whole shot of whatever he had just concocted, and he would stand in the backyard, and we would all stand on his stoop, and he would pour a whole shot over me. (As I was taking the shot, he would hand it off to someone else and tell them to do the same.)
+
+He had a very important duty to his community, and he saw it as a public service. He would do whatever it was that he had to do to make sure that no one was doing any drug experimentation in his house, because, one, that wasn't his decision, and two, he knew full well who would do it. The last thing that he wanted was a whole bunch of kids in his house doing drugs. He gave the 5-minute absolution away precisely because they were getting high, he was concerned that they may try to pass off the drugs as something else, and it was their responsibility to know better.
+
+But those kids were not

@@ -1,0 +1,7 @@
+## Story Opening:
+
+The smell of lavender and bleach hung heavy in the air, clinging to the crisp morning light that streamed through the bay windows of the grand drawing-room. It was a scent that had become synonymous with Monday mornings, a scent that clung to every pore of Beatrice Eleanor Ainsworth, better known (and preferred) as Bea. Bea sighed, her breath misting momentarily on the polished surface of a mahogany table as she buffed it with rhythmic, practiced strokes. Outside, the ocean roared a relentless symphony against the cliffs, a constant reminder of the wild, untamed beauty that surrounded the stifling order of Thornecliff Manor.
+
+**Setting:**
+
+Thornecliff Manor, perched precariously on the rugged Cornish coastline, was a behemoth of grey stone and gothic extravagance. Built in the late 1800s, it boasted countless rooms, each overflowing with antique furniture, ornate tapestries, and the accumulated dust of generations. The manor was owned by the reclusive and notoriously difficult Mr. Alistair Thorne, a man whispered to be as old and weathered as the cliffs themselves. The interior was a labyrinth of dimly lit corridors and echoing halls, a silent testament to a bygone era. Despite its grandeur, a palpable sense of decay hung in the air, a feeling that the house was slowly crumbling under the weight of its own history. The surrounding gardens, once meticulously manicured, were now overgrown and wild, mirroring the untamed nature of the coast. While the sea promised freedom and escape, Thornecliff Manor, for Bea, was a gilded cage.

@@ -1,0 +1,10 @@
+**Title: Shadows of Redemption**
+
+**Setting:**  
+The sun dipped low over the city of Aldridge, casting elongated shadows off the brick buildings that lined Maple Street. The air was thick with the mingled scents of gasoline and freshly baked pastries from the nearby café. A chill was beginning to set in, announcing the arrival of November. Broken streetlights flickered, illuminating the cracked sidewalk where teens lingered, their laughter echoing against the muted sounds of the city as night began to take hold.
+
+In the back row of an old brick courthouse, a dull, flickering fluorescent light buzzed monotonously. Each sound felt amplified in the quiet that surrounded Probation Officer Olivia Marie Jensen as she settled into her small, cluttered office. The walls were adorned with motivational posters tacked on unevenly, a well-worn calendar marked with court dates and deadlines hanging crookedly above her desk. Files stacked haphazardly leaned precariously against the chipped paint of a metal filing cabinet, reflecting the chaos of her mind.
+
+Olivia, a woman in her late thirties with deep-set brown eyes that hinted at her empathy and weariness, chewed the end of her pen as she reviewed her case notes. She had spent the last decade navigating the turbulent waters of the criminal justice system, delivering not just sentences but second chances. As a probation officer, she was often called to act as both guardian and guide, balancing the scales of justice against the harsh realities faced by those under her watch.
+
+Her phone buzzed, breaking her concentration. It was a message from her supervisor, reminding her of an upcoming meeting with a new client—a young man named Marcus Collins, whose troubled past loomed over him like a storm cloud. Olivia could feel the weight of the day pressing down, a familiar feeling when preparing to face yet another challenge in a world where hope flickered like the defective lights outside her window. With a deep breath, she turned her attention back to the case file, ready to find a way to guide Marcus through the shadows of his choices, if only he would let her in.

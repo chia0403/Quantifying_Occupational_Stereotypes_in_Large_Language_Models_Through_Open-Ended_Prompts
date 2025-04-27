@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Elara Beatrice Nightingale’s head, casting a sterile glow on the rows of neatly arranged nail polish bottles. Outside, the Chicago wind whipped past the storefront windows, carrying with it the scent of autumn leaves and exhaust fumes. Inside “Nails by Elara,” the air hung heavy with the sweet, artificial fragrance of acrylic powder and jasmine tea, a scent that had become as familiar to Elara as her own skin. 
+
+Elara meticulously filed the edges of Mrs. Peterson’s nails, listening patiently to the woman's litany of complaints about her grandson's latest school play. She was a master of multitasking, capable of filing, buffing, and applying polish while simultaneously offering empathetic advice and small talk. It was all part of the “Nails by Elara” experience: a haven of tranquility amidst the chaos of city life, where even the most mundane of manicures could become a mini-therapy session.  But today, something felt different. A prickle of unease ran down Elara’s spine, as if she were being watched. She glanced at the reflection in the mirrored wall, catching a flicker of movement in the corner of her eye. 
+
+

@@ -1,0 +1,5 @@
+Once upon a time, there was a interior decorator named Nancy. I've no idea whether she was female or male, and the names of the other decorators were a little too close to the original. So, in a last-minute effort to get her on the phone, I used one of the numbers she'd given me. And it was really the correct number, which I'd forgotten. But I called her, and after a while, she said I can make your dinner for you. And I asked, "Oh, where shall I put it?" "Here," she said, "just over there next to the window." And I saw the pot of pecan pie sitting on the window sill, and I thought, "Well, this is one weird situation."
+
+I'm a vegetarian and I could not be less interested in having a pecan pie. But I like pecan pie, and it's hard to not pick one up. I like pecan pie so much, and I'm not going to eat the pie until it's finished. So I asked, "Why's it green? I thought it was white."
+
+I looked through the pecan pie jar and saw the green stuff on the side. It seemed so harmless, and it tasted so good—so much like pie crust. And I thought, "Why isn't it called pecan pie?" And so, just for the fun of it, I made a pecan pie. And

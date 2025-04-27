@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named John Smith. It is a long story, but suffice it to say that sometime around the end of 1979, John found himself, for whatever reason, getting very angry. He decided to be extra careful and start exercising every morning. When he finished, he threw his belongings into a bin outside his work van, then started walking down the street.
+
+Somehow, two of his co-workers saw him heading down and stopped him to see what was wrong. John told them he had to get to a gym in the neighborhood, and the two of them gave him a couple of bucks to buy the gym membership. When John got to the gym, he said he felt great, because he had just finished his daily exercise routine. He then said, "Hey, you guys, thanks for the money — I think I'm going to go home." He had, in fact, made it halfway. He did, in fact, get home and finish what he had started … and then called on the next morning to tell the other two co-workers they had no choice but to pay for John's gym class.
+
+What was it about these two seemingly normal people that made them become the greatest pranksters in our sports history?
+
+One man was George Raich, who would become the face of the infamous prank in the 90's. George was the team's mascot, an anthropomorphic lion named "Maggie." He

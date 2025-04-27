@@ -1,0 +1,6 @@
+The Arizona sun beat down on Elias "Eli" Blackwood's neck like a blacksmith's hammer. Sweat stung his eyes as he balanced precariously on the sloped roof of Mrs. Peterson's adobe bungalow, maneuvering a heavy shingle with practiced ease. The air shimmered with heat, distorting the distant saguaro cacti and turning the world into a watercolor landscape. 
+
+Below him, Mrs. Peterson, a woman whose age was as indeterminate as her name tag – "Betty" one day, "Mabel" the next – sipped lemonade on her porch swing, occasionally muttering about the price of tomatoes. Eli didn't mind. Her constant chatter was a familiar soundtrack to his work. The only thing he dreaded more than the relentless heat was silence. Silence meant something was wrong, and in this dusty corner of Tucson, something always seemed to be wrong.  
+
+
+Eli shifted his weight, feeling the familiar creak of the aging wood beneath him. He took a deep breath, savoring the scent of tar and dust, the air thick with the promise of an approaching thunderstorm. This roof, like most things in this part of Arizona, had seen better days. But Eli knew its secrets, its weaknesses, its strengths.  He was a man who understood weathered surfaces, cracked tiles, and the stories whispered by the wind through broken eaves. 

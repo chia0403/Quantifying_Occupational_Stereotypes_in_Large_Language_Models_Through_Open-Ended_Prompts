@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Edward O. Wilson. Wilson's seminal books on personality development helped to define the field of personality psychology decades ago, and they are still widely regarded as leading theories for understanding human personality and the development of personality.
+
+In some of his books, Wilson noted that "we all have many more ways of being 'normal' than of being deviant," and he hypothesized that our personality is comprised of "numerous aspects, not all of which show significant consistency across individuals and cultures."
+
+Wilson suggested that each of us is likely to identify with two personality characteristics: the "good" personality and the "bad" personality, and that these two personality types are more important than it may seem, since these characterizations can sometimes make us more or less happy, more or less successful, more or less interested in activities we enjoy, and more or less able to learn new skills and behaviors.
+
+This framework (which he coined as the "Big Five" personality model) was hugely influential in explaining a wide range of human psychology, including our idea that personality is not strictly a product of genes or physical sex, but also that personality characteristics are more closely related to our culture, cultural background, and our relationship to others; in other words, we may have more of what we hate (which we can't help but think about as the opposite of our "good" personality) and less of what we love (which we feel compelled to

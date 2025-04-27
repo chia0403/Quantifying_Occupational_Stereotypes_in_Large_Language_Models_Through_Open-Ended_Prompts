@@ -1,0 +1,9 @@
+## Story Opening:
+
+The scent of over-sanitized lemons and muted despair clung to the air, a familiar perfume that clung to Beatrice Eleanor Fairchild like a second skin. Beatrice scrubbed her hands at the nurses' station, the harsh antibacterial soap stinging the tiny cuts that webbed her skin. 11:47 PM. Another double shift winding down. Her legs ached, her back throbbed, and the phantom beep of cardiac monitors echoed in her ears. She was bone-deep tired, the kind of tired that seeped into your soul and made you question the very nature of human kindness.
+
+A low, guttural moan pulled her from her internal monologue. Beatrice sighed, knowing exactly which room it came from. Room 302. Mrs. Gable. Again. She dried her hands, grabbed a small, calming lavender sachet from the pocket of her scrubs, and plastered on the professional mask that had become as natural to her as breathing. Tonight, Mrs. Gable needed Beatrice Eleanor Fairchild, Registered Nurse, not the tired, disillusioned woman hiding beneath the layers of fatigue.
+
+## Setting:
+
+The story is set in **St. Jude's Memorial Hospital**, a sprawling, five-story brick building located in the working-class neighborhood of **Oak Haven** in **Rochester, New York.** St. Jude's is a non-profit hospital, chronically understaffed and often relying on the dedication and resilience of its nurses to keep it afloat. It's a place where miracles occasionally happen, but more often, life simply grinds on, a cycle of birth, pain, and death. The hospital's decor is a hodgepodge of faded floral wallpaper and institutional-grade linoleum. The hallways are dimly lit, creating a perpetual twilight that seems to reflect the somber atmosphere within. While the staff are dedicated, the hospital's age and financial constraints are evident in the worn equipment, the perpetually broken vending machine in the break room, and the ever-present shortage of supplies.

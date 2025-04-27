@@ -1,0 +1,5 @@
+The humid air hung heavy over Main Street, clinging to the rusted gears of the old bus stop sign like a damp bandage.  Dust devils danced in the heat haze on the cracked asphalt, kicking up grit and despair as they twisted and turned through the empty lot where Mrs. Peabody's bakery used to stand. It was a place no one remembered fondly anymore - just another casualty of the Great Recession, swallowed whole by time and gnawing memories. 
+
+Inside "The Rusty Wrench," radio technician Theodore "Teddy" Jenkins adjusted his glasses as he meticulously soldered a wire on his workbench. The radio's static hummed a dissonant song against the ticking clock hanging precariously above his head.  His fingers, calloused and strong from years of working with metal and wires, traced the delicate solder joint. 
+
+Teddy had always felt more comfortable amongst the cacophony of frequencies than in the hushed silence of a crowded coffee shop. A symphony to him was the crackling voice of an old ham radio operator over long-distance transmission lines; a quiet storm for others was a constant buzz of interference, a song only he could hear. 

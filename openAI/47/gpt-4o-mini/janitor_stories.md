@@ -1,0 +1,11 @@
+**Setting: The Old Carter High School, a once-vibrant building now cloaked in neglect and shadows. It stands at the end of a quiet street, flanked by overgrown bushes and a cracked parking lot. Inside, the hardwood floors creak underfoot, and the walls are lined with faded lockers, adorned with peeling paint and forgotten memories. The afternoon light filters through the grimy windows, casting long, eerie shadows across the empty classrooms and hallways. Dust dances lazily in the still air, and the faint scent of old textbooks mingles with the mustiness of the neglected space.**
+
+**Story Opening:**
+
+In the dim light of the corridor, Manuel Alvarez pushed his mop across the scuffed floor, the rhythmic swish of the damp bristles breaking the heavy silence of the abandoned high school. As the janitor of Old Carter High, his days were often monotonous, but today carried an unusual weight in the air. The buzzing fluorescent lights flickered overhead, casting an unsettling glow that made shadows loom larger than life. 
+
+Manuel had spent nearly two decades keeping the school clean, his presence often unnoticed like the thin layer of dust that settled on the forgotten desks. His worn hands, rough from years of labor, moved with a practiced ease, but his mind was elsewhere—somewhere between the echoes of laughter that once filled these halls and the daunting reality of what lay beneath the surface of the abandoned building. 
+
+He paused for a moment, leaning on his mop, and gazed down the corridor towards the forgotten art room, its door slightly ajar, an invitation wrapped in mystery. The remnants of half-finished projects and faded canvases peeked through the crack like ghosts yearning to be remembered. Something about that room, with its dulled colors and solitary easels, tugged at his curiosity. There were whispers, old rumors among the staff about strange occurrences—objects shifting positions, sounds that echoed without source. 
+
+But Manuel was a man of practicality, a believer in hard work and tangible things. Yet, as the afternoon light waned and shadows grew longer, he felt an inexplicable pull towards the door. Perhaps today was the day he would uncover what lay in the art room’s depths, or perhaps he would simply find another layer of dust—either way, he was about to step into a story that even he could not clean away.

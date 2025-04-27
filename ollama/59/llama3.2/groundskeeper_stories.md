@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The misty dawn broke over the crumbling stone walls of Ashwood Manor, casting an eerie gloom over the overgrown gardens and tangled shrubs that seemed to swallow the last wisps of sunlight whole. In the midst of this forgotten landscape, Emilia Wychwood stirred, her weathered gloves releasing a faint scent of damp earth as she stretched her limbs over the worn wooden handle of her trowel.
+
+As groundskeeper at Ashwood Manor, Emilia had spent years tending to the estate's neglected gardens, its crumbling fountains, and its labyrinthine paths. She knew every hidden corner, every secret spot where a wildflower might bloom or a hidden stream trickled away into obscurity. But despite her deep connection to this place, Emilia couldn't shake the feeling that something was off – a creeping sense of unease that settled in the pit of her stomach like a cold stone.
+
+It started with small things: a missing tool, a misplaced flowerbed, a strange noise in the dead of night. At first, Emilia had written it off as the usual creaks and groans of an old house settling into its foundations, but lately, the occurrences had grown more frequent, more insistent. And now, as she stood at the edge of the garden, surveying the mist-shrouded landscape with a practiced eye, Emilia couldn't help but wonder if something was stirring in the depths of Ashwood Manor – something that didn't want her here.

@@ -1,0 +1,7 @@
+Once upon a time, there was a artist named Terry Richardson, who decided that he hated the things that everyone else in all the art magazines and websites on the Internet loved. He hated white girls, and girls with curly hair, and short girls—and he was an asshole about it, too. He wanted to make art that would make guys really want to bang a girl.
+
+This is how I know my brother is my favorite artist: The thing he's always wanted me to do that I've always resisted is draw a character that he has drawn. It could be an alien or a cow or a dinosaur. You pick a genre, and we'll make it into artwork. That's the only way to know you're really good at drawing it, that you've done something that no one else in the world can do.
+
+I also think if you want to draw more, you have to start drawing. There's this strange, weird thing happening, which is it seems like everything you do in your life is becoming more important. You might say "what if everything was just art?" But I think in the same way that I'm more proud of what I've built on the computer than I'm of what I created inside a box, in the same way, you have to start to see your work in a different light.
+
+I don't even know why I like to draw because I feel like in a way it's like a way to express myself without worrying

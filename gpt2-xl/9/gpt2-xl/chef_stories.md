@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named Tohru Okamura.
+
+It seems you haven't heard about Tohru Okamura because his career didn't really take off until about two years ago, when he wrote an impassioned Facebook post about an obsession with Japanese food:
+
+I've been meaning to write about this topic for some time now. It's something that has been nagging at me since 2009 or so when the word "okonomiyaki" got coined, a few years after I first opened the restaurant in New York. The term "okonomiyaki" is typically used to describe foods that are similar to what we might consider to be okonomiyaki from Japan (or if you'll forgive a generalization, "Japanese-style" fried dough). However, the words "Japanese-style" and "Japanese-style" have become so deeply associated with the word "okonomiyaki" that it's difficult for a person to not associate these words with "okonomiyaki," so most people are familiar with the term "okonomiyaki." In short, it's "Japanese-style hot dog bun" that is fried.
+
+However, you might not be so familiar with the term "okonomiyaki" so let's get to it. Okamura was not talking about a particular type of Japanese food. He was basically talking about a food he had never encountered before. That's the interesting part of

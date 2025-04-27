@@ -1,0 +1,7 @@
+Once upon a time, there was a executive named Bob Page who was brought in to run the company and be the interim management team. He was one of the founders of the company, but had to step down to save the company. He left very early on, so no one remembered his tenure. Then he became Director of Engineering, but that didn't go so well either.
+
+So people thought that the company was a joke and had no future. I had been a part of that team when I started in 2005 and had come in thinking they would do great things and do great things and did great things. It was just a very different company than I was a part of, and a very different time.
+
+I think it's fair to say that there are not too many tech startups who have failed. You just go down the list and there would be three companies out of hundreds that might fail… You really can't judge how people who are coming in fail based on how they did in the past. In that way, they're similar, but you can say they're not the same.
+
+You know what happened to the company I said I was just talking about? They were buying the world's largest social media marketing company called Foursquare. They were paying over a hundred million dollars in the hopes that he would do great things and that Foursquare would build it into something that was so powerful. They would actually build it as their advertising company,

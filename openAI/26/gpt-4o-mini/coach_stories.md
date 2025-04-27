@@ -1,0 +1,9 @@
+**Setting: Forest Pines High School, 7:00 AM on a brisk autumn morning.**
+
+The sun struggled to break through the dense fog clinging to the edge of the sprawling campus. The soft crunch of fallen leaves beneath the worn sneakers of the early birds marked the arrival of another day at Forest Pines High. In the quiet stillness, the faint sound of sneakers squeaking against the polished gymnasium floor echoed, mingling with the muted buzz of anticipation as the girls’ basketball team gathered for practice.
+
+At the center of it all stood **Olivia Mae Spencer**, the newly appointed head coach, her breath visible in the cool morning air. Dressed in a Forest Pines hoodie and black athletic pants, she was a force of nature—her hair pulled back in a practical ponytail, revealing determined emerald eyes that shone with a fierce passion for the game. With a clipboard in one hand and a whistle around her neck, Olivia exuded a blend of authority and approachability that the girls admired and responded to in equal measure.
+
+The small gym echoed as the sound of bouncing balls and laughter spilled into the hallway. Olivia, however, was lost in thought, contemplating how to transform this raw group of talent into a cohesive team. She had accepted the challenge not just to win games, but to instill in her players a sense of confidence that would extend beyond the court. The stakes felt elevated this year—not merely for the championship banners they sought to hang, but for the unbreakable bonds she planned to forge as coach and mentor.
+
+Gazing out of the fogged-up window, she could see the leaves swirling like old dreams in the crisp air. Today, she vowed silently, they would break through the fog, both in practice and in spirit. Today, they would begin to see themselves as more than just a group of players; they would become a team.

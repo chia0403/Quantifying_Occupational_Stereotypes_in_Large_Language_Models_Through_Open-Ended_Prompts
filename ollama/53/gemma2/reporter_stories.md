@@ -1,0 +1,5 @@
+The air hung thick with the scent of saltwater and stale fish as Amelia "Amy" Harper balanced precariously on the rickety pier, her notebook clutched tightly in one hand. Her worn leather boots squelched with each step on the splintering wood, sending shivers down her spine despite the summer heat radiating off the weathered docks. The setting sun cast long shadows over the deserted fishing village of Havenwood, turning the once vibrant houses into silhouettes against the fiery sky. A lone seagull cried overhead, its mournful call echoing through the stillness. 
+
+Havenwood had always been a place whispered about in hushed tones – a forgotten corner of the coast where secrets ran deeper than the ocean itself. Amy, known for her tenacity and thirst for uncovering hidden truths, felt a pull towards this enigmatic town.  She wasn't just here to file a story; she was on the hunt for something more elusive, something that gnawed at the edges of her conscience – the truth behind Havenwood's past, and the darkness that seemed to cling to its present.
+
+

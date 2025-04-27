@@ -1,0 +1,9 @@
+## Story Opening:
+
+The smell of bleach and stale coffee hung heavy in the air, a familiar comfort to Amelia Grace Sterling, RN. It was 3:17 AM, a time when the world outside the walls of St. Jude's Hospital felt distant and unreal, a forgotten dream. The fluorescent lights hummed their monotonous tune, a soundtrack to the quiet chaos that always simmered just beneath the surface of the night shift. Amelia rubbed her tired eyes, the faint scent of lemon balm from her stress-relief hand lotion clinging to her fingertips. She stared at the empty nurses' station, momentarily alone with her thoughts. The quiet wouldn't last, she knew. It never did.
+
+## Setting:
+
+**St. Jude's Hospital, Night Shift, General Medical Floor:**
+
+St. Jude's, a sprawling complex of brick and glass located in the heart of the bustling city of Oakhaven, was a place of both profound suffering and miraculous recovery. The General Medical floor, where Amelia worked the night shift, was a microcosm of this duality. Each room housed a story: a struggling pneumonia patient fighting for breath, a young mother recovering from a complicated surgery, an elderly man battling the slow creep of dementia. The air was thick with the weight of their anxieties, their hopes, and their fears. The nurses' station, a semi-circle of computers and scattered paperwork, was the nerve center of it all. From here, Amelia and her colleagues monitored vital signs, dispensed medications, and offered a comforting word, all while navigating a system stretched thin and constantly on the brink of collapse. The floor was a labyrinth of linoleum hallways, the soft, shuffling sounds of nurses' shoes and the rhythmic beeping of monitors the only sounds to break the almost oppressive silence of the early morning hours. Outside, the city lights twinkled, a vibrant contrast to the sterile, clinical environment within.

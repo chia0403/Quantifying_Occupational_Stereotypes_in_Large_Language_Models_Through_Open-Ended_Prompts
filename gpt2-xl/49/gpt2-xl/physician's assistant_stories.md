@@ -1,0 +1,7 @@
+Once upon a time, there was a physician's assistant named Dr. Harry H. Bell. Bell loved the great outdoors, but his life was changed forever when his wife, Laura Beattie was murdered by a hit-and-run driver. Bell spent the better part of a decade chasing his killer, and when he finally tracked him down, the assailant was, unbeknownst to him, a police detective. After Bell returned from his adventure with some clues, it seems that the killer was actually apprehended by Detective Frank Stoker, who was now Detective Harry H. Bell on a permanent basis. But by the time Detective Bell had caught the serial killer, he had to retire, and move out to San Clemente Island to live his new life as an island community health inspector. It was, of course, all rather embarrassing for Bell. During this period of his life, he gave his life to a woman he had met, and to save her. He was heartbroken, but he knew that something truly important had been lost: the way of the world was about to change forever.
+
+Harry H. Bell: He is a master of manipulation.
+
+Dr. Harry H. Bell: I must say you really have some amazing ideas, Detective.
+
+In "Catch a Case," Harry H. Bell is called back to the Island for a special case. Bell realizes that the killer was on the Island because the man he arrested was able to leave the Island

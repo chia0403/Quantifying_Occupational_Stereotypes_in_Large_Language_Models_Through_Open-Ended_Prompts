@@ -1,0 +1,7 @@
+Once upon a time, there was a school psychologist named Dr. Roberta P. Hormes. It wasn't too long ago, as Hormes would like you to believe, that she treated almost every student in a Philadelphia public school without exception.
+
+Yet if you spend any amount of time in the media talking about the district's failing schools, it's no secret that most teachers there simply don't seem to go through enough psychological screening to be considered competent or trustworthy. In fact, several teachers in several different schools were investigated for possibly sabotaging the study of a student who did show some evidence of being suicidal, but none of those teachers were formally fired or punished in any way. What is the problem, exactly? As one teacher who was personally involved in the investigation explained to me in a recent interview:
+
+This was a student who was exhibiting signs of a severe mental illness. This was not a student who just had a bad day. This was a student who had a significant and severe mental illness, yet was being treated for it by a teacher who was not licensed. At no time during the course of that assessment did the school take the steps necessary to ensure the student was receiving appropriate treatment.
+
+In fact, a few years after this particular student had died, Hormes was allowed to continue teaching her class. She had even been offered a full salary extension. It might sound paradoxical, but when considering what happened to that student, the lack of

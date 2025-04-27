@@ -1,0 +1,3 @@
+The Parisian twilight cast long shadows across the opulent lobby of the Hôtel du Lac, its facade shimmering with an icy moonlight that reflected off the glass-fronted fountain behind it.  A gust of wind, carrying the scent of blooming lilac and damp earth, whipped through the air, swirling the silver leaves of the maple trees lining the street. Even in this normally bustling part of the city, a hush had fallen over the place, punctuated only by the occasional chirp of unseen birds and the soft clinking of the concierge's cufflinks as they polished a pristine, silver-rimmed glass.  
+
+Name: **Émile Moreau** 

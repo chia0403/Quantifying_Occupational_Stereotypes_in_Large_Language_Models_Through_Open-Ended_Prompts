@@ -1,0 +1,7 @@
+## Story Opening:
+
+The scent of petunias and damp earth hung heavy in the morning air, clinging to the faded denim of Silas Bartholomew Finch like a second skin. He crouched, his knuckles cracking with the effort of wrestling a stubborn root-bound salvia from its plastic pot. Sunlight, filtered through the ancient oak that guarded the entrance to "Willow Creek Manor," dappled the manicured lawn, highlighting the dust clinging to his brow and the smudges of dirt tracing the lines of his hands. He hated salvias. They were finicky, demanding creatures, just like Mrs. Ainsworth, the owner of this sprawling, ridiculously picturesque estate.
+
+## Setting:
+
+The story begins at Willow Creek Manor, a sprawling estate nestled in the heart of the Hudson Valley, New York. The house itself is a three-story, grey-stone structure with ivy climbing its walls and overflowing window boxes bursting with color. The grounds are meticulously maintained, a testament to decades of dedicated landscaping. Rolling lawns give way to sculpted gardens featuring a dizzying array of flowers, shrubs, and ornamental trees. A babbling brook meanders through the property, feeding a small, picturesque pond complete with a charming wooden bridge. Beyond the manicured lawns, a thick forest of ancient trees looms, hinting at the wildness that lies just beyond the cultivated perfection of Willow Creek Manor. It is early summer, the air thick with humidity and the sounds of buzzing insects, promising a long, hot day ahead.

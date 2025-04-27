@@ -1,0 +1,7 @@
+Once upon a time, there was a dress maker named Catheryne. She had several dresses that could be purchased in the city for the modestly priced sum of 300 coins. Most of her dresses were black. Catheryne wasn't a fan of a certain red dress that was one of the hottest things in the market. So what did she do? She went ahead and made the dress herself! What a fun day. (The red dress is this one.)
+
+Catheryne decided to sell the dress, which had been given to her by someone else. One day, that person was killed, and when the next customer came in, Catheryne looked her over. Catheryne thought it was a pretty dress at 50 gold coins, and sold it! The story of the dress ended there, but don't worry. We'll be returning to it, because that's how it should be. (She eventually got out of the dress business.)
+
+This is the basic structure of a game. The goal is to be the one with the most points at the end of the game, by selling items to other players. The players can also be hired, although hiring isn't a great idea. You'll actually be spending a lot more effort and time hiring players than selling items. It pays to be careful!
+
+Here's how it works. The three players each have one action per round. Every player draws a card from the pile, and they then have to

@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting for a travel agent character:
+
+**Story Opening:**
+
+The fluorescent hum of the office lights was a familiar, comforting drone, a stark contrast to the chaotic symphony of desperation that was swirling inside Eleanor Astrid Vance. It was 5:57 PM, precisely three minutes before the blessed escape hatch of closing time, and her phone was ringing. Again. She eyed it with the same suspicion one might reserve for a particularly venomous snake. Each ring chipped away at her carefully constructed fortress of calm, a fortress built on a triple shot of espresso and the mental image of her cat, Bartholomew, waiting for her at home. Normally, Eleanor thrived on the frantic energy of "Global Getaways," finding a quiet satisfaction in piecing together dream vacations for demanding clients. But today, the dreams felt more like nightmares. A volcano in Bali had erupted, stranding twenty of her most affluent (and therefore, most vocal) customers. And now, someone else needed something.
+
+**Setting:**
+
+The story is set in a small, independently owned travel agency called "Global Getaways" located in a bustling, rapidly gentrifying neighborhood of Brooklyn, New York. The office is a vibrant but slightly cluttered space. Maps plastered with colorful pushpins adorn the walls, marking the destinations booked by their clients. Brochures overflow from racks, showcasing idyllic beaches, ancient ruins, and bustling cityscapes. Eleanor's desk, strategically placed in front of a large window overlooking a trendy coffee shop, is buried under a mountain of paperwork, airline schedules, and half-empty mugs of coffee. The air is thick with the scent of stale coffee and the faint, lingering fragrance of travel-sized hand sanitizer. The general atmosphere is one of organized chaos, reflecting the whirlwind of last-minute bookings, cancelled flights, and urgent client requests that define a typical day in the life of a travel agent.

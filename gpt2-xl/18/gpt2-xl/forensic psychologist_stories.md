@@ -1,0 +1,7 @@
+Once upon a time, there was a forensic psychologist named Charles Nelson who conducted the first extensive studies in the 1990s on children who suffer from multiple-personality disorder (MDD). Nelson recognized early on that, from an early age, children with multiple personalities often behave in ways that are profoundly different from the behavior of normal children — but he could not figure out why.
+
+Nelson started looking into the relationship between the child's early history of trauma and the developing child's "mind-wandering skills," or the ways in which the child spontaneously diverts her attention when she is unable to form a consistent plan for coping with the day's challenges. When children and adolescents with psychiatric disorders exhibit these divergent, even divergent-pervasive, tendencies, it is a strong indicator that they were probably abused or neglected as children, says Nelson. They do not get the benefits of normal childhood development.
+
+In his review of the literature, Nelson noted that a number of psychiatrists, including Peter Breggin, Ph.D., a professor of psychiatry at Brown University in Providence, Rhode Island, have proposed that "brain damage as an early event in life in itself produces the individual's early dissociation of attention from its primary tasks." In fact, one of the earliest documented instances of early injury was probably that of Elizabeth I, who was shot in the head by her executioner, Sir John Colvill, while she stood in the palace garden.
+
+Breggin says

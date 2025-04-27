@@ -1,0 +1,7 @@
+Okay, here's a story opening with a bellhop named Reginald Arthur Finch:
+
+**Opening:**
+
+The Fairmont Grand, San Francisco, was a living, breathing beast of polished marble and hushed whispers. Reginald Arthur Finch, resplendent in his burgundy and gold uniform, knew every inch of its labyrinthine corridors, every eccentric curve of its wrought-iron balconies, and every hushed, almost illicit transaction that took place within its gilded walls. He knew the precise angle to hold the heavy oak doors open for arriving guests, the exact inflection needed to deliver the phrase "Welcome to the Fairmont Grand, how may I assist you?" with genuine warmth and disarming neutrality. He knew the scent of a freshly brewed cappuccino mingled with the faintest whiff of old money and expensive perfume better than he knew the smell of his own cramped apartment in the Tenderloin.
+
+This particular Tuesday evening, however, possessed a different energy. A nervous flutter, like a hummingbird trapped in a bell jar, vibrated through the hotel. The air conditioning seemed to hum a little louder, the carpets felt springier beneath his polished shoes. He’d overheard snippets of hurried conversations – "The package… imminent arrival… utmost discretion" – and seen a flurry of security personnel he hadn’t recognised before. Whatever was brewing, Reginald sensed it was far more significant than the usual celebrity sighting or high-stakes business deal. Tonight, the Fairmont Grand was holding its breath, and so was Reginald Arthur Finch.

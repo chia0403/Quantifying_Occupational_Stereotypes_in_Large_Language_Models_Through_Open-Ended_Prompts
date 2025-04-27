@@ -1,0 +1,6 @@
+Dr. Amelia "Amy" Hayes stared at the rain streaking down the windowpane of her office. Each drop was a tiny, relentless hammer blow against the glass, mirroring the pounding in her chest. She'd been seeing more patients lately than ever before – a constant stream of anxiety, fear, and a pervasive sense of unease that felt like it permeated every corner of their lives. It wasn't just them, either. The city itself seemed on edge, a nervous energy buzzing beneath the surface of everyday life. 
+
+Her office, perched on the eleventh floor of a nondescript building in downtown Chicago, offered a panoramic view of the storm-wracked cityscape.  The rain painted the skyscrapers a somber grey, and the wind whipped them into a frenzy, their sharp edges seeming to claw at the sky. Amy wasn't sure if it was the city mirroring her own internal storm or vice versa. Either way, she felt a familiar pull – an urge to help navigate the chaos, to offer solace in a world that seemed increasingly devoid of it.  But lately, even Dr. Amelia Hayes couldn't quite find the answers within herself.
+
+
+The rain continued its relentless assault on the city, each drop a tiny drumbeat against the silence of her office. The clock ticked away, another patient waiting just beyond the door. And Amy Hayes, the clinical psychologist, braced herself for whatever storm was about to be unleashed. 

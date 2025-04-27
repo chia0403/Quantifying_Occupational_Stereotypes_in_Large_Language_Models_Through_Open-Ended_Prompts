@@ -1,0 +1,4 @@
+The chipped Formica countertop, stained a perpetual beige from spilled coffee and forgotten sugar packets, reflected the harsh fluorescent lights of the "Precision Accounting Services" office.  Amelia "Amy" Cartwright, meticulously tracing the numbers on a ledger with a worn ballpoint pen, felt the familiar pressure of deadlines tightening around her.  The air, thick with the smell of stale printer toner and cheap instant coffee, crackled with an almost tangible tension.  Outside, the relentless rhythm of the city – horns blaring, sirens wailing – was a constant, insistent soundtrack to Amy's solitary task.  The year was 1998.
+
+
+Setting:  A small, cramped office building on the edge of the downtown core in a bustling, yet gritty, American city. The office itself is a testament to its modest budget; the fluorescent lighting is harsh, the furniture is worn, and the air is stale.  The city outside offers a contrast – a whirlwind of activity and ambition.

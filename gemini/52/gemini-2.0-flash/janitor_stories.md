@@ -1,0 +1,9 @@
+## Story Opening:
+
+The fluorescent lights of the Metropolis Museum of Natural History hummed a weary tune, a sound Elias Thorne had grown accustomed to over the past fifteen years. He knew their individual quirks, each flicker and buzz a familiar note in the silent symphony of the sleeping museum. Tonight, however, something felt different. A tremor of unease ran through the cavernous hall, a feeling that prickled at the back of his neck as he pushed his cleaning cart between the skeletal remains of a Triceratops and the painstakingly crafted diorama of a North American rainforest.
+
+Elias paused, his hand hovering over the switch that controlled his floor buffer. He could almost swear he’d seen a flicker of movement in the shadows cast by the massive dinosaur. But it was probably just his imagination. Years of graveyard shifts had a way of playing tricks on the mind. Still, he couldn’t shake the feeling that he wasn’t alone in the hall tonight, and it wasn't just the ghosts of long-dead creatures that watched him from the glass cases.
+
+## Setting:
+
+The Metropolis Museum of Natural History is a grand, imposing building constructed in the early 20th century. Its architecture is a blend of Neoclassical and Art Deco, with soaring ceilings, marble floors, and intricate stonework. The main hall, where Elias is currently working, is vast and cathedral-like, dominated by the enormous skeletons of dinosaurs and other prehistoric creatures. Glass display cases line the walls, showcasing a myriad of artifacts from different cultures and time periods. The air is thick with the scent of dust, old wood, and the faint, metallic tang of cleaning chemicals. At night, under the artificial glow of the fluorescent lights, the museum takes on a more mysterious and slightly unsettling atmosphere, the shadows seeming to dance and whisper secrets.

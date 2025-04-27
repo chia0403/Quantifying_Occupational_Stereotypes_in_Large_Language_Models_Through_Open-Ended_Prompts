@@ -1,0 +1,4 @@
+Rain hammered against the panoramic windows of the penthouse suite, blurring the cityscape into a hazy grey.  The air, thick with the scent of expensive leather and antiseptic, hung heavy in the opulent space.  Amelia Cavendish, Executive Vice President of Global Acquisitions at ZenithCorp, stared out at the storm, a frown etching lines around her usually perfectly sculpted lips.  The wind howled, mirroring the tempest brewing within her.  Below, the city pulsed with life, oblivious to the storm raging within the confines of her gilded cage.
+
+
+The setting was the penthouse suite of a sleek, modern skyscraper, perched atop a financial district in a bustling metropolis.  The suite was a testament to ZenithCorp's power and prestige,  filled with high-gloss surfaces, sophisticated lighting, and a breathtaking view of the entire city, including the imposing skyline and the glistening river that snaked through the heart of the sprawling metropolis.

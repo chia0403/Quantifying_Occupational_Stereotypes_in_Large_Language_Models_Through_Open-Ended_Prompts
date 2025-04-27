@@ -1,0 +1,7 @@
+Once upon a time, there was a author named J.K. Rowling who did not hold Hollywood's respect by creating the most beloved children's book of the 21st century. It is only fitting that at the very moment, Rowling will join the ranks of writers like J.K. Rowling who are no longer welcome to make their living as authors:
+
+The author, renowned for her Harry Potter books, will leave the spotlight and her millions of fanatical followers on Monday, said a spokesman for Rowling, the worldwide best-selling author of the Harry Potter series. The announcement of Potter's departure was posted on the author's official website under the heading, "'For the Love of the Books, Goodbye.'"
+
+For one author, it is not enough just to be a beloved author for the ages. It's now not just acceptable, it is the deontology of the day. And for that alone, Rowling is a heroine. We can debate in the comments how much Rowling has influenced children's literature—the Potter books will forever be a staple of the canonization of young readers that Rowling sought—but she is, with the exception of a few exceptions, a good person at heart.
+
+What should have made life easier for Rowling were the legions of writers who would come after. However, they too are not welcomed on the Hollywood red carpet. When one of them comes along, they get a book deal. When they get a book deal, they get a movie deal

@@ -1,0 +1,7 @@
+Once upon a time, there was a graphic designer named Michael W. Smith.
+
+Like so many designers, Smith was fascinated with the possibilities of graphics. He created some graphic design tools himself and taught himself Photoshop. Unfortunately, Smith's interest in digital design ended not long afterwards, and he began to wonder whether that was the right path for him. It was not until a personal tragedy — Smith was diagnosed with prostate cancer — that he began to realize how much his creativity had depended on the use of computers.
+
+In 2011, Smith, who is now a software developer, left his job at a large design firm in Boulder, Colo., and found a job at a tech firm in Austin that specialized in designing the Web. The change in career direction was the best thing that could have happened to Smith in the early years of his career. "As you find yourself making a career change," says Smith, a former art director at Apple's iTunes, "sometimes you have to figure out what that shift is."
+
+As more designers make the transition from making use of the tools of creative design to using those of the information processing industry, a few of them, such as Smith, have come up with new ways of doing graphic design without using one of the most common, albeit venerable, tools in the tool belt — Photoshop. Instead, as Smith explains, many designers in 2013 use tools like Illustrator, which is made specifically for the design field and can produce stunning images that can be

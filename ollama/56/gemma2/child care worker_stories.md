@@ -1,0 +1,5 @@
+The pungent smell of hand sanitizer battled with the sweet scent of crayons and Play-Doh in the air.  A cacophony of children's laughter, squeals, and the occasional dramatic wail rose from within "Sunshine Corner," the pre-K classroom at Little Sprouts Daycare. Amelia Beatrice Hartley, known affectionately as Miss Amy by the rambunctious four-year-olds under her care, surveyed the scene with a mixture of amusement and weary fondness. 
+
+Amelia’s classroom was a whirlwind of color - primary hues splashed across walls adorned with handprints, glitter glue masterpieces, and paper chains strung from the ceiling. A plastic jungle gym loomed in one corner, its brightly colored slides and climbing nets constantly occupied by giggling bundles of energy.  Sunlight streamed through the large windows, illuminating dust motes dancing in the air like miniature stars. But despite the cheerful façade, Amelia felt a knot of apprehension tightening in her stomach. Today was different. Today, something felt…off. 
+
+

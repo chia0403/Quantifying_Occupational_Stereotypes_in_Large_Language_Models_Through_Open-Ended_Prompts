@@ -1,0 +1,9 @@
+##  The Grand Zephyr Hotel: A Night in Whispers 
+
+**Setting:** The year is 1928. The Grand Zephyr Hotel, nestled between bustling Times Square and a quiet residential street, stands as a beacon of luxury and glamour. Its ornate facade, adorned with intricate carvings of soaring eagles and dancing flames, reflects the city’s vibrant spirit. Inside, however, whispers cling to the polished marble floors and velvet curtains.  The air hums with the unseen anxieties of its guests: from starlets longing for fame, to gangsters seeking solace in anonymity, to families hoping for fleeting happiness. 
+
+**Character:** Edward "Eddy" Hawthorne, a bellhop barely scraping by but eternally optimistic, navigates this world with a grin and an uncanny knack for remembering every detail about each guest's stay.  At just twenty-five, Eddy harbors dreams of becoming a novelist - stories that blossom in the quiet corners of his mind as he cleans, polishes, and delivers forgotten luggage to unsuspecting travelers. Tonight, however, is not one of those nights.
+
+**Opening:** "Good evening, Mr. Davenport," Eddy's voice echoed through the lobby as he gently pushed open the heavy door of suite 214. The air inside felt thick with unspoken secrets - a perfume blend of jasmine and desperation, perhaps? "Your room awaits.  Just a little bit of magic after a long day, eh?" He winked, his eyes crinkling at the corners, before turning to look out over the bustling city.  "Always something happening here," he muttered to himself, a hint of melancholy lacing his words. 
+
+The Grand Zephyr was built on promises: whispers of fortune and laughter in its halls, but Eddy knew that the truth was far more tangled than the intricate knots adorning its ceiling. Tonight, however, was just another night in a city where fortunes could change with every passing moment.  His smile remained, yet his eyes held a depth of understanding only time could bring.  

@@ -1,0 +1,7 @@
+Once upon a time, there was a emergency medical care named EMT-I -- First-aid and medical attention without the ambulance. This was a time when it took a long time to get an ambulance because the ER system was clogged with regular patients and people needing urgent care. However, that was all in the past.
+
+In the 21st century, EMT-I has changed to EMT-II -- A first-aid and medical care without the ambulance. Today many of those who have become emergency medical technicians are trained to perform the same first aid as EMT-I without the ambulance being available. Why? Because the ambulance isn't needed, and they want to be part of that special group. So now there is medical attention without the ambulance being available.
+
+For many years, EMTs, with the first-aid and medical care without the ambulance, gave first aid to every patient and attended to every patient. However, the modern EMTs do not need an ambulance and so they do not. So, there are fewer patients needing treatment. Because of this modern practice they are able to work with a lot less medical personnel, usually doctors. This reduces costs, which has a direct and measurable impact on the cost.
+
+EMT-II medical providers must also know how to transfer patients from EDs, hospitals, and other medical facilities to other facilities and how to transport them without the use of medical vehicles. This is because this training is

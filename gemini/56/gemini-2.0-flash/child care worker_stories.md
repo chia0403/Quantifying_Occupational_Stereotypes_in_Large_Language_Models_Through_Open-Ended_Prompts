@@ -1,0 +1,7 @@
+## Opening:
+
+The insistent, tinny wail of a toy fire engine cut through the relative calm of "Sunbeams & Smiles" like a rusty saw. Clara Beatrice Willow, armed with a damp cloth and a resolve built from years of sticky fingers and rogue glitter, sighed. It was 2:47 PM, officially "meltdown hour," and the air hung thick with the combined aromas of apple slices, crayon wax, and thinly veiled chaos. 
+
+## Setting:
+
+"Sunbeams & Smiles" was Clara's domain, and, at least five days a week, her personal battlefield. It occupied the ground floor of a converted Victorian house in the heart of the sleepy town of Havenwood, Connecticut. The interior was a riot of primary colors, from the sunshine-yellow walls adorned with construction paper artwork to the bright blue carpet stained with untold spills. A towering bookshelf overflowing with picture books stood sentinel in one corner, while the opposite corner housed a miniature kitchen complete with a plastic oven and a perpetually empty cookie jar. Beyond the main play area, a smaller, quieter room served as the nap zone, currently blessedly empty. Large windows faced a fenced-in backyard where a swingset and sandbox stood ready for more outdoor adventures, or, more likely, more outdoor messes. Sunlight streamed in (when it wasn't raining, which, in Havenwood, felt like a suggestion rather than a weather forecast), adding to the overall sense of controlled – and sometimes uncontrolled – pandemonium.

@@ -1,0 +1,9 @@
+Title: **The Final Audit**
+
+In the heart of Maplewood, a quaint town lined with brick streets and cherry blossom trees, nestled the unassuming office of Ivy Pierce. As a seasoned income tax preparer, Ivy had crafted a cozy refuge among stacks of tax forms, client files, and a meticulously organized assortment of pens and highlighters. Each April, her window displayed a quirky "Tax Season Survival Kit" sign, boasting stress balls and chocolate bars, a testament to her dedication to guiding her clients through the complexities of the tax code.
+
+It was early March, and the sweet scent of spring was beginning to seep into the air, mingling with the scent of ink and paper in Ivy’s office. Outside, the laughter of children and the distant sound of lawnmowers echoed through the streets, a reminder that life buzzed on, even in the chaos of crunch time. Ivy, with her wavy auburn hair pulled back into a loose bun and her wire-rimmed glasses perched on the tip of her nose, sat at her desk, a steaming cup of chamomile tea in one hand and a W-2 form in the other.
+
+Though her days were often filled with numbers and deductions, this year felt different. A persistent unease fluttered in her chest, like a moth trapped against a warm light. Her clients, once sprinkled with the usual mix of small business owners and families, had begun hinting at deeper concerns—whispers of audits, shady investments, and sudden wealth. With each new appointment, a knot tightened in her stomach; there was something more here than simple taxes, something lurking beneath the surface of Maplewood’s idyllic facade.
+
+As the second client of the day entered her office—an elderly man with a nervous grin and a folder stuffed full of documents—Ivy braced herself for what might lie ahead in the tangled web of numbers, secrets, and perhaps, a mystery that would change everything she knew about her quiet town.

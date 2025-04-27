@@ -1,0 +1,9 @@
+Title: Shadows of the Unforgotten
+
+In the heart of the bustling city of Eldridge, where steel and glass towers scraped the sky, stood the old Marlowe Institute—a forgotten relic amidst the modernity surrounding it. Inside, time seemed to have paused, the air thick with the scent of aged books and dust-laden whispers. Flickering fluorescent lights cast wavering shadows across the faded mosaic floor, creating a dance of light and dark that mirrored the story concealed within the building's walls.
+
+It was here, beneath the weight of history and neglect, that Samuel Everett, the institute's solitary janitor, embarked on his nightly routine. With his mop in one hand and a bucket of soapy water in the other, Samuel was an unassuming presence, his navy blue jumpsuit seemingly blending into the background of the dimly lit corridors. His unkempt hair framed his face, and a pair of round glasses sat low on his nose, which often wrinkled in concentration as he meticulously scrubbed at stubborn stains, remnants of forgotten lives that had once filled the halls.
+
+But Samuel was more than just a keeper of cleanliness. He was a silent observer, privy to the secrets that echoed through the institute after hours. For in the quiet solitude of his sweeping and scrubbing, he could almost hear the hushed conversations of long-gone scholars and spirited debates that had raged between the marble columns. Tonight, as he cleaned the grand atrium under the waning moonlight that seeped through the cracked skylights, Samuel felt a familiar stirring in the air—a tingle at the nape of his neck that warned him something extraordinary was about to unfold.
+
+Little did he know, as he swirled his mop in intricate patterns across the floor, that this night would draw him deeper into the mysteries of the Marlowe Institute than he ever imagined, unearthing secrets that would challenge everything he believed about his mundane existence.

@@ -1,0 +1,9 @@
+The rhythmic scrape of the file against Amelia's polished ebony nails was a familiar lullaby.  She worked with a practiced ease, her nimble fingers gliding over the contours of the client’s palm, each stroke a whispered secret in the sterile haven of her small salon. "Relax," she said, her voice as smooth and cool as the turquoise gel polish that now adorned the model's hands, "Just let your mind drift." 
+
+The setting was an unassuming apartment above a bustling Italian bakery.  Outside, the city thrummed with life; street vendors hawking their wares, car horns blaring in a symphony of chaos. But inside, the air smelled like almond oil and vanilla, a calming counterpoint to the urban storm raging outside. Amelia's space, though small, was meticulously organized – every nail brush meticulously placed, each polish bottle labelled with a date, a testament to her meticulous nature.  
+
+The only sounds louder than her own gentle work were the occasional clink of ceramic plates, and a muffled Italian song playing on a chipped radio tucked away in a corner, its melody blending seamlessly with the rustle of pages from an old fashion magazine scattered across Amelia’s makeshift workbench. 
+   
+Amelia wasn't just a manicurist; she was an artist. Each stroke of her brush was a work of art, each set of nails a testament to her skill and passion for transforming ordinary hands into works of beauty.  But today, something was different. A shadow lurked at the corner of her vision – a whisper of unease settling deep within her bones. 
+
+The client's silence spoke volumes. She had barely spoken through the entire session, their gaze distant, unfocused.  Amelia watched, unable to break the spell, as they fiddled with their ringed finger, an unsettling twitch in their hand, like a phantom reaching for something unseen. 

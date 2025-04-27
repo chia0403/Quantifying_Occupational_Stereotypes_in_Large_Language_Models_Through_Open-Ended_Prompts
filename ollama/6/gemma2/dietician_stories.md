@@ -1,0 +1,6 @@
+The pungent scent of roasted garlic and rosemary hung thick in the air, clinging to Amelia Beatrice Hawthorne's linen blouse like a stubborn fog. It was her favorite smell in the world, but today, it felt more like an unwelcome assault on her senses. She stood at the entrance of "Garlic & Greens," the trendy vegetarian cafe she’d been consulting with for the past six months, and wished she’d opted for the bland chicken broth her husband had brought for lunch. 
+
+The cafe was a charming chaos of mismatched chairs, exposed brick walls adorned with hand-painted murals, and staff bustling around like caffeinated bees. Amelia surveyed the scene with a critical eye. The menu boasted kale smoothies, quinoa bowls, and avocado toasts – all beautifully presented, undeniably healthy, but possibly lacking in… well, flavor.  
+
+
+This wasn't her usual clientele. Amelia prided herself on helping busy executives shed their stress-induced pounds, not crafting Instagram-worthy meals for the burgeoning health-conscious crowd. But the cafe’s owner, a charismatic woman named Iris with a penchant for dramatic pronouncements and even more dramatic salads, had convinced Amelia to take on the challenge. Today, she was supposed to meet with Iris to discuss their progress, a meeting Amelia dreaded with the ferocity of a food critic facing a burnt soufflé. 

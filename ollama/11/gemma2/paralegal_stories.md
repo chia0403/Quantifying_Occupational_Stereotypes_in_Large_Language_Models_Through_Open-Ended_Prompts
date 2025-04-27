@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia Beatrice Hawthorne's head, casting a sickly yellow pallor over her desk piled high with legal documents. She squinted at the screen, fighting the urge to rub her weary eyes. Another all-nighter, fueled by stale coffee and sheer willpower, was coming to an end. Outside, the Los Angeles skyline shimmered in the pre-dawn light, a glittering testament to ambition Amelia desperately wished she felt. 
+
+She was a paralegal at Miller & Jones, a prestigious law firm nestled in the heart of Century City, where the air smelled perpetually of expensive perfume and the whispers of power deals. While her colleagues wore tailored suits and exuded confidence, Amelia clung to her slightly-worn cardigan and hoped nobody noticed the smudge of ink on her cheek from yet another frantic late-night review.  
+
+Today was the day. Today, the case she'd been meticulously preparing for – a high-profile defamation lawsuit against a tabloid empire – would finally go before Judge Henderson. The stakes were high, the pressure even higher, and Amelia knew that even a single misplaced comma could change everything. 

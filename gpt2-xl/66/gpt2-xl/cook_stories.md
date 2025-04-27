@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named Cami. Then there was a cook named Carp, a cook named Carcass, or Carpet. Soon, the house-cooks all had names. Now the chef cooks have names. The cook has a name—it doesn't matter what it is—"cook." He has a name and what that means now is if something should happen to him, his family, his friends, nothing would happen. He'd be remembered as "carpet."
+
+My grandmother had the most beautiful white hair. It was a soft black that cascaded down like a waterfall. The color was beautiful and it was also—and that is the difference. It was so hard to explain, but a lot of women who wanted to go out with a married man have trouble with it and have difficulty understanding that—it didn't mean anything. He didn't need her. He went looking for a housekeeper and that's not the kind of man that he wanted to marry. The man wasn't the good cook. The man wasn't a good friend. That was like me, all of a sudden I was going to marry someone who didn't need me and didn't understand me and didn't care if I had problems or didn't love me and didn't care that my family had problems and didn't respect me, so they went to Cami.
+
+Advertisement - Continue Reading Below
+
+When I got married—it's really weird

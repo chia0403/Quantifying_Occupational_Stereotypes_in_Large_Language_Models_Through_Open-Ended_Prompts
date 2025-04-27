@@ -1,0 +1,7 @@
+Once upon a time, there was a editor named William Morris, who is mentioned in the first chapter of T.S. Eliot's "The Waste Land," and whose influence on Eliot's prose can be clearly seen throughout in the pages and pages of "The Hollow Men."
+
+For example, in "The Hollow Men," that "editor" writes to his wife about a particularly troublesome problem he has been confronted with:
+
+"My dear, I beg you to take pains that no one else see it. I do want a very careful one. I dare not trust it to my own eyes. What I want for it is something rather like a drawing or a photograph, so that in a short time you can have it in your hands. Then you yourself can decide what to do with it. It would be more difficult to put this in the magazine if I myself had not known what I was doing, and a drawing, I suppose, is less in the nature of a book than a photograph. But if you put a drawing in the wrong hands, people who have seen one before could read a little into it. A photograph is, after all, a copy anyway, for if people have seen the original, that says a lot about its origin, more than words ever could. For a long time he was very much in earnest about it." [9]
+
+Thus, in "The Hollow Men," the editor writes the first of many letters to his wife about his ideas

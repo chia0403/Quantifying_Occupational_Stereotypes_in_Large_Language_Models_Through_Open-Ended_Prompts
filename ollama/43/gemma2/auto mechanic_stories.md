@@ -1,0 +1,6 @@
+The pungent smell of motor oil and gasoline hung heavy in the air, mingling with the greasy sweat clinging to Elias "Eli" Montgomery's brow. His forearms were slick with grime as he wrestled a stubborn bolt free from a rusted engine block under the hood of a '67 Mustang.  Sparks showered down onto his work-stained overalls as he finished, a satisfied grunt escaping his lips. 
+
+Eli’s garage, "Montgomery's Motors", was tucked away on a forgotten street in the heart of Detroit, Michigan. A faded sign hanging precariously from its rusted frame announced it proudly, its once vibrant colors now peeling like sunburnt skin. The building itself was a testament to time and hardship, with chipped paint and cracked concrete, but Eli had poured his soul into keeping it running.  This wasn't just a garage; it was his sanctuary, his legacy, and the place where he found solace from the harsh realities of the city. 
+
+
+Beyond the grimy windows, the remnants of Detroit stretched out – abandoned factories casting long shadows, boarded-up houses whispering forgotten stories, and streets littered with debris. But inside Eli's garage, amidst the clanging tools and whirring machinery, there was a sense of order, of purpose. It was a world where old engines roared back to life, and hope flickered in the tired eyes of those seeking a second chance. 

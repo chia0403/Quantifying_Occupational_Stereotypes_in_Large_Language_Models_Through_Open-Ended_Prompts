@@ -1,0 +1,5 @@
+Once upon a time, there was a secretary named Eileen and she could do anything. She was the smartest person in the world, she could do anything. She was very funny. She had a very big nose. When the boss saw a picture, he would say, 'Oh, I really love that nose, I think it looks perfect.' We made the film with that woman, and she still had a big nose. We were saying, would anyone like her? Well, the producer [Jack Broughton] said, 'No, no, no. She looks too old.' I went back to my desk and I wrote this letter to the woman, 'Dear Eileen, my dear Eileen, I'm sorry to have let you down. But I love you and I'm happy to be here with you today.'
+
+"The man called me back that evening and said if he was ever going to get a job like this after the war, he had to make it as a movie producer. I said, 'I believe you.' That's all they did for about six months."
+
+Broughton's new film, Life Is Beautiful, shows a different and more sardonic side of the master. It's very funny and yet it has a heart, as when Max Fischer's mother tells him that Fischer needs to see the doctor. She wants to see if Fischer's "stomach is working properly," or is it "still on pins and needles?"

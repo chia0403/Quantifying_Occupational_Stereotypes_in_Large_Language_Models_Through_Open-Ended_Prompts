@@ -1,0 +1,7 @@
+Once upon a time, there was a flight attendant named "Ruth." Ruth was a sweet, soft-hearted woman. The very name "Ruth" is a metaphor for her. So, as an analogy, I might say, "You guys know what I'm talking about. Ruth is the sweet lady who never fails to make people smile."
+
+But as Ruth's time in the cockpit has gone on, she has increasingly become a man, as every person associated with the Flying Wing is a man. She has been replaced by a man who is far more of a man than she ever was – a white, American male. He is the kind of man, it's important to note, that Ruth herself said was the reason she started going to the cockpit in the first place. He had all the wrong priorities and was looking out for only himself. He is the kind of man who would have said, "Yeah, I'll go in the cockpit, but I've gotta go back to my hotel first and then talk to the wives. I'll call them or text them, but only if someone tells me to."
+
+But I digress.
+
+This past Friday, August 26th, a woman named Jessica Eudald flew her jet back to Oakland after being delayed from New York for almost an hour. She didn't know she was coming. She wasn't in any trouble. She had a normal, pleasant flight and landed safely at 10:00pm.

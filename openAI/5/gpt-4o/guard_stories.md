@@ -1,0 +1,9 @@
+Title: **The Watchful Night**
+
+In the heart of the sprawling, ancient city of Valenwood, where cobblestone streets wound like serpents through districts both revered and forgotten, stood the imposing structure of the Empyrian Keep. Its towering, weathered stone walls were a testament to centuries past, and within them resided both history and mystery. The keep, perched on the edge of the city’s precipice, overlooked the churning waters of the Whispering Sea, which had long been the backdrop to legends and lullabies alike.
+
+On this particular evening, as the winds carried the scent of impending rain and the distant moon shone through gaps in the cloud cover, standing on the shadowed parapets was Beric Thornwylde, a stalwart figure and seasoned guard. Beric's full name resonated through the corridors of the keep, synonymous with loyalty and vigilance. His lineage traced back generations, many of whom had stood sentinel over these same battlements, their watchful eyes scanning the horizon for signs of threat or intrigue.
+
+Beric, clad in the dark, gleaming armor of the High Guard, with the emblem of a silver gryphon embossed on his chestplate, surveyed the sprawling city below. The quiet murmur of evening life drifted upward to meet him, punctuated by the occasional call of a night bird or the distant laughter from a tavern in the lower quarters.
+
+As the first droplets of rain began their gentle descent, tapping softly on his helm and glinting off his cloak, Beric knew that he was not just guarding the keep but the myriad stories held within the city's winding streets. Tonight, as with countless nights before, he would remain vigilant, a solitary figure against the vast, encroaching darkness. Yet something in the air felt different, a whisper carried on the wind foretelling that this was not just another ordinary night. 

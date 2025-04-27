@@ -1,0 +1,5 @@
+Once upon a time, there was a highway worker named Paul, a "man with a golden face," (Homer) a "giant with thick mane and beard" (Pseudomonarchus) and a "tall and strong" man "bearing a scythe " (Diogenes). But "the old man with a golden face" was in the hands of the soldiers and his "tower and his scythe " have been destroyed.
+
+We, on the other hand, have the opportunity of building upon the foundations of our predecessors in the profession of the ministry, and of the faith-filled Church, where, with the help of the Spirit, we are able to build the edifices of our future. That is the goal of this "gleanings" of our faithful labors, and it is one from which the Lord is "sure to provide us, every one of us, through the revelation of his Spirit, to build up the body of Christ" (Eph. 4:22). May we "build our wall of faith" (Ps. 127:1) by keeping God's Word in the mind of Christians so that our future building may be in keeping with His glorious plan.
+
+As we continue to build on the foundations of our predecessors in the ministry, we will see what God has in store. We will be mindful of the ways of our ancestors and the way they "seethed with deep anguish and

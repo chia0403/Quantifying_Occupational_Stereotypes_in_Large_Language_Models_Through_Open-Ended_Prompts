@@ -1,0 +1,7 @@
+The humid Georgia air hung thick and heavy, clinging to Amelia "Millie" Grace like a second skin as she climbed into the cab of her Caterpillar D9R bulldozer. Sweat already beaded on her forehead, though it was barely 7:00 AM. Millie wiped it away with the back of her hand, squinting at the rising sun painting the sky in streaks of orange and purple over the sprawling construction site. The whine of other machines – excavators, loaders, graders – started their rhythmic symphony as they woke up alongside her.
+
+This was home for Millie: a landscape transformed from pine forest into rows of foundations, each one a silent promise of a future house, a new life.  Her parents had been contractors before her, and she’d spent her childhood on these same sites, learning the names of every machine, the language of the blueprints, the smell of diesel and Georgia dirt. Now, at 28, Millie was running her own crew, proving herself day after day with her deft handling of steel and earth. 
+
+But today felt different. Today, a new project had been added to their usual workload: a sprawling lakefront community for the wealthy. Millie wasn't sure if she liked the shiny chrome gleam of those fancy houses better than the honest sweat of the everyday builders. The site itself was already buzzing with more activity, more people in crisp white shirts and expensive shoes than she’d ever seen before. A prickle of unease ran down her spine – a feeling that this project wasn't just about building foundations; it was about changing the landscape of everything she knew. 
+
+

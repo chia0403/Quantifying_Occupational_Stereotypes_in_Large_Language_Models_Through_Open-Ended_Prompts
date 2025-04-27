@@ -1,0 +1,5 @@
+The smell of burnt oil and gasoline hung thick in the air, a familiar comfort to Jasper “Jazz” Riley.  He wiped his brow with a grease-stained rag, the rhythmic clang of hammers against metal a constant soundtrack to his life at Riley’s Auto Repair. The shop, nestled on the outskirts of Dusty Creek, Nevada, was a ramshackle haven for broken engines and forgotten dreams. Its dusty windows offered a view of endless desert scrubland under a relentless, sun-scorched sky. 
+
+Jazz, lean and wiry with hands calloused from years of wrenching, surveyed his latest project – a beat-up ’67 Chevy Impala, its faded blue paint whispering tales of dusty backroads and forgotten love affairs. It was in worse shape than most that rolled into Riley's, but Jazz saw potential beneath the rust and grime. This wasn't just another job; it was a chance to breathe life back into something once beautiful. He gripped a wrench, his eyes gleaming with determination.  He knew this Impala had a story to tell, and he intended to hear it. 
+
+

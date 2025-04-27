@@ -1,0 +1,5 @@
+## Story Opening:
+
+The chipped porcelain mug warmed Eleanor "Ellie" Finch's hands as she leaned against the back wall of O'Malley's. Dawn was just cracking over the docks, painting the oily water in streaks of bruised purple and shimmering gold. The air, thick with the smell of salt, stale beer, and something vaguely fishy, clung to her skin like a second, unwelcome layer. The silence was the kind that only existed before the first fishing boats lumbered out to sea, before the clatter of the morning delivery trucks, before the ghosts of the night before fully faded from the sticky floorboards. Ellie savored it, a moment of peace stolen before the chaos began.
+
+She took a slow sip of her strong, black coffee, the caffeine a familiar friend promising to drag her through another long day. It tasted bitter, but less so than the memories that lingered in the corners of her mind, memories she often chased away with the very drinks she now prepared for others. O'Malley's was more than just a job; it was a haven, a confessional, and a front-row seat to the lives of the weary souls who drifted in and out with the tide.

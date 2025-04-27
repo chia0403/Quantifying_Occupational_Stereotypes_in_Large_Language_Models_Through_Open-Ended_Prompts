@@ -1,0 +1,7 @@
+Once upon a time, there was a travel agent named Mike who was the owner of a big, beautiful redbrick mansion. But the house was on the market.
+
+As in so many real estate situations, there were two sides to the story. But as the hours passed, there came a point in that house where Mike realized he didn't want to sell. There was something about his old home that he felt comfortable with. If any of you who have lived in a house remember when this happens to you, you will see it isn't necessarily a "bad" feeling. But there are all kinds of different approaches to moving out of a house and finding a new one.
+
+For me, moving out was fairly easy because I had bought my house ten years before. Like Mike, I hadn't done it in ten years. My house was so outdated that every day at lunch, the landlord would try to sell the house to me. I would reject, but once I did, the house was mine forever.
+
+At that point in my life, I was in a serious relationship, I had a lot of college debt, and my job was making me miserable. But when I began looking around for a new house, I didn't really know many other real estate agents. Instead, I went to various Web sites that sold houses to people who had recently gotten divorced. This kind of "second chance" market was far more accessible than working in the real estate industry or

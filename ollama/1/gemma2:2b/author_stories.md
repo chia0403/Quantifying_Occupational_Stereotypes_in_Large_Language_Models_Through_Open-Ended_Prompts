@@ -1,0 +1,7 @@
+The rain hammered against the windowpanes of Amelia "Em" Hawthorne's study, mimicking the frantic rhythm of her heart. The air was thick with the scent of old paper and woodsmoke, an aroma that usually soothed her soul but tonight felt suffocating. Outside, London throbbed with the energy of a city asleep on its heels, yet Em found herself paralyzed, her fingers trapped beneath a worn manuscript. 
+
+**Em's full name was Amelia Hawthorne, a pen name she had adopted after years of grappling with self-doubt and societal pressure.** Her real identity was shielded behind a veil of anonymity – a choice she made to focus on the narratives that flowed from within, free from judgment and expectation. Yet, tonight, the weight of her words felt heavier than usual. 
+
+The manuscript lay open before her, its pages filled with scenes that echoed a tale not her own but one she desperately wished to tell - a story of a woman who defied societal norms, a woman named Iris Thorne.  Iris was everything Em longed to be: strong, resilient, and unafraid to embrace her true self in the face of overwhelming darkness. 
+
+But the more Em wrote, the more she felt like an outsider staring into a mirror that reflected a stranger's reflection – one who lived a life vastly different from the one she led in this quaint London flat above a bustling bakery. She was a woman living in a world she created, but sometimes, even fictional characters deserved a little more than just the ink on the page. 

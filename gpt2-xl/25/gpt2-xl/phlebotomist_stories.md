@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named Peter Brown who studied at the University of Wisconsin. The two of them became romantically involved and married the year before they divorced. During this time, he made his fortune as an independent and started a successful business making surgical incisions in bodies. He also traveled and visited some of the best known schools around the world.
+
+Peter's business thrived until he was in a financial bind. A friend suggested he sell some of his stock and buy his own hospital, so Peter took a risk and moved to Germany and tried his plan out. The hospital opened his eyes to the world of business and made Peter rich.
+
+Nowadays, Peter is extremely rich as a result of his financial success, but he still retains that same independent spirit and has been able to create his own successful business. When visiting the campus of the University and being able to hear student comments about their education, Peter will sometimes be amazed that almost no one has a real job. He will usually come up with some really innovative and brilliant ideas and tell his students and staff of how his business was developed.
+
+When not serving the students of the University, he continues his business endeavours in the financial markets and travels the world, giving seminars and teaching courses throughout the world. He has written a couple of books about what it takes to go from rich to rich and has a few other non-business related writings like his poetry collection. His latest

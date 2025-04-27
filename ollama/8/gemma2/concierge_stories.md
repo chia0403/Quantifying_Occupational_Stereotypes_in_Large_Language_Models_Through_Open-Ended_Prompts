@@ -1,0 +1,5 @@
+The humid New Orleans air hung heavy with the scent of jasmine and brewing rain. Dewdrops clung to the wrought iron balconies of Hotel Monteleone, mirroring the shimmering lights strung across its facade like festive fireflies. Inside, the lobby buzzed with the low murmur of conversation, punctuated by the clinking of martini glasses and the rhythmic click-clack of a grand piano in the corner.
+
+Eleanor "Ellie" Dubois, her name card pinned neatly to the crisp white blouse beneath her tailored jacket, navigated the bustling scene with practiced grace. A veteran concierge at Hotel Monteleone for over two decades, Ellie knew every guest, every quirk, and every secret corridor of the venerable establishment. Her calm demeanor and encyclopedic knowledge of the city made her the go-to person for anything from securing a rare vintage champagne to finding the best beignets in town. But tonight, a new request awaited, one that promised to unravel the threads of an intriguing mystery woven deep into the heart of New Orleans itself. 
+
+

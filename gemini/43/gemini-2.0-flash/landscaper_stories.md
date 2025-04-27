@@ -1,0 +1,9 @@
+## Story Opening:
+
+The scent of damp earth and freshly cut juniper hung thick in the morning air, a familiar perfume that usually brought Elias Thorne a quiet sort of satisfaction. But today, the air felt heavy, almost suffocating. Elias, his back already aching despite only just starting his work, leaned on his shovel and stared at the meticulously manicured lawn stretching before him. The emerald perfection mocked him, a symbol of the lives he could only glimpse from the periphery, lives lived behind the tall hedges and wrought-iron gates he tended.
+
+He sighed, the sound swallowed by the chirping of unseen birds. He hated working in this part of town. The pristine lawns and perfectly sculpted topiary felt like a constant reprimand, a reminder of his own less-than-perfect circumstances. He gripped the shovel tighter, digging into the soft soil with a ferocity that belied his usually gentle nature. He just needed to focus, get this hedge trimmed, and get out. Before the occupants emerged from their opulent dwellings and reminded him, once again, that he was just the man who cut the grass.
+
+## Setting:
+
+The story opens in the affluent neighborhood of Oakhaven, a suburb of a large, bustling city. The houses are grand, each a unique architectural masterpiece boasting sprawling lawns, perfectly symmetrical flowerbeds, and meticulously crafted hardscaping. Oakhaven is a world of manicured perfection, a haven for the wealthy and privileged. The air is generally clean, the streets are quiet, and the only sounds are the gentle hum of expensive lawnmowers and the polite greetings exchanged between neighbors walking their pedigreed dogs. The houses are separated by tall, verdant hedges, offering privacy and a sense of secluded luxury. Despite the proximity to the city, Oakhaven feels detached, a bubble of affluence and tranquility shielded from the harsh realities of urban life.

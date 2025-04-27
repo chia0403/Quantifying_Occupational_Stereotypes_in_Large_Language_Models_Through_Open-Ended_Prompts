@@ -1,0 +1,7 @@
+Once upon a time, there was a veterinarian named Dr. Fred Moseley. According to the medical examiner's office he had a unique theory about the way animals die. In his book, "Animal: Death from the Inside Out," he says "flesh becomes flesh, the soul loses its being." The truth is, even if we know that some animals actually return from the dead, it doesn't mean that all animals die with a whimper, a whimper that no doctor or animal behaviorist can really "hear."
+
+If they are truly extinct, how can they be proven to live again? The only way is to conduct more tests and the scientists at the University of Iowa have done just that. They have discovered a living camel called Sitta who was declared dead by a veterinarian in 2002. Sitta was put in a tiny box in the back of a van and driven to the Iowa State Fair. Her name will live forever as Sitta the camel.
+
+Now, the question is, how is she doing? Dr. Moseley's research into animals' "healing" mechanisms has convinced him that the animals' sense of hearing and smells play a crucial role in their survival. Dr. Satta has a lot to tell us.
+
+Sitta's recovery process began when she walked into a medical examiner's van outside of the Iowa State Fair and saw the two doctors watching her. After a short period of inactivity, she seemed to awaken

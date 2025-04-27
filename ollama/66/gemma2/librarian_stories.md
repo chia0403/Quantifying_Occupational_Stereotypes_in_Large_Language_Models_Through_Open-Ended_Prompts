@@ -1,0 +1,5 @@
+The scent of aged paper and leather hung thick in the air, a comforting aroma that had always soothed Amelia Rose Hawthorne. She ran a finger along the spines of ancient tomes, their titles whispering forgotten stories. The library was her haven, a labyrinth of knowledge where she felt truly at home. 
+
+Outside, the storm raged, wind howling like a banshee and rain lashing against the stained-glass windows of St. Albans Parish Library. But within these walls, Amelia found peace. She was alone, as usual, save for the rustle of pages and the soft click of her heeled boots on the worn oak floor. 
+
+Amelia adjusted her spectacles, their brass rims glinting in the warm glow emanating from the reading lamps scattered throughout the cavernous space. Tonight, she had promised herself a night of peace – a quiet evening surrounded by the comforting silence and familiar stories that lined the shelves. A promise quickly shattered when the library doors creaked open, admitting a gust of wind and a figure silhouetted against the stormy night.  

@@ -1,0 +1,6 @@
+The pungent scent of antiseptic mingled with the sweet, musky aroma of hay as Dr. Eleanor "Ellie" Finch adjusted her glasses and peered into the mare's open mouth. The barn was dim, lit only by a single bare bulb hanging precariously from the rafters, casting long shadows that danced across the dusty floor. Outside, the wind howled through the gaps in the weathered siding, rattling the windowpanes like skeletal fingers.
+
+Ellie lived and breathed this world of hay bales and gruff farmers, mending broken wings and soothing frightened hearts.  Her clinic, nestled on the outskirts of Harmony Creek, was a haven for all creatures great and small, but tonight, it felt more like a battlefield. 
+
+
+The storm had arrived with fury, lashing rain against the tin roof and tearing at the old barn doors. It had driven in the injured mare, her leg twisted at an unnatural angle beneath her, her whinny a desperate plea for help. Ellie knew she was facing a long night. The wind howled like a wounded beast, promising more chaos to come, but Ellie wasn't one to flinch from a challenge.  She tightened her gloves and murmured reassurances to the mare, ready to fight for its life, even as the storm raged around them. 

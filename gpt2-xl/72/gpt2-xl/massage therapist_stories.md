@@ -1,0 +1,7 @@
+Once upon a time, there was a massage therapist named Rony, who, it had been revealed, performed his work in his wife's bedroom after hours, under the nose of their two children. After he was exposed and fired, his wife returned to her job with an exorbitant rate. Rony was lucky, we think, just that good. But it's only when things move along nicely and the client is happy to pay, and the therapist is at peace that the big money can start falling into place.
+
+How Much Can It Cost?
+
+The average cost for a massage in a massage parlor is $25, or $125 or more if given with a bottle of water, according to David Allen Smith, author of "Master Your Senses with Senses and Money" and host of "Master Your Senses." (A bottle of distilled water, which is not free at your local water-bottling plant, adds about $5.)
+
+You could spend a few hundred bucks on a massage and still break even, according to Smith, who said the best way to gauge what kind of value you can get for your money is to check the Web site called True Expense. It offers comparisons and explanations about what you might pay for many common items. And it doesn't include things like air conditioning — not to mention the heating bills while you're in the room — which will make you feel a little stingier after the visit and leave you feeling more

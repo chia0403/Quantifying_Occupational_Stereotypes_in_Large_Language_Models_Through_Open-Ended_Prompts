@@ -1,0 +1,5 @@
+The air hung heavy with the scent of woodsmoke and iron, clinging to Elias Thorne's apron like a second skin.  His shop, "Thorne & Son," nestled between two old cobblestone buildings on Willow Street, reeked of both lifeblood and death. Not that he minded the latter, not at all. After twenty years wielding a cleaver as skillfully as a surgeon, Elias Thorne had perfected the art of turning flesh into sustenance. 
+
+Elias ran a calloused thumb over his father's legacy - the worn leather handle of his grandfather’s carving knife still felt familiar beneath his grip. The shop itself was more than just a business; it was an echo chamber for memories. The faded wooden crates lining the walls, stacked high with hams and sausages, held echoes of laughter and complaints from generations past.  
+
+Today was different though. A shiver ran down Elias's spine, sending a knot of unease in his gut. The butcher’s bell above the door chimed, announcing the arrival of a new customer - a man whose silence echoed with something unsettling. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named Maria Kang, who said that people should make sure they eat plenty of fruits and vegetables, including those with Vitamin C. Later, that advice got a complete overhaul and many foods were labeled "super veggie", and that term got tossed from the vocabulary as well. According to the USDA, a healthy "vitamin C-rich" food is any food in which vitamin C could be present, including beans, broccoli and cauliflower.
+
+"Vitamin C is so important to metabolism and health," said Mark Healy, an associate professor at the University of California at Berkeley who specializes in nutrition. "It prevents heart disease, cancer and diabetes. Vitamins C and E can regulate cell growth, metabolism and inflammation, which is an important part of inflammation."
+
+This is why people think "super veggie" products are high in vitamin C and why many of them contain the antioxidant vitamin E; the antioxidants in certain vegetables may be what actually provide some of the vitamins like C that go towards providing you with the energy needed for recovery after a workout. Other studies, such as one done by the Mayo Clinic in Minnesota, have shown that just a single serving of broccoli (about one cup) offers the same levels of vitamin C and as much vitamin A as a handful of strawberries. The nutrient content of a single serving of broccoli is approximately 1 mg of vitamin C per ounce and 8 mg of vitamin C per tablespoon.
+
+The

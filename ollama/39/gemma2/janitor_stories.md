@@ -1,0 +1,5 @@
+The air hung thick with the scent of stale coffee and despair in the echoing halls of the Grand Meridian Hotel. It was 3:00 am, the witching hour between shifts when the city held its breath and the hotel surrendered to its secrets. Agnes Pearlbottom, a woman whose name sounded like an antique tea set and who moved through this world with the quiet efficiency of a well-oiled machine, pushed her mop across the plush red carpet in the grand ballroom.  The once vibrant space, now draped in shadows from the few flickering chandeliers, held the ghostly remnants of laughter and clinking glasses. Agnes knew every crack in the marble floor, every loose tile, and every whisper carried on the draft snaking through the open windows. She was a guardian of sorts, a silent sentinel keeping watch over the hotel's decaying grandeur.  
+
+Tonight, however, something felt different. A prickling sensation danced along her spine, an unsettling awareness that she wasn't alone in this cavernous space. The silence seemed to amplify, every creak and groan of the aging building echoing like a whispered threat. 
+
+

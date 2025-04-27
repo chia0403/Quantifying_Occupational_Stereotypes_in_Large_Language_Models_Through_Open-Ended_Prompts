@@ -1,0 +1,7 @@
+Once upon a time, there was a theatrical director named Joe Lomax who wanted to turn the idea of an actor's head into a puppet. While it would be easy enough for him to build just a puppet, he insisted that he wanted a body and he started to search through the local thrift stores. Over a period of years, he and a group of puppeteers created some great and terrifying creatures.
+
+Joe's "Spooky Head" was an enormous puppet, and he would strap this giant man-monster onto his head through a combination of foam rubber and human skin. Lomax used a small metal base that was attached to the puppet through a string attached to his belt. This was how he controlled the puppet. This was also the first time a puppet artist wore a mask.
+
+After inventing his own head, Joe went to Hollywood, where he got into work developing a show using the spooky head. He needed actors to wear the head and the actors to play the role of the monsters. It wasn't long until he began to make money from his puppet show and they paid him not to use the spooky head.
+
+He finally had another hit when he got a contract with Universal Studios for a haunted house. There was some controversy at first about this idea, but after many years, things were okay. This was before movies and when you had to have a ghostly figure that looked like a small humanoid in order to scare someone

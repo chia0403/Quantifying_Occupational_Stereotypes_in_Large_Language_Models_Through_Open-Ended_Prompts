@@ -1,0 +1,5 @@
+Rain hammered against the windows of the cramped office in downtown Boston.  A constant drumming beat matched Amelia Rose's growing headache as she sifted through another stack of legal documents. Her worn-down desk was covered in binders and manila folders, each one containing some facet of her clients’ lives – a bitter divorce case, a wrongful termination lawsuit, a child custody dispute. She wasn't sure which was the most soul-draining part:  the endless paperwork or knowing she couldn't truly help anyone outside of legal jargon.
+
+Her phone buzzed - another missed call from Mr. Peterson, her current client. He'd been a mess since his recent dismissal, and Amelia wished he had called when he needed to discuss the details of the case instead of just being vague about their impending meeting. The storm outside was starting to escalate, mirroring the rising tide of frustration in Amelia's chest. 
+
+She sighed as she glanced at the clock - 10:45 pm on a Wednesday. The law wasn’t meant for those who craved light and warmth, but just like the city that swallowed her whole, Amelia Rose knew it was where she belonged. She had a job to do.  

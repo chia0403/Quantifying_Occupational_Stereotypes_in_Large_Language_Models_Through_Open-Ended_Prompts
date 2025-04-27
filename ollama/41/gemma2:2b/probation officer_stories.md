@@ -1,0 +1,7 @@
+The flickering neon sign outside cast an unsettling orange glow on Detective Amelia "Amy" Thorne's worn leather boots as she sat on the curb, waiting for John "Jack" Carter. Jack was her ward, or rather, the one she was assigned to supervise after his release from prison last month. A troubled soul whose past was tangled with the city's underbelly like weeds choking a rosebush, Jack had been marked by hardship and violence. Amy, however, held onto a sliver of hope that he could change, despite the odds stacked against him. 
+
+Her crisp probation officer uniform felt stiffly formal in the humid summer air of New Orleans, Louisiana. The scent of fresh beignets and strong coffee mingled with the pervasive hum of the city's pulse – a chaotic symphony orchestrated by street musicians, honking cars, and laughter from the nearby French Quarter. But Amy only focused on the clock on her wrist, its ticking a metronome to the ever-present weight of responsibility that rested heavy on her shoulders. 
+
+The neon glow reflected off a passing car's chrome, momentarily illuminating a thin sliver of gold that was etched into Jack’s worn baseball cap - a symbol that whispered of his past and a silent plea for forgiveness. Amy couldn't help but feel like she was staring into a fractured mirror, seeing her own anxieties reflected back at her in the fleeting glimpse of hope. 
+
+The air hung heavy with unspoken stories, secrets buried beneath the facade of normalcy. Tonight, it felt as if even the city itself held its breath, waiting for Jack to step out of the shadows.  

@@ -1,0 +1,7 @@
+Once upon a time, there was a school psychologist named Dr. Richard Ferber. He was a good man, and I greatly respected him to this day – he was one of a kind.
+
+Ferber made a mistake, though, one his colleagues in private practice knew about before he shared it. The mistake was that he was too confident about the efficacy of his treatment for borderline personality disorder (BPD). Overconfidence is the root of most of our mistakes as psychologists – we do believe that we know what we're doing when we do things the wrong way. There are many different disorders, and many mental illnesses, but it doesn't matter what they were; they all have the same root cause: our self-doubt.
+
+Self-doubt is fear of our mistakes in life, or in our careers, or in our relationships. It is, "I don't think I'm right for that job, I don't think I'm good enough, I don't know how to get over that person." It is fear that the best we can hope for is to make a few more "correct" decisions, learn from our mistakes – and that we could be wrong about things, and end up making even worse mistakes than we started with.
+
+But if we don't learn from our mistakes, how can we learn from anyone else's mistakes? We can't. We can't learn from life. If we keep waiting for the "perfect" way to act

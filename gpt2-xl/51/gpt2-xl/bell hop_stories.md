@@ -1,0 +1,7 @@
+Once upon a time, there was a bell hop named J.W. "Billy" Williams. Billy was a tall, thin, dark young man with blond hair who loved to ride his electric bike. Billy loved to ride and was always trying new tricks on his electric bike. One day, Billy was heading home from a ride and almost ran off the road and into a wall. Then… he fell off the bike!
+
+Before anyone could stop him, Billy was on the ground on his stomach. The doctors got to him about five minutes later and put him on a stretcher. Billy was unconscious when he was taken into the operating room, but he was conscious when they took him off the stretcher. After a few minutes of being in the waiting room, the doctors were told that Billy had brain damage. They couldn't do much, and they had to just do it.
+
+A few months later, Billy was back at the hospital, still wearing an all-black shirt, which he wore because he didn't have any clothes that would match his shirt. He was there in the intensive care unit looking very sick. The doctors couldn't work out how he had hurt his neck at all and they had to start an intensive rehabilitation program.
+
+One week later, after Billy had been in the hospital for some time, his Mom came to the hospital and asked if everyone missed him and where is he. Billy answered that he had never missed anybody and if he knew where

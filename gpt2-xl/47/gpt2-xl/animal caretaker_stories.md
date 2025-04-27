@@ -1,0 +1,7 @@
+Once upon a time, there was a animal caretaker named Mrs. Pincher. She was a person of great integrity and hard work, and she kept chickens, ducks, and her husband's cats. But one day when she left the chickens to guard the front door and went outside, a stray cat bit her. Since she couldn't go to an animal hospital, Mrs. Pincher went to the veterinarian for help. When the doc found the bite wound, he referred Mrs. Pincher to a veterinarian. When she came back, the vet told her, "You can't even have him in the barn." He put him in the back of his truck. Mrs. Pincher became frightened, and at the last minute, the vet gave her permission to take him to a animal shelter."
+
+I love how her husband's story ends by explaining why the vet gave her the power to do such a thing.
+
+In the past a vet would tell you not to bring a feral cat in the barn. It was a "bad idea," the vet would say, and it might kill one of your other animals. Not anymore!
+
+I don't usually comment on "do-gooder news stories," but this one is different. The news story states that after the animal shelter took care of the cat and put him to bed, he was adopted by a lady. I love the image of that lady and how she seems so grateful to have this cat

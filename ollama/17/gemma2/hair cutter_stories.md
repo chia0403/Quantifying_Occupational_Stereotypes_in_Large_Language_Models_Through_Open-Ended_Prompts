@@ -1,0 +1,5 @@
+The bell above the door jingled its tired tune as Amelia Harper adjusted the comb in her hand, her reflection staring back from the polished silver surface of a vintage hairdressing mirror. The air hung thick with the scent of lavender shampoo and anticipation.  Her small shop, "Amelia's Attic," nestled on a cobbled street in the heart of Edinburgh, was bathed in the golden glow of late afternoon sunlight filtering through dusty windows. Outside, the city hummed with life – laughter spilling from pubs, the clanging of a distant tram, and the rhythmic tap of footsteps on pavement.  
+
+Inside, Amelia's world was a sanctuary of hushed whispers, snipping scissors, and carefully crafted transformations. Today, her client list held a peculiar mix: an anxious young woman preparing for a first date, a gruff businessman seeking a trim before a crucial meeting, and a mischievous schoolboy hoping to hide his latest haircut disaster. But Amelia's attention was focused on the new face peering nervously at her from beneath a wide-brimmed hat – a man who had walked in just moments ago, shrouded in an aura of mystery. 
+
+

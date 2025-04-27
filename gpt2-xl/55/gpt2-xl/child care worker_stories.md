@@ -1,0 +1,7 @@
+Once upon a time, there was a child care worker named Michelle, who lived in the same apartment complex in Queens with a kid named Joey. But when she became pregnant as her husband worked too much, she lost her job. The loss of her job hit Michelle hard, and she began to drink. A little inebriated one night, she went to her high school counselor's office asking: "I'm so bummed. I just lost my job."
+
+
+Instead of a counselor, she was offered a job at a preschool center, where she worked as their day care coordinator for nine years and the director of the program for eight. While at her job, Michelle realized that she didn't want to do anything else. She was so in love with her job that she decided to have it. Her boss at day care, though, couldn't get over her loss of position and began taking it out on her. She lost her baby, which is when Michelle started turning to the night shift as a way to get off the booze.
+
+
+Now, as a night care worker, Michelle tries not to drink and, more importantly, doesn't make a habit of drinking. While she can get through her shift in the morning, she'll go home at ten o'clock, have one or two drinks at "Bars and Stripes," then go back to her bedroom, take a nap and get back to work. There's one thing that Michelle has in common with Michelle

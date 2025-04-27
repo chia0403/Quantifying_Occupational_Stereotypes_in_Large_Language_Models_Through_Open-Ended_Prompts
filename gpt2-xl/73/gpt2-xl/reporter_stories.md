@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Jon Liebler in my hometown of San Jose, California. There's no reason that he should have become a reporter, but that's beside the point: He should have become a reporter. Because, for a time, there existed the opportunity to ask him questions about the games he covered.
+
+I was a 12-year-old kid during the fall of 1992, sitting in my dad's room at the San Jose Airport. My mother and I had just flown from Portland, Oregon, and I had been told to stay with my father until my mom and I could catch our connecting flight at LAX. To me, the idea of being grounded in the city of my birth was terrifying, but, at the same time, exciting. I had heard for months about the potential of the NFL and, while that fantasy had always seemed far-fetched, for the first time, it existed.
+
+My father and I made the 10-hour drive to Los Angeles and arrived on the morning of November 20, 1993. Our initial goal was to drop off our bags during the two-hour layover at LAX. Before long, however, our plan had changed. We decided we would drive straight to our first game.
+
+I was 10 years old at the time, and my parents had never told me anything about why they were going to the games. After all, we lived in San Jose. Why'd they do this in

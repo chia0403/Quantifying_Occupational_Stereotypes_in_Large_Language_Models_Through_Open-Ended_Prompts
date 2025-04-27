@@ -1,0 +1,6 @@
+The neon sign outside flickered erratically, casting a sickly green glow across the rain-slicked asphalt. Inside "The Rusty Tankard," the only light source brighter than the flickering neon was the amber pool radiating from the back bar where Alistair Finch meticulously polished glasses.  His movements were practiced and economical, each wipe of the cloth a silent mantra against the encroaching gloom of the late Friday night. 
+
+Alistair wasn't one for conversation on slow nights. He preferred the company of his well-worn books, stacked precariously behind the bar, and the comforting clink of glass against glass. But tonight, the silence was punctuated by the rhythmic drumming of rain against the corrugated iron roof, a counterpoint to the low hum of the refrigerator struggling to maintain its chilly grip on a dwindling stock of beer.
+
+
+The bell above the door jangled, shattering the quiet. Alistair glanced up, his gaze lingering on the figure silhouetted against the streetlight's weak glow.  He couldn’t quite make out who it was through the blurry rain-streaked windows. The newcomer hesitated for a moment, then pushed open the door and stepped inside, leaving behind a gust of wind and the promise of something... different. 

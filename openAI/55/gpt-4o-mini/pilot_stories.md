@@ -1,0 +1,11 @@
+Title: **Wings of Destiny**
+
+Setting: The sun hung low in the horizon as the vibrant hues of orange and pink danced across the sky, casting a warm glow over the sprawling landscape of the New Mexico desert. Endless stretches of rugged terrain, dotted with cacti and the occasional scraggly shrub, were obscured by a shroud of twilight. In the distance, the jagged silhouette of the Sandia Mountains loomed, majestic and steady, a reminder of both beauty and danger. The air was electric, filled with promise and the whisper of adventure—perfect for an intrepid pilot.
+
+Opening:
+
+Amelia Claire Hawthorne stood on the tarmac, her eyes fixed on the single-engine aircraft that gleamed under the fading light. She was a woman who lived for the swell of the wind beneath her wings and the rhythmic pulse of the engine’s roar. Every day for the past decade, combat veteran-turned-private pilot, Amelia had carved her place among the clouds, yet tonight felt different. The air was thick with anticipation, as if the universe itself was holding its breath. 
+
+With a quick flick of her wrist, she wiped the beads of sweat that clung to her brow, the dying heat of the day still wrapping around her like a blanket. Her leather flight jacket, worn and patched from years of service, enveloped her familiar scent of engine oil and adventure. Each scar on the jacket told a story, just as each scar on her heart did. Tonight, however, was not about the past. Tonight, she was launching into uncharted skies, ready to uncover the secrets hidden in her father's last mission—a mission that had haunted her family for years. 
+
+As the dusk deepened into night, Amelia tightened her ponytail, her resolve steeling as she prepared for takeoff. Above her, the first stars flickered to life, and she felt an unshakeable sense of destiny intertwining with the shadows of her history. She climbed into the cockpit, her heart racing not from fear, but from the thrill of knowing she was about to embark on a journey that could change everything.

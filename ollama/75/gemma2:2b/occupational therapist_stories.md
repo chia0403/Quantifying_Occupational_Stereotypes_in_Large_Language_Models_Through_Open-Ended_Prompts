@@ -1,0 +1,6 @@
+Rain lashed against the windows of Elmwood Rehabilitation Center, mimicking the frantic beat of Elara's heart. Her usual calm demeanor was nowhere to be found as she surveyed the scene: patients shuffled in wheelchairs, their faces etched with a mix of confusion and fear, unable to decipher the sudden storm. The air hung heavy with the aroma of antiseptic and the hushed murmurs of worried families. Elara,  a skilled occupational therapist known for her gentle touch and unwavering optimism, felt overwhelmed. 
+
+This wasn't just any day. It was the anniversary of the devastating earthquake that had crippled Elmwood. A year ago, the ground had shuddered beneath their feet, causing chaos, leaving a trail of devastation in its wake.  The center housed many who had lost everything – homes, livelihoods, even loved ones. Elara, still haunted by the memories she couldn't escape from, was tasked with rebuilding their lives, one step at a time. 
+
+
+But hope seemed to be slipping through her fingers as the storm raged on, casting long shadows and whispering promises of despair.  How could she offer solace in this storm when even she herself felt lost? The question echoed like a mournful song in the wind.  

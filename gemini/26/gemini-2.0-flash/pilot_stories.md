@@ -1,0 +1,7 @@
+**Opening:**
+
+The biting wind screamed a mournful song through the struts of the battered biplane as Amelia Rose Harding tightened her scarf. The air, thin and frigid at 10,000 feet, clawed at any exposed skin, a constant reminder of the precariousness of her existence. Below, the world was a tapestry woven from emerald green valleys and the jagged, snow-capped peaks of the Andes. Today's cargo: vital medicine, a fragile thread connecting isolated villages to the modern world.
+
+**Setting:**
+
+The year is 1934. Amelia operates out of a small, ramshackle airfield nestled in the heart of the Colombian Andes. The airfield, christened "El Nido" (The Nest) by the locals, consists of a roughly flattened patch of earth, a corrugated iron hangar that groans under the assault of the mountain winds, and a collection of mismatched tools scavenged from various crashes and discarded aircraft. The surrounding landscape is a dramatic contrast of lush, tropical vegetation clinging to the lower slopes, giving way to barren rock and glacial ice further up. The air is perpetually crisp and clean, tinged with the scent of pine and the faint aroma of coffee plantations clinging precariously to the mountainsides. The isolation is profound, broken only by the rhythmic drone of Amelia's engine and the occasional cry of a hawk circling overhead. It's a wild, untamed land, a place where survival depends on skill, grit, and a healthy dose of luck.

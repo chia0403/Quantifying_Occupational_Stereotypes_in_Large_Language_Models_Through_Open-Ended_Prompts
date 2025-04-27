@@ -1,0 +1,7 @@
+Once upon a time, there was a theatrical director named Henry Fonda. He made a lot of movies for Paramount in films such as The Dirty Dozen (with Warren Beatty), In the Heat of the Night, The Wild Angels, and the classic comedy of "The Big Sleep." You can't tell where he went from there, but he had the backing of the Hollywood establishment. And, to use the right term, he wanted a divorce and came to Hollywood. Henry Fonda wanted to be a movie director, but there wasn't any film development company doing any of his work — this was the 1940s and he decided he could make his own.
+
+What you'll find in The Birth of a Nation is the story of Fonda's career, all over again: He goes to Hollywood with this lofty dream, gets on the Hollywood map, gets his own studios and a budget, and shoots his movie. And as we say in the world of movies: What you'll find in this film is Hollywood.
+
+Hollywood has always been a creative industry. It was created by the men and women who worked there for the money they made. But in the mid-20th century, the state and federal governments took a more active role in how movies — and the people in charge — were made. Their idea was that movies would help the American public in the war against communism.
+
+The idea, as I said before, was that movies would help "civilize

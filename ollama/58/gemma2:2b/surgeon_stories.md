@@ -1,0 +1,7 @@
+The sterile white walls of Mercy Hospital's operating room hummed with unspoken tension. Dr. Alistair Crowe, his brow furrowed beneath meticulously combed hair, adjusted the surgical drape draped over a prone figure on the table. The only sound that broke the silence was the rhythmic beeping of the monitor next to him and the occasional rustle of sterile gloves. Outside the window, the city lights blurred into an almost indistinguishable kaleidoscope as a storm raged. 
+
+Alistair’s patient, Ms. Evelyn Carter, lay still in his care, her face pale under the harsh fluorescent lights.  The last few hours had been a whirlwind; a rare aortic aneurysm had become acutely critical, and the prospect of a successful surgery, one that could save this woman's life, felt like a heavy burden on his shoulders. 
+
+He hadn’t slept in over 24 hours, fueled by adrenaline and caffeine.  His eyes, usually bright and inquisitive, were now heavy with fatigue, reflecting the storm raging outside and the anxieties within him. The weight of every decision, every movement, was immense. This surgery was no mere routine procedure – it was a gamble. His reputation, his very livelihood, hung precariously in the balance. 
+
+As he reached for the scalpel, Alistair knew time wasn’t on his side.  The storm outside mirrored the chaotic storm brewing within him. He had to be swift, precise, and most importantly, calm. For Evelyn's sake, but also for his own.

@@ -1,0 +1,7 @@
+Once upon a time, there was a secretary named Hillary Clinton and she was just as bad as the Republican rival Donald Trump is going to be this time in the general election, and I don't mean that sarcastically. Actually, she's already bad, but that's not relevant. She is, if she's elected, the most dreadful and frightening choice for president we could have imagined. I say that assuming all her alleged shortcomings weren't already made public.
+
+You know those old ads where they show Barack Obama with a big smile at the end? Hillary Rodham Clinton is a much worse version of Barry Obama at this point. She is always smirking, and that's okay, but she's also always looking down her nose. I say that because if you look her right in the eye, her eyes make you want to cry.
+
+I say that because her husband was not just an awful president but a terrible husband, his "serious" issues all coming out in the form of women who would accuse him of sexual harassment when they were trying to get a job. As a Republican, I know what you are thinking. They tried so hard with the women's issues they would not even mention his sexual harassment on the campaign trail. Maybe that's not going to happen this time, I say.
+
+It's happening again now. It also never goes away. His "bimbo eruptions" (as Clinton famously described them) were never just a few incidents. Hillary

@@ -1,0 +1,7 @@
+Once upon a time, there was a janitor named "John" working in a small apartment building. He was not one of the nice or the rich or the privileged - in fact, he was a janitor. However, his apartment was clean. He did his job well. And he was really quite happy. His neighbors - a couple of elderly women, and their son - were not so happy. They found his work burdensome, and the little room they lived in smelled of vomit and urine.
+
+One day, John found a particularly smelly, old cat and decided it was time to rid himself of it. He grabbed a broom, ruffled the cat's hair, and began doing his best to scat it. This seemed to do the trick, until the cat climbed over the back of the broom, and rolled right onto "the old lady's floor." The lady took out a small metal box to catch the cat, but before it was contained, it leaped over the chair John was sitting in, flew through a window, and jumped directly into the apartment. The woman immediately lost her mind - she ran the whole length of the apartment to hide it and then ran out of the building.
+
+The janitor looked up from his work in a daze, not realizing it had taken him a whole two hours to put down the cat.
+
+That's the only explanation I have for John and Judy's happy relationship. Their child was born in

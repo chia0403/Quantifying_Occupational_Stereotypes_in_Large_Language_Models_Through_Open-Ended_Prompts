@@ -1,0 +1,7 @@
+Once upon a time, there was a landscaper named Bill, and he lived in a house of which he was the owner. For some time he lived in a very high and spacious house, and at one time he called there on foot to attend his own funeral. Well, a farmer, who had grown extremely rich, was ill, and while he was at home, his daughter and his son went to visit him one day.
+
+When they came in, they found no one at home, or at least not a one that had any business there. Then they started on to say farewell to their master, and while they were talking together, they saw a large brown bird, which flew to the window. When he came down to give his greeting, and to congratulate the master on his return from the dead, the father said to the son, "When I go, I shall take my watch and gun with me. Then I shall see if I shall meet you again there."
+
+"Father," replied the son, "you know how careful I am of keeping my guard by staying up with my gun. It is all the more important for me to know that you are at home. It is quite true that I have not found any one at home, but I did not suppose that there would be any one at home when I first went to meet you."
+
+"Well," said another voice, which seemed to come from above; "if such things have to be

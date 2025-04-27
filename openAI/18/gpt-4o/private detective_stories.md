@@ -1,0 +1,9 @@
+In the heart of New York City, where skyscrapers clawed the sky and the whisper of a million secrets flitted through the crisp autumn air, Oliver Kane was no stranger to shadows. His office, housed in a timeworn brick building, stood nestled between a quaint bookstore and an all-night diner, pulsating with the vibrant hum of the city that never sleeps.
+
+The air inside was thick with nostalgia; the office bore the scent of aged leather and faint cologne lingering from days where the cases came fast and the stakes were often deadly. Oliver's father, a legend in the private eye world, had once occupied this very space. His presence was a ghost, both a comfort and a challenge to his son's pursuit of truth amidst the tangled web of urban mysteries.
+
+Stacked bookshelves teetered precariously on the verge of collapse, filled with volumes ranging from classic detective tomes to contemporary psychological studies. Framed newspaper clippings, articles about closed and unsolved cases alike, plastered the walls, each one a badge of honor, each one a reminder of the past victories and losses.
+
+Oliver Kane reclined in his creaky leather chair, eyes focused on the ceiling fan spinning in lazy circles, as if attempting to unravel the mysteries that hovered just beyond reach. He ran a hand through his dark curls, deep in contemplation, seeking the thread that would unravel his latest challenge. A slender envelope rested on his desk, its arrival earlier that morning heralding a new case destined to twist his world in unforeseen ways.
+
+Outside, the city groaned with life; car horns blared, and Manhattan pedestrians shuffled in hurried streams below. There was an electric thrill in the air, the kind that promised danger intertwined with discovery. As Oliver rose to peer out the window, he knew somewhere out there, amid the relentless urban expanse, the truth lay hidden—waiting for him to unearth it.

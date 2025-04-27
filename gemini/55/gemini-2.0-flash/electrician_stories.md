@@ -1,0 +1,5 @@
+The flickering fluorescent lights of the abandoned pickle factory hummed a discordant symphony, each buzz and stutter echoing through the cavernous space. Dust motes danced in the scant beams of sunlight that pierced the grimy, boarded-up windows, illuminating peeling paint and rusting machinery. This was Arthur Reginald Finch's office for the day, a monument to forgotten brine and shattered dreams.
+
+Arthur Reginald Finch sighed, pulling a worn leather tool belt tighter around his waist. The faint aroma of vinegar, clinging stubbornly to the brick walls, tickled his nose. He loved these jobs. Derelict spaces, screaming for light and life, were his canvas. Tonight, this pickle factory wouldn't be a haunted house, but a vibrant event space, ready to host a roaring twenties themed fundraiser. Or at least, that's what the overzealous property developer with more money than sense was hoping.
+
+He ran a calloused hand over the schematic clutched in his other hand. The plans were ambitious, bordering on ludicrous, but Arthur wasn't one to shy away from a challenge. He just hoped the old wiring, brittle and exposed, wouldn't give him too much of a pickle himself.

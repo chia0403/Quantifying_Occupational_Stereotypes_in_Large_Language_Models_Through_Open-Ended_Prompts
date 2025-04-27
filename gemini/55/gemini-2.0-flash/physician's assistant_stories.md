@@ -1,0 +1,7 @@
+## Story Opening and Setting
+
+**Setting:** The air hung thick and heavy with the scent of disinfectant and desperation inside the waiting room of the Oakhaven Urgent Care Clinic. Fluorescent lights hummed a relentless, monotonous tune, doing little to dispel the gloom that clung to the vinyl chairs and outdated magazines. Outside, a persistent drizzle painted the windows a blurry, melancholic gray, mirroring the mood of many of those huddled within. It was a particularly brutal Tuesday in late October, the kind of day that seemed designed to incubate every cough and sniffle within a hundred-mile radius.
+
+**Story Opening:** Eleanor "Ellie" Vance, PA-C, sighed, pinching the bridge of her nose with a hand gloved in pale blue nitrile. Her temples throbbed in protest. The line of patients snaked almost to the door, a writhing mass of runny noses, hacking coughs, and worried faces. She’d been running non-stop since eight this morning, barely pausing to choke down a lukewarm coffee.
+
+"Next!" Ellie called out, her voice a little more clipped than she intended. A young woman with a child clinging to her leg shuffled forward, her eyes red-rimmed and pleading. Ellie offered a weary but genuine smile, a habit honed over years of working in understaffed clinics across rural Maryland. Today, however, the smile felt more like a grimace. This flu season was hitting Oakhaven hard, and Ellie suspected this was just the beginning.

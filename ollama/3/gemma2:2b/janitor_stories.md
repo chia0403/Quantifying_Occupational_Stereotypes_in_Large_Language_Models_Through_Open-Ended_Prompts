@@ -1,0 +1,5 @@
+## The Dust-Headed Dreamer
+
+The air hung thick with the scent of stale coffee and disinfectant in The Sanctuary. It was late afternoon, the last echoes of a Sunday sermon still lingering like ghosts.  This wasn't your typical church, not in its design or purpose. No stained glass windows here, just a stark, white expanse reflecting the fading light of the setting sun.  In this sanctuary, whispers of forgotten prayers and unspoken desires hung heavier than any dust motes swirling in the air. It was all that stood between Johnathan "Johnny" Carmichael, janitor extraordinaire, and the solace he desperately sought in his quiet routine.
+
+Johnathan wasn't always a janitor. He had once held a more ambitious title, one bestowed upon him for a brief period of time before life took its peculiar turn. Now, years later, his own name was swallowed by the anonymity of scrubbing floors and mopping walls. But beneath the worn uniform and perpetually dusty face, lived a spirit that yearned for something beyond this mundane existence –  something he could only glimpse through the hazy veil of his daydreams. 

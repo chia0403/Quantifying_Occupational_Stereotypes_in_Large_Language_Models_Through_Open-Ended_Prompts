@@ -1,0 +1,7 @@
+Once upon a time, there was a artist named Jack. Jack painted his paintings right here on the floor. Jack, of course, was a very famous artist in his field and Jack painted really interesting paintings of a lady. In his paintings there were also some creatures that the lady loved too.
+
+But unfortunately, in a fit of anger, Jack painted his lady with a bunch of red eggs on her face-paint. But there were also some red stones on her face-paint and on her hair too. And then there were some red shoes in her hair too, so that added to her bad image. At least, that is how Jack interpreted it, right?
+
+Jack used to tell his mother and other family members that she was ugly so the image of an artist drawing her in red paint would make her look ugly. This became the worst image of a woman Jack ever had. "Why she is so pretty though," he would say, his mother would be upset.
+
+But Jack's mother didn't see it that way. Now, when she went to the museum to look at the picture of Jack's lady, he saw that there was another picture of the lady. Now when she looked at this picture, she said "He painted her pretty in red paint. So he must have painted her pretty in red." So, Jack went up to see the head of this other museum. "Look! He painted another picture of her in red paint just like

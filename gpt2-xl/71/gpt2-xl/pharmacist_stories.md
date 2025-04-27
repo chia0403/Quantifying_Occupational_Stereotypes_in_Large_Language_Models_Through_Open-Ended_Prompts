@@ -1,0 +1,7 @@
+Once upon a time, there was a pharmacist named "Koolaid" who worked in an apothecary and occasionally purchased KoolAid in bulk. He would often buy his KoolAid at a local grocery, just to save money. (He would also sometimes buy it at a gas station.) While at work, Koolaid would then often purchase more than he needed and then dump most of it into his car's gas tank, a process that eventually depleted his fuel tank. When Koolaid was in his car, it was likely in a place and vehicle that was too far from the gas station to refuel on his own, resulting in a $0.75 fuel bill, which is just plain weird.
+
+Over time, Koolaid became more savvy about this habit and took advantage of it by purchasing KoolAid in high volume from multiple establishments until he amassed an inventory of almost 100 cases of KoolAid — so much that he bought a new car to store it in.
+
+Then Koolaid's boss took notice of his new purchasing habits, hired a car wash to clean Koolaid's car, and got Koolaid to do a little work. This did not go well, and he blew up so badly that a few days later Koolaid died from excessive gas consumption.
+
+Koolaid and his boss's relationship grew quite toxic, and the relationship with the car wash got even worse. Some claim this was due to

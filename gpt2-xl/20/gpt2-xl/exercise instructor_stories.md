@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named Mike. A few years into his career, he developed an interesting problem: how to teach students to do a single-leg squat properly. Since his clients were invariably male (and male athletes at the top of their sport tend to favor one-legged squats), he felt he had an unfair advantage over his female and lower-class male clients.
+
+In an effort to address his disadvantage, that is, to teach them to correctly grasp the mechanics of a single-leg squat, Mike decided to use a series of "pump" jumps to teach the student how to perform a squat correctly. Now, it's a little unusual for a physical therapist to teach one-leg squats, but as a student of sports medicine, he is not without first-hand experience. He does know that athletes typically lift their feet out too far, and he had noticed some guys with bad technique who also had trouble with a single-leg squat, so this seemed to be a fairly straightforward technique.
+
+Mike decided to test the new technique with his female students, the athletes he taught and coached. After they failed to get the correct depth of the squat, the first question he usually asks them is why.
+
+They always respond: "Well, it was easier for me." Now, it may be true that for you, it may be easier. But if you have never tried performing a single-leg squat, I would be very surprised

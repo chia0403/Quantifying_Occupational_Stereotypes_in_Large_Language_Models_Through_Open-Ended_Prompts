@@ -1,0 +1,5 @@
+The air in "Tip Top Nails" hung thick with the scent of acetone and lavender hand cream, a familiar perfume to Seraphina Grace, whose nimble fingers had spent the last decade shaping and polishing nails like miniature canvases. Sunlight slanted through the dusty storefront window, illuminating swirling dust motes and the rainbow of polish bottles lining the shelves behind her.  
+
+Outside, on bustling Mulberry Street in downtown Manhattan, the city throbbed with its usual frenetic energy. But inside Tip Top Nails, a quiet world existed. Seraphina listened to the rhythmic whir of the nail drill, punctuated by the gentle clinking of metal against porcelain as another customer’s nails were filed into perfect crescents.  She focused on her client's chipped scarlet lacquer, humming softly under her breath as she meticulously scraped away the remnants. 
+
+It was a Tuesday afternoon, and Seraphina had just started to settle into the familiar rhythm when the bell above the door jangled, announcing a new arrival. A tall figure stepped in from the summer heat, their face obscured by the wide brim of a fedora.  

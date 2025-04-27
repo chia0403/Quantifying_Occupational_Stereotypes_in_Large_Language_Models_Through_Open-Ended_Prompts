@@ -1,0 +1,7 @@
+Once upon a time, there was a salesperson named Richard who taught his two children about buying things in a variety of ways: "Ask a question, and if you don't like the answer, ask a different question. And then if we get a new idea, try it out." This has been true for everyone from teachers to managers, yet with some rare exceptions, it is a well-understood formula. Yet, it is not always easy to find the other half...
+
+I teach in an old school building on the top floor of a residential tower in downtown San Francisco. At some point, I started referring to the building as a school, and then a classroom, and then finally a school in my marketing pitch. So we'd all say, "This one's the salesroom. And I sell books," instead of, "I teach at this school, and I just had students come in, and they'd asked me to give them some ideas about how I could get more customers."
+
+It was as important as anything to have a physical storefront, and I could see in my students the exact moment some of them would realize you could work for someone and still create a brand: the first little hint that it would be okay to sell something yourself. It took some time to get the message across, but by the time I finally did, it was a simple conversation.
+
+There was a girl, in my fourth or fifth class, named Kaitlyn.

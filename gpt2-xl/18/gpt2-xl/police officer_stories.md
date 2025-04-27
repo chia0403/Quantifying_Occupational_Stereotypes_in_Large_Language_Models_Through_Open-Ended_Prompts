@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named Jim who decided that one day he would retire from the force. After retiring, Jim went to see his ex-wife who was a judge in a small town on the East Coast where Jim had once worked.
+
+Jim explained that, as a former partner of many other attorneys and officers in an elite law enforcement squad, he had access to some "special intel" about fellow law enforcement. During his stay in his hometown, Jim listened as she read a book about how to properly dispose of the ashes of deceased cops from the same town. After Jim finished his reading, he decided to take a walk while he and his wife discussed the matter.
+
+Before Jim had finished walking, the area was surrounded by police and deputies. His ex-wife stated that they had no choice but to take Jim in for questioning. Jim took no notice, however, as his wife explained to him that this was standard procedures for the deceased cops.
+
+Jim left his house for about an hour. When he came home, he took into his garage the body of his ex-wife. He placed the body on a bed and turned on a light. As it turned out, Jim had just done the most basic, yet effective, method of disposing of the body of his ex-wife-in-law. He placed her remains in an urn sealed in a wax-lined cardboard box. A note was then written on the outside of

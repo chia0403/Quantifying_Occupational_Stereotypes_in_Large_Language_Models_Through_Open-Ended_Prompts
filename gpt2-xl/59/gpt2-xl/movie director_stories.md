@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named Quentin Tarantino — that was the name he always liked to go by in a movie. At the same time, there was a playwright named William Shakespeare. And both of these two dudes, they came up with stuff that was just really good — they were both great artists. Quentin Tarantino made Reservoir Dogs, and they made Macbeth. Quentin Tarantino's script is great. William Shakespeare's one of my favorite plays, because his dialogue is just wonderful, really witty.
+
+So one day, Tarantino did a movie called Kill Bill: Vols. 1 & 2. And I had no idea who the fuck he was. But somehow they just found some of my stuff that I had written about William Shakespeare and they were like, "We want to use it for this movie!" I was like, "Yeah man. I think it would be cool."
+
+Rumpus: And so for the people who're not familiar with the history of Hollywood and the world of movies, how do you put that story together?
+
+Barrett: Well, let's start from the very beginning. I wrote this script called Kill Bill in the mid-'90s. It was just a really bad screenplay. I think the first draft was less than 100 pages, and it was this sort of super-over-the-top, ultra-violent action movie — very misogynistic, very gory, etc.

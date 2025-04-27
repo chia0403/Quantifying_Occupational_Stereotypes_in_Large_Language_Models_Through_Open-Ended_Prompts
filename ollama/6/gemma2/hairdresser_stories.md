@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia Beatrice Thorne's head, casting a sterile glow over the salon floor strewn with fallen strands of hair like confetti after a joyous celebration. Outside, the autumn wind whipped through the maple trees lining Main Street, scattering leaves in a flurry of orange and crimson. Inside, however, Amelia’s world was a carefully curated calm. The scent of lavender shampoo and freshly brewed coffee mingled in the air, punctuated by the rhythmic snip-snip of scissors. 
+
+Amelia, with her fiery red curls escaping their confines and her fingers nimbly weaving through a client's unruly mane, surveyed the scene with a practiced eye.  She was the queen of this little kingdom, a haven for those seeking solace in the ritual of transformation. From first dates to funerals, Amelia had seen it all reflected in the mirrors lining her salon walls. Each snip, each curl, each colour change was a small story unfolding, and she, the storyteller weaving their narratives with precision and empathy.  But today, a new story was about to begin, one that promised to be more tangled and complicated than any Amelia had encountered before. 
+
+

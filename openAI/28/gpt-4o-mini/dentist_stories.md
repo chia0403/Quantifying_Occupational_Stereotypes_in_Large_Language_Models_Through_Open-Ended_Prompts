@@ -1,0 +1,9 @@
+**Setting: A Cozy Dental Office in a Small Coastal Town**
+
+The morning sun filtered through the large, sea-green windows of Shoreline Dentistry, casting a warm glow over the waiting area. The smell of freshly brewed coffee mingled with the faint scent of minty mouthwash, creating an unusual but comforting aroma. Nautical decorations adorned the walls, with shades of blue and sandy beige giving the space a relaxing, beachy vibe. Just beyond the lobby, the ocean's rhythmic waves could be heard crashing against the shore, their sound a gentle backdrop to the daily hustle of the dental practice.
+
+**Opening:**
+
+Dr. Penelope Claridge adjusted her white coat, brushing a strand of hair behind her ear as she prepared for another day in her cozy coastal office. She loved her job, but today was different—today marked five years since she first opened the doors to Shoreline Dentistry. The years had flown by, filled with laughter, a few tears, and the myriad of colorful characters that walked into her office. As she stepped into her treatment room, the sunlight danced across the polished countertops, illuminating the set of tools that gleamed like treasures meant to uncover hidden smiles.
+
+Penelope had always known she was meant to help people, to ease their fears and bring out their confidence, one tooth at a time. But as she gazed out at the sparkling ocean, she couldn't shake the feeling that while she had built a life helping others, something deeper was calling to her—an adventure waiting just beyond the horizon, ready to sweep her off her feet. For now, though, she had a full schedule ahead, with patients who relied on her gentle touch and warm smile, blissfully unaware of the restlessness stirring within her heart.

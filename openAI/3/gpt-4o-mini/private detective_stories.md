@@ -1,0 +1,11 @@
+**Title: The Whispering Shadows**
+
+**Setting:** The rain-soaked streets of 1940s New Orleans, where the air is thick with the scent of damp earth and the sweet decay of forgotten flowers. Gas lamps flicker against the slick pavement, casting long shadows that dance in the twilight. Jazz melodies spill from smoky clubs, blending with the distant wail of a train, creating a symphony of life in a city that never truly sleeps. The narrow alleys twist like secrets waiting to be uncovered, each corner holding stories of lost souls and buried truths.
+
+**Opening:** 
+
+In a small, dimly lit office above a shuttered bookstore on Royal Street, the persistent drizzle tapped like impatient fingers against the window. A cloud of cigar smoke hovered in the air, curling around the framed black-and-white photographs of a once-prominent jazz band. In the center of it all, a battered oak desk bore the weight of unsolved cases and the clutter of a life spent chasing shadows. 
+
+Marcus James Delacroix, Private Detective, leaned back in his creaky chair, absentmindedly spinning a well-worn gumshoe's cap on his finger. His dark hair was slicked back, and the glint of determination in his deep brown eyes belied the exhaustion that had taken root under their surface. With a five o'clock shadow and a demeanor forged by years in the gritty underbelly of the city, he had become both a guardian and a grave digger of secrets, navigating the murky waters between right and wrong. 
+
+Tonight, the murmur of trouble echoed in the distance, a call to arms that Marcus could not ignore. It started with a whispered name, a once-famous singer now shrouded in scandal, and a note slid under his door, bearing the urgency of a ghostly warning. He knew the city well—its shadows were his allies and its whispers, his fate. With a resolve that coursed through him like the jazz notes wafting from the streets below, Marcus prepared to step into the unknown, ready to face whatever treachery lay hidden beneath New Orleans' seductive charm.

@@ -1,0 +1,7 @@
+## Opening:
+
+The aroma of burnt coffee clung to the air, a bitter perfume that mirrored Amelia Blackwood’s mood. She scrubbed at the stubborn stain on her favorite notebook with a damp paper towel, the red ink a persistent reminder of the evening's fiasco. The meeting had gone south faster than a runaway train, dissolving into a shouting match before she could even get a decent quote. Dammit. She needed this story. The editor at the *New Haven Chronicle* was breathing down her neck for a piece with teeth, something that would sink into the city’s complacent facade and expose the rot beneath. All she had was a notebook covered in blood-red ink and a throbbing headache.
+
+## Setting:
+
+Amelia Blackwood’s cramped apartment, precariously balanced on the third floor of a brick tenement in New Haven's Wooster Square, felt more like a well-organized war zone than a home. Books overflowed from sagging shelves, threatening to bury her alive beneath a landslide of Hemingway and Didion. Newspapers, both local and national, were stacked in precarious piles, testament to her dedication to the craft. A single, struggling philodendron sat perched on the windowsill, a splash of green against the grey cityscape visible through the grime-streaked glass. The air hung thick with the smell of old paper, stale coffee, and a faint undercurrent of desperation – the quintessential scent of a reporter on the hunt.

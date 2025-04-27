@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The fog rolled in off the coast, shrouding the crumbling lighthouse on Raven's Peak in a damp, grey mist. Inside the narrow tower, Keeper Elijah "Hawk" Hawkins stirred the embers of last night's fire, watching as the flames danced and spat sparks onto the cold stone floor. He had been stationed here for three years now, ever since his military service ended and he couldn't find steady work on land. The isolation suited him, but it was a trade-off: Hawk spent most of his days lost in the rhythms of the sea and the wind, with only the occasional visitor to break the silence.
+
+As the night wore on, Hawk's thoughts turned to the upcoming storm that had been brewing in the Atlantic. The weather forecast predicted heavy rain and strong winds would hit by dawn, bringing with them a chance of rough seas and possible shipwrecks. It was a typical winter evening at Raven's Peak - bleak, unforgiving, but Hawk knew its secrets and rhythms like the back of his hand.
+
+Just then, the phone on the small desk outside the fire crackled to life, shrill and insistent. Hawk rose from his chair, the cold stone floor creaking beneath him as he stretched. He picked up the receiver, his voice low and gravelly: "Raven's Peak Lighthouse, this is Keeper Hawkins. How can I help you?"

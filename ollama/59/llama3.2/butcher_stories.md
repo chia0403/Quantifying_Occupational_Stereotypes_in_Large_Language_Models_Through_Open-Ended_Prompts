@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The fog rolled in off the dockyards, shrouding the narrow streets of Bristol's old town in a damp, grey mist. In the dimly lit shop above the market stalls, Elijah Fletcher III adjusted his apron for what felt like the hundredth time that morning, surveying his domain with a practiced eye. As the eldest son of a family of butchers who had served the city's meat-eaters for generations, he took pride in every cut of meat that left his counter.
+
+Elijah's own hands moved deftly as he expertly filleted a side of beef, the familiar scent of fresh meat and leather wafting up to mingle with the tang of saltwater from the nearby harbor. His eyes, a deep shade of brown that seemed almost indigo in the dim light, narrowed as he pondered the day's special: a shipment of rare, imported beef from Scotland, said to be so fine it would make even the most discerning gourmands weep with joy.
+
+As the door above the shop swung open, admitting a blast of chilly air and the sound of hawkers calling out their wares, Elijah smiled to himself. Another day in the life of a Bristol butcher was about to begin, and he was ready for whatever it threw his way. Little did he know, however, that this particular morning would bring more than just the usual customers and commissions...

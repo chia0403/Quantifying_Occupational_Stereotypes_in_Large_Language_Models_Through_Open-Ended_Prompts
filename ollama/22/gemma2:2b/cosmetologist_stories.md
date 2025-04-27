@@ -1,0 +1,5 @@
+Rain lashed against the windowpanes, mimicking the frantic drumming in Amelia's chest. The salon, usually a haven of calm floral scents and tinkling conversation, was a storm-battered landscape of scattered tools and overturned chairs.  The news had been a whirlwind – a sudden family emergency back home in Missouri, a long-lost relative’s sudden illness, her father's plea for help. And then, Amelia's phone vibrated with the same dread she felt inside: an unanswered text from 'Mom'.
+
+Amelia, owner and sole stylist at "The Brushstrokes" salon, was used to a certain order in her life – schedule, clients, routine. But now, everything had been irrevocably disrupted. She stood amidst the chaos, staring out at the deluge, a single strand of hair curling around her fingertip. 
+**Name:** Amelia Croft
+**Setting:** A quaint, independent salon nestled on a quiet side street in San Francisco's historic Russian Hill neighborhood. The walls were lined with vintage mirrors and framed photographs depicting various life stages of women, each story hinting at the hidden histories within them.  The scent of lavender and sandalwood lingered from the last client's session. 

@@ -1,0 +1,7 @@
+The sun had long since set on the small town of Ravenshire, casting a warm orange glow over the quaint streets and buildings. The air was crisp with the scent of freshly cut wood and the distant sound of hammering echoed from the local workshop where Emrys Thomas ap Rhys, a skilled stone cutter, worked tirelessly to bring his latest commission to life.
+
+Emrys, a ruggedly handsome man in his mid-30s with a strong jawline and piercing blue eyes, was known throughout the town for his exceptional craftsmanship. His fingers were stained with the rich patina of granite and marble, a testament to his years of honing his trade under the watchful eye of his father, who had taught him the art of stone cutting before passing away when Emrys was just a boy.
+
+As he worked, the flickering candles in the workshop cast eerie shadows on the walls, making it seem as though the very stones themselves were coming alive. The wind outside picked up, rustling the leaves of the ancient trees that lined the street, their branches creaking and swaying in an otherworldly dance. It was a night like any other in Ravenshire, yet Emrys felt a sense of unease, as if the very fabric of the town was about to unravel before his eyes.
+
+And then, just as he was nearing completion on the intricate stone doorway, a knock at the door echoed through the workshop, shattering the spell of tranquility that had settled over him.

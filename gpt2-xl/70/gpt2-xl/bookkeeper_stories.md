@@ -1,0 +1,7 @@
+Once upon a time, there was a bookkeeper named Walter the Wartortle. He worked part time for Hébert, but more, he worked for a company called Big Blue Bookkeeping, who were the second bookkeepers the Hébert branch had hired. But that company was no longer there when Hébert came to town. It was bought and merged into Hébert Publishing.
+
+In this world-building world, Big Blue Bookkeeping were the first employees, so, naturally, they were all very, very rich, just like the rest of our high school kids. And, naturally, they all had a penchant for pink.
+
+The book's plot was that Big Blue Bookkeeping decided you needed a company bookkeeper to be your personal assistant, because you couldn't do that sort of thing by yourself. And the book was narrated by Big Blue Bookkeeping himself, with all of his jokes about his own business and his own office. It was about a man who lost a lot of his money in the stock market, and so he had to hire Big Blue Bookkeeping to manage his own bank account. Eventually, the bank account became too heavy for him to lift. He began to feel terrible guilt, which was caused by his own inadequacy.
+
+He was an odd guy. He was very old. He never went out and got laid, because he realized he was not cut out for that sort of thing. And he did not care.

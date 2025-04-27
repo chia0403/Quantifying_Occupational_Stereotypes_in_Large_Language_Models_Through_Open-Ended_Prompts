@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the sky, casting a warm orange glow over the bustling streets of New Orleans' French Quarter, Elijah Baptiste Jr., affectionately known as Eli to the regulars at Hotel Le Réveil, began his evening routine. With a spring in his step and a smile on his face, he set about preparing for another night of welcoming weary travelers into the historic hotel's elegant rooms.
+
+Hotel Le Réveil, built in 1850, was a relic of a bygone era, its stately façade a testament to the city's rich history and cultural heritage. Located on Bourbon Street, one of the most famous thoroughfares in the world, the hotel had seen its fair share of celebrities, politicians, and musicians over the years.
+
+Eli, with his sharp jawline, dark eyes, and unruly afro, was a beloved fixture among the hotel's patrons. He took pride in knowing each guest's preferences, from their favorite cocktails to their most cherished memories. As he went about polishing the silverware and restocking the mini-bars, Eli's mind began to wander to his own story – one of struggle and resilience that had led him to this moment, where he could finally find a sense of belonging in the city he loved.
+
+Little did Eli know, tonight would be different. Tonight, his life was about to take an unexpected turn, one that would lead him down a path of discovery and danger, forcing him to confront the secrets he had kept hidden for so long.

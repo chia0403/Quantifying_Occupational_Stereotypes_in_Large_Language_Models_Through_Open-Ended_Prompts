@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The scent of burnt sugar hung heavy in the air, a cloying sweetness that did little to mask the acrid tang of frustration. Clementine Aurora Bellweather slammed the oven door shut with a force that rattled the antique pastry molds hanging on the wall. Another batch, ruined. Another wasted attempt to perfect the notoriously fickle Florentine cookie, a challenge she’d been grappling with for weeks. She wiped flour-dusted hands on her apron, leaving streaks that looked like abstract art on the already stained fabric. This wasn't just about a cookie; it was about proving something, not just to herself, but to the legacy that pressed down on her like a lead weight.
+
+**Setting:**
+
+The year is 1928. Clementine Aurora Bellweather runs "Bellweather's Best Bakes," a small, slightly dilapidated bakery tucked away on a cobbled side street in New Orleans' historic French Quarter. The bakery itself is a riot of faded charm. Sunlight streams through the large, street-facing window, illuminating swirling dust motes and highlighting the worn wooden floorboards that creak with every step. The walls are painted a cheerful, albeit chipped, butter yellow, adorned with framed photographs of Clementine's grandmother and mother, both legendary bakers in their own right. Wrought iron shelves overflow with jars of colorful candied fruits, sacks of fragrant spices, and stacks of intricately decorated cake boxes. The air is perpetually thick with the aroma of vanilla, cinnamon, and brewing chicory coffee. A large, wood-fired oven dominates the back of the kitchen, its heat radiating outwards like a comforting, yet sometimes infuriating, embrace. Outside, the sounds of street musicians, chattering tourists, and the clatter of horse-drawn carriages provide a constant, vibrant backdrop to the sweet symphony within.

@@ -1,0 +1,7 @@
+Once upon a time, there was a physician's assistant named Sally, a patient of mine. I don't remember where Sally came from or how she got to know me, but as she learned more about me, she became increasingly patient and thoughtful and patient. When the doctor's was done, Sally left the office with good wishes for better days. She said, "You know, you are the doctor's assistant who works here. Do you work here? Then I can go on holiday. I want to be with family and friends." This little exchange stayed with her the rest of her life.
+
+She never knew her fate, and I am here to tell you it is not your fate to be with family and friends. If you are not a physician, in many instances it is best to leave your patient waiting. I must tell you from experience that this happens all the time.
+
+Many times when I have needed to take a sick patient home, I have called the patient's family. In many instances, this is no harder for the patient than it is for me. After a little discussion with the family, it was made clear that if there was no way they would come with me, then I would go alone. Now, you have to understand — this is not a matter of personal choice or freedom of choice, this is a matter of medical necessity. I must take seriously the idea that I may die on the scene.
+
+One of the patients I saw the

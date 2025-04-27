@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named John Hunter Skelton (pictured above), who made a name for himself cutting the heads off sheep and men. Skelton's work earned him the nickname, the "surgical butcher" because he made surgical "slices" from human heads. These surgical chops, as Skelton himself later remarked, "became the staple of the poor physician's diet for the remainder of the century."
+
+Of the seven doctors that Skelton consulted for their opinions and instructions on how to do his gruesome work, none were qualified to operate on living people. Instead, they tended to suggest that surgeons kill or amputate the patients in order to remove their organs before doing the actual surgery. In a way, his work was a tribute to a time when surgeons were "physiocrats"—or medical elites—more interested in the physical rather than the moral and social aspects of their work than in the patients' welfare.
+
+In 1859, the New York Times ran an article about a man who was "taken to the theatre" by an incompetent surgeon. When the theatre attendant discovered that the man's liver was missing, he "went to the surgeon and begged for his fee." The man begged that this would not happen again.
+
+In 1874, Walter F. Hall, a New Hampshire resident, was the main victim of this "surgical butcher" as more than two-thirds of his body was removed

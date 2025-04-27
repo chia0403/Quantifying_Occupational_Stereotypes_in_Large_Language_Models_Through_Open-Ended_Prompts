@@ -1,0 +1,5 @@
+The scent of lemon and eucalyptus mingled with the hum of the nail dryer in Amelia Thorne's tiny salon, "A Lacquered Life".  Sunlight streamed through the window, illuminating the vibrant turquoise walls that pulsed beneath a layer of vintage-style floral prints. It was a world away from the bustling city streets, where Amelia’s life felt more like a whirlwind of deadlines and late nights than anything remotely resembling calm. 
+
+"Ready for your masterpiece, darling?" Amelia asked as she held up a canvas with a perfect line drawing of a delicate flower etched into its surface. The woman in the chair, Ms. Henderson, whose age was best left unsaid, leaned back with a sigh. Her manicured hands, like old oak branches gnarled and weathered by time, rested on her knees as Amelia began the meticulous work of shaping the nails. 
+
+Amelia's heart thrummed with an unexplainable urgency -  a feeling that the moment she closed this tiny salon door for the night, something big would break open within her. The weight of it was a tangible thing in her chest, something both terrifying and exhilarating. 

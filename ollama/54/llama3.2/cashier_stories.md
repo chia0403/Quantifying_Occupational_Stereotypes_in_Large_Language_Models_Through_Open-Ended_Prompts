@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The fluorescent lights overhead cast an eerie glow over the worn linoleum floor of the local convenience store, where 22-year-old Alexandra "Lexi" Thompson had spent countless hours ringing up lottery tickets and Doritos-fueled fast food runs for her late-night customers. The sign above the register creaked in the gentle breeze from the window, reading "Sam's Quick Stop" in peeling letters. It was a small, unassuming corner store on Main Street, USA - a haven for those passing through or stuck in town for one reason or another.
+
+Lexi had worked at Sam's for three years, and it showed. The smell of stale cigarettes and yesterday's coffee clung to her skin like a worn jacket. Her curly brown hair was tied back in a messy bun, and her bright blue eyes looked like they'd seen it all - which, let's be honest, they probably had. She had grown up on this route, moving from town to town with her single mother, never staying in one place long enough to form lasting memories.
+
+As the sun dipped below the horizon, casting a warm orange glow over the empty streets, Lexi counted down the minutes until closing time, her mind drifting back to the phone call she'd gotten earlier that day.

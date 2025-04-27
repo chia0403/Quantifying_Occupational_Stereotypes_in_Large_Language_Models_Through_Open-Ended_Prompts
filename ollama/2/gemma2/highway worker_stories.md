@@ -1,0 +1,6 @@
+The asphalt shimmered under the relentless July sun, radiating heat that warped the air above it.  Sweat plastered Elias Nathaniel Hawthorne's faded blue work shirt to his back, each movement sending prickly waves of discomfort crawling across his skin. He squinted at the horizon, where the shimmering mirage danced between reality and hallucination. 
+
+Elias wasn't a man who enjoyed complaining, especially not when facing another sweltering day on Highway 72, but sometimes the monotonous rhythm of patching potholes, replacing guardrails, and battling rogue tumbleweeds felt like an endless punishment.  He was a highway worker through and through, born and raised in the dusty heartland of Nebraska, where life unfolded at the pace of a passing semi-truck. He knew every rut in the asphalt, every curve in the road, every lonely stretch that whispered stories of lost travelers and forgotten dreams. 
+
+
+Today, however, something felt different. A prickle of unease ran down Elias's spine, like a loose wire humming with unseen electricity. The silence was heavier than usual, the hum of cicadas muted, replaced by an unsettling stillness. Even the tumbleweeds seemed to hold their breath.  Elias couldn't shake the feeling that he was being watched.   

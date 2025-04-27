@@ -1,0 +1,11 @@
+## Story Opening and Setting:
+
+**Setting:** The sterile, pre-dawn hum of St. Jude's Hospital buzzed around Amelia Rose Carter like a swarm of anxious bees. The fluorescent lights, harsh and unforgiving, cast long, angular shadows across the linoleum floor, highlighting the wear and tear of countless hurried feet. Outside, the first streaks of a bruised purple dawn were just beginning to creep over the Chicago skyline, a pale promise of sunlight that felt miles away in the windowless confines of the hospital's Outpatient Lab.
+
+**Story Opening:** Amelia Rose Carter, Ph.D. in progress, currently scraping by as a phlebotomist to pay those looming tuition bills, expertly threaded a needle into the delicate vein of Mrs. Petrov, a frail woman whose skin felt like crepe paper stretched taut over brittle bones. Mrs. Petrov mumbled something in heavily accented Russian, her eyes, the only vibrant thing about her, fixed on Amelia’s gloved hands. Amelia, used to the quiet anxieties that accompanied needles, simply smiled reassuringly, humming a barely audible tune. "Almost done, Mrs. Petrov. Just a little bit more." She deftly filled the last vial, capped it, and applied a cotton ball with practiced gentleness.
+
+"Thank you," Mrs. Petrov rasped, her voice a dry rustle.
+
+Amelia peeled off her gloves, the snap a sharp sound in the quiet room. "You're welcome. Hold pressure for a few minutes, okay? We'll call your name for the next station shortly."
+
+As Mrs. Petrov shuffled away, Amelia glanced at the digital clock on the wall. 5:47 AM. Another ten minutes until the morning rush, when the waiting room would explode with bleary-eyed patients and the symphony of beeping machines would reach a deafening crescendo. Time for a desperately needed swig of lukewarm coffee and maybe, just maybe, a moment to daydream about the intricacies of cellular regeneration instead of the intricacies of finding a decent vein in a dehydrated, caffeine-deprived body. But before she could reach for her mug, the printer on the nearby counter spat out a new requisition form. Carter, Amelia Rose. Specimen needed for STAT blood culture, patient John Doe, Room 312. And something about the urgency in the request, something unspoken vibrating in the paper itself, sent a shiver down her spine. This wasn’t just another morning at St. Jude’s.

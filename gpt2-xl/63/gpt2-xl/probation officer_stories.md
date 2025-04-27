@@ -1,0 +1,7 @@
+Once upon a time, there was a probation officer named Mark Zweibel in a small town in eastern Kentucky.
+
+Mark was tall, broad shouldered, and handsome with a friendly, engaging grin. He drove a nice, well-maintained black Chevy Impala, which earned him a passing grade from his students. After high school, Mark went to Purdue University to study business, and then he worked in the technology sector, doing everything from manufacturing microchips to creating software. When it came time to begin his professional probation as a parole officer, he was assigned to a probation agency in southern Illinois.
+
+Today, Mark is doing prison time for a crime he didn't commit. He was released just a month before Hurricane Katrina began wreaking havoc that July. Mark's ex-wife and kids still live in their small town in Kentucky. As a probation officer, he knows that if he is to stay in touch, he'll have to be out of state. He gets a job with the agency's sister-agency, the Parole Division of the Department of Corrections. As an extra benefit, he lives near the office.
+
+Like most parole officers, Mark is responsible for supervising an average of 880 inmates each day. Some are on probation for just a few months, others are still serving time for life. However, in Mark's case, he is accused of providing false information about an individual in order to keep him from getting released earlier, and

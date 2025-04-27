@@ -1,0 +1,9 @@
+**Title: The Shadow Play**
+
+**Setting:** The story unfolds in a once-grand, now slightly dilapidated theater called the Lyric Apollo, located in the heart of a bustling city. The ornate wooden façade, adorned with intricately carved details, hints at its glorious past, while flaking paint and flickering bulbs struggle to evoke the vibrancy of its heyday. The velvet curtains hang heavy, whispering secrets of performances long forgotten. On the stage, dust motes dance in the shafts of light piercing through the grimy windows, and the faint scent of aging paper and rosin fills the air. Backstage, the cramped rooms are cluttered with props, forgotten costuming, and frayed scripts, offering a glimpse into a world of creativity and chaos.
+
+**Character:** Lucinda Maeve Carrington
+
+Lucinda Maeve Carrington stands at the helm of this enchanting yet decaying theater, a theatrical director renowned for her daring vision and unwavering passion. With her fiery red hair swept into a messy bun and expressive green eyes that seem to miss nothing, she is often seen wearing an eclectic mix of vintage clothing that reflects both her artistic flair and her rebellious spirit. Lucinda has spent years of her life breathing hope into the Lyric Apollo, determined to rekindle its former glory and create a space where imagination reigns supreme. But beneath her confident exterior lies a deep-seated fear: that her relentless pursuit of artistic perfection may come at the cost of the connections she holds dear. 
+
+As she prepares to cast her newest production, a bold reimagining of a classic tale, she finds herself confronting not only the ghosts of the past that linger in the rafters but also the shadowy doubts that threaten to overshadow her dreams.

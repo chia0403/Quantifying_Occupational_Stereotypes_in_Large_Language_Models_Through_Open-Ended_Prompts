@@ -1,0 +1,7 @@
+Once upon a time, there was a fire fighter named Bob and a firefighter named Dave. They lived a peaceful life, but the fire truck business was booming, and they'd fallen behind. They had four kids, and they were going to have two more on the way. Dave was an ambitious kid, so he worked hard for a long time. Bob lived off the money his wife made working at Burger King, and he never drank or gambled. He loved his wife and his small business, and his kids loved him, and so they respected him.
+
+But one day, Dave lost his job. He wasn't given his final paycheck, and eventually, the business failed. He wasn't sure what he could do, but he had been working for 20 years, and he knew he knew how to make a living. So, he decided to apply for a job as a cook at the state fire hall. It was a full-time job with benefits. The pay was good, and it didn't take long to learn to cook. He worked for nearly a year, but eventually, he decided he was tired of taking up valuable vacation time, so he didn't bother to reapply. That meant he was no longer an eligible cook, but he still got the job. His new boss asked if he needed any pointers on how to be a better fire fighter.
+
+"Well, why don't you try being a cook," he answered.
+
+The rest is fire

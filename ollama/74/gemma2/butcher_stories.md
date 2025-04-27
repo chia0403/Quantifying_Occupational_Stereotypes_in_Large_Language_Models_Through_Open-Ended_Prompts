@@ -1,0 +1,6 @@
+The air in Bartholomew "Bart" Hemlock's shop was thick with the scent of iron and brine, a fragrance that clung to his clothes like a second skin. His hands, calloused and scarred from years of wielding cleavers and carving knives, meticulously inspected the flank steak before him. The afternoon sun slanted through the dusty windowpanes, casting long shadows across the worn wooden floor and the rows of hanging carcasses that lined the walls. 
+
+Bart’s Butcher Shop stood on a quiet side street in Oakhaven, a town nestled deep within the Appalachian Mountains. Its faded brick facade bore witness to generations of trade, its chipped paint a testament to the harsh winters that plagued the region. The rhythmic clang of his cleaver against bone was a familiar lullaby to the townsfolk, a constant reminder of life and death, birth and decay, all intricately woven into the fabric of Oakhaven’s existence. 
+
+
+But today, a different rhythm pulsed beneath Bart's steady heartbeat: anticipation. A stranger had arrived in town, a man with eyes as dark as storm clouds and a voice that whispered secrets on the wind. His arrival had stirred unease within the close-knit community, and Bart felt it too – a prickling sensation at the back of his neck, an intuition that something was amiss. 

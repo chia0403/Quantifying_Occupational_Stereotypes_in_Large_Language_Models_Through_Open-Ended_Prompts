@@ -1,0 +1,6 @@
+The rhythmic click-clack of Amelia Thistlewood's fingernails against her calculator keys was the soundtrack to another Tuesday afternoon at Bramble & Briar Apothecary. Sunlight streamed through the dusty windowpanes, illuminating motes dancing in the air above shelves crammed with jars of dried herbs, bottles of shimmering tinctures, and stacks of worn leather-bound books detailing arcane remedies. Amelia, a woman whose practicality was as ingrained as the lines etched around her hazel eyes, meticulously balanced the ledger, her frown deepening as she spotted an unaccounted discrepancy. 
+
+It wasn't unusual for the apothecary to have quirks –  a stray cat named Rue who seemed to possess an uncanny understanding of herbal blends, a clientele that ranged from anxious housewives seeking lavender sleep remedies to eccentric alchemists requesting obscure ingredients, and, of course, the enigmatic owner, Mr. Alistair Blackwood, whose past was shrouded in as much mystery as his potions. But this discrepancy, a significant sum missing from the day's sales, felt different. It felt deliberate.  
+
+
+This wasn't just a simple error; it was a crack in the carefully curated facade of Bramble & Briar, and Amelia Thistlewood, bookkeeper extraordinaire, was determined to find out who – or what – had caused it. 

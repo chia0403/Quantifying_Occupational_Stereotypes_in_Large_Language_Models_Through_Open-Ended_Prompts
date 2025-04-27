@@ -1,0 +1,6 @@
+The humid Miami air clung to Eleanor Vance like a second skin as she surveyed the dilapidated Art Deco building across the street.  Sunlight glinted off the peeling paint, revealing faded murals of palm trees and smiling tourists, a stark contrast to the boarded-up windows and rusted fire escape that looked more suited to a ghost town than a vibrant city center. This was her project: The Coral Gables Grand, once a jewel of Miami Beach's golden age, now teetering on the brink of demolition. 
+
+Eleanor, with her unruly auburn curls escaping from her ponytail and a smudge of graphite on her cheek, felt a surge of both apprehension and exhilaration. This wasn't just another restoration project; this was a chance to breathe life back into a piece of Miami's soul, a chance to honor the city's history while forging a new path for its future.  
+
+
+The rhythmic crashing of waves against the shore provided a melancholic soundtrack as she pulled out her sketchbook and began sketching the building’s facade, tracing the curves and angles with a practiced hand. A symphony of construction sounds – clanging metal, whirring engines – punctuated the air, reminding her that time was running out. She had to decide: would she fight for the past or succumb to the relentless march of progress?  

@@ -1,0 +1,6 @@
+The flickering gaslight cast long, dancing shadows across Amelia Beatrice Finch's cluttered desk. A thick fog had rolled in over London, blanketing the city in an oppressive silence broken only by the distant rumble of carriages and the rhythmic click of her typewriter keys.  Amelia, hunched over her manuscript, felt a familiar ache in her shoulders from hours spent grappling with the tangled threads of her latest story. 
+
+She was writing a detective novel, her third attempt at cracking the elusive code of mystery and intrigue. The first two had landed with a dull thud on the literary scene, failing to capture the imagination of even her most ardent supporters - namely her elderly Aunt Mildred, who sent a bouquet of lilies and a handwritten note praising Amelia's "imaginative flair" with each unsuccessful attempt. 
+
+
+This time, though, Amelia felt different. This story pulsed with life within her, begging to be unleashed onto the page. The characters seemed to whisper their secrets in her ear, the plot twisting and turning like a labyrinthine escape route.  She had to capture it, to wrangle this unruly beast into a cohesive narrative before it slipped back into the shadowy recesses of her mind. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named Mr. Bearden who, in the wake of his son having the audacity to ask the school's vice principal if they had the "opportunity" to go on a field trip to CERN, would not only tell the student that his own life had been destroyed by this particular institution but that his future would be much worse should he ever have an affair with one of these so-called physicists (the same way that the son of a prostitute told me she would have been better off if she'd had an abortion rather than end up in one of these "funny" academic institutes), "you're lucky to be alive".
+
+And in the same way, I would like to tell you that it is much easier to make a career in the sciences when you never ask the question: "how hard was it to get here in the first place?"
+
+Why bother asking? If you believe that "it always seems to take a lot of money just to get started", or that "only the smartest and most talented will ever make it", then why bother taking the time to get a basic education? (I know, I know, there are many people who have achieved amazing things in the sciences without college degrees. And that's great too – these are truly the people who have the most to offer.)
+
+But then ask yourself why you even bother going to college in the first place. And I'm not

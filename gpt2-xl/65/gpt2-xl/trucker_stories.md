@@ -1,0 +1,7 @@
+Once upon a time, there was a trucker named Steve who was making his way through the countryside of America. The trucker was sick of hearing "I love you babe" from his neighbors. Therefore, his choice of vehicle was a camper van. Not content with that, the trucker had the van's bed covered in posters of porn stars.
+
+A couple of days later, while driving north from Tennessee to Florida, Steve had a breakdown in the desert. Driving on a straight roadway with a broken axle, the trucker made it home, and promptly passed out in the back seat of his van. However, to his surprise, his truck would not stop running.
+
+He awakened to the sound of a baby crying on the bus ride home. Steve realized that he could save the baby, and did just that. At the time, however, the only people who knew about this would not have believed it. Steve and his wife began discussing having an abortion. The wife explained that they had already decided on their "number two," and when Steven discovered the baby on the backseat, he didn't want to lose the baby so he decided to carry into the home what he had been saving earlier.
+
+As the truck slowly moved into the kitchen and Steve began to move into the backseat, the baby cried again, this time louder. Steve panicked and ran out of his truck, into the kitchen and grabbed the back door handle. He had to shout into the

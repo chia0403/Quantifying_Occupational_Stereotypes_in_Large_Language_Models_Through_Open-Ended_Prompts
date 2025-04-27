@@ -1,0 +1,4 @@
+The rain hammered against the windowpanes of Eleanor Blythe's office like a thousand tiny fists, each blow echoing the relentless thrumming in her temples. Outside, Chicago was drowning under a deluge that promised to last for days.  Inside, the air was thick with the scent of stale coffee and unyielding stress. Eleanor, perched precariously on the edge of her ergonomic chair, stared at the mountain of case files threatening to consume her desk.  The firm's reputation as "Chicago's Finest Defenders" rested heavily on her shoulders tonight. She needed a win, and fast.
+
+
+Her gaze landed on the most recent addition to the pile: "State of Illinois vs. Daniel Reyes - Murder." The name sparked a familiar ache in her chest. A young man, barely out of his teens, accused of a crime he swore he didn't commit. Eleanor Blythe, criminal defense lawyer extraordinaire, was about to become his only hope. 

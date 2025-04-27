@@ -1,0 +1,9 @@
+## The Whispering Walls
+
+**Opening:** Rain lashed against the attic windows, mimicking the chaotic rhythm of Evelyn's thoughts as she sifted through boxes. Years of memories, some cherished, some buried under layers of dust and neglect, lay scattered before her. Her worn, brown leather-bound journal felt heavy in her hands, a relic of an era when she was still but a fledgling therapist, eager to understand the depths of human experience. 
+
+Evelyn's gaze landed on a framed photograph nestled amongst faded letters and childhood trinkets - a picture of a young girl with eyes the same color as the stormy sky outside, grinning mischievously at the camera. Her name, scrawled in familiar cursive beneath the image, brought back memories of countless hours spent listening to stories – whispered anxieties, dreams deferred, and the raw vulnerability that made Evelyn's job so deeply fulfilling yet emotionally taxing. 
+
+**Setting:** The abandoned Victorian mansion on the edge of Maple Creek had become a sanctuary for Evelyn after years at the city mental health clinic. Now, with its peeling paint, overgrown garden, and cobweb-laden attic space, it served as both her private haven and the site of her most challenging case – the mysterious disappearance of Amelia Grant. 
+
+Amelia was known for her troubled past; a history marked by intense anxiety, unfulfilled dreams, and a silence so profound that Evelyn had been left to piece together the puzzle of her client's fractured mind. The family insisted on anonymity, but Evelyn knew Amelia. Her therapist's intuition was never just about reading the words; it was about feeling the unspoken truth behind them. Now, haunted by the echoes of Amelia's silent suffering, Evelyn found herself trapped within the walls of this ancient mansion, forced to confront not only her own vulnerabilities but also the secrets buried deep beneath the layers of time and memory. 

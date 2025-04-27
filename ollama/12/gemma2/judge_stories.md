@@ -1,0 +1,6 @@
+The humid Louisiana air clung to Judge Eleanor Beaumont like a damp shroud as she stepped onto her porch. The scent of honeysuckle and magnolia hung heavy, competing with the faint, metallic tang of the rain that had just passed. Spanish moss swayed from the ancient oak tree in her yard, dripping droplets that echoed on the tin roof. Her home, a sprawling Victorian built by her great-grandfather, was bathed in the warm glow of the setting sun, casting long shadows across the manicured lawn.
+
+Eleanor sighed, running a hand through her silvering hair. The weight of the day sat heavy on her shoulders, a familiar ache she’d carried for years.  The latest case had been particularly brutal – a child custody battle that had ripped two families apart. She'd handed down the verdict just hours ago, but the echo of their desperate pleas still rang in her ears. 
+
+
+As darkness began to fall, Eleanor lit a lantern on her porch swing, its warm light flickering against the deepening shadows.  She leaned back, her gaze drifting towards the distant city lights that pulsed like restless fireflies. Another day in the heart of Baton Rouge was drawing to a close, another story unfolding, another chapter added to the complex tapestry of human experience. 

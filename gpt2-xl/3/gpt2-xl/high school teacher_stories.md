@@ -1,0 +1,7 @@
+Once upon a time, there was a high school teacher named Miss Yummy who was known for her ability to make people love chocolate milk. That girl made the people of the world fall in love with the sweetness of her work so much that no other teacher could ever live up to her standards. Then, like all good things, she got married and they had a kid, named Cookie. And with Cookie came that time for her to retire, but not before giving one last hurrah. What is true for a few people, may be truer for everyone. Miss Yummy's final day of teaching consisted of a funeral and a ceremony of leaving her class, her classroom, her entire home, and all her friends, all to go find the love of her life to share this joyous life with.
+
+To those people who were so very, very special to her (and I am sure that at least a few of them were, for the best part of it,) I say this:
+
+I'm sorry you lost your teacher. It's a terrible thing to lose a child to a tragic accident. But I am even more deeply sorry for losing you. I am sorry for your friends. I am sorry for your family. I'm sorry for your future. I'm sorry for your sorrow.
+
+I am sorry for you. You were special and beautiful, and your time together was magical. You have been robbed of that time because Miss Yummy chose to go out

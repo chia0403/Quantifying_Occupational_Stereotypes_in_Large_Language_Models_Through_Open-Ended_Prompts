@@ -1,0 +1,6 @@
+The air in the Grand Blackwood Executive Suites crackled with the kind of silent tension only found beneath gilded cages. Amelia Thorne, her perfectly coiffed hair pulled back to reveal sharp cheekbones, clutched her briefcase like a shield as she navigated the plush carpet towards Mr. Montgomery's office. His imposing mahogany door stood as a physical manifestation of the unspoken rules that governed their world: no smiles, no casual conversation, only business and deference.  She was Amelia Thorne, a secretary for nearly twenty years at Blackwood & Co., a company steeped in secrets and shrouded in an ever-present cloud of power. 
+
+Amelia's fingertips lingered on the worn leather of her briefcase. It contained not just documents but memories - handwritten notes on the best lunch spots for clients, sticky notes with fleeting reminders, and even a faded photograph from a company picnic, a stark contrast to the sterile environment that surrounded her.  Every day was a carefully choreographed dance between professionalism and a longing for something more, a longing she kept hidden beneath her crisp suits and polished demeanor.
+
+
+**Setting:** The Grand Blackwood Executive Suites - a luxury office building in downtown Manhattan, where the wealthy elite of New York's business world gathered to conduct their dealings. 

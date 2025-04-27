@@ -1,0 +1,6 @@
+The harsh fluorescent lights of the office hummed overhead, casting a sickly yellow pallor over Amelia "Amy" Brighton's meticulously organized desk. Papers, color-coded sticky notes, and half-empty coffee cups formed an ordered chaos around her. Outside the towering windows of the 27th floor law firm, New York City churned below, a relentless symphony of car horns and distant sirens.  
+
+Amy, a paralegal with the reputation for being both meticulous and unflappable, squinted at the case file in front of her. "Estate of Bartholomew Thistlewick," it read, in bold black letters. This wasn't just another will dispute; Bartholomew Thistlewick had been a renowned collector of antique dolls, rumored to possess a collection worth millions. And his demise? Found slumped over a porcelain doll, clutching a miniature silver knife – an apparent suicide ruled by the police. 
+
+
+Amy, however, couldn't shake off the nagging feeling that something was amiss.  There was just too much...unusual about this case. The deceased's eccentric personality, the peculiar circumstances of his death, and the hushed whispers in the office hallways about a hidden room within Thistlewick's mansion all whispered a silent invitation: delve deeper. 

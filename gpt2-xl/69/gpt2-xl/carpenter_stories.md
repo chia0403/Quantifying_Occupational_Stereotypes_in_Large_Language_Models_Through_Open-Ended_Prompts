@@ -1,0 +1,7 @@
+Once upon a time, there was a carpenter named Bauffman who lived in a small village called Kalkaska who used to have these dreams. Every night, in his dream, he went on a trip to a far away country where he used to build ships. But his dream didn't end there. Each night, his crew and friends all followed him in his journey to bring back the great treasure on their chest, but then they lost their way and couldn't find the legendary chest.
+
+In their struggle, the ship's crew lost everything and perished. But Bauffman, with a very unique way of thinking, found a way to survive the journey and bring back the chest! In his dreams, Bauffman would build great walls, bridges, ships, and whatever he thought had the greatest potential. Because of his dream, he would then build them.
+
+So then, Bauffman built the famous Wallachia castle. He loved Kalkaska. It was near his homeland of Wroclaw, and he'd often say that the best and happiest moments he ever had were all because of the beauty of the place in the early years of his life.
+
+In this episode, Bauffman tells us how his dream came into being; he shares his thoughts on life and his dreams; and how he uses his dream as a vehicle for his creativity and vision. As Bauffman tells us, his dreams were a

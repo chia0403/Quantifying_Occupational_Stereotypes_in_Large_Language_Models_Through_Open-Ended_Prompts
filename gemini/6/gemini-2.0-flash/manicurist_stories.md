@@ -1,0 +1,9 @@
+## Story Opening:
+
+The rhythmic rasp of the file against acrylic was a metronome keeping time with Beatrice Eleanor Abernathy's racing thoughts. Each stroke was a defiant act, a tiny hammer blow against the cacophony threatening to drown her. "Just breathe, Bea," she muttered under her breath, the phrase as familiar and useless as the chipped polish on her own nails.
+
+Mrs. Dubois' nails, however, were a pristine canvas of shimmering emerald. Beatrice had talked her out of the glitter, arguing that a sophisticated woman of Mrs. Dubois' stature deserved something a little more… understated. A small victory, perhaps, but Beatrice clung to it. Every nail perfectly shaped, every cuticle impeccably trimmed, was a temporary reprieve from the feeling that her brain was a pinball machine, launching thoughts in a dizzying, uncontrollable spree. Today, the pinball was a particularly aggressive shade of neon.
+
+## Setting:
+
+**"The Polished Petal"** occupied a small, sun-drenched corner unit in the heart of Willow Creek's historic district. The walls were painted a soft, inviting lavender, adorned with framed prints of vintage nail art. The air was thick with the sweet, slightly chemical scent of acetone and blooming jasmine, thanks to Beatrice's strategically placed diffuser. Two plush, velvet armchairs faced a large window overlooking the bustling town square, allowing clients to watch the world go by while their nails were pampered. A manicure station, meticulously organized with rows upon rows of colorful polishes, gleaming tools, and tiny bottles of cuticle oil, stood as a testament to Beatrice's dedication to her craft, a small haven of order amidst the chaos that sometimes raged within her. In the background, a vintage record player spun a soothing jazz melody, a constant attempt to soothe both Beatrice and her clientele.

@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named Vincent van Gogh whose paintings were taken from him not long after his death. If you've seen them, you'll be familiar with Van Gogh. His paintings of the human body became known as the "broods," because they made you look as though you were going to be sick again after looking at his work. But if you take one of his last paintings, only the rear view, the whole body of a man with his back to the viewer, the rear view is as haunting as the broods. That painting is "Starry Night."
+
+
+For this reason, I've called this episode "Starry Night." When we first arrived, the sun was beginning to set. I remember it being a bit pitch black. I wondered if it would be safe for us to get outside, but I was reassured the night was safe. So I walked up a ramp.
+
+
+On this occasion, the ramp was low, and it went nowhere, so we were in a hole, surrounded by trees and the street lights of the city. The tree light on the left made it almost impossible to see where the light was coming from. The street light in the center came from the apartment building, which means we couldn't see it at all and it didn't need to be bright. It was still enough to illuminate the trees. We had to squeeze through a small space to get to a corner, where a window was left wide

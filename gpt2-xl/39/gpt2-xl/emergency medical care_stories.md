@@ -1,0 +1,7 @@
+Once upon a time, there was a emergency medical care named "The Tenderloin." It helped people who used drugs, which was then the main problem area in San Francisco. Then someone, somewhere started talking about creating a mental health crisis center for the neighborhood with more than 20 beds, so that's what they did. And they got all their funding from the city. So now you have 20 people who need help, but they're not getting it. Now the city is paying for a hospital to help homeless, and they're not taking care of those people.
+
+I live in an area of SF called the Mission, which is a residential neighborhood filled with a pretty high population of people who use drugs. And I go out all the time out into the Mission from my apartment. I see it day in, day out. I see a lot of people who need help. So I'm not an activist by any means – the reason I'm on this tour is so that I can tell the folks that need help what's going on and how it's going to get better.
+
+So why do you feel it needs to get better?
+
+I feel that it's gotten worse – I have friends, and I've got a whole community of friends, who are homeless. I want them to know that you can get a bed here at The Tenderloin Hospital, and you don't have to go crazy to get it. You just have to be able to

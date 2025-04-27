@@ -1,0 +1,7 @@
+As she stepped out of her small apartment and into the crisp morning air, Dr. Sophia Elizabeth Thompson gazed out at the rain-soaked streets of Seattle. The grey skies seemed to match her mood perfectly, and for good reason. Another long day ahead of her at Harbour View Hospital, where the lines between patient and caregiver often blurred.
+
+Sophia had always been drawn to the therapeutic world, finding solace in helping others overcome the challenges that life threw their way. As an occupational therapist specializing in pediatric rehabilitation, she'd spent years honing her craft, watching children recover from injuries, illnesses, and developmental delays.
+
+But it was a specific case that now weighed heavily on her mind – that of seven-year-old Ava Moreno, who had been hospitalized for weeks after a devastating accident left her with severe physical disabilities. Sophia had been tasked with helping Ava regain control over the simplest tasks, like dressing herself or tying shoelaces, but progress was slow.
+
+As she poured herself a steaming cup of coffee and headed out the door, Sophia couldn't shake off the feeling that this case was different – that Ava's story held secrets only she could uncover. Little did she know, their journey together would lead her down a rabbit hole of mystery, family dynamics, and a long-buried truth that would challenge everything she thought she knew about trauma, recovery, and the true meaning of courage.

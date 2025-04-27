@@ -1,0 +1,7 @@
+Once upon a time, there was a trucker named John Doolittle who'd gotten to know an old, kindly Indian woman named Lucy Watson. Soon, he got lost in a fog-shrouded Indian settlement where he met a tribe of Indians with "miserable faces" and who seemed to be afflicted with a plague. They named the sickness "Sassafras" — but when he told them that he had a cure, the Indians, believing him to be a fraud or a sorcerer, had him killed.
+
+Now, the tribe of Sassafras is on the verge of destruction in "The Legend of Tarzan," a modern-day version of "The Legend of Lucy," that plays out in London throughout this summer. While it isn't exactly an Indian epic, it is rooted in the enduring American Indian legend and features both black and white actors playing Indian characters. The film's leading man is Will Smith, an American who, like Doolittle, is a veteran of Desert Storm in 1991.
+
+That war proved to be "probably one of the most brutal and unjust wars in human history... about whether there'd be two halves of one people or two halves of two people," Smith told me during an interview at his home in Malibu, Calif. "It was about who were our equals. Which tribe was we on? And that had an effect. It was sort of a moral awakening."
+
+By 1999, Smith had become

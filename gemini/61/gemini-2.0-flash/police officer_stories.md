@@ -1,0 +1,5 @@
+The November wind, sharp as shattered glass, whipped across the steel-grey waters of Lake Michigan, stinging Detective Sergeant Isabella “Izzy” Rodriguez’s cheeks. She hunched deeper into her thick, wool coat, pulling the collar up around her neck as she stared out at the distant horizon. The pier at North Avenue Beach was almost deserted this early on a Sunday morning, save for a few die-hard joggers who pounded the pavement with grim determination.
+
+Izzy wasn't here for exercise. She was here to grapple with the gnawing unease that had taken root in her gut since the call came in an hour ago. A body, bobbing gently near the breakwater. Another lost soul claimed by the cold, uncaring lake.
+
+The setting was Chicago, Illinois, late autumn. The air crackled with the anticipation of the upcoming holidays, but under the veneer of festive cheer, the city held its breath, a million stories simmering beneath the surface. Izzy knew too many of them were stories of desperation, violence, and despair, and right now, she had a feeling this new one was going to be particularly brutal.

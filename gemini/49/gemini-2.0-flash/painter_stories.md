@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, introducing our painter:
+
+**Opening:**
+
+The salt-laced wind whipped at Imogen Bellweather's hair as she wrestled the easel onto the craggy headland. It was a battle she engaged in almost daily, a stubborn dance between artist and element. She anchored the legs with heavy stones, the wind still a restless, insistent lover pushing against her frame. Down below, the churning Atlantic clawed at the base of the cliffs, a relentless roar punctuated by the cries of gulls wheeling overhead. Imogen, oblivious to the stinging spray already dampening her worn denim jacket, adjusted her stance, a fierce determination hardening her usually soft features. Today, she would capture the heart of the storm, the raw, untamed energy that only this place, this wild corner of Cornwall, could offer. This painting had been brewing inside her for weeks, a tempest of colour waiting to be unleashed.
+
+**Setting:**
+
+The story is set on the rugged, windswept coast of Cornwall, England. Specifically, Imogen is often found on a headland overlooking the Atlantic Ocean, near a small, secluded village called Port Abernathy. The village is a cluster of whitewashed cottages clinging to the hillside, a place where time seems to move slower, dictated by the rhythm of the tides. Imogen's studio is a converted boathouse, perched precariously close to the sea, its walls lined with canvases depicting the ever-changing moods of the ocean. The landscape is dramatic and unforgiving, characterized by jagged cliffs, hidden coves, and vast, open skies. The air is thick with the smell of salt and seaweed, and the sound of the waves is a constant, almost deafening presence. The weather is unpredictable, often shifting from sunshine to squall in a matter of minutes, creating a constantly evolving canvas for Imogen to capture.

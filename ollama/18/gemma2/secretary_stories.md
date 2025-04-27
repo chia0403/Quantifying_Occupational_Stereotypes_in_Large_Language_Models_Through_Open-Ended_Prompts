@@ -1,0 +1,4 @@
+The scent of stale coffee and desperation clung to Amelia Beatrice Hawthorne like a second skin.  Amelia wasn't sure which was worse – the perpetually lukewarm brew or the mountain of invoices demanding her attention before Mr. Davenport’s infamous “fire drill” meeting at 9:00 am sharp. Outside, the Chicago skyline glistened with an early morning frost, mirroring the icy tension that permeated the office. She could practically hear the faint ticking of every second slipping away, each one another tick closer to chaos. Her fingers flew across the keyboard, a desperate ballet of productivity punctuated by the occasional frantic sigh. This wasn’t how Amelia envisioned her day starting.  This wasn't how she envisioned any day at Davenport & Sons Enterprises. 
+
+
+But then again, there was rarely a day in this office that went according to plan. 

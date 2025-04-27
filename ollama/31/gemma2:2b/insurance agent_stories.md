@@ -1,0 +1,7 @@
+## The Revolving Door of Life
+
+**Opening:**  The fluorescent lights hummed above Elara Thorne's head, casting an anemic glow over the cluttered desk in her cubicle. Outside, Chicago's wind howled a mournful song against the glass facade of the office building, mirroring the feeling that had settled deep in Elara's gut. It was another Tuesday, another day of navigating the treacherous waters of insurance claims, and she wasn't finding any solid ground to stand on.
+
+**Setting:** The year is 2038. Chicago stands as a glittering metropolis of glass and steel, a city where wealth and ambition collide with forgotten dreams and social inequality. While advancements in technology have pushed humanity further than ever before, the disparity between the haves and have-nots remains a constant undercurrent. Elara's office is part of the sprawling "Midtown Towers", a gleaming monument to corporate greed located smack dab in the heart of Chicago's struggling South Side neighborhood.
+
+**Main Character:** Elara Thorne, 32 years old, is an insurance agent at "Citizens' Protector", one of Chicago's most prominent and notorious insurance companies. A sharp and pragmatic woman with steely blue eyes that seem to have seen a lifetime of pain and loss, she navigates the intricate world of claims with laser focus. But beneath her polished exterior lies a gnawing sense of unease, a feeling that something is irrevocably broken, just as it seems to be in the lives of her clients. 

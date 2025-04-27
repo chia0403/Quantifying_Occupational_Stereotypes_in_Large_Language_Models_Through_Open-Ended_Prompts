@@ -1,0 +1,9 @@
+Dr. Eleanor Jensen turned the brass doorknob to her office, its cool surface a familiar touchstone in the bustling corridors of Maplewood High. She stepped inside, leaving the muffled sounds of lockers clanging and sneakers squeaking against waxed linoleum behind. Her sanctuary was a small, sunlit space tucked into the corner of the school's east wing, walls lined with shelves of books ranging from developmental psychology to graphic novels—a nod to her belief in meeting students where they are.
+
+The autumn sun filtered through the tall windows, casting dappled shadows across a large oak desk cluttered with colorful reports and a ceramic mug that proudly proclaimed "World's Best Listener." In the corner, a worn leather armchair sat invitingly, its arms slightly frayed from countless hours of supporting teenagers through their most trying times.
+
+Outside, the sprawling schoolyard lay carpeted in a patchwork of amber and crimson leaves, rustling softly in the crisp October breeze. The scent of autumn mingled with the distant, comforting aroma of baked bread wafting from the cafeteria kitchens. Eleanor's eyes lingered momentarily on the scene, her heart swelling with a sense of purpose. Another day, another opportunity to unravel the stories behind worried eyes and anxious hearts.
+
+As her computer hummed to life, Eleanor took a moment to sip her overly-sweetened coffee, savoring its warmth as she scanned her planner for the day's appointments. She had grown accustomed to the ebb and flow of teenage crises—the whispered secrets, the frantic search for identity and belonging, all played out under the harsh glare of fluorescent lights.
+
+Today, as always, she was ready to listen.

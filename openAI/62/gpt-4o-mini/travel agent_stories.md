@@ -1,0 +1,10 @@
+**Title: Secrets Beneath the Surface**
+
+**Setting:** The quaint coastal town of Seapoint, known for its vibrant beaches, cozy cafes, and an air of mystery that clings to its salty breeze. Narrow cobblestone streets wind through clusters of pastel-colored houses, each adorned with blooming window boxes. The ocean glimmers like a jewel against the backdrop of the rugged cliffs, and the salty scent of the sea invites visitors to linger just a little longer. At the heart of Seapoint is a small, charming travel agency called “Wanderlust Journeys,” nestled between a bustling bakery and a quaint bookstore. 
+
+**Opening:**
+Caroline Isabel Whitaker gazed out the window of her cozy travel agency, a warm mug of chamomile tea cradled in her hands. The sound of waves crashing against the shore filled the air, mingling with the sweet melodies drifting from the bakery next door. She watched as tourists strolled along the boardwalk, their laughter punctuating the salty breeze, unaware that just beyond the picturesque scenery lay whispers of a forgotten legend that had entranced Seapoint for generations.
+
+For years, Caroline had made it her mission to help both locals and visitors explore the world's wonders, guiding them through itineraries filled with picturesque landscapes and bustling markets. But today, as the sun dipped lower on the horizon, casting a golden hue over the ocean, her thoughts turned inward. Lately, her desire for adventure had morphed into a need for answers—answers about the mysterious shipwreck that had been rumored to lie off the coast, its treasures hidden from prying eyes.
+
+Sipping her tea, Caroline felt a stirring of restlessness. This was the moment she had been waiting for. With a sense of determination ignited in her chest, she set down her mug and began to rummage through the old travel guides and nautical maps scattered across her desk. The allure of travel had always been about discovery, but now, there was a deeper journey calling her—a pursuit of secrets that lay beneath the waves, waiting for someone brave enough to uncover them.

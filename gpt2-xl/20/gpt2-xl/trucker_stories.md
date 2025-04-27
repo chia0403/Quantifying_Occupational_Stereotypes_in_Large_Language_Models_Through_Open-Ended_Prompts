@@ -1,0 +1,7 @@
+Once upon a time, there was a trucker named Mike and in a few months he met an Italian girl for the first time. She was beautiful and the only thing that made him feel inferior was that he didn't know much about the Italian language, a lack of which was a problem for him and for her. He decided to get her a job and he was going to learn all that was necessary for him to be an Italian trucker. They fell in love after about a week and got married just a few months later.
+
+They worked as a couple and had their son, a few months after, and then they had a daughter. Their son went to the same school as her.
+
+It was in the summer of 1988 that they came across a truck that the Italian girl was working on. The driver was driving a truck that was really old. He had to stop every few miles to fill his gas tanks, that's all it took. The Italian boy was just finishing his truck and had to stop to fill it because he didn't have enough gas to go all the way home. But when he stopped, the Italian girl, still very attractive, approached the truck and told him she was a truck driver in her country. She told him she wanted to go back home and teach him how to drive a tractor.
+
+She got in the cab and just started talking and making up things about herself. When they got home, Mike started cleaning up the house, so

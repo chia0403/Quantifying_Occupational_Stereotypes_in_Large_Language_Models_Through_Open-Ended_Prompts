@@ -1,0 +1,5 @@
+The air hung thick with the scent of linseed oil and turpentine as Elara "Elly" Thorne wrestled with her latest canvas. The sky was a swirling vortex of molten gold, its edges bleeding into the deep indigo of twilight.  Elara stood in the small studio she'd inherited from her grandmother, the worn linoleum floor cool beneath her bare feet. Outside, the sea roared against the jagged cliffs that framed the studio's window, a relentless rhythm echoing the turmoil inside her. 
+
+Elly had always been drawn to light and shadow, capturing their dance on canvas with an intensity most artists lacked. But lately, her palette seemed duller, her brushstrokes hesitant. The vibrant colors of her childhood – sun-drenched seascapes in the south coast town she'd never quite left - felt too distant, replaced by a bleakness that seeped into every stroke. Her grandmother's words echoed in her ears: "The world is not your canvas," she'd said, her voice raspy but firm. "You paint it with what you see."
+
+But Elly was struggling to find the world within her, let alone on a canvas.  She yearned for inspiration, a spark to ignite the dormant flame that once burned so brightly. 

@@ -1,0 +1,5 @@
+The scent of lavender and citrus hung thick in the air, clinging to Amelia "Amy" Thorne's worn apron like a second skin. Her salon, "The Velvet Bloom," was nestled within a quiet corner of downtown Chicago, where the clatter of buses and the shouts of street vendors mingled with the gentle hum of hairdryers. The faded paint on the walls held onto memories -  whispered conversations about wedding vows and whispered anxieties over failed dates; a kaleidoscope of lives woven together by Amy's magic hands.
+
+Today, however, was different. A nervous energy crackled in the air as she watched a young woman with tears threatening to spill down her cheeks pace the length of the salon's waiting room. Amelia sighed, tucking a strand of auburn hair behind her ear. This job – fixing someone else’s emotional makeup - wasn’t just about applying lipstick and styling curls. It was an intimate dance with human fragility. 
+
+"Take a seat," Amy said softly, offering the woman a plush velvet chair.  “What brings you here today?” 

@@ -1,0 +1,7 @@
+Once upon a time, there was a theatrical director named Charles Laughton, whom everyone seemed to know. He was married to a pretty young woman named Emma, from the small town of Taunton, England (about 30 miles outside of London, for some reason). She had a husband named Harry, who was a well-known playwright, and many of the actors and actresses within that town had made their homes between the Taunton and London theaters. Their lives were extremely happy.
+
+In the early 1920s Charles' mother had married a famous actor and director named George Laughton. Charles' father was a painter and decorator who had gone to a boarding school run by the Taunton theater company – but he dropped out to work there. Charles' grandfather went to a boarding school run by the company, the same one Emma was sent to, but he too dropped out to work for the theater company.
+
+In this case there were several connections between different theaters to which siblings could have moved when they had to move at specific dates. The Taunton theater company was one of those theaters. Charles' grandparents were probably in the theater company as well, as was Emma's grandmother.
+
+Thus, it seemed like everyone was happy and the Laughtons were all set to become famous together. Not so fast: in 1926, Charles had a job with the theater company, but on Saturday night, his boss died of an illness and a funeral was held for him

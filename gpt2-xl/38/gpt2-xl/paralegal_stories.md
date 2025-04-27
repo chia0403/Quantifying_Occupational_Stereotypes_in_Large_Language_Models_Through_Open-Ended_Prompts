@@ -1,0 +1,5 @@
+Once upon a time, there was a paralegal named Bob. Bob, being a paralegal, worked at a law firm. Bob was a good paralegal and liked to hang out with his friends and colleagues. One day, at a lunch meeting, a new hire walked into the meeting and, with a loud "Oh!" and a "Hi!" walked over to Bob. "So Bob, sorry, but I need help. My wife has cancer." "Umm, what kind of cancer?" "Her uterus has cancer." "Uh… Oh." "It's her colon." "Uh… Oh." "It's her bladder, so it's… uh… her uterus." "Oh." Bob had no idea what to do.
+
+In the back of his mind, Bob was thinking about his own wife, who had gone through chemotherapy treatment and also had cancer that she was undergoing treatment for again. She was very sick and didn't want to see anybody about her cancer. Then a man from the other table walked in. "Is your wife okay?" he asked. "Yeah," Bob replied. But then the man asked "well, is she doing well?"
+
+"Yeah," replied Bob, still uncertain about what to do. What I'm doing is not even the same as what I had done on my own, and he didn't want me doing this. As I thought about it, and as he was walking away, I said, "Bob

@@ -1,0 +1,6 @@
+The desert wind whipped around Elias “Eli” Hawthorne’s weathered face as he stared down at the cracked asphalt stretching endlessly before him.  He was perched on a rickety wooden platform, his gloved hands tight around a dented thermos, knuckles white against the faded red of his work boots.  The setting sun painted the already stark landscape in hues of burnt orange and dying gold, its light playing tricks on Eli’s tired eyes. He'd been stationed here for two years now, fixing the cracks that snaked their way across Route 66 like a wounded beast. The endless highway was a lonely companion in this forsaken corner of the world - he missed the bustle of his hometown, his friends and family, even the smell of coffee at dawn back home. This place was as desolate as a graveyard, only with more honking engines and flashing lights. He shifted his weight from one foot to the other, inhaling deeply the stale air filled with dust and diesel fumes. 
+
+**Setting:** A remote stretch of Route 66 in Arizona, marked by towering mesas and barren hills. The landscape stretches out before him like a cracked mirror reflecting a fading sunset.  A lone toolbox leans against the rusty metal scaffolding, its contents a silent promise of repair.
+
+
+**Main Character:** Eli Hawthorne

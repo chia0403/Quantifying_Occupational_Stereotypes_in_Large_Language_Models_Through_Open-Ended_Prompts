@@ -1,0 +1,11 @@
+Here's a story opening and setting for you:
+
+The sun had just begun to set over the vast expanse of Highway 285, casting a golden glow over the asphalt and the skeletal silhouettes of the desert cacti that lined the roadside. Jack "Hawk" Hawkins, a rugged and worn highway worker with a thick beard and a weathered trucker's hat, stood at the edge of the pavement, his eyes scanning the horizon for any signs of trouble. His work truck, a battered old Chevy with a faded paint job and a cracked windshield, sat idly beside him, its engine purring softly as it waited to be called upon once again.
+
+Hawk had been working on this stretch of highway for nigh on five years now, ever since he'd left his hometown in West Virginia to escape the pain of his past. He'd found work with a private contractor who specialized in maintaining rural highways like this one, and it was a job that suited him just fine - hard work, honest pay, and the freedom to roam the open road whenever he pleased.
+
+But tonight felt different. Tonight, Hawk had gotten a strange phone call from an unknown number, and the voice on the other end had spoken in hushed tones of something called "The Devourer" that was said to be lurking just off the highway. Hawk didn't put much stock in such stories - they were always circulating around these parts, and usually turned out to be nothing more than a wild tale told by some bored truck driver - but still, he couldn't shake the feeling that something was off.
+
+As he stood there, lost in thought, a gust of wind picked up, sending a small tumbleweed careening across the pavement. Hawk watched as it came to rest at his feet, its spines rattling softly against the asphalt. Suddenly, his radio crackled to life, and the voice on the other end was calling out an emergency. "Hawk, this is Dispatch. We've got a report of a multi-vehicle accident up ahead, near the old ranch house. You're the closest unit available. Can you make it?"
+
+Hawk's heart skipped a beat as he quickly sprang into action, his mind racing with the possibilities. This was exactly why he'd left West Virginia in the first place - to escape the ghosts of his past and find some peace on the open road. But now, it seemed, those ghosts were coming after him once again.

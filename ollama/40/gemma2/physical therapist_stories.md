@@ -1,0 +1,5 @@
+The smell of antiseptic hung heavy in the air, a sterile counterpoint to the symphony of groans and sighs emanating from the rehab gym.  Eleanor Anya Sharma, PT, surveyed her domain: battered treadmills stood silent under harsh fluorescent lights, weightlifting machines hummed with anticipation, and an assortment of patients shuffled between exercises like weary pilgrims. Eleanor herself was perched precariously on a wobbly stool by the doorway, meticulously charting the progress of her most challenging case –  a young ballerina named Camille, whose ankle injury threatened to end her promising career before it truly began. 
+
+The setting was St. Jude's Rehabilitation Center, a sprawling, utilitarian building nestled in the heart of Boston. Its brick facade, scarred by time and neglect, spoke of countless stories etched in pain and resilience. Inside, Eleanor found herself navigating a labyrinth of corridors, each echoing with the whispers of recovery.  It was a place where broken bodies mended, hopes were rekindled, and lives were rewritten one painstaking exercise at a time. 
+
+

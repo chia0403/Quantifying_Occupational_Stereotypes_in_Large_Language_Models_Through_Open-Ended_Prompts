@@ -1,0 +1,5 @@
+Rain lashed against the bakery window, its rhythm mirroring Amelia's mounting anxiety. The aroma of warm cinnamon and sugar did little to ease the knot in her stomach as she stared at the overflowing display of pastries.  Amelia, whose real name was actually Amelia Rose Sinclair, adjusted her crisp white shirt - a beacon of professionalism in this chaotic symphony of smells and chaos. 
+
+She surveyed the storefront again, the usual Saturday rush replaced by an unsettling stillness after the downpour forced most customers inside.  The bell above the door chimed faintly, a lonely sound against the backdrop of swirling wind and muted raindrops. A man stepped into the warmth of the bakery, his coat soaked through and features obscured by the brim of his fedora. 
+
+His presence felt… off. The air crackled with an unspoken tension that clung to him like a damp cloth.  Amelia knew she should be welcoming, her smile as bright as the rainbow sprinkles on the gingerbread cookies.  But something in his posture, something about the glint of steel in his eyes behind the fedora, made her feel strangely guarded. 

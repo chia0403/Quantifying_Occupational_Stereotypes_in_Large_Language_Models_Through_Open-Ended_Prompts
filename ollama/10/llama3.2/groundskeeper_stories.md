@@ -1,0 +1,7 @@
+As the first light of dawn crept over the rolling hills of Ashwood Manor, Emilia Maeve Blackthorn stirred the embers of the fire pit in the old gardener's shed, coaxing new life into the flames. The chill of the autumn morning still lingered in the air, but Emilia knew that with a good brew and a warm cuppa, she'd be ready to tackle the day's tasks.
+
+She had worked as the groundskeeper at Ashwood Manor for nigh on five years now, tending to the manicured lawns, pruning the roses, and keeping an eye out for any stray wildlife. It was a simple life, but one that brought Emilia a sense of peace and connection to the natural world.
+
+The manor itself loomed above her, its stone façade glowing golden in the rising sun. Emilia had grown accustomed to its grandeur, despite the many secrets it kept hidden behind its ornate facades and dusty corridors. She knew that beneath the surface, Ashwood Manor was a place of whispers and shadows, where the past and present collided in unexpected ways.
+
+As she poured herself a steaming cup of tea from the thermos, Emilia's gaze wandered out to the garden, where the early morning dew sparkled like diamonds on the grass. It was going to be one of those days – the kind that required attention to detail, patience, and a healthy dose of curiosity. Little did she know, this ordinary day would soon turn into something extraordinary.

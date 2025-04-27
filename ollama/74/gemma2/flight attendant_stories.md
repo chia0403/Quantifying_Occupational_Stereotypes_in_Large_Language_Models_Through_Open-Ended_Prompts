@@ -1,0 +1,5 @@
+The hum of the Boeing 747 vibrated through Amelia “Amy” Rose’s bones like a bass drum in a symphony of turbulence. It was barely noon, but outside the plane window, storm clouds churned, casting the sky in an ominous grey. Amy adjusted her crisp blue uniform and surveyed the cabin. Economy was already buzzing with anticipation, a cacophony of rustling bags, hushed conversations, and the excited babble of children.  
+
+Amy leaned against the galley counter, taking a deep breath. The aroma of stale coffee and lukewarm pretzels filled the air, a familiar scent that always made her feel strangely grounded despite the ever-shifting altitude. It was a Wednesday flight from Chicago to London, a routine she’d done countless times before. But today felt different. A prickle of unease danced along Amy's spine, a feeling amplified by the storm brewing outside and the hushed whispers circulating amongst the passengers.  She couldn't shake the feeling that something was off, something about this flight wasn't quite right. 
+
+

@@ -1,0 +1,6 @@
+The grease under Elijah “Eli” Carter’s fingernails was permanent, he’d wager. It mirrored the grime etched onto his face - years of sweat, engine fumes, and sheer grit had carved their mark.  His shop, Carter’s Garage, perched precariously on the edge of town, where asphalt bled into cracked concrete and rusted metal fences. Its tin roof, once a cheerful blue, was now mottled with rust and leaks, just like Eli's faded dreams. The air hung thick with the scent of gasoline, oil, and desperation - a potent cocktail that permeated every inch of his world.
+
+Eli leaned against a dented 1967 Mustang, its once-proud cherry red paint dulled to a mournful burgundy. It was a beauty, even in its decay, a testament to a time when muscle cars ruled the road and dreams were built on chrome and horsepower. Eli sighed, running a calloused hand over the smooth curves of the fender. He knew this car held more than just rusted metal; it held memories, regrets, and perhaps, a glimmer of hope for redemption.  
+
+
+He wasn't sure what brought the faded Mustang in, its engine sputtering like a dying beast, but he felt a strange pull towards it. It was like an old friend, whispering stories of past glory and forgotten dreams. Eli knew he couldn’t ignore it. He had to help this car find its voice again, even if it meant sacrificing his own. 

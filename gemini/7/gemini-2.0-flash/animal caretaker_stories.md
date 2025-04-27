@@ -1,0 +1,7 @@
+## Story Opening:
+
+The scent of warm hay, damp fur, and something vaguely reminiscent of old gym socks clung to Amelia Willowbrook's thick woolen sweater, a familiar and comforting aroma that heralded another day at the Havenwood Wildlife Sanctuary. She inhaled deeply, the morning chill nipping at her exposed cheeks, and surveyed her domain. The first rays of dawn painted the surrounding forest in shades of pale gold and emerald, illuminating the dew-kissed leaves and whispering through the branches of ancient oaks. A robin, perched atop the roof of the owl enclosure, chirped a greeting. Amelia smiled, a small, private gesture of contentment.
+
+## Setting:
+
+Havenwood Wildlife Sanctuary was nestled deep in the heart of the Appalachian Mountains. A patchwork of interconnected enclosures, veterinary labs, and educational centers, it sprawled across several acres of gently sloping land. The main buildings, constructed from rough-hewn timber and fieldstone, blended seamlessly with the surrounding environment.  Each enclosure was meticulously designed to replicate the natural habitat of its inhabitants, from the rocky crags of the bobcat den to the lush undergrowth of the red fox habitat. Further back, a network of winding trails led through the dense forest, used for both rehabilitation programs and educational tours for the public.  While Havenwood wasn't opulent, it exuded a sense of dedicated care and a profound respect for the wild creatures who called it home.

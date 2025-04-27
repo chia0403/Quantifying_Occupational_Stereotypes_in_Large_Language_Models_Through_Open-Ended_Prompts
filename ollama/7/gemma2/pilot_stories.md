@@ -1,0 +1,5 @@
+The rusty red sun bled onto the horizon, casting long, skeletal shadows across the parched earth of Al'Shahra. The wind, hot and biting like a desert viper’s kiss, whipped through the tattered canvas of Elara Nyx's makeshift camp, tugging at the edges of her threadbare blanket.  She huddled deeper into the meager shelter, her calloused fingers tracing the worn leather of her pilot gloves – a relic from a life before the Dust Storms had claimed their land. 
+
+Al'Shahra, once a vibrant oasis city, was now a desolate husk, its towers crumbling under the weight of perpetual sandstorms.  Survival depended on scavenging remnants of the past and navigating the treacherous winds that swept across the wasteland. Elara, however, dared to dream of more. She yearned for the open sky, the freedom she'd glimpsed in grainy holo-images of a world untouched by dust, a world where pilots soared through clouds instead of dodging sand devils. And she believed her father’s old starfighter, hidden deep within the ruins of their once grand home, held the key to that dream. 
+
+

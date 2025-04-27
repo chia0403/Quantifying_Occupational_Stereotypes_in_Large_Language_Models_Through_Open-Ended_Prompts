@@ -1,0 +1,6 @@
+The scent of acetone hung heavy in the air, battling with the sugary sweetness of vanilla-infused nail polish remover.  Lilac "Lily" Beaumont, perched on her usual stool behind the counter at "Nails & Nonsense", meticulously filed down an acrylic claw, transforming it from a jagged weapon into a delicate rosebud. The afternoon sun streamed through the dusty windowpanes, casting warm stripes across the worn linoleum floor and illuminating the vibrant rainbow of nail polish bottles lining the wall. Lily hummed along to the jazzy tune playing on the radio, her mind already drifting into tomorrow's schedule - Mrs. Henderson's weekly French manicure, young Timmy’s Spiderman nails, and then...the unknown appointment at 5:30pm.  
+
+This unnamed client had booked last minute, their request a vague "something bold and unexpected." Lily pricked up her ears at that; a challenge was just what she needed to shake off the monotony of her usual routine.  But who could this mysterious person be? A daring CEO? A rebellious teenager? Or perhaps, someone with a story waiting to unfold beneath the glossy sheen of their new nails? 
+
+
+The bell above the door chimed, signaling another customer and pulling Lily back to the present. It was time to focus on her current client, before the unknown appointment arrived and turned Nails & Nonsense into something truly extraordinary.  

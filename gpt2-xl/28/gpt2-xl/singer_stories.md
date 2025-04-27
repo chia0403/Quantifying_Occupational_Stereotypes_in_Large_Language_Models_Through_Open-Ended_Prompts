@@ -1,0 +1,7 @@
+Once upon a time, there was a singer named Jimmy Buffett. Well, we now have a singer named Jimmy Buffett – or at least, I've just become aware of someone who was. In July of this year, he decided that the time was right to launch himself into the "serious" music scene and to do so with the help of a band of friends. And his band were fellow American songwriters, two of whom named themselves after characters from TV's "Frasier."
+
+As you might have likely gathered, Buffett has a bit on his side. He's had two number one albums on the Billboard charts, and his music on Broadway has won him several awards. And, of course, he has enough money that as the "Lonely Heart" singer with the "Luxury", he isn't worried that he might encounter an obstacle that would take him down.
+
+He told the Observer that, as a result, he decided that he couldn't be more different from the usual "serious" songwriter out there. In fact, he said:
+
+"I'm not even interested in being a serious songwriter who just writes hit records. I'm more interested in trying to tell and provoke a point, and then see if I can then apply that to other forms of art, whether it be performing or writing. And then maybe, by that time, I can feel like I'm one of those guys like Woody Guthrie. I suppose I'm

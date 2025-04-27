@@ -1,0 +1,5 @@
+The air hung heavy with the scent of acetone and jasmine, a familiar perfume in Esme Willowbrook's life. The gentle hum of the salon’s lights mingled with the rhythmic scraping of cuticle pushers against nails – a comforting symphony to her trained ears. Outside, the sun blazed relentlessly on the cracked pavement of Sunset Boulevard, turning Los Angeles into an oven of shimmering asphalt and frustrated honks. But inside "Laque & Lacquer," Esme's world was a cool oasis of polished surfaces and perfectly sculpted tips.  
+
+Esme, with her nimble fingers and encyclopedic knowledge of nail polish formulas, reigned supreme over this kingdom of beauty. Her clients – a motley crew of socialites, actresses, and bored housewives – flowed through the salon like tributaries feeding into her artistry. Each nail was a canvas, each manicure a miniature masterpiece. 
+
+Today, however, something felt different. A prickle of unease danced beneath Esme's skin, mirroring the anxious energy radiating from the woman seated before her.  

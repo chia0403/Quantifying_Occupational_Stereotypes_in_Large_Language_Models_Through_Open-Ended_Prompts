@@ -1,0 +1,5 @@
+In the heart of the city where neon lights flickered incessantly like restless fireflies, a steady rain fell, casting the streets in a hazy, monochrome dream. The occasional splash from passing cars was the only other sound echoing through the night. It was a city that never slept, with secrets tucked away in its shadowy corners and stories whispered in the dim glow of its numerous bars.
+
+Amidst this rain-soaked tapestry, in an office that sat atop an old brick building overlooking the bustling streets below, sat Oliver "Ollie" Green. The frosted glass door bore the paint-chipped inscription: *Green Investigations: Discreet Solutions for Delicate Situations*. Ollie was a private detective, one of the few left in this city who still believed in chasing truth through the fog of lies that surrounded it.
+
+His office was a cluttered oasis of old case files, half-read books, and the ever-present aroma of brewed coffee. Outside his window, the world marched on, indifferent to those like Ollie who worked tirelessly in its shadows. But to Ollie, each drop of rain on the windowpane was a reminder of the mysteries waiting to be unraveled, and the stories yet to be told.

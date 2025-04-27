@@ -1,0 +1,7 @@
+The fluorescent lights hummed above Esmeralda "Esme" Vega like a swarm of anxious bees, casting a pale, sterile glow over the waiting room. The air was thick with the mingled scents of disinfectant and nervous anticipation.  Esme adjusted her lavender scrubs, smoothing down the wrinkles that had formed from hours spent hunched over patients. She wasn't a doctor, not a nurse even, just a phlebotomist – the conduit between anxieties and answers, the one who held the needle poised between fear and relief.
+
+The clinic was tucked into a quiet corner of San Antonio, its faded brick exterior barely distinguishable from the row of other small businesses on that dusty street. Inside, it hummed with a chaotic symphony: the rustle of patient forms, the rhythmic beeping of a heart monitor, the occasional anxious cough breaking the silence. It was her haven, this place, where she navigated human emotions with practiced ease, finding solace in the routine, the familiarity, and the unspoken gratitude in patients' eyes as they held still, trusting her with their vulnerability.
+
+Today, however, something felt different. A prickle of unease crawled up Esme’s spine as she glanced at the man waiting his turn. He sat hunched in a chair, his face shrouded in shadows, his eyes darting nervously around the room. His arrival had disrupted the usual rhythm of the clinic, casting a pall over the air. There was a story behind those haunted eyes, and Esme, with her uncanny ability to read people through their veins, felt an unsettling pull towards it. 
+
+

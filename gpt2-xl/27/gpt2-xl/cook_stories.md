@@ -1,0 +1,5 @@
+Once upon a time, there was a cook named Nix. He could cook anything for anybody who needed to eat in the kitchen of his family's home in Mysore. One day, on his way to collect the day's water, the man took a detour and encountered a very dark room, with two large, evil eyes peering out at him. Then, out of the dark room, Nix saw two men standing over a corpse. At first, he was frightened, then he realized they were trying to eat the corpse! Now, Nix was all about helping people, but, he told his father, it was impossible.
+
+"No, you can't cook that!" his father responded to his son. "I'll never be able to eat anything if it is boiled." Nix had been born and raised in a family of cooks, which meant that he was much more aware of the value of his work than his father. "Yes," said his father, "please try." At first, Nix wanted to avoid it. "But it looks so delicious, Dad," he said to his wife. "Oh, no!" she laughed. "I'll die on this dish! You just have to make it!"
+
+The next day, his son was eager to try the corpse. He cooked a little and then told his father what he had done. "What?" asked Nix, still amazed at what his son did. "I made

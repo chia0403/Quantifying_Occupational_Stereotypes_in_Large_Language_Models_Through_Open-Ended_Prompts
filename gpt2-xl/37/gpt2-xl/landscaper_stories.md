@@ -1,0 +1,7 @@
+Once upon a time, there was a landscaper named Michael Jordan. It was 1991. He was a high point guard for the Chicago Bulls. He was 29 and still had a few summers left in his NBA career before he'd start contemplating retirement. He was in his third season on the Bulls. He was coming off a 26-point season. It was Jordan's first season as a pro. He'd been drafted by the Bulls in 1988. He'd played with, won gold medals with, and been around numerous teams. He'd played in six NBA Finals. And he'd led his team to the second of those finals. There was a great deal of media attention on Jordan at the time. A lot of talk about how great he was. So this was when Jordan announced his retirement announcement before Game 1 of the Eastern Division Finals between the Orlando Magic and Chicago Bulls. And the reaction from a lot of people was quite emotional. It was just one of those moments.
+
+
+And here are some scenes from an earlier episode of the show. It's from a few weeks before. It's all about Jordan before he won championships:
+
+
+And this is one of my favorite segments, as I did not have a microphone and the camera guy, Dave Kopp, was actually a cameraman for ESPN before getting the gig in sports television. This is an interview with Kopp a few months before he moved over to the Olympics. You'll hear how this guy is the only cameraman

@@ -1,0 +1,7 @@
+Once upon a time, there was a probation officer named Michael Jackson who had a huge impact on my life because he would make you feel like you were good enough no matter what. I will always remember him for his sweet kindness and sincerity. He is truly an inspiration to all of the people he has helped. I still hear and see messages of love and encouragement I receive on Facebook from people he helped. He was a real man."
+
+In a recent profile of Jackson in The Hollywood Reporter, Jackson said, "People are only human. I've never been able to understand that."
+
+In 2005, The Washington Post reported that Jackson has received two prison sentences in the U.S., one for tax evasion and the other for filing false tax returns.
+
+Update: The Jackson family released a statement on Monday saying: "On July 28, 2015, the Los Angeles County Sheriff's Department made an error in their identification of Michael Jackson's victim. Despite an outpouring of love from the public (and some people in law enforcement), the Sheriff's department has wrongly identified this victim as Michael Jackson's mother. The family requests that the LA County Sheriff's Department correct this error at once, so the family can continue to grieve at peace."

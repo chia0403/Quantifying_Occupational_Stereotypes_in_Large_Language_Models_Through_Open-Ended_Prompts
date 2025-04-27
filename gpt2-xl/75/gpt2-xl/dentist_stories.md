@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named Charles A. Rennie. In his youth, he was a member of two World Boxing Association World Championship teams, the WBC and the WBA World champions, and even came close to defending the title in both divisions. He had also won three gold medals at the 1936 Olympic Games in Berlin. During his professional career in the States, though, Rennie had an entirely different story to tell. As well as being a three-time Olympic medalist, Rennie also had a record of 14 wins, 0 losses and 6 no contests in 42 fights. And at the age of thirty-two, his record of 17 wins 6 losses and 8 no contests was not so encouraging.
+
+At this particular point in his career, though, Rennie seemed like something of a paragon. He was six hundred pounds in his prime, and he could box like an older man. And in the last four years of his career – despite his loss of a hand – he fought like a much older man. On December 14, 1964 the British Boxing Board Of Control made an official ruling which sanctioned the bout between Rennie and Sugar Ray Leonard.
+
+And on November 3, 1965 the fight became official when promoter Dick Falk announced that his star boxer would be facing Sugar Ray Leonard in the ring. In Rennie's words, "I am really, really looking forward to it."
+
+Two weeks after that announcement

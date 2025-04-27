@@ -1,0 +1,7 @@
+Once upon a time, there was a veterinarian named Dr. John "Jack" Raskopf — but, back in the day, he was kind of a jerk who wanted to use his position to charge up huge sums for services that didn't qualify him as a veterinarian. You may remember his controversial claims of taking out "unwanted" puppies from their mothers (a total crock) and sending them off to live with people.
+
+Raskopf was sentenced to a lifetime in prison, and it was decided he should be put to hard labor at the San Quentin State Prison for the rest of his life. While a certain amount of time was to be spent eating breakfast, cleaning and doing other hard labor, Raskopf was also given a choice — if he chose to serve the prison time under his own hands, he could choose up to 15 years of supervised release.
+
+And, unfortunately, he chose to do so … literally. The Department of Corrections released Raskopf in September 2011 into the general population of San Quentin. While he was there, he began to use the internet to meet female inmates and make other arrangements to groom and service them so that he would be allowed to stay on the outside. And in October 2011, he was convicted on 18 counts of sexual assault against four women. (He pleaded guilty to 11 of the 18 counts.)
+
+According to a recent report in the New York Times, "at least 14 of those women

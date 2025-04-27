@@ -1,0 +1,7 @@
+The humid Chicago air clung to Amelia "Amy" Thorne like a second skin. She stood outside the imposing glass-and-steel skyscraper of Baxter & Associates, her crisp navy suit feeling oddly constricting in the oppressive heat. The sweltering city throbbed around her; sirens wailed in the distance, their mournful song punctuated by the occasional clang of a garbage truck.  
+
+Amy was late. Always late. She tapped her worn leather briefcase against her knee, its metal frame cool against her skin, a comforting familiarity in the chaos that was Chicago. Inside her briefcase resided not only her meticulously crafted legal briefs but also a tightly-wound knot of anxiety. This case wasn't just another corporate dispute; it was personal. 
+
+Her father, John Thorne, had been one of Baxter & Associates' most prominent partners for decades, known for his ruthless tactics and even more ruthless ambition.  Amy believed her father had been poisoned by the very people he’d built his career on. Now, after his sudden death, Amy found herself in a fight against the firm she thought she knew – a fight where truth was buried deeper than any case file and where justice might be as elusive as Chicago's fading summer sun.  
+
+As she entered the office, the scent of old money and power washed over her – coffee that smelled like burnt toast, mahogany furniture polished to an almost blinding shine, and portraits of stern-faced men in formal attire gazing down from every corner. 

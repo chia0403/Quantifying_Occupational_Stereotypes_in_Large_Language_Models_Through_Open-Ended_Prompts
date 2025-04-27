@@ -1,0 +1,5 @@
+The air hung thick with the scent of burnt sugar and desperation.  Rain lashed against the cracked windows of "Le Petit Paradis," a tiny Parisian bistro perched precariously on Rue de la Chapelle. Inside, nestled amongst chipped china and mismatched cutlery, was Antoine Moreau, his brow furrowed as he meticulously sliced the glistening skin off a grapefruit. 
+
+He ran a trembling hand through his unruly dark hair, his usually vibrant smile replaced by a mask of fatigue and worry. Le Petit Paradis was not just another bistro; it was Antoine's legacy – his father's dream, a testament to the years he spent honing his craft amidst the savory symphonies of Parisian cuisine. 
+
+But lately, even Antoine's culinary magic had faltered. The once bustling kitchen was now a lonely battlefield where only echoes of past triumphs whispered in the swirling smoke and the clatter of misplaced pans. The weekly reservations that once kept Le Petit Paradis afloat were dwindling like autumn leaves caught in a downpour. 

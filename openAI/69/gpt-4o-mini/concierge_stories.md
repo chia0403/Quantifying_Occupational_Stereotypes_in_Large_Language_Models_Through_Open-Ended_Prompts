@@ -1,0 +1,11 @@
+Title: Shadows of the Silver Crescent
+
+Setting: The Silver Crescent Hotel, a luxurious establishment nestled in the heart of downtown New Orleans. The hotel is renowned for its opulent décor, featuring elegant chandeliers, lush velvet drapes, and a grand marble staircase that spirals up to the second floor. The air is always thick with the scent of jasmine from the courtyard garden, while the distant notes of a jazz band drift from nearby streets, creating an enchanting atmosphere perfect for stories of mystery and intrigue.
+
+Opening:
+
+As the sun dipped below the horizon, casting a warm golden hue over the cobblestone streets of New Orleans, Eloise Margaret Dupree stood behind the polished mahogany front desk of the Silver Crescent Hotel. With her immaculate appearance—a tailored black blazer, crisp white blouse, and a pearl necklace that gleamed like the stars just beginning to twinkle in the dusky sky—she projected an air of unshakeable professionalism. Her dark hair was elegantly pinned back, revealing sharp cheekbones and almond-shaped eyes that sparkled with a mix of warmth and keen awareness.
+
+Eloise had been the concierge for over a decade, a respected figure known not just for her encyclopedic knowledge of the city’s hidden gems, but for her uncanny ability to sense when something was amiss. On that particularly sultry evening, an unsettling current rippled through the hotel as she prepared for the arrival of the guests attending the annual masquerade ball. A whispered rumor circulated among the staff, hinting at stolen artifacts and clandestine meetings. She couldn’t shake the feeling that, beneath the surface of the festivities, shadows lurked—waiting to reveal secrets that might change the course of the night.
+
+As she adjusted a delicate silver bracelet on her wrist, Eloise glanced at the ornate clock on the wall; its hands ticked down to the hour. The atmosphere thickened with anticipation, and she couldn’t help but wonder what mysteries the evening held, hidden beneath masks and laughter. With a practiced smile, she turned her attention to the grand lobby, ready to greet the night—and whatever it might bring.

@@ -1,0 +1,7 @@
+The scent of jasmine tea mingled with the aroma of freshly baked croissants hung thick in Amelia "Amy" Everly's compact office, doing little to mask the underlying tension that crackled like static electricity in the air. Outside, the Parisian sunshine streamed through the lace curtains, painting whimsical squares on the worn wooden floor. But Amy felt none of the joie de vivre that usually accompanied such a beautiful day. Her normally meticulously organized desk was in disarray - brochures scattered like fallen leaves, travel itineraries crumpled and tossed aside, a half-empty pot of chamomile tea growing cold beside her phone.  Her client list for today boasted nothing but cancellations, leaving Amy grappling with the existential dread of an empty schedule on what was supposed to be one of the busiest days of the year. 
+
+
+"Maybe I should have gone into accounting," she muttered to herself, absently twirling a stray strand of auburn hair around her finger.  The thought, however ridiculous, held a certain morbid appeal in the face of this sudden and unwelcome slump.  Then, the phone finally rang, jolting her back to reality. 
+
+
+"Travel Dreams Agency, Amy speaking," she said into the receiver, hoping against hope that this call wouldn't be another cancellation. But as the voice on the other end began to speak, a flicker of excitement sparked within her. "Welcome to..."  Amy trailed off, listening intently.  This was no ordinary request. This could be... something special.

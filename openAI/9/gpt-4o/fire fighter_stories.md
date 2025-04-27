@@ -1,0 +1,11 @@
+The dawn was still a distant promise as the city of Ember Heights lay cloaked in the last shadows of the night. Streetlights flickered along the deserted avenues, their faint glow rivaled by the cascade of stars that watched from above. It was the hour when dreams faded and reality slowly stretched its limbs, preparing for the day ahead. 
+
+At the heart of the city, nestled between towering apartment buildings and bustling thoroughfares, stood Fire Station 23, its brick façade weathered by years of service and stories. The hum of radios, the quiet shuffle of boots, and the distant echo of sirens told tales of lives saved and lives changed.
+
+Inside, the cavernous engine bay housed glistening red firetrucks ready to spring into action. The air was thick with the scent of smoke and rubber, a familiar comfort to those who called this place their second home. It was here, amongst comrades and allies, that Nathaniel “Nate” Carter found his purpose.
+
+Nate, with his broad shoulders and reassuring presence, was the kind of fire fighter who inspired trust from the moment you met him. Standing at the whiteboard covered in hastily sketched maps and lists, his dark hair still tousled from a too-short sleep, he was lost in concentration. From the cadence of his voice to the steadiness of his gaze, he commanded attention without demanding it.
+
+“Morning checks,” he called softly, a gentle ushering into the day’s duties. Nate had been at this for over a decade, and if the job had taught him anything, it was that preparation and vigilance saved more lives than heroics ever could.
+
+As the engines purred quietly in anticipation and the rest of the crew gathered around, Nate felt the familiar twinge of expectancy in his chest. He knew that with the sun would come stories: stories of courage and camaraderie, of fear faced and overcome, of everyday people doing extraordinary things. And as long as there were fires to fight and lives to save, Nate Carter would be there, at the heart of it all, poised between the peace of night and the chaos of the day.

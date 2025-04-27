@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The neon sign creaked in the gentle breeze as it cast its gaudy glow over the deserted streets of Ashwood. Inside the bar, where the walls were adorned with faded photographs and the air was thick with the smell of cheap perfume and stale beer, bartender Emilia "Mia" Thompson polished a mug with a dirty rag, her eyes fixed on the clock ticking away above the counter. It was closing time, but Mia knew she'd still have to deal with a few stragglers who'd wandered in for a late-night fix.
+
+Outside, the rain-soaked streets of Ashwood's downtown district seemed to stretch out like a dark and lonely ribbon, punctuated only by the occasional flicker of streetlights. It was a place where dreams came to die, and Mia had learned that the hard way. She'd grown up on these streets, the daughter of a single mom who worked two jobs just to keep food on the table. Mia had always been fascinated by the world beyond Ashwood's limits, but life had other plans.
+
+As she poured herself a glass of cheap bourbon from the bottle behind the counter, the door swung open and a young woman stumbled in, her eyes wild and her hair a tangled mess. "Hey," Mia said, with a mixture of curiosity and wariness. "What brings you out tonight?"

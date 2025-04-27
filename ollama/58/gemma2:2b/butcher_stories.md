@@ -1,0 +1,5 @@
+The air hung heavy with the scent of woodsmoke and salt pork.  A thick haze clung to the morning mist that clung to the cobblestones, barely lifting as the sun crawled hesitantly over the rooftops. The entire town of Grimsborough was shrouded in a melancholic quiet, its inhabitants clinging to the last few embers of slumber. 
+
+At his shop's entrance, perched precariously on a worn stool, sat Elias Blackwood, owner and sole butcher of Blackwood's Meat Market. A man with weathered hands that knew the texture of every cut of meat like an old friend, and eyes as deep and dark as the cuts themselves. Elias was known throughout Grimsborough for his sharp wit, even sharper tongue, and a nose for quality meat that defied comparison. 
+
+His shop, smelling of brine, blood, and sawdust, was a symphony of clattering cleavers and grinding gears; a testament to years spent perfecting the art of butchering. Every morning, Elias would greet the day with the same gruffness and stoicism, his face set in a permanent frown. But beneath the hardened exterior lay an untold history, a tale woven from dreams shattered and hearts buried under the weight of grief. 

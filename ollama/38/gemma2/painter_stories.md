@@ -1,0 +1,6 @@
+The air hung thick with the scent of linseed oil and turpentine, a familiar perfume to Elara Rosehaven that always felt like coming home. Her studio, tucked away in a rambling Victorian house on the edge of Edinburgh's cobbled Old Town, was bathed in the soft glow of late afternoon sun filtering through stained-glass windows. Dust motes danced in the golden light, illuminating canvases leaning against every wall, each a testament to Elara's restless spirit and her fascination with capturing the fleeting beauty of life.  
+
+A half-finished portrait stared back at her from an easel, its subject - a weathered woman with eyes that seemed to hold centuries of stories - frozen in mid-expression.  Elara stepped back, her hand hovering over the brush resting on a palette splattered with vibrant hues. A sense of unease settled upon her, a disquiet she couldn't shake off. The painting felt...incomplete. It lacked something, a spark that would truly bring the woman to life. 
+
+
+The clock chimed five times, its mournful toll echoing through the silent studio. Elara sighed, pushing aside the brush and turning towards the window.  The city below was beginning to stir, its vibrant energy a stark contrast to the stillness of her space. Perhaps, she thought, a change of scenery would do her good. 

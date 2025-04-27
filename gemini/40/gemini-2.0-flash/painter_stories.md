@@ -1,0 +1,5 @@
+The biting wind whipped off the North Sea, clawing at the canvas strapped to Eleanor Beatrice Ainsworth’s easel. Salt spray stung her face, beading on the thick wool of her fisherman’s sweater. She didn't mind. The discomfort was a small price to pay for this view.
+
+Eleanor stood on the blustery precipice of St. Abb's Head, a dramatic promontory in the Scottish Borders. The grey, almost black, basalt cliffs plunged hundreds of feet into the churning water below, a stark contrast to the sliver of pale sand that peeked out from a sheltered cove further down the coastline. Seabirds wheeled and shrieked overhead, their calls swallowed by the relentless roar of the waves.
+
+The small village of St. Abbs clung to the side of the headland like barnacles to a hull, a collection of squat, stone houses huddled together against the elements. Eleanor had rented a small, sparsely furnished cottage there for the month, seeking refuge from the suffocating pressures of her London life. Here, she could be anonymous, swallowed by the vastness of the landscape and the rhythm of the sea. Here, she could just paint.

@@ -1,0 +1,9 @@
+Title: **Whispers in the Fog**
+
+In the heart of the bustling city of Ashford, where the skyscrapers clawed at the low-hanging clouds and the streets teemed with the rhythm of unyielding ambition, there lay a neighborhood that time seemed to have forgotten. Narrow alleys twisted between crumbling brick facades, and the air was thick with the scent of nostalgia and diesel fumes. Here, the rain fell in silvery sheets, transforming the mundane into the extraordinary, and the fog rolled in like a secret only the brave dared to uncover.
+
+At the edge of this forgotten world stood the old Greystone Hotel, its once-pompous exterior now draped in a tattered veil of ivy and shadows. The flickering neon sign that read "Vacancy" buzzed intermittently, casting erratic glows on the soaked pavement. This was where Eleanor Mae Hawthorne, investigative reporter for the Ashford Evening Chronicle, had set up her temporary headquarters. 
+
+Eleanor, with her copper-red hair pulled back into a loose bun and her ever-present notepad nestled beneath her arm, had a reputation for diving headfirst into the stories that others deemed too dangerous or too dark. The thrum of an old typewriter echoed in her mind as she stood under the sparse light of a streetlamp, eyes scanning the fog-shrouded streets for any sign of her informant. She knew that the deeper she delved into the whisperings of the city, the more tangled her path would become, but the thrill of discovery pulled her forward like a siren's call.
+
+Tonight, she was on the scent of a story that spoke of succumbing to the city's ghosts—a series of unsolved disappearances linked to the hotel's sordid history. As she tucked an errant strand of hair behind her ear, she felt the weight of her notepad like a talisman against the shadows, and she whispered a silent promise to herself: she would not leave the truth buried in the fog.

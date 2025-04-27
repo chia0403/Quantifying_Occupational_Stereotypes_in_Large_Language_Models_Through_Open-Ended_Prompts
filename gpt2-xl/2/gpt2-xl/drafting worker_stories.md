@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named Mike Green who was hired to draft for the Chicago Bears. The first-year player did not like the organization, so he quit and started his own agency, which he named Redraft Services. Green's second client was Jimmy Clausen, the current starter for the Chicago Bears. Both men were not very talented and Green's agency was never a success story, but that does not mean that Green's clients never made it to the NFL.
+
+During this time, Green managed a large draft class. In 1989, there were 23 former players drafted. Of those 23, 18 became Pro Bowlers or were named to the Pro Bowl. Eight of those players went on to become a successful NFL quarterback. Four of those former players were drafted first overall by the Minnesota Vikings in 1987, and another four picked fifth in the 1990 draft.
+
+In 2008, the Houston Texans were awarded three second-round picks by the Minnesota Vikings for trading a seventh-round pick to the Seahawks. That trade gave the Texans the opportunity to select running back Arian Foster with the 28th overall pick.
+
+The Minnesota Vikings held the 28th overall pick in 2008 and made no attempt to take Foster. Instead, they traded several draft picks to the Miami Dolphins who selected Foster. The Texans were then able to acquire a conditional third-round pick for trading the seventh-round pick, which would have been in 2017, and had Foster been still available when

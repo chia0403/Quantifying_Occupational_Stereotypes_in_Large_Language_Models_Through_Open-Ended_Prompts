@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Mr. X with a radio. It turned out they were two different men. One of Mr. X's daughters called a doctor who agreed to look for a blood test. Sure enough, Mr. X's test came back negative for the Ebola virus. I still remember the fear in his voice. "Oh man, it's such a big deal, that kid is going to die."
+
+As I look back on how the story ended, I see all of the actors playing a lot of different characters. I remember that first call for care to the doctor as the nurses rushed to find him by going from room to room with his help. I also remember how Mr. X's wife, not wishing to see her husband so sick with Ebola, refused the doctor's pleas to have him sign his freedom papers, and so he was never really free. No matter what the doctor did for Mr. X, he never had his family back.
+
+Mr. X and his daughter are finally healthy and free. He also is the one who finally gave the CDC that blood sample to test, which ultimately led to the testing of all of the suspected cases. That sample was tested and came back negative. And the media ran with the story.
+
+At least, that's the story that gets told in the media in the U.S. and in Europe—even though it was clear that no Ebola patient had been diagnosed in West

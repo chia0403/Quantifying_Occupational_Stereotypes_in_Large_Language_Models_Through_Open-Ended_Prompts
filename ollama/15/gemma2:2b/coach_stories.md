@@ -1,0 +1,7 @@
+Rain lashed against the corrugated roof of the makeshift locker room, mimicking the frantic drumming in Evelyn "Evie" Thorne's chest.  The weight of the championship trophy felt heavier than usual as she stood beside a group of terrified teenagers. A banner hung crookedly from one wall, proclaiming “Golden Eagles.” 
+
+Outside, thunder roared like an injured beast. Inside, the silence felt thick and suffocating. Evie glanced at the scoreboard – their own team's name burned red on the battered wood, followed by the number "0" in a stark contrast to the opposing team’s 14-point lead.  It had been one of those days. A day where the wind seemed to mock their every move, and the sky refused to cooperate with their dreams. It was a day that felt like a broken record playing the same sad melody – "we were supposed to win."
+
+Evie, her weathered face etched with years of coaching, smoothed down her daughter's jersey. Her own voice sounded choked as she addressed the boys. "I know it feels hopeless," she began, her gaze sweeping across their faces, each one a mirror reflecting fear and disappointment.  "But that score is just a number. It doesn't define our future. We have to believe."
+
+The tension was palpable in the air, heavy like a shroud. The storm outside had mirrored the turmoil within – a storm about to break into a full-blown hurricane, ready to tear down everything they’d built. 

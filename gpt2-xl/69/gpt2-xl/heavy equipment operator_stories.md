@@ -1,0 +1,7 @@
+Once upon a time, there was a heavy equipment operator named Doug, who used a lot of words. At the very end of a two-hour shift, he was asked to take a break while everyone else worked with the heavy equipment. When he reached the back of the room, there was only one person in front of him. Doug was amazed to discover that he was completely alone. He could hear people talking around him a foot or two from his ears, but he couldn't hear himself. His hearing had been surgically enhanced by a strange "transmuter."
+
+The technology came from a mysterious group from out of state. They were calling themselves the "Virgins," and they were looking for a woman they called "The One Who Is No One." Their target was a woman named Lisa.
+
+Doug's employer sent him to work on a high rise building in San Diego just out of town. It was the tallest building west of New York and, in his words, was like a small town with "the normal people running everything." In this city, people were living in a different world. The top brass at this company was a young lady called Lisa—a world-class athlete, a businesswoman, and the one who was never mentioned by the Virgins.
+
+There was a high rise apartment building a 15 minute walk from the building where Doug would later work. In the building's garage, there was a box of old bicycles. One of these

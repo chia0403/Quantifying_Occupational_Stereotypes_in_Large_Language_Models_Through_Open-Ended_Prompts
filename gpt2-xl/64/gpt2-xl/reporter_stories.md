@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Paul Gionet at the Chicago Sun-Times, a paper I once edited who was covering the Chicago Police Department's Rampart division in the late '80s and early '90s, a time when that kind of thing was being tried. I talked to Paul about the story on the "Battleground" podcast, and a couple of years ago I gave the talk I told him to a group that included Peter D'Amato, an investigative reporter on the Sun-Times and author of "Chicago Underworld: Police, Gangs, Drugs, Murder."
+
+He's also a great and sympathetic interviewer. Here's what Gionet told me.
+
+In April 1992, three teenage boys were picked up by the Chicago Police Department, charged with "gang affiliation" for firing two guns. They would be prosecuted for gun possession in separate trials, and a few weeks after their arrests — after being treated as suspects — they were dropped of the gang block and taken to Mount Sinai Hospital for evaluation to determine if they were mentally ill. What happened next, according to sources with knowledge of the police investigations, was stunning. They were beaten, threatened with sexual assault and raped in the police locker room, then taken to the hospital.
+
+Gionet's information was not in dispute. But D'Amato made the point that it wasn't the media's job to report this, but to bring this stuff to light.

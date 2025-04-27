@@ -1,0 +1,9 @@
+## The House at Willow Creek
+
+**Setting:** 1970s rural Iowa - A sleepy, sprawling farm town known for its rolling cornfields and friendly residents. Nestled within the heart of it all sits Willow Creek Estate, a grand Victorian home with peeling paint and overgrown ivy that whispers of forgotten secrets.  
+
+**Character:** Elias "Eli" Thorne – A sharp-witted real estate agent in his late 30s with a love for restoring vintage homes and a talent for spotting hidden charm within the mundane. He navigates the world with an air of understated confidence, a faded baseball cap perched on his head, and a worn leather satchel slung across his shoulder, filled with pens, brochures, and a stack of handwritten notes that hold the stories of every property he handles.
+
+**Opening:** "Another Tuesday, another listing," Eli muttered to himself, flipping open the weathered brochure depicting a sprawling farmhouse, its windows gazing out over a lush green lawn. It wasn’t exactly his cup of tea – this wasn't the sleek modern condos and loft apartments that drew in the younger crowd – but he had a knack for finding stories hidden beneath the layers of time and neglect. He knew these old houses held secrets - whispers of past lives, forgotten dreams, and unspoken heartache. And Eli always felt compelled to uncover them, one weathered floorboard at a time.
+
+Today's assignment was Willow Creek Estate, a sprawling Victorian mansion with an air of both grandeur and melancholy. It sat on the edge of town, shrouded in an unnatural silence that seemed to hum with forgotten stories.  Eli had already received a barrage of calls from locals, each one more intrigued than horrified by the estate’s dilapidated beauty. Some whispered about hauntings, others spoke of hidden fortunes. Eli just saw a challenge, a chance to unravel the mysteries hidden within these weathered walls and bring them back to life. 

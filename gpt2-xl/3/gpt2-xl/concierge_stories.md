@@ -1,0 +1,7 @@
+Once upon a time, there was a concierge named Jack.
+At a fancy banquet in a posh hotel, the two men were sharing a drink and Jack was having trouble. He wasn't sure the restaurant was open for the evening (the check-in counter had been moved). He had forgotten his reservation and had to make an early start.
+"I need a hand with…uh…something," began Jack over a loud table conversation of someone else who had not overheard Jack's awkward attempt at asking his reservation time. "I just saw some other people leaving, and…uh…I guess it's okay if I just walk away."
+As Jack stepped back from the other tables (perhaps the one he was supposed to have been on earlier had moved, or perhaps the others had noticed him walking by and decided to move a table closer), he caught a glimpse of someone walking towards them from behind.
+Jack recognized the face as the mysterious man who had made a similar walk-by earlier in the evening when he'd asked Jack's reservation time. The man was familiar yet completely out of place. Jack hadn't seen anyone like him in quite a while.
+Jack knew that was the way it was supposed to go. Jack, the shy and quiet man in the back, to have to start at the top; when the tables were pushed, he had to begin with the most comfortable one around.
+"It-it's okay," Jack said, pulling back.

@@ -1,0 +1,5 @@
+The air hung thick with the scent of stale cigar smoke and forgotten dreams in the Grand Belvedere Hotel's lobby.  Dust motes danced in the shafts of sunlight filtering through the stained-glass windows, illuminating the faded grandeur of the once opulent space. The marble floors were scratched and worn, the plush velvet armchairs sagged under the weight of countless late nights and whispered secrets.
+
+At the foot of the grand staircase, Theodore "Teddy" Bellweather stood poised, his name tag a beacon of normalcy amidst the air of decay. He was a sturdy young man with freckled cheeks and perpetually worried eyes, forever scanning the entrance for arrivals or departures. His uniform, once crisp and clean, bore the faintest hints of wear and tear, like the hotel itself. 
+
+Teddy had been a bellhop at the Grand Belvedere since he was sixteen, his life a steady rhythm of carrying luggage, answering phones, and witnessing the parade of humanity passing through its doors. He longed for something more, a flicker of excitement in the monotonous routine, but the Grand Belvedere held him captive, like a moth drawn to a dying flame. 

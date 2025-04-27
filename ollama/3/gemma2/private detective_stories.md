@@ -1,0 +1,6 @@
+Rain lashed against the grimy windows of Silas Blackwood's office, mimicking the relentless pounding in his head. He rubbed his temples, trying to quell the dull ache that had become a permanent fixture since he’d traded the stability of a corporate job for the uncertain chaos of being a private investigator. His office, tucked away on the fifth floor of a forgotten building overlooking the bustling port city of Novahaven, was as dreary and cluttered as the detective himself. 
+
+Dust motes danced in the weak light filtering through the grimy blinds, illuminating stacks of file folders threatening to topple over, half-empty coffee mugs, and a chessboard frozen mid-game. The faint scent of stale cigarette smoke hung in the air, a testament to his recent sleepless nights. Silas Blackwood, hardened by years of navigating the city's underbelly, felt the weight of another case settle onto his already burdened shoulders. This one promised to be different. 
+
+
+The woman sitting across from him, her face pale and drawn, clutched a worn photograph in her trembling hand. Her eyes, filled with a mixture of desperation and defiance, met Silas’s gaze, a silent plea for help echoing in their depths. 

@@ -1,0 +1,5 @@
+The rhythmic rasp of the nail file was Amelia's soundtrack. A gentle whirring from the electric buffer filled the quiet air as she shaped the almond-shaped nails to perfection. Every day at 'Pretty Hands' was an act of creation, a chance to build not just hands but stories through meticulous detail and vibrant polish. 
+
+The salon itself was a small haven, nestled between a bustling bakery and a vintage clothing store. The walls were lined with soft, lavender wallpaper that softened the harsh edges of the city outside, while warm yellow bulbs cast a comforting glow on the leather chairs. Each table was draped in fresh linens, each one smelling faintly of coconut after a burst of citrus-infused hand lotion. 
+
+Amelia, her name a delicate melody echoing off the polished surfaces, was more than just a manicurist – she was an artist. Today, though, the usual vibrant hues of coral and turquoise seemed muted compared to the melancholic grey sky mirroring the storm brewing inside her heart.  The city felt like it was holding its breath, and Amelia knew that the weight of unspoken words was about to shatter the calm facade of 'Pretty Hands'. 

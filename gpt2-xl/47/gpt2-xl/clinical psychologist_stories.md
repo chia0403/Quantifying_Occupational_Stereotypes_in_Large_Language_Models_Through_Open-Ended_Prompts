@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Albert Ellis. He was a believer in "behavioralism," which put all sorts of emphasis on a particular kind of thinking — that of the subject in question. For example, by thinking about how we think of the world, how we construct it, and who we think we are, we are able to analyze the behavior of people in ways we could never do if we ignored them. When Albert Ellis was looking at patients with depression, he concluded that they were, at bottom, merely a bunch of mentally defective individuals who couldn't help themselves so they'd take medication and try to go back to the way things used to be — i.e., not think at all! They were completely unable to "put in effort."
+
+I'm no psychiatrist, but the description fits well enough.
+
+It's tempting in an era of scientific progress to think that if we could just get the thinking out of our heads, make the world a safer place to live in, and maybe even cure cancer, that our problems will fall away to meet our desires. "We are sick!" "We need someone else with a cure for cancer!" But at the end of the day, if we put the thinking back in our heads, our problems will arise. We will still not be able to help ourselves unless we figure out how to find help for ourselves.
+
+One of the reasons people think we can just "get over" our problems

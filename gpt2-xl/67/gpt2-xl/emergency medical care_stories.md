@@ -1,0 +1,7 @@
+Once upon a time, there was a emergency medical care named the Emergency Medical Services Network. (It has since been renamed the Public Safety Emergency Communications System.) In response to the 9-11 attacks, and the subsequent wars, the federal government built out this network to provide reliable on-base clinics.
+
+I didn't realize that the network was in fact built by the military, until I discovered that that's how most military installations operate. In the Army, ERs are provided by a number of different components. When I got out of school, I joined the Army Reserves, but was a civilian reserve for medical purposes while in the Army for years. Once I did transition back to active duty in 2011, I decided we needed to know more about how our military emergency services like this hospital.
+
+One of the first things I discovered was that ERs are in fact controlled by various agencies in the U.S. Department of Defense. In 2010, this was made public in a report by the Pentagon's Inspector General. Under the Health Services for the Defense Personnel Community program, military hospitals were actually receiving millions of dollars in military paychecks. I didn't find this out until later in my life when I was reading about the Air Force's "Medical Response Team" for more information about those hospitals.
+
+For whatever reason, the hospital ERs in which I worked were also part of the larger system for military facilities. These facilities weren't part of the health services (they

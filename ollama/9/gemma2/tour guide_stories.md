@@ -1,0 +1,8 @@
+The humid air hung thick with the scent of jasmine and dust as Esmeralda "Esme" Flores adjusted her straw hat.  She squinted at the sun, already blazing fiercely over the terracotta rooftops of Old San Juan, Puerto Rico. Her linen dress clung to her like a second skin, and beads of sweat trickled down her temples despite the shade offered by the ancient Spanish colonial walls that cradled the cobblestone streets. 
+
+Esme took a deep breath, savoring the familiar symphony of sounds: the rhythmic click-clack of sandals on stone, the distant rumble of a passing truck, the melodic chatter of tourists in various languages. A smile tugged at her lips.  This was where she belonged, weaving tales of pirates and conquistadors through these sun-drenched alleys, sharing the heart and soul of Puerto Rico with each eager visitor.  
+
+Today’s group, however, seemed a little different. There were too many wide eyes and hushed whispers, a nervous energy that crackled in the air. They had arrived on the ferry just moments ago, a gaggle of American college students, their backpacks bulging with guidebooks and cameras. Esme watched them nervously adjust their sunglasses and hats, clearly out of their element amidst the vibrant chaos of Old San Juan.  She knew she needed to quickly win them over, to transport them from wide-eyed tourists to captivated explorers. 
+
+
+"Alright everyone," Esme called out, her voice warm and welcoming, "Welcome to Old San Juan! I'm Esme, your guide for this adventure." She gestured grandly at the ancient walls. "Prepare yourselves, because you're about to step back in time!"

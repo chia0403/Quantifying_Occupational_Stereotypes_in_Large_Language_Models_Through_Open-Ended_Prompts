@@ -1,0 +1,7 @@
+Once upon a time, there was a author named C.S. Lewis. Well if you're an English-speaker you will know what I'm talking about. The man is a big boy. He writes really well. Now let's face it, his books are about as far from the truth as can be made and then some, you know. For example, Lewis himself wrote that it took him more than thirty years to figure out why he was angry when he was writing his books, and most non-speakers will say that when, indeed, it is actually more like five hundred years, according to the Oxford English Dictionary. When he was first writing his books, those people who took Lewis' word for it thought that he was crazy, and at least twenty of his books have been banned! And that's just in the twentieth century, in this century...
+
+CAT: Is there a book that you feel, in the book, that you felt like you could tell us more about?
+
+DR. MARTIN: [LAUGHS] Well, I would love to talk to anyone who's ever taken a ride on a dragon and then tried to think what a dragon feels like in the back seat. Is that what you really think, a dragon is a horrible thing. No, it's not really, but it's something, and now you have it!
+
+CAT: What's so great about dragons? I guess for anyone who's

@@ -1,0 +1,5 @@
+The air hung thick with the scent of lavender and beeswax in Thaddeus Finchley's workshop. Sunlight, filtered through dusty panes, illuminated motes dancing in the stillness. Outside, London buzzed with its usual cacophony, but within these walls, time seemed to move slower, measured by the rhythmic snip of shears and the soft rustle of silk. Thaddeus, a man whose hands moved with the grace of a conductor leading an orchestra, meticulously stitched a crimson velvet waistcoat, his brow furrowed in concentration.  
+
+Thaddeus Finchley wasn't just any tailor; he was renowned for crafting garments that whispered elegance, draped like dreams on the bodies of London's elite. But today, his focus wasn't on some lord's vanity or a duchess's debutante gown. Today, a different kind of urgency pulsed beneath his fingertips, a whisper of danger woven into every stitch. He was working on something far more personal – a cloak, imbued with magic and secrets, destined for someone who walked the shadowy edges of the city. 
+
+

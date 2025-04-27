@@ -1,0 +1,5 @@
+In the quiet town of Willow Creek, where the whispering pines stood sentry along the edge of the horizon, Dylan Hartley began his days atop the roofs of aging Victorian homes. The morning sun crept over the emerald hills, casting long shadows that danced with the gentle rustle of leaves. Each dawn brought with it the scent of dew-kissed grass and the promise of meticulous work — a routine Dylan had come to embrace like a second skin.
+
+Dylan, a man with sun-etched lines of experience across his face and calloused hands that spoke of years spent in labor, found solace in this elevated solitude. The rooftops offered a unique perspective of Willow Creek — a patchwork of golden fields, meandering streams, and the distant, mist-shrouded peaks of the Silver Ridge Mountains.
+
+The clatter of tools and the harmonious symphony of nature were the soundtrack to Dylan’s life. Here, above the hustle and beneath the boundless sky, he carved out his living one shingle at a time, with a heart tethered to the simplicity and tangible satisfaction of his craft.

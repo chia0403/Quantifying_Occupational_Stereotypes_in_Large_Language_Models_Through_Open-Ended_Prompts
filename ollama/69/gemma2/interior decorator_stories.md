@@ -1,0 +1,6 @@
+The air hung thick with the scent of jasmine and old leather in Eloise Beatrice Finch's workshop, a converted carriage house nestled behind a rambling Victorian on a leafy street in Brooklyn Heights. Sunlight streamed through dusty skylights, illuminating shelves overflowing with swatches of silk, bolts of vintage lace, and stacks of worn design journals. Eloise, perched precariously on a stool while meticulously stitching together a velvet cushion, hummed along to the bluesy jazz crackling from a hidden speaker. 
+
+Her latest project was proving to be a challenge: transforming the stark, modernist penthouse of a reclusive tech mogul into a space that felt both welcoming and sophisticated.  He'd given her free reign, but his requests were vague at best – "something with warmth," "a touch of whimsy," "but not too fussy." Eloise sighed, pinching the bridge of her nose. 
+
+
+"Warmth...whimsy..." she muttered to herself, running a finger along a particularly vibrant tapestry depicting a fantastical unicorn galloping through a field of sunflowers. Perhaps this was the direction she should take. But as she gazed at the sprawling cityscape visible from the penthouse's floor-to-ceiling windows, a spark of inspiration ignited in her eyes. The city itself, with its gritty energy and quiet beauty, held a story waiting to be told.  

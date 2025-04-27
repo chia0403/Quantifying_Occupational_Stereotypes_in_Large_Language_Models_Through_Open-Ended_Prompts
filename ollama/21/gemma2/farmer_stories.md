@@ -1,0 +1,6 @@
+The sun hadn't even thought about rising over the sprawling cornfields yet when Caleb Jeremiah Hawthorne nudged his battered pickup truck to life. The air was crisp with the promise of autumn, carrying the scent of damp earth and decaying leaves. A thin veil of mist clung to the ground, blurring the edges of the horizon and giving the world an otherworldly feel.  
+
+Caleb squinted through the windshield, adjusting his faded baseball cap. His weathered hands gripped the steering wheel, calloused from years of wrestling with unruly vines and stubborn tractors. The farm, a legacy passed down through generations of Hawthornes, was his lifeblood, every furrow and withered stalk telling a story of sweat, sacrifice, and resilience. But lately, the stories seemed to be shifting, whispers of change rustling through the golden stalks like autumn winds. 
+
+
+Caleb’s family had always farmed these fields, but a creeping sense of uncertainty lingered in the air. The younger generation wasn't interested in the land anymore; they dreamt of city lights and concrete jungles. His own son, Thomas, was heading off to college soon, leaving Caleb wondering who would eventually inherit this patch of earth that held so much of his soul. 

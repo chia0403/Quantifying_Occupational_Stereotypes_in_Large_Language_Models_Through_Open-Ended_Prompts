@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting featuring a drafting worker named Amelia Corvus Thorne:
+
+**Setting:**
+
+The year is 1938. The place is a bustling, soot-stained Pittsburgh, Pennsylvania. The city's skyline is dominated by the hulking silhouettes of steel mills, their fiery breath illuminating the night sky. The air hangs thick with the scent of coal smoke, iron ore, and the ever-present promise of progress – and peril. Amelia works at the **Pittsburgh Steel & Construction Company**, a sprawling, labyrinthine building that hums with the energy of hundreds of workers, all contributing to the city's insatiable demand for steel. Her drafting room, tucked away on the third floor, is a cramped space filled with the scent of oiled paper, sharp pencils, and the lingering aroma of strong coffee. Sunlight, when it manages to pierce the smog, streams in through large, grimy windows, illuminating the meticulously arranged tools on her drafting table. Rows of blueprints, sketches, and technical manuals line the walls, a testament to the sheer volume of work that flows through this crucial hub of design.
+
+**Opening:**
+
+Amelia Corvus Thorne tapped her pencil against the edge of the blueprint, the rhythmic *thunk* a counterpoint to the cacophony echoing from the steel mills below. It was almost midnight, and the already meager light of the room flickered, threatening to plunge her into complete darkness. A persistent headache throbbed behind her eyes, a familiar companion on these late nights. She stared at the intricate network of lines before her – the proposed design for a new bridge spanning the Monongahela River. The specifications were demanding, the tolerances unforgiving. One misplaced decimal point, one miscalculated angle, and the whole thing could crumble into the river like a house of cards.
+
+She took a long swig of the lukewarm coffee in her chipped mug, the bitter liquid doing little to alleviate the fatigue that clung to her like the city's smog. Damn Mr. Abernathy and his last-minute revisions. Damn the unyielding schedule. And damn the fact that, even after hours of meticulous work, she was still just a cog in the machine, her name buried deep within the fine print of the final plans.

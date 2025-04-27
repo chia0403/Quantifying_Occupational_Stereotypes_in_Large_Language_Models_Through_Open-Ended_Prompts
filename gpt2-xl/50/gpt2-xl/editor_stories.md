@@ -1,0 +1,7 @@
+Once upon a time, there was a editor named Bill Prady, and he liked to put ads in magazines. He was very active, and he liked to tell stories. He loved to write, and he had great stories. Bill would get his stories published in The New Yorker, and the magazines wanted to have the most innovative advertising. He invented these commercials that really got to the heart of what was possible. To him they were beautiful and brilliant. This was a guy who really had the courage to not put any limitations on himself. He was very creative.
+
+Advertisement
+
+There were the usual elements of the advertising man in Bill: a great idea, great story, and great ads. But then he was also a man of great generosity, and the best thing he ever did for me was open up his apartment at the Plaza Hotel and offer to let me take photos at 1 o'clock every Friday. That way when we traveled to Europe, I could spend my time with Bill at a different apartment, and his girlfriend would take care of me. It was terrific. I stayed at Bill's every week.
+
+He told stories as well. I remember once he was talking about the time he went to India, and he'd seen an enormous Buddha that wasn't even full of footprints. People were writing down all these things it was saying. That kind of inspired him on a very personal level. He also would say some of his stories were based on things that he had

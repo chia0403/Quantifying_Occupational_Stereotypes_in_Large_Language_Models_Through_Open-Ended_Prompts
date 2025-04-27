@@ -1,0 +1,7 @@
+Once upon a time, there was a coach named Steve Spurrier (from Florida) who had a lot of success in the SEC. He was a very successful college football coach. On a national level, he had great success. Unfortunately, when Steve Spurrier left the University of Florida, when he was leaving for the University of South Carolina, he went to the school, not the other way around. He went to the University of South Carolina instead of going to Florida. And he went through four years of very little success.
+
+What did Steve Spurrier bring to South Carolina that he didn't bring to the University of Florida?
+
+He didn't have great success when he was there because Florida had a lot of problems off the field because of a coaching change. He came in from the University of Florida and got a lot of support from a lot of people in the state of South Carolina, and he was the first big name out of the gate to run a program in Columbia, with a pretty little budget and an amazing academic reputation, and they've done a great job ever since.
+
+Now, with Steve Spurrier, we have seen a lot of success. Just a few years ago we had the best football team we've had in a very, very long time. We went 4-8, but we did it against top-10 teams and it didn't make one of those teams lose its home games, which is important for a program this size. Steve Spur

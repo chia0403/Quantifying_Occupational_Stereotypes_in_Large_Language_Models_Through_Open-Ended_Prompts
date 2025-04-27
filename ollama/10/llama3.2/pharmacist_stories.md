@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the small town of Willow Creek, Indiana, pharmacy owner Emily Mae Jenkins locked up her shop for the night, the soft click of the door's lock echoing through the quiet streets. The neon sign above the entrance, which read "Emily's Medicines" in bold letters, cast a warm glow onto the deserted sidewalk.
+
+Inside, the rows of neatly organized shelves and the familiar scent of medications wafted from the refrigerators, a comforting reminder that Emily was home. She lived above the store, in a cozy apartment with a view of the surrounding woods, which whispered secrets to her in the wind.
+
+At 32 years old, Emily had built a reputation as one of Willow Creek's most compassionate pharmacists. With her kind smile and extensive knowledge of medications, she was often the go-to doctor for local residents seeking advice on everything from allergies to antibiotics. Her dedication to the community had earned her numerous awards and accolades, including the coveted "Pharmacist of the Year" award from the Indiana State Board of Pharmacy.
+
+As Emily began her preparations for the next day's rounds, a sense of satisfaction settled over her. She loved being a pharmacist – there was something special about helping people feel better, one prescription at a time. But tonight, as she stood alone in her shop, surrounded by the quiet and the darkness, Emily couldn't shake the feeling that something was off.

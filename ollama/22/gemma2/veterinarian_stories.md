@@ -1,0 +1,6 @@
+The biting wind whipped across Dr. Eleanor Amelia Finch’s face as she trudged through the snow towards Willow Creek Animal Clinic.  The December air hung heavy with the scent of pine needles and woodsmoke, a stark contrast to the sterile, vaguely floral smell that usually permeated her clinic. It was Christmas Eve, and while most of the town had retreated into their warm homes, Eleanor was on duty, tending to the furry residents who couldn't afford holiday cheer. 
+
+Willow Creek, nestled in the foothills of the Appalachian Mountains, wasn’t known for its bustling nightlife. Even on a normal night, the clinic felt isolated, a cozy brick building huddled amongst towering pines and frosted fields. But tonight, with snow accumulating steadily and the power flickering ominously overhead, it felt truly remote, like a beacon of warmth in an otherwise frigid world. 
+
+
+Eleanor pushed open the heavy wooden door, relieved to be greeted by the familiar yellow glow of the waiting room.  A lone lamp cast long shadows on the worn armchairs and scattered toys, creating an eerie tableau that made her shiver despite the warmth radiating from the fireplace. A muffled meow emanated from the back, reminding Eleanor she wasn't alone. 

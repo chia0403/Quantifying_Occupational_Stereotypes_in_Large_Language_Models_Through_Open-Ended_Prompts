@@ -1,0 +1,5 @@
+The air in Mrs. Eleanor Bellweather's kindergarten classroom hung thick with crayon shavings, the remnants of Tuesday's "Rainbow Mural" project.  Sunlight streamed through the windows, painting stripes of yellow across the worn linoleum floor. The usual chaos of a pre-lunch frenzy was still brewing – a symphony of excited chatter, muffled squeaks from oversized stuffed animals, and a constant stream of questions about when the school bus would arrive. 
+
+Mrs. Bellweather, her silver hair pulled back in a neat bun and her glasses perched on the bridge of her nose, sighed contentedly as she watched the little humans scamper around like a pack of fluffy woodland creatures unleashed.  Her hands, creased with age but nimble with years of practice, were deftly smoothing down a rogue strand of blonde hair that escaped from Amelia, the class's star student who was currently lost in her own world of pretend. 
+
+It was moments like these, she mused, that made her job as much about nurturing life’s tiny sparks as it was about teaching the alphabet and how to hold a pencil correctly. 

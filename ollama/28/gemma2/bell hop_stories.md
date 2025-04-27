@@ -1,0 +1,6 @@
+The Grand Magnolia Hotel shimmered under the humid August sun. Its white façade, once pristine, now bore the etchings of time –  faded gold trim around the arched doorways and the faint outline of where a gargoyle's wing had succumbed to decades of relentless weather. The air hung thick with the scent of magnolia blossoms and forgotten dreams, a perfume peculiar to grand old hotels clinging desperately to their past glories.
+
+Within its echoing halls, amidst polished mahogany and threadbare carpets, worked Thaddeus “Tad” Winthrop Bellweather III, bellhop extraordinaire. Tad wasn’t born into the life of service; his aristocratic lineage whispered tales of ancestral wealth and sprawling estates in more prosperous eras. But fate, it seemed, had other plans. A series of unfortunate events – a disastrous inheritance dispute, a gambling scandal involving a prized poodle named Duchess – had landed him here, amongst the forgotten luggage and hushed whispers of long-stay residents. 
+
+
+Tad carried himself with a stoic air, his once neatly pressed uniform now bearing the faint stains of spilled cocktails and hurried journeys between rooms. His eyes, however, held a spark – a flicker of longing for something more, a yearning to escape the confines of the Grand Magnolia’s gilded cage.  

@@ -1,0 +1,7 @@
+The pungent smell of disinfectant hung heavy in the air, mingling with the sweet scent of antiseptic and something vaguely metallic. Rain lashed against the windows of Pine Creek Veterinary Clinic, blurring the landscape outside into an impressionist painting of greens and greys. Inside, Amelia "Amy" Grace Carter hurried between exam rooms, her stethoscope dangling around her neck like a pendulum. Her auburn hair, usually pulled back in a neat bun, was escaping its confines, strands framing a face etched with fatigue but still radiating warmth.
+
+Pine Creek was a small town nestled deep within the Appalachian Mountains, where life moved at the pace of a lazy river and everyone knew each other's business.  Amy had grown up here, knowing every winding road and hidden meadow like the back of her hand. After graduating from veterinary school in the city, she'd returned to run her family’s practice, drawn back by the familiar comfort and the unspoken pact with the animals who trusted her care. But lately, something felt different. 
+
+A storm was brewing, not just outside, but within Pine Creek itself. The whispers started subtly – a missing dog, an injured deer behaving strangely, then escalating to livestock falling ill without explanation. Amy knew she couldn't dismiss these occurrences as mere coincidence. A deeper unease settled over her, whispering that something sinister lurked beneath the surface of their peaceful town.
+
+

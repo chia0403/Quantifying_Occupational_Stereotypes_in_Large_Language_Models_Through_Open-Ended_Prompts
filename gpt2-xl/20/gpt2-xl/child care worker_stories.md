@@ -1,0 +1,7 @@
+Once upon a time, there was a child care worker named Sally. Sally was a sweet and kind-hearted woman who had two kids of her own and had worked in child care for years, but her husband was the boss. When the babysitting ran way low, Sally was no longer able to pay her mortgage, and when they were faced with the real possibility of losing the house Sally and her kids—one of whom was autistic—were forced into retirement. Sally was devastated, and we all were, too. The hardest part, she said, was not only that she no longer knew her children's names, but knowing that she'd left them alone for nearly an hour, in case someone didn't notice.
+
+Sally had a bad feeling. Was she imagining it? Or was there something out there where she was in trouble? Maybe a child molester was on the loose. Maybe one of her kids, the one on the autism spectrum, was in danger. Sally needed reassurance, to know the children were OK, to know the babysitting business was safe, and to be able to keep her jobs and her life in the family business intact.
+
+Then, one day, Sally did something very unexpected. She called the local child protection division to report a suspected child endangerment.
+
+In hindsight it was probably as well, as the division would decide that it would be a good idea not to take the threat seriously – the division, Sally recalled, had been

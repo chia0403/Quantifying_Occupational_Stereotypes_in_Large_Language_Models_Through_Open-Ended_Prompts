@@ -1,0 +1,7 @@
+Once upon a time, there was a cosmetologist named George Dantzig who was quite famous for his fine beauty salon. Now, she's also a supermodel after starting her career in the 1980s and later becoming a regular on the cover of US Vogue. That's right, it was a supermodel whose first image came out of a US magazine.
+
+The article was titled "Why Supermodels Age Easily", and was written by fashion photographer Ron Fricke, who shot the models for more than a decade. At the time, Dantzig was just 26 years old (she's now 38) and considered the next big thing while the model was just 22 years old. The article explained a little about Dantzig's beauty routine: "She gets a deep facial, then an eyebrow filler and lashes done. Then she puts on mascara and eyeliner and she's done."
+
+For a while, we thought the best possible answer to Dantzig's dilemma would be some kind of cosmetic procedure. We didn't realize, though, that we were just getting ahead of ourselves. The model isn't an outlier in the profession—like most of us who grew up in the 80s, Dantzig's first exposure to glamour came from Cosmopolitan, probably her most prized publication.
+
+Dantzig's modeling career started in the late '70s. At age 16, she had her first photoshoot in a French beauty magazine

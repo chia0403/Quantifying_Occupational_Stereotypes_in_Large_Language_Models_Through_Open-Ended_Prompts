@@ -1,0 +1,11 @@
+## Story Opening:
+
+The first shard of granite sang its protest under Silas Bartholomew's chisel, a high, keening note swallowed by the rumble of the ever-present wind. Silas didn't flinch. He'd heard this song a thousand times, each piece of stone possessing its own unique lament, its own resistance to becoming something other than what it was. Today, the granite was particularly stubborn, a mottled grey and black beast pulled from the heart of the Whispering Peaks just yesterday. He glanced up at the looming range, its jagged teeth perpetually shrouded in mist, and felt a familiar prickle of unease. The Peaks held secrets, and they didn't surrender their stone easily.
+
+He spat on his calloused hands, tightened his grip on the chisel, and struck again. The granite grudgingly yielded another sliver, the sharp dust stinging his eyes. Silas Bartholomew was a patient man, a trait honed over thirty years of coaxing forms from stubborn rock. But today, even his legendary patience felt thin, worn down by the chill that clung to the air and the unsettling whispers he'd heard carried on the wind. Whispers that sounded suspiciously like his name.
+
+## Setting:
+
+Silas' workshop, a cramped and perpetually dusty affair, perched on the edge of the village of Stonehaven. It was more of a lean-to than a building, cobbled together from mismatched timbers and roofed with slabs of slate, scavenged from failed projects. One side was open to the elements, offering a breathtaking (and often terrifying) view of the Whispering Peaks that dominated the landscape.
+
+Inside, the air was thick with the scent of stone dust, sweat, and linseed oil. Tools hung haphazardly from the walls – hammers, chisels of varying sizes, rasps, and polishing cloths. Half-finished projects littered every surface: a snarling gargoyle missing a wing, a delicate rose carved from alabaster, and the beginnings of a memorial plaque for old Mother Elara, who had passed peacefully in her sleep last spring. A single, grime-streaked window overlooked the village below, a huddle of stone houses clinging to the hillside like limpets to a rock. The village, and Silas' workshop, were entirely dependent on the quarrying and working of stone, the only trade that could survive in this harsh, unforgiving land.

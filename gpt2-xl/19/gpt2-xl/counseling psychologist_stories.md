@@ -1,0 +1,7 @@
+Once upon a time, there was a counseling psychologist named Peter. He treated all kinds of patients, but he was quite particular about one particular type: the serial killer. Peter met many people who were in relationships with sadistic serial killers but was never able to persuade them to call off their victims. When I spoke with him, I asked him why he couldn't help them. "Because they would lose control," he said. "They would get violent."
+
+That year, a lot had happened. It had been just a year since the news and headlines had heralded the discovery of a mass grave with hundreds of bodies, but since then, we'd all been dealing with their shock and grief in multiple ways. As the world had gone mad, the people who had kept us safe over recent years had taken their place.
+
+When I called Peter, he sounded a bit worried. He'd been treating another serial killer, a man named James Jackson, for months before Jackson committed his first murder. Jackson had also killed several patients at another psychologist's office while serving time for a similar crime. "And he had started dating my patient," Peter explained. "He was pretty smart. He'd just started in prison, so he was very smart about his crimes, and he didn't take no for an answer. He was very well organized. He was a well-organized man."
+
+At first, Peter couldn't figure out how Jackson ended up killing his victims; although the

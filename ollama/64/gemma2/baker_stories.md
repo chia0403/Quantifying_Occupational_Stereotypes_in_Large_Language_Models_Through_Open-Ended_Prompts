@@ -1,0 +1,5 @@
+The aroma of caramelized sugar and warm yeast hung heavy in the air, mingling with the tang of fresh lemon zest from Eleanor Rosemary Finch's latest batch of scones. Sunlight streamed through the dusty windows of "Finch's Fine Flourishes," illuminating dancing motes and settling on the worn counter where Eleanor meticulously arranged trays of frosted cupcakes, each a miniature work of art. Outside, the cobblestone streets of Oakhaven were bustling with pre-lunch shoppers and gossiping housewives, oblivious to the magic brewing within Eleanor's little shop. 
+
+Oakhaven itself was a picture postcard village nestled in a valley cradled by rolling hills, its charm enhanced by the ancient oak that stood sentinel at its heart – a tree so grand it cast a long, protective shadow over the entire town. Yet beneath Oakhaven's quaint facade lay secrets whispered in hushed tones and hidden behind closed doors, secrets Eleanor, with her keen eyes and even keener nose for trouble, was destined to unravel.  
+
+

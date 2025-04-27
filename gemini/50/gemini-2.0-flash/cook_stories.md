@@ -1,0 +1,11 @@
+## Story Opening:
+
+The aroma of browned butter and sage clung to the air, a comforting perfume in the otherwise stark white kitchen. Amelia Bellweather hummed a low, wordless tune as she deftly tossed gnocchi in the fragrant sauce, her hands moving with the practiced grace of a dancer. Outside, the November wind howled a mournful dirge against the ancient stone walls of the castle, rattling the leaded glass windows. Amelia paid it no mind. Inside this kitchen, she was queen, her realm defined by bubbling pots, gleaming copper pans, and the rhythmic clatter of knives against cutting boards.
+
+A sudden, sharp rap at the heavy oak door made her jump, nearly sending a handful of gnocchi sailing across the room. Annoyance flickered across Amelia’s face. Supper service was in less than an hour, and the Duchess loathed being kept waiting. Smoothing down her crisp white apron, she took a deep breath and called out, "Just a moment!"
+
+## Setting:
+
+The story takes place in **Blackwood Castle**, a sprawling and ancient edifice perched precariously on a windswept cliff overlooking the North Sea, in the remote Scottish Highlands. Constructed centuries ago from dark grey stone, the castle exudes an air of formidable grandeur, tempered by the subtle decay of time. Inside, its halls are a labyrinth of echoing corridors, drafty chambers filled with antique furniture shrouded in dust sheets, and portraits of stern-faced ancestors whose eyes seem to follow you as you pass.
+
+The kitchens, however, are a bustling oasis of warmth and light. Despite the castle's overall age, the main kitchen, where Amelia reigns supreme, was renovated in the early 20th century. It boasts gleaming white tiled walls, a massive cast iron range cooker that dominates one end of the room, and a pantry stocked with the finest ingredients sourced from the local farms and the castle's own gardens. While modern conveniences like refrigeration and electric lighting have been integrated, the kitchen retains a sense of rustic charm, with its wooden chopping blocks worn smooth by generations of cooks and the shelves lined with antique copper pots and pans. It's a place where tradition and innovation meet, a haven of creativity and comfort in the heart of a cold and imposing castle.

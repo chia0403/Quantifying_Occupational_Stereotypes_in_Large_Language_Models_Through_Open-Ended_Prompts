@@ -1,0 +1,6 @@
+The flickering fluorescent lights hummed above Eleanor "Ellie" Kensington's head, casting an anemic glow on her cluttered desk.  Stray coffee cups, crumpled code sheets, and half-eaten granola bars littered the workspace like fallen soldiers in a forgotten war. Ellie herself was slumped over her monitor, her brow furrowed in concentration as she wrestled with a particularly stubborn bug in the hospital's new patient management system.
+
+The sterile white walls of the IT server room at Mercy General Hospital were punctuated by banks of humming servers and the occasional blinking LED that resembled a frantic firefly. The air hung thick with the scent of ozone and stale coffee, a testament to Ellie's all-nighters and the relentless demands of her job. Outside, the city of Chicago slept, oblivious to the digital battle raging within these metal walls. 
+
+
+Ellie rubbed her tired eyes and sighed.  This new system, touted as the future of patient care, was proving to be more trouble than it was worth. Every line of code felt like a minefield, waiting to explode into chaos. She knew she had to fix this bug before sunrise, or the entire hospital would descend into administrative pandemonium. 

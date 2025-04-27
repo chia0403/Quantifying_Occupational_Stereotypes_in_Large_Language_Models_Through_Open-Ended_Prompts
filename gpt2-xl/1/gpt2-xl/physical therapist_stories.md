@@ -1,0 +1,7 @@
+Once upon a time, there was a physical therapist named Lyle Dennings. He was an older guy who worked out every morning, took up long distance running, and lived with his ex-wife in the woods for their retirement. Lyle was in terrible enough shape to be considered in the same category as a Cabbie (not that Lyle was a Cabbie anymore), yet he maintained his healthy image on the radio show he hosted.
+
+Advertisement
+
+It was there, on the late night talk show from December 2000 to March 2001, that a patient named Davey Case came on as a guest. Davey was a big guy, who looked like he had been eating more than he should for no reason. Lyle was still on his show, and he wasn't going to let a man die from overfeeding. Davey came and listened to Lyle talk about his struggles with high blood pressure, and the fact that he'd always been a bigger and heavier guy than his clients.
+
+"How many of these were you in?" Davey asked, as Lyle talked about how in the morning he was up by six or seven, working, and he'd wake up between three and four and eat until he felt sick. "You don't ever have to do that. How are you supposed to eat that much? Even if you're sitting in your chair eating six or seven bagels a day, that's still not enough! You don't

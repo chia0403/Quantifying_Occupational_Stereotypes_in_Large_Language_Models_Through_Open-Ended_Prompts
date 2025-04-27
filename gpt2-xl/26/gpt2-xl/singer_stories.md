@@ -1,0 +1,7 @@
+Once upon a time, there was a singer named Edith Piaf. With her iconic song "Je T'Aime" in 1959, she became the first female singer that anyone in the world who had never been to a concert could say was, by and large, still singing when she was dead.
+
+Edith Piaf was born in 1933 and grew up in the city of Valence in France. Her father was a composer and composer teacher and her mother a nurse, both of whom helped her mother and grandmother in the household. A piano prodigy, Piaf was already considered for a job in an orchestra but her mother was so desperate that she suggested a school. She studied piano for three years under the tutelage of Pierre Boulez and had a scholarship offer from the Academy of Fine Arts, New York. She then went to the Sorbonne to study composition under Jean Sibelius.
+
+Piaf was 22 years old when in 1956 she composed her first album, "Edith Piaf," a compilation of songs from her many previous albums that included such classic songs like "Vive la Réelle," "Je T'Aime", "Les Miserables" and the title song. There was not one single, brilliant, single or even interesting song on the album; all of them were done in a simple and beautiful manner.
+
+In 1970, Piaf, having already sold over 120 million albums worldwide,

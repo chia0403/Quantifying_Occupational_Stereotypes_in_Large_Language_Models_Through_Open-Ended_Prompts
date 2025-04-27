@@ -1,0 +1,6 @@
+Once upon a time, there was a plumber named Mark. Mark had an idea. He wanted to get rid of the water he uses to water his plants. Every time Mark flushed, instead of washing out, the water he used to water his plants would just get back up to his chest and back down his legs. So he would do a hoseback. And if you were on the other end, you'd have a nice laugh. How Mark got from this idea, down a very long hose, into a completely normal shower, isn't particularly important. I'll just leave this here by the side of the hall, where all you guys can read about it.
+
+
+By the way, the guy named Mark? Yes, he's still around sometimes. A guy by the name of Larry Smith. Oh, and one other thing. That's not really a thing. If you ever see an old-man plumber dressed up as King John, with a pipe in his mouth, you can pretty much set your watch to it because they're all wearing the same clothes.
+
+That is an excerpt from "The Complete Illustrated Story of Mark Bernhardt and his Wonderful Life," by Jack DeJohnette. The book can be found at bookstores everywhere, or online at http://www.geocities.com/geocities/frank.greensmith.frank.html.

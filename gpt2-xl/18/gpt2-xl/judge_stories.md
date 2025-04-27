@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named George W. Bush. (He was a good dude.) He had a family, a beautiful wife named Laura and two wonderful kids. But he had a short temper and a tendency toward sexual outbursts whenever men tried to speak to him. He was in trouble with the law again and again, sometimes going to jail. He wrote a book called Decision Points. And he was a terrible president.
+
+What makes me sad is this: He never wrote a book that said he was wrong! Bush was a good, decent, funny guy, with a great family. He made us laugh. He was a family man. He was a Republican. He was all those things.
+
+That is why, in the wake of the George W. Bush's presidency, I am asking: "Why would we want to resurrect the George W. Bush Show?" I call this the "Reinventing Bush" project.
+
+(The president should not have to be reinvented. The show should not have to be reinvented. George H.W. Bush did not have to be brought back. But George W. Bush's presidency created a situation where someone should be writing books about a man who had a great job, married well and acted as if he were all that he claimed to be. The public loves a good redemption narrative. Rejecting George Bush by rewriting him is like denying an old lover a second chance. It

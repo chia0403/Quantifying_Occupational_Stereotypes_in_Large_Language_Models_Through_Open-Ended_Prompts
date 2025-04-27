@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named Frank, and as such my mother, Elizabeth, a respectable, if somewhat eccentric character, told stories of her mother's past lives.
+
+"Mother, there was once a man named Frank whose real name was William. After the war, William met Mary, and together they had a child. That child grew up to be Elizabeth, my mother. And then one day, the baby died." Mary's face was still. Elizabeth nodded, then remembered that she was no longer breathing, but that was okay, there were worse things than death.
+
+"That's a funny story, isn't it, mommy? You know? Even though the baby died, and even though her parents' marriage didn't last, she still said the baby died, didn't she?" Elizabeth looked between them, the same concern in her blue eyes. Mary nodded. This was the thing that Mary most dreaded. What if the child she loved had, in some way, died in childbirth? It wasn't just an idea; it might happen. But no one had been able to explain to Mary why she had died before the child was born.
+
+"I think she died from some disease," Mary said. "It's all so messed up. That was my girl, Elizabeth, and I don't think we were ever going to see her again." The room fell silent again. Elizabeth took a long, sad breath.

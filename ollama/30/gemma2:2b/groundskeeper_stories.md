@@ -1,0 +1,5 @@
+The wind whipped around Barnaby's weathered face as he knelt in the overgrown graveyard.  Rain had been absent for days, the air heavy with a dry, almost crackling tension that made the ancient oak boughs above him groan. It was August, and even with the sun beating down on its crumbling stones, a chill lingered in the air – a pervasive presence that felt more tangible than any cold breeze. The scent of earth and decay mingled with the metallic tang of blood, something Barnaby had come to expect after decades tending this hallowed ground.
+
+Barnaby, whose full name was Bartholomew "Barney" Thorne, wasn't your average groundskeeper. He saw more in these silent sentinels of the past than just weeds and overgrown monuments.  He felt their stories seep into his worn gloves, their presence etched in the subtle shift of a stone or the moss-covered grave headstones that whispered tales of lost love, forgotten battles, and tragic fates.  And tonight, as he knelt amidst the whispering grasses of the oldest plot, he heard it – a hushed whisper on the wind, something not quite human. 
+
+

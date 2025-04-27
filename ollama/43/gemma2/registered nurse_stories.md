@@ -1,0 +1,6 @@
+The fluorescent lights hummed overhead, casting a sterile glow over the cramped ER waiting room.  Eliza Beatrice Hawthorne, her scrubs already speckled with stray droplets of sanitizer, surveyed the scene with practiced detachment. A child whimpered in his mother’s arms, while an elderly man sat rigid, clutching his chest. Two nurses chatted quietly at the information desk, their voices a low murmur against the rhythmic beeping of machines.
+
+Eliza was exhausted. It had been a triple shift, her feet throbbed with each measured step she took, and the lingering scent of antiseptic felt like it had become woven into the fabric of her being. Still, she carried herself with a quiet competence, her dark hair pulled back in a tight bun, her eyes scanning the room for any signs of distress. The ER was always a whirlwind of chaos and fear, but tonight, something felt different. A tension hung in the air, thick and heavy like the sterile fog that permeated the hospital.  
+
+
+Eliza knew she needed to be alert. This feeling, this unease, could signal anything from a sudden influx of patients to something far more ominous. But whatever it was, Eliza Beatrice Hawthorne would face it head-on, as she always did. 

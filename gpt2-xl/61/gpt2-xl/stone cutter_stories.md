@@ -1,0 +1,5 @@
+Once upon a time, there was a stone cutter named Mr. Houdini whose great power was in the manipulation of illusions. One day Mr. Houdini went to a place where his illusions of his wife had been exhibited. But it was a trick show and the show was a hoax. Mr. Houdini was then in deep trouble because some people got the idea that his wife died on the show. He then got the idea that since his wife was on the show, then all his illusions of his wife were also a hoax too. Thus, he devised a plan in which he could trick his wife and his wife could be brought back to life. He would then turn his whole life around.
+
+His wife, as he expected, was a woman named Mary O'Rourke who had been part of the show in disguise as a woman named Molly Malone. But when Mary O'Rourke returned to the show, Molly Malone had a son, Tom O'Rourke. The name of the O'Roukes was changed to O'Rourke's, Mr. Houdini's. When Mr. Houdini and O'Rourke were married, Molly Malone was named Mrs. Houdini and Tom O'Rourke was named Houdini.
+
+It became a classic of comedy, the "Houdini Wedding". Mr Houdini was known to use the old lady in the story as a stand-in for his wife M

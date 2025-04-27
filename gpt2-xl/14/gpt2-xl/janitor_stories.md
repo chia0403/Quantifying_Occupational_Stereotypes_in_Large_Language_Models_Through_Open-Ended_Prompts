@@ -1,0 +1,7 @@
+Once upon a time, there was a janitor named Mr. Jones, who worked at the Coney Island Fun Park before his daughter told him to go back to work. Mr. Jones was not the only janitor to say goodbye to the amusement park, but he was the last, and this makes him the ultimate "lost" custodian of the park.
+
+In the 1960s, a boy got to the park by jumping off his bike and walking through the "old" part of the park. The park is now completely closed, but you can see the empty lot where the kid jumped off the bike, a fence which was around the jump/walk spot, a little concrete bench which he sat in, and a statue in the corner which he rested his head on. This picture has been taken several times over the years, often from an angle to avoid the sun, and sometimes directly out from my camera.
+
+There is also one more location we can see right off the bat: The old bus stops, which have been closed for nearly 40 years. They still stand, and sometimes, an empty bus that was waiting for a passenger will have a cardboard sign that reads "Coney Island Fun Park", or "Fun and Games, Fun and Games". It's interesting that the bus stops are still mostly empty despite the park shutting down over 40 years ago.
+
+Another site in the city where we can see the park and bus stops still standing: One of the side

@@ -1,0 +1,6 @@
+The stale scent of disinfectant hung heavy in the air, clinging to Alistair Finch's threadbare uniform like a second skin. He pushed his mop across the linoleum floor of the Grand Blackwood Theatre, the worn bristles sighing against the cold tiles. The theatre, a once-grand monument to the performing arts, now stood as a hushed giant, its velvet seats vacant and dusty. Its glory days were long gone, replaced by whispers of financial woes and dwindling audiences. 
+
+Alistair, his name echoing with an almost regal absurdity in this desolate space, had been the theatre's sole custodian for five years. He knew every creak of the wooden floorboards, every shadow cast by the faded velvet curtains, every whispered memory that lingered in the air. His days were a lonely symphony of silence punctuated by the clatter of his bucket and the occasional echo of distant city noise seeping through the drafty walls. 
+
+
+He paused at the stage entrance, its heavy red curtain drawn closed like a slumbering beast.  A single spotlight cast a pale beam across the dust motes swirling in the air. Alistair could almost hear the phantom applause, feel the ghostly warmth of a full audience. But it was just a memory, a cruel echo of what once was. 

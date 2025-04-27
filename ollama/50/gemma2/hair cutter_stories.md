@@ -1,0 +1,6 @@
+The scent of lilac shampoo clung to the air in "Cuts & Curls," mingling with the faint tang of bleach and freshly-brewed coffee. Sunlight streamed through the dusty storefront window, illuminating motes dancing in the warm air. Behind the counter, Eleanor Willowbrook meticulously arranged her array of hair clips, a rainbow of colors catching the light. She ran a hand over her own close-cropped silver hair, its smooth surface contrasting sharply with the vibrant hues surrounding it. Today was Friday, always the busiest day at Cuts & Curls, and Eleanor was ready for the whirlwind.
+
+Eleanor had been cutting hair in this bustling corner of downtown Willow Creek for over forty years. Her shop wasn't fancy – the faded floral wallpaper hinted at a bygone era, and the worn leather chairs had seen countless haircuts and whispered secrets – but it was filled with warmth and the comforting hum of conversation.  It was Eleanor’s sanctuary, her haven from the world outside, where she could bring a touch of magic to each strand of hair that crossed her scissors. 
+
+
+She glanced at the clock ticking above the door. 9:00 am sharp. Time for another day in the life of Willow Creek's resident hairdresser extraordinaire.   

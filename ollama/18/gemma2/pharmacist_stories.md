@@ -1,0 +1,5 @@
+The scent of peppermint and eucalyptus hung heavy in the air, mingling with the sterile tang of bleach that perpetually clung to everything in "A Penny Saved Pharmacy."  Eleanor Grace Thornton meticulously counted out milligrams of anti-histamines, her brow furrowed in concentration as she sorted through the tiny white pills. The bell above the door chimed, announcing another customer, and Eleanor barely glanced up. It was a Tuesday afternoon in Harmony Creek, and business was predictably slow. 
+
+Harmony Creek itself was tucked away on the dusty back roads of Oregon, its main attraction being the annual pie contest held every July.  The town was known for its quaint charm and friendly folks, but sometimes Eleanor felt like she knew everyone's medical history better than they did themselves. The monotony, however, was a welcome reprieve from her former life as a pharmacist in bustling Seattle. Here, amongst the locals who greeted her with genuine smiles and heartfelt stories about their garden yields or upcoming bake-offs, Eleanor found a sense of peace she hadn't realized she craved. 
+
+

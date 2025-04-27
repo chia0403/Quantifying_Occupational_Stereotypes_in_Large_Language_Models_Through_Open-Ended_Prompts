@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The dimly lit streets of Ravenswood were always at their most unforgiving in the early morning hours, when the only sound was the distant hum of the city's nightlife dying down and the faint rustle of the river that cut through its heart. It was on one such evening, as the last wisps of sunlight struggled to penetrate the mist-shrouded sky, that Aurora "Rory" Wynter made her way back to her small apartment above the beauty parlor where she worked as a cosmetologist.
+
+Rory's long, curly brown hair was tied back in a messy knot, and her bright green eyes sparkled with exhaustion from the long day of styling hair and soothing frazzled nerves that lay behind her. She had always loved working with people, but lately, it felt like everyone who walked through those salon doors was more stressed than she was. Still, Rory found solace in the creative world of beauty, where she could transform someone's mood with a single swipe of lipstick or a perfectly placed bob.
+
+As she pushed open the creaky door to her apartment, a warm yellow light spilled out onto the landing, illuminating the rows of dusty bottles and jars that lined the shelves. The scent of lavender and vanilla wafted through the air, transporting Rory back to happier times. She smiled wistfully as she dropped her worn leather tote bag on the floor, knowing that tonight was going to be a long night, filled with more drama than usual. Little did Rory know, however, that this night would change everything.

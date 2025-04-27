@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a travel agent:
+
+**Setting:**
+
+The perpetually humming fluorescent lights of "Getaway Gurus Travel," located in a strip mall next to a struggling nail salon and a surprisingly busy vape shop in suburban Maplewood, New Jersey, offered little in the way of atmosphere. Calendars plastered with idyllic beaches and snow-capped mountains clashed jarringly with the beige, stained carpet and the faux-wood paneling that hadn't been updated since the early 90s. A faint smell of stale coffee and desperation hung in the air. Outside, the rumble of traffic on Springfield Avenue competed with the tinny Muzak emanating from the speakers overhead.
+
+**Opening:**
+
+The chipped mug, emblazoned with the phrase "I Need a Vacation From Planning Vacations," threatened to stain the already precarious stack of brochures on Mildred Agatha Penhaligon's desk. Mildred sighed, pushing a stray strand of grey hair behind her ear and adjusting her bifocals. Another Tuesday, another tidal wave of questions about all-inclusive resorts in Cancun, and another reminder of the sheer, soul-crushing predictability of her life. It wasn't that Mildred hated travel. On the contrary, she dreamt of it constantly. But her dreams involved dusty Roman ruins, bustling Moroccan markets, and the hushed reverence of ancient temples. Not explaining the difference between a junior suite and a standard room for the tenth time this morning. She picked up the phone. "Getaway Gurus Travel, Mildred speaking. How can I help you escape the mundane today?" Her voice was bright, professional, and a little too practiced. She braced herself for another round of questions about luggage allowances and complimentary buffets. Little did she know, the next call would shatter the comfortable monotony of her life, sending her on a journey far more extraordinary, and dangerous, than any she could have ever booked for her clients.

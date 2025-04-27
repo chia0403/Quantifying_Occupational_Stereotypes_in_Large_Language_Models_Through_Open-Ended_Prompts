@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia Beatrice Hawthorne, casting an anemic glow over the crowded waiting room. The scent of antiseptic mingled with stale coffee and nervous anticipation hung thick in the air. Outside, the Arizona sun beat down mercilessly, turning the pavement to shimmering mirages. Amelia, her name tag pinned proudly to her navy scrubs, calmly surveyed the scene. 
+
+Her eyes, a startling shade of emerald green, darted from one anxious patient to another, noting fidgeting hands and averted gazes.  Each vein was a story waiting to be told, each draw a chapter in their lives. Amelia Hawthorne knew this better than most. After ten years as a phlebotomist at Phoenix General, she'd seen it all – the tears of anxiety, the stoicism of pain, the flickering hope in weary eyes. Today, however, something felt different. A prickling sensation on the back of her neck told her a storm was brewing, and Amelia wasn't sure if she was the one bringing the thunder or bracing herself for its impact. 
+
+

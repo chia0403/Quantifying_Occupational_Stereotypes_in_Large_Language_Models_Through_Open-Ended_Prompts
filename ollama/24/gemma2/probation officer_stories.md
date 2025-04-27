@@ -1,0 +1,5 @@
+The biting January wind whipped through the skeletal branches of the oaks lining Maple Street, sending a shiver down Amelia Beatrice Hawthorne’s spine. She tugged her coat tighter around her, her breath puffing out in white clouds against the backdrop of the steel-grey sky.  Amelia, or “Amy” as she preferred, was used to bleak weather – it wasn’t exactly sunny California in this corner of upstate New York. But today felt different. The air itself seemed heavy with a premonition of trouble. 
+
+She stood before a dilapidated Victorian house, its paint peeling like sunburnt skin and the porch steps creaking ominously underfoot. This was the home of Michael "Mikey" O'Brien, her newest probationer, a young man fresh out of juvenile detention for petty theft and vandalism.  Amy had a good feeling about him – she sensed a flicker of intelligence beneath his rough exterior – but something about this house, this street, whispered warnings. A knot of apprehension tightened in Amy’s stomach as she raised a hand to knock on the warped wood door. 
+
+

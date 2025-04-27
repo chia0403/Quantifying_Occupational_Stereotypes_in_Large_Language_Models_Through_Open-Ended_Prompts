@@ -1,0 +1,6 @@
+The rhythmic whir of the blueprint printer was Amelia Rose Thorne's symphony. Its steady hum filled the cramped office, competing with the click-clack of her mechanical pencil against tracing paper. Outside, Chicago groaned under a blanket of early autumn smog, but here, bathed in the fluorescent glow of her desk lamp, it was just Amelia and the city sprawling before her on countless sheets of paper. 
+
+Amelia wasn't an architect, not officially. She was a draftsman, tasked with translating their grand visions into concrete lines and precise measurements. While they dreamt of soaring steel towers and elegant glass facades, she built the skeletons, the frameworks upon which those dreams stood. 
+
+
+Today's project was the "Elysian Heights" - a luxury apartment complex promising breathtaking views and unparalleled amenities. Amelia traced a line across her paper, outlining the elliptical swimming pool perched atop the building, its shimmering surface meant to mimic the moonlit expanse of Lake Michigan.  But as she drew, a nagging unease gnawed at her. The blueprints felt too ambitious, too fragile for this city's gritty reality. And somewhere in the tangle of lines and figures, Amelia knew something was off. 

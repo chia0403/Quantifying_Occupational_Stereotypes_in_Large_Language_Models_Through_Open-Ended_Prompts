@@ -1,0 +1,5 @@
+Rain lashed against the shop windows, each drop exploding in miniature fireworks that reflected off the dusty street lamps. Inside "The Polished Petal," Amelia “Amy" Nightingale, her apron stained with a day's worth of polish and glitter, was lost in the hypnotic rhythm of her work. She swirled a tiny brush across the delicate surface of a bride's nail, each stroke carefully executed as she transformed plain nails into miniature works of art. 
+
+Her shop, nestled between a bustling vintage bookstore and an old spice merchant's, breathed with a quiet serenity that was in stark contrast to the chaotic city outside. It was her sanctuary, a place where the only sound louder than the clinking of jars and the gentle hum of nail polish remover was the rhythmic tapping of Amy’s nimble fingers against the freshly filed nails.
+
+But tonight, a storm brewed not just outside, but within Amy's own mind. A sense of unease, a prickle on her skin she couldn't quite understand, followed her like a shadow as she finished her bride's manicure, leaving it with a delicate butterfly design that shimmered under the shop's single spotlight.  

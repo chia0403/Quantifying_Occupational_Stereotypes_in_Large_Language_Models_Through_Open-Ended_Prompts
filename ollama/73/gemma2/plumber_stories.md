@@ -1,0 +1,5 @@
+The relentless Miami humidity clung to Bartholomew "Bart" Finnegan like a second skin as he knelt beside the overflowing toilet.  Sweat trickled down his forehead, stinging his eyes, and he pushed a damp strand of auburn hair out of his face with a grubby forearm. The stench emanating from the porcelain abyss was potent enough to choke a lesser man, but Bart had faced worse – clogged sewer lines in Art Deco buildings, burst pipes during hurricane season, even a rogue iguana tangled in a plumbing fixture (that one still gave him nightmares). 
+
+This particular bathroom, however, felt different. It belonged to Mrs. Elara Bellweather, a renowned psychic who resided in a sprawling Victorian mansion overlooking Biscayne Bay. Locals whispered about her uncanny abilities and the eccentric rituals she practiced within those walls. Bart, a pragmatist at heart, dismissed such talk as superstition.  He just needed to get this toilet working, collect his payment, and move on to the next plumbing emergency. But as he peered into the swirling vortex of sewage, he couldn't shake the feeling that something about this job was… unusual. 
+
+

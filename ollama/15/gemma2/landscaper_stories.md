@@ -1,0 +1,6 @@
+The humid air hung heavy in Montgomery's garden, thick with the scent of freshly cut grass and wilting lilies. Sunlight filtered through the canopy of ancient oak trees, dappling the meticulously manicured lawn like scattered gold coins. Amelia Rose Hawthorne, her name as lush and vibrant as the gardens she tended, wiped a bead of sweat from her brow with the back of her calloused hand.  Her gardening gloves, stained green from years of earth and chlorophyll, felt sticky against her skin. 
+
+Montgomery's sprawling estate was one of Amelia’s biggest challenges – an intricate tapestry of formal hedges, bubbling fountains, and exotic blooms that demanded constant attention. It was a world away from her own small apartment above the bakery on Elm Street, where the only green she encountered was the basil she grew on her fire escape. Yet, each carefully pruned rosebush and coaxed-to-life orchid filled Amelia with a quiet satisfaction. 
+
+
+She paused, inhaling deeply. Even with the heat, there was a certain magic to this place – a feeling of history woven into the rustling leaves and the whisper of fountains. It was more than just a garden; it was a sanctuary, a living poem in emerald and gold.  

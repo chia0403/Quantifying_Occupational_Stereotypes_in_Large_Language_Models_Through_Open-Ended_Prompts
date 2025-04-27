@@ -1,0 +1,5 @@
+As the sun set over the bustling streets of New Orleans, casting a warm orange glow over the French Quarter, Alexandra "Lexi" Dupre poured another round of Hurricane cocktails for the rowdy patrons at her family's beloved restaurant, Colette's Cafe. The air was alive with the sounds of jazz music drifting from the street performers and the clinking of glasses against the sidewalk.
+
+Lexi, a petite blonde with a warm smile and a mischievous glint in her eye, navigated the crowded room with ease, expertly juggling multiple tables and orders with a practiced air. Her bright pink hair was tied back in a ponytail, revealing a scattering of freckles across her cheeks and nose, which seemed to sparkle like diamonds in the fading light.
+
+As she made her way through the throngs of people, Lexi's eyes locked onto the door at the rear of the restaurant, where her younger brother, Julien, was working as a bartender. He flashed her a quick smile, his dark hair mussed from behind the bar, and Lexi's heart skipped a beat with a flutter of worry. Something wasn't quite right about Julien tonight...

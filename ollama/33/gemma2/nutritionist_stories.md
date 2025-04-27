@@ -1,0 +1,6 @@
+The aroma of turmeric and ginger hung heavy in the air, mingling with the gentle scent of lavender emanating from the diffuser in the corner. Sunlight streamed through the large, south-facing window of Amelia Rose Hawthorne's consulting room, illuminating dust motes dancing in the golden light. Outside, the city hummed with its usual frenetic energy, but within these walls, a sense of calm prevailed.
+
+Amelia Rose, her fiery auburn hair pulled back in a neat braid and a warm smile gracing her lips, surveyed her waiting room. A worn copy of "The China Study" rested on a side table next to a bowl overflowing with fresh fruit, while the minimalist decor – white walls adorned with botanical prints, comfortable armchairs upholstered in earthy tones – exuded an air of tranquility. Today was shaping up to be another typical day for Amelia Rose Hawthorne, Nutritionist Extraordinaire. She prided herself on providing her clients with not just dietary advice, but a holistic approach to well-being that addressed their physical, emotional, and spiritual needs.
+
+
+Her phone buzzed, breaking the quiet. "Amelia Rose Hawthorne speaking," she answered, her voice as soothing as the gentle music playing in the background.  "Yes, this is Dr. Thompson's office. How can I help you?" 

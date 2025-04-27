@@ -1,0 +1,6 @@
+The desert sun beat down on Esmeralda "Esme" Reyes's neck, turning the already sweat-soaked back of her t-shirt into a second skin. The air shimmered above the dusty earth, blurring the horizon where endless scrub met the jagged silhouettes of distant mesas. A low, guttural growl vibrated through Esme's bones as she eased the joystick forward, guiding the colossal Caterpillar D9 bulldozer across the barren landscape. 
+
+The machine lurched, its steel tracks gouging deep furrows into the parched ground.  Esme squinted through the dust kicked up by the blade, her eyes following the path of destruction with a practiced ease born from years of mastering this beast. She was carving her way through the heart of the Arizona backcountry, clearing a path for the new gas pipeline that promised to bring prosperity – or at least that's what they told her – to this forgotten corner of the world. 
+
+
+But the desert held secrets, Esme knew that much. Whispers on the wind spoke of ancient mysteries and restless spirits, guarding treasures long buried beneath the scorching sand.  And as she tore through the earth, she couldn't shake the feeling that something was watching her, waiting for its chance to emerge from the shadows.

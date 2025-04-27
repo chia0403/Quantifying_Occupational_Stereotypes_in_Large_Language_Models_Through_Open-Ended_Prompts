@@ -1,0 +1,6 @@
+The air in Penelope Willowbrook's office felt as stale as last week’s coffee. Sunlight struggled to pierce through the grimy windows, casting dusty motes into the air that danced with indifference. Her mahogany desk, once polished to a gleam, now held the telltale signs of too many late nights hunched over paperwork and unanswered phone calls. Outside, the rhythmic hum of traffic on Maple Street blended with the distant wail of a siren – the soundtrack to another ordinary day in Harmony Creek.
+
+Penelope, or Penny as most folks knew her, sighed, pushing aside a pile of claim forms threatening to engulf her already cluttered desk. She was an insurance agent for Willowbrook & Sons, a family business established by her great-grandfather after the Great Depression.  She’d always known she'd carry on his legacy, never dreaming it would become a burden weighed down by bureaucratic nightmares and the ever-increasing desperation in the eyes of her clients. 
+
+
+Penny rubbed her temples, trying to ward off the headache brewing behind them. Today promised to be particularly grueling – a string of calls from worried homeowners facing skyrocketing premiums and a visit from Mr. Henderson, a long-time client whose beloved antique clock had mysteriously stopped ticking, leaving him convinced it was haunted. 

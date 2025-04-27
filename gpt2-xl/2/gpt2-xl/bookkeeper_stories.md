@@ -1,0 +1,7 @@
+Once upon a time, there was a bookkeeper named Fred who came to town. Fred was a pretty good bookkeeper, though if you had to compare he was a little bit behind-the-times. Fred always wore black leather boots, a white linen shirt, a matching hat, a black striped tie, a white cotton skirt, and a black blouse that showed off his dark eyes.
+
+There was no mistaking that he was a little bit eccentric. He always looked at people when they were walking past his desk, and his first reaction was to ask them questions. Usually if the bookkeeper was too good for the people, they would tell him that they didn't want to talk to him. But Fred was rather different, he didn't tell anyone he was going to be bothering them. He just looked at everyone else and spoke a little more politely than would be expected. He also liked to talk with people and let them see his personality for themselves.
+
+One day, one little, innocent girl named Toni called Fred to be her maid of honor. She had a very hard time with her grades and wasn't very happy about that, but Fred, like most bookkeepers, was an excellent friend. She was pretty, her sister was pretty and had a boyfriend and they didn't like Fred, but they could always tell it was because he treated them well.
+
+Then one day, Toni had gone to school and had missed lunch. To make matters

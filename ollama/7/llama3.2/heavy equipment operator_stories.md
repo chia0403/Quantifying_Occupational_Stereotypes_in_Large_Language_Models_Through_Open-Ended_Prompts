@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun had barely cracked the horizon over the dusty desert landscape as Ryder James Thompson climbed into his worn leather seat on the massive Caterpillar 650E excavator. The early morning air was crisp and cool, carrying the scent of creosote bush and mesquite trees that stretched towards the sky like skeletal fingers. As he cranked up the engine, the rumble of the machine's engines echoed across the vast expanse of sand and rock, a familiar rumble that seemed to shake loose even the most stubborn dust devils.
+
+Ryder, or "T-Bone" as his crewmates called him, had been working on this particular site for months - a massive construction project that aimed to bring life-giving water to the parched farmlands of rural Arizona. It was hard work, but T-Bone was well-suited to it: he'd spent years learning the intricacies of heavy equipment from his dad, who had worked the same land and learned its secrets just as long ago.
+
+As he lifted off the ground, the 650E's massive bucket swooped down, ready to tackle another day of digging and hauling in this unforgiving yet beautiful landscape. Little did Ryder know, today would be different - something about this particular site had him feeling a sense of unease, like the land itself was watching him, waiting for him to make a wrong move.

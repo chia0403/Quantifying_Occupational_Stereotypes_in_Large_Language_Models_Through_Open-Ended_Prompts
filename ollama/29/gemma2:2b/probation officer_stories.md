@@ -1,0 +1,5 @@
+The neon sign above "Chez Marcel" buzzed like a trapped bee, its red glow casting long shadows across the rain-slicked asphalt. Rain hammered against the cracked windowpane, mimicking the frantic rhythm of Amelia Cartwright's heart as she stepped inside.  
+
+Amelia was no stranger to the grit and grime of inner-city living. As probation officer for District 4, she navigated a landscape of despair and defiance on a daily basis. But tonight, her usual cynicism felt like a betrayal of Marcel's quiet warmth, an oasis within the storm that raged outside.  She sat down heavily in the worn leather booth, pulling her collar tighter against the chill.
+
+"Your father wasn't fond of surprises," she muttered to herself, a faint hint of sadness in her voice. It was a line she repeated often, not just about the probationary conditions for her clients but about her own life too. Her parents had never understood the pull of social service, preferring the predictability of their law firm and its polished mahogany desks. Now, at thirty-five, Amelia realized the quiet storm within herself was starting to resemble the one she saw reflected in the eyes of the people under her care. 

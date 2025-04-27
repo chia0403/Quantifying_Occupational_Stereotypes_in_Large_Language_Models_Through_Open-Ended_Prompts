@@ -1,0 +1,7 @@
+The acrid smell of burnt coffee clung to the air like a stubborn memory. Abigail Rose Montgomery pinched the bridge of her nose, trying to massage away the throbbing ache that had settled behind her eyes. Dawn was still a bruised, inky purple pressing against the grimy window of her studio apartment. Below, the Lower East Side was just beginning to stir; the rhythmic clang of metal echoing from Mr. Chen’s bodega fighting a losing battle against the drone of a distant garbage truck.
+
+Abigail sighed, pushing back from her cluttered desk. Stacks of newspapers, dog-eared notebooks, and half-empty coffee cups formed a precarious fortress around her laptop, its screen displaying the same, mocking headline: "REDEVELOPMENT PROJECT APPROVED: GREENE VILLAGE PREPARES FOR TRANSFORMATION." It was the kind of story that made her skin crawl, a polished, PR-approved narrative that completely ignored the human cost of progress.
+
+Greene Village. A tight-knit community of artists, immigrants, and blue-collar workers, slowly being squeezed out by rising rents and shiny new condos. It was the kind of place Abigail, a journalist with a conscience too big for her britches, thrived in. But her editor at the *Manhattan Chronicle*, a man who considered a successful story one that boosted ad revenue, had made it clear: this was a feel-good piece. Positive spin only.
+
+Abigail Rose Montgomery, however, had a feeling that beneath the veneer of progress, something rotten was festering in Greene Village. And she was determined to find it.

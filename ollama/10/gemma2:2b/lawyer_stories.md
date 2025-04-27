@@ -1,0 +1,6 @@
+The mahogany door to Mr. Thorne's office creaked open like a weary sigh as Amelia Hayes stepped inside. The air was thick with the scent of old books and pipe tobacco, a comforting yet somewhat archaic smell that always reminded her of the weight of history in a courtroom.  Mr. Thorne, his face etched with lines that spoke of countless battles fought and won, looked up from behind his massive desk. His eyes, sharp as honed flint, held Amelia's gaze for a moment too long before he finally smiled – a wry, almost disarmingly cheerful smile that seemed to hold the secret of untold legal victories.  
+
+"Ah, Miss Hayes," Mr. Thorne began, his voice like velvet over gravel. "Welcome. We have something rather… peculiar on our hands this time." 
+**Setting:** A prestigious law firm in a grand old building in Chicago's Loop district. The firm has weathered decades of legal battles, its walls lined with historical documents and whispered rumors about countless trials.  Mr. Thorne represents the elite of society - powerful families who have built empires on their own bloodlines and fortunes. 
+
+**Character:** Amelia Hayes, a young, bright lawyer with a sharp wit and an unwavering moral compass, but also haunted by her own family's past and a tragic incident that led to her being ostracized from the legal elite until now.  

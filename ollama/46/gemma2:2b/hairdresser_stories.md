@@ -1,0 +1,5 @@
+The neon sign above "Mane Attraction" buzzed with an almost manic energy as twilight bled into night in New Orleans' French Quarter. Rain slicked the cobblestones, turning them to shimmering pools reflecting the gas lamps' warm glow. Inside, Evangeline Dupree, otherwise known as "Eva" to her regulars and by the handful of stray customers who just *needed* a little something extra from their stylist, meticulously clipped strands of auburn hair. 
+
+It was Eva's lifeblood - the feel of hot scissors against damp locks, the fragrant mix of scalp oil and rosemary shampoo she swore brought clients to solace before she even started.  But tonight, a different kind of tension hung in the air. A sense of unease that went beyond the usual pre-Halloween chill. 
+
+Eva’s phone vibrated with a text from her uncle, the one who always knew what was brewing around the corner: *“Something's up, Eva.”*  A shiver raced down her spine as she glanced at the antique clock on the wall - it was almost midnight. Tonight, even the ghosts of Bourbon Street seemed to be holding their breath. 

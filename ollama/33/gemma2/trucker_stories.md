@@ -1,0 +1,6 @@
+The air hung thick with humidity, heavy as molasses clinging to the backroads of Louisiana. Cicadas buzzed their ceaseless song, a droning symphony punctuated by the occasional croak of a bullfrog.  Sweat beaded on Jeremiah “Jerry” Buckmaster’s brow as he wrestled the eighteen-wheeler around another bend. The cab of his rig was a furnace, radiating heat from the worn leather seats and the sun baking down through the cracked windshield. 
+
+He squinted at the faded sign that flickered in the distance: "Welcome to Darrow, Population: 2,753 (and shrinking)". Jerry had never been through Darrow before, but the GPS insisted it was the most direct route to his next delivery, a load of catfish feed destined for Baton Rouge. He wasn't particularly thrilled about the detour.  The highway seemed like a far better option, even with its construction detours and endless traffic jams. But then again, Jerry preferred the quiet company of his rig and the open road to the chaos of the interstate any day.
+
+
+The sun was starting to dip below the horizon, painting the sky in hues of orange and purple.  Jerry reached for his coffee mug, finding it empty as he'd suspected. He sighed. Time to find a place to rest before nightfall. 

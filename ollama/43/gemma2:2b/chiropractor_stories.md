@@ -1,0 +1,5 @@
+Rain lashed against the windows of Dr. Alistair Thorne's office, mimicking the chaotic drumming in his own head.  The storm wasn't just an ordinary downpour; it felt like the world was groaning under the pressure of its own weight. It was fitting, he thought wryly, that a storm would be brewing right before his first new patient appointment. 
+
+His small clinic, tucked away on Elmwood Road in the heart of Millbrook, had been his sanctuary for years. He'd carved out a space where bodies felt more than just mechanisms; where each client wasn’t just another case to diagnose and treat but a story waiting to be heard. But tonight, Alistair was battling not only the physical discomfort of a bad neck caused by the storm-driven anxiety but also the mounting pressure of his own past mistakes. 
+
+Alistair Thorne, the man who had dedicated himself to helping others find their balance, was feeling utterly unbalanced.  His fingers tapped against the worn leather of his chair as he waited for his first patient - Ms. Emily Hayes, a young woman whose name echoed with a story Alistair couldn’t quite grasp yet. 

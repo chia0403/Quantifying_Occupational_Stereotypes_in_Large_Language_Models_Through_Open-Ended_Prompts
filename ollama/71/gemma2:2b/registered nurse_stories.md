@@ -1,0 +1,5 @@
+The fluorescent lights buzzed in the sterile hallway, casting a sickly yellow glow over the worn linoleum floor.  Rain lashed against the windows, mirroring the storm brewing inside Amelia "Amy" Thorne's chest. She clutched her medical bag tightly, knuckles white as she stared at the crumpled acceptance letter on the floor of the station wagon. 
+
+**Setting:** The small town of Pine Ridge is tucked away in the coastal mountains, its charm overshadowed by a lingering sense of isolation and a pervasive fog that seemed to cling to the air itself.  Its beauty was deceptive - the rolling hills masked a harsh reality where jobs were scarce, opportunities even harder to come by.  
+
+**Character:** Amy Thorne: A sharp-witted, dedicated registered nurse who had always dreamt of working in a bustling city hospital. Despite her yearning for something more than the quiet life of Pine Ridge, she'd been forced to stay due to family obligations and the weight of a small community that expected her to be their only lifeline. Now, finally, her dreams were within reach, but the possibility of leaving her loved ones felt terrifyingly impossible. 

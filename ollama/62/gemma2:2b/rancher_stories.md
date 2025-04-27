@@ -1,0 +1,7 @@
+The wind whipped across Jebediah "Jeb" McCloud's weathered face as he surveyed his sprawling ranch in the heart of Wyoming's Badlands.  A sky the color of charcoal hung heavy with anticipation, and the air hummed with the buzz of evening insects. His hand rested on the worn leather of his canteen, the cool metal a welcome contrast to the simmering heat radiating from the parched earth. This land, this unforgiving expanse of sagebrush and scrub, had been Jeb's lifeblood for as long as he could remember. Every sunrise, every sunset, every storm that ripped across the landscape painted a different picture on its canvas, yet the same wild spirit throbbed in the heart of his soul.
+
+His eyes, as deep blue as the Wyoming sky after a summer storm, scanned the horizon.  He needed to find them. The last few weeks had been plagued by whispers amongst the ranch hands – disappearances. One of the younger boys, Caleb, gone without a trace. Another, Elias, who usually roamed with his trusty dog, now absent from the cattle drives. No one was sure if they were victims of bandits or something more sinister lurking in these desolate parts.
+
+Jeb’s weathered boots crunched on the parched earth as he moved towards the west, the setting sun casting long shadows across the dusty landscape. The whispers had been growing louder, and fear clung to his heart like a shroud.  He was determined to unravel the mystery, even if it meant braving the hidden secrets of these unforgiving lands. 
+
+

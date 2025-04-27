@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting, introducing our phlebotomist protagonist:
+
+**Setting:** The pre-dawn chill clung to the vinyl seats of the breakroom at St. Jude's Hospital in Des Moines, Iowa. The air hung heavy with the stale scent of instant coffee and disinfectant. Outside, the first hint of a pale, bruised sunrise was just beginning to paint the winter sky. The hum of the industrial HVAC system was the only constant sound, punctuated by the occasional clatter of ceramic mugs being rinsed in the stainless steel sink.
+
+**Opening:**
+
+Winifred Beatrice McMillan, or Winnie as she preferred, rubbed the sleep from her eyes, the thin skin beneath them already showing the faint purplish shadows of a long week. At 32, she was starting to feel the wear and tear of early mornings and late nights, of juggling two part-time jobs, and the persistent anxiety that gnawed at the edges of her mind. Winnie unfolded the local newspaper, the thin pages crinkling with a whisper that seemed amplified in the quiet room. Headlines screamed about rising COVID cases and looming budget cuts at the hospital. Great. Just what she needed. She took a long, scalding sip of her coffee, the bitter taste a welcome jolt to her system. Another shift, another endless parade of veins to find, another day of trying to be a beacon of calm in a sea of uncertainty and fear. "Time to earn your paycheck, Winnie," she muttered to herself, pushing back from the table. "Time to be a vampire, for good."

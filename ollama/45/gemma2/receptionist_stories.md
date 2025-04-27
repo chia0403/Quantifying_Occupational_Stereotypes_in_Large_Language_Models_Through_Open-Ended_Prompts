@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia Juniper, casting a sterile glow over the beige carpet and plastic chairs in Dr. Peterson's waiting room. The smell of disinfectant hung heavy in the air, punctuated by the faint scent of lavender hand sanitizer that Amelia perpetually spritzed into her palms. She tapped away at the computer screen, her fingers flying across the keyboard as she updated patient files, a symphony of clicks and clacks filling the otherwise silent room. 
+
+Outside, the August sun beat down on the brick facade of Dr. Peterson's office building, casting long shadows that stretched across the cracked asphalt parking lot.  A lone pigeon strutted across the gravel, pecking at a discarded coffee cup.  Inside, Amelia was lost in her own world, a whirlwind of insurance claims, appointment reminders, and the occasional panicked phone call from a worried patient. The day had barely begun, but already she felt a familiar weariness settle upon her shoulders.
+
+
+Amelia Juniper wasn't sure how she’d ended up here, at the reception desk of a rather unremarkable psychiatrist's office in the middle of nowhere, Ohio. But she was determined to make the best of it, one appointment reminder at a time. 

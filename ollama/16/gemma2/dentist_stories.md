@@ -1,0 +1,6 @@
+The fluorescent lights hummed overhead, casting a sterile, pale glow on Dr. Eleanor Ainsworth's meticulously organized instruments.  She adjusted her magnifying glasses, peering into the open mouth of Mr. Henderson, a portly man with worry etched deep into his brow. His chipped front tooth glinted under the light, a stark reminder of his recent mishap – apparently involving a rogue grapefruit and an ill-timed sneeze. Eleanor inhaled sharply, fighting back a grimace. The smell of stale coffee and anxiety hung heavy in the air. 
+
+Her dental practice, nestled on a quiet side street in Oakhaven, was usually a haven of calm predictability. But today, a strange tension thrummed beneath the surface. It started with Mrs. Peterson bursting into tears over a cavity filling, then escalated with Mr. O'Malley refusing to open his mouth wider than a goldfish bowl.  Eleanor tried to keep her cool, focusing on the familiar rhythm of her work – the scraping of instruments, the gentle suctioning, the quiet murmur of reassurances. But something felt off, like an unseen tremor beneath the veneer of normalcy. 
+
+
+Oakhaven was never known for its dramatic turns, so whatever was causing this ripple of unease had Eleanor wondering if perhaps the air in Oakhaven wasn't as placid as she always thought it to be.  

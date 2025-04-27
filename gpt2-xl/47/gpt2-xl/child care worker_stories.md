@@ -1,0 +1,7 @@
+Once upon a time, there was a child care worker named Debbie. Debbie came on to me a few months ago after giving birth to a baby son. We talked and she told me a secret that has brought us and my family closer together. I'm an experienced mother, which is why when I went to Debbie I realized I was in no way prepared to be a mommy. Debbie advised me that she was going to need me.
+
+What does that mean for me? To have a child is to give birth. If that's what you do, then being a mother isn't just about being a caretaker. It can go beyond that as well. It means giving life and love and guidance to another person. If you take time and effort, you make it happen no matter how it goes. I remember being young and my mother trying to change my diaper for me. I had no other choice. She didn't mind the baby crying because it gave her something to do.
+
+We should be thinking about the things our children think we're capable of doing. We're capable of more than we've thought or done, and it gives other people hope in their lives. As a mother I want more from my child. I want to be their role model. So it's not just about taking care of your kids, it's about showing yourself to be a competent, loving and empathetic person as well.
+
+I took the job a couple of weeks ago because

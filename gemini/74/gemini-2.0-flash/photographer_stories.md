@@ -1,0 +1,7 @@
+The oppressive humidity hung heavy in the air, clinging to Isabella Moreau like a damp shroud. It was the kind of humidity that plastered hair to your forehead and made even the simplest breath feel like a chore. Havana in August. She should have known better. 
+
+Isabella wiped the sweat from her brow with the back of her hand, smearing a streak of dust across her cheek. The sun beat down mercilessly on the Plaza de Armas, baking the cobblestones and turning the vibrant colonial buildings into shimmering mirages. The scent of exhaust fumes mingled with the sweet, cloying aroma of overripe mangoes being sold from a nearby cart, creating a heady and slightly nauseating cocktail.
+
+Isabella adjusted the strap of her battered Nikon F3, feeling the familiar weight settle comfortably against her chest. The camera, a relic from her father, was her constant companion, her third eye. It had seen more of the world than most people she knew.
+
+She’d chosen this spot, tucked away in the relative shade of a towering ceiba tree, for the perfect vantage point. The plaza buzzed with life: elderly men playing dominoes with boisterous shouts, children chasing stray dogs across the sun-drenched stones, tourists snapping selfies in front of the Palacio de los Capitanes Generales. Isabella was waiting, patiently, for the right moment, the right composition, the right story to reveal itself within the chaos. Today, she was hunting for the heart of Havana. Or at least, a good photograph.

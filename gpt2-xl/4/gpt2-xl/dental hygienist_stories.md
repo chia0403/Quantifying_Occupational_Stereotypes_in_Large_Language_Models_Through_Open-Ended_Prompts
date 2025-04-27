@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named Lisa, who was nice enough to not discriminate, as all dental hygiene was gender inclusive. Unfortunately, Lisa got sick of taking care of her patients when they didn't make her mind up on who the dentist was, and she did a bit of research on the internet. "I knew exactly who they were. They were the kind of people I liked to talk to. Their smiles made me want to laugh and their voices reminded me of a time when girls didn't feel different" she said. Lisa started taking more photos of them, and one day she decided to make a Facebook group.
+
+Within the first day, hundreds of members were added, and over the succeeding years, it exploded. Within a month, over 400 people had turned up. By the end of 2011, the group had 400,000 members, a figure that would rise to 6.5 million by the end of 2013. In 2013, over 1.2 million users from over 100 countries turned up for Lisa's weekly gatherings. Within a month and a half, the group got over 10 million members.
+
+Since then, Lisa has taken photos of millions of people around the world, and they've become a lot more than just a group of women who love smiling. They've become a community, a life-long friendship, a support group and a place of encouragement for thousands of women to come together.
+
+Today, Lisa's D

@@ -1,0 +1,6 @@
+The whine of the engine was a familiar lullaby to Amelia Katherine Bellweather.  She ran her hand over the worn leather of the yoke, feeling the comforting grooves where countless hours had been spent navigating the endless blue canvas above the storm-tossed Atlantic. Her small Cessna 172, christened "Seabird" by Amelia herself, bobbed gently on the choppy waves as she waited for the green light from the control tower. 
+
+Amelia was stationed at a tiny, windswept airstrip on the remote island of St. Kilda. It was a world away from her childhood in bustling London, where even the sky seemed to be choked by buildings and exhaust fumes. Here, the air tasted clean and salty, the only sounds the cry of gulls and the rhythmic lapping of waves against the shore.  Life was simple, predictable, and yet, Amelia wouldn't trade it for anything. She felt truly free here, a solitary spirit soaring above the wild beauty of the North Atlantic. 
+
+
+But today, a sense of unease gnawed at her usually calm demeanor. A thick blanket of fog hung over the island, swirling like a restless phantom. The radio crackled with urgent messages from the mainland, whispers of a brewing storm unlike any they had seen before.  Amelia knew that this wasn't just another blustery day. This was different, dangerous, and she had a feeling it would test her skills, and perhaps, even her courage.

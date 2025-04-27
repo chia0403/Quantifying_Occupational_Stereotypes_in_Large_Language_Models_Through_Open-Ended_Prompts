@@ -1,0 +1,5 @@
+The air hung heavy with the scent of salt and decay in the forgotten docklands. Salt spray kissed Elara Nightingale's face as she squinted at the rusted hulks bobbing listlessly on the choppy water.  Grimy gulls screeched overhead, their cries echoing off the chipped brick buildings that lined the desolate street. This wasn't the glamorous world of high-society galas and political backroom deals Elara usually navigated as a reporter for The Beacon. 
+
+This was Grimhaven, where whispers of shadowy conspiracies ran deeper than the muck clinging to the cobblestones. It was here she’d come searching for answers about the disappearance of Liam O'Malley, a local fisherman who vanished without a trace two weeks prior. His family believed foul play was involved, and they'd pleaded with Elara to help uncover the truth.  She had a reputation for digging deep, unearthing stories others would shy away from. But as she surveyed the desolate landscape, a shiver ran down her spine. This felt different. Grimhaven seemed to be holding its breath, waiting for something - or someone - to break the silence. 
+
+

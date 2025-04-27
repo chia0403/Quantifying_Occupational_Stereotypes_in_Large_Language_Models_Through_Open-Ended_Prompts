@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named David Sedaris. Sedaris is famous for his rants so bad they became true, but this time it was true. He had met a man from the city of New York, a man of great talent, not just in the art of conversation, but also in a life other than the one his parents had chosen for him. His name was Donald Trump. And David Sedaris wrote a story that helped create our current president. But first, an introduction from Sedaris.
+
+David Sedaris: I met Donald Trump in 1984. He was a 21-year-old, handsome, pretty, and completely insane. I mean, he was so weird! He was my teacher-mentor in a way that I was never allowed in for a long time. But he was, you know, completely out of his head.
+
+Narrator: David Sedaris' first article for Look magazine involved a series of sketches by the British artist David Hockney -- and was designed to launch, well...David Sedaris' career in New York. The opening paragraph of the first article stated:
+
+Trump appears first on our pages as a "very rich old man," and a "vulture!" He is a former member of a fraternity, and is in debt to many people, including the artist, whom he owes a large sum. He is also in debt -- to his parents. They are, without any doubt, the

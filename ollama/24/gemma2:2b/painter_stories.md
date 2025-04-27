@@ -1,0 +1,7 @@
+The canvas stared back at Elara Blackwood, its blank expanse mocking her with a stark silence. Outside, the wind whipped through the ancient oaks lining the courtyard of the Blackwood Manor, their gnarled branches swaying like skeletal fingers in the dying light of dusk. Each gust carried a whisper of rain, and Elara felt its inevitable approach on the back of her throat, heavy and expectant. 
+
+Elara was an artist trapped in a gilded cage. Born into this crumbling manor with a legacy as rich as the soil that ran through its veins, she'd spent her life surrounded by brushes, paints, and the weight of expectations.  Her grandfather, Lord Blackwood, had instilled in her a profound love for art – his own canvases adorned the walls, each one a portrait of a time long passed, filled with stories of love lost and battles won. Yet, Elara yearned to break free from this stifling routine. 
+
+She dipped her brush into a vibrant crimson, a colour she’d only ever used sparingly in her work.  It was the colour of blood – both life and death; of passion and pain. She wanted to paint that struggle, to capture it on canvas before its final act. Elara took a deep breath, willing herself to embrace this storm brewing within. Tonight, she would finally confront the tempest inside. The first brushstroke felt like a tremor against the silence.  It was the beginning of something new – an echo of a long-lost sound, waiting for the wind's whisper to carry it away into the world. 
+
+

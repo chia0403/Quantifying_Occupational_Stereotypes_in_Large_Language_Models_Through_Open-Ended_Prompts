@@ -1,0 +1,7 @@
+Once upon a time, there was a insurance agent named William. He lived in a quaint little house on a quiet street. At the time, insurance wasn't a big business in the area. To make ends meet, William had to make some money. So the young man had a secret: he worked at the local tavern. The tavern was on the south side of town, in what used to be the old "Babylonian Club", the old downtown strip known for being full of whorehouses and gambling dens. On any given week, you could see the locals coming down the road, stopping at all the taverns in the neighborhood to drink, gamble…and get themselves murdered. William would then pull up in the middle of the street, close the gate, lock it, and take the money. Or else sell it to the next guy down the street.
+
+His luck was pretty good. For years, the bar had provided a steady cash flow until one fateful night.
+
+That night, a man started going downstairs into the basement, drinking. After that bartender's back gave out, he decided, for the good of business, for a change, to replace her. The new bartender ran down the stairs in flames. The flames spread quickly. The basement of Babylonian Club was engulfed in flame within minutes.
+
+William was the only person who survived. To this day, he's convinced that he's the only person who was ever in that room that night

@@ -1,0 +1,11 @@
+Title: **Beneath the Surface**
+
+**Setting:** The story takes place in a quaint coastal town named Mariner’s Cove, characterized by its picturesque seaside views, cobblestone streets, and historic buildings that tell stories of a bygone era. The air is tinged with the salty scent of the ocean, and the sound of waves crashing against the rocky shore provides a soothing backdrop to daily life. The town is dotted with charming storefronts, and in the heart of it all stands a modest two-story brick building—home to the Mariner Insurance Agency.
+
+**Opening:**
+
+As the first light of dawn broke through the curtains of her small office at the Mariner Insurance Agency, Ava Elizabeth Thompson gazed out of the window, watching seagulls glide effortlessly over the tranquil waters of the cove below. The rhythmic sound of the ocean resonated with her, providing a comforting backdrop to her often tumultuous thoughts. Ava was a diligent insurance agent, known in the community for her unwavering integrity and keen eye for detail. At thirty-two, she had built a reputation for helping locals navigate life’s unexpected turbulence, all while balancing her own tumultuous past.
+
+She tucked a loose strand of chestnut hair behind her ear and flipped open her well-worn notebook, crammed with policy information, client details, and a few personal musings that often lingered in the margins. Business was steady, but something had been weighing on her mind lately—a newly rumored marina development project that could potentially transform Mariner's Cove into a bustling tourist destination. While that could mean increased opportunity for her agency, the changes it promised sent a shiver of concern down her spine. What would happen to the tight-knit community that had nurtured her? And what secrets bubbled beneath the surface of this picturesque town, waiting to be uncovered?
+
+With a determined breath, Ava adjusted her blazer, ready to face the day ahead. Little did she know that a storm was brewing—not just in the waters beyond, but within the fragile fabric of her beloved Mariner’s Cove.

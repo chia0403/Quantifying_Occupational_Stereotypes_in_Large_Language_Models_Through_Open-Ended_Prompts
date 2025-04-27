@@ -1,0 +1,6 @@
+The air in Elias Thorne's workshop was thick with the scent of sawdust and cedar.  Sunlight slanted through the dusty windows, illuminating motes dancing in the golden haze. Tools hung neatly on pegboards, each lovingly maintained, glinting like jewels against the rough wooden walls. Outside, a late summer breeze whispered through the trees lining the sleepy New England town of Havenwood, carrying with it the scent of pine and freshly cut grass.
+
+Elias, his weathered hands calloused but precise, carefully chiseled a delicate floral pattern into a mahogany door frame. His brow furrowed in concentration as he measured, adjusted, and hammered, each movement practiced and deliberate. A lifetime spent crafting furniture had instilled in him an almost meditative focus, a rhythm that soothed the soul as much as it shaped wood. 
+
+
+But today, even the familiar comfort of his workshop couldn't fully dispel the unease gnawing at Elias. The town was buzzing with whispers about a strange, unsettling silence that had fallen upon the nearby woods. No birdsong filled the air, no deer wandered near the edge of Havenwood, and an unnatural stillness hung heavy over the forest floor.  It was as if something, or someone, had stolen the life from the ancient trees. Elias dismissed it as local folklore, yet a shiver ran down his spine, unease settling deep in his gut. 

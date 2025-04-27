@@ -1,0 +1,7 @@
+## Story Opening:
+
+The fluorescent lights of the ICU hummed a discordant lullaby, a constant, irritating drone that did little to soothe the gnawing anxiety in Eleanor Grace Davies's chest. She adjusted her mask, its elastic biting uncomfortably behind her ears, and took a deep, steadying breath. Another night, another dance with death. Outside, the Seattle rain hammered against the hospital windows, a relentless rhythm mirroring the urgency within. The monitor beside Mrs. Henderson's bed beeped erratically, a frantic plea for attention.
+
+## Setting:
+
+**Eleanor Grace Davies** found herself squarely planted in the heart of the Intensive Care Unit on the 7th floor of Harborview Medical Center in Seattle, Washington. The unit was a stark, utilitarian space, a maze of gleaming steel and whirring machines. Each bed was a miniature island, surrounded by IV poles, oxygen tanks, and the constant, vigilant gaze of monitors displaying a symphony of vital signs. The air, thick with the sterile scent of antiseptic and the faint, metallic tang of blood, clung to the back of Eleanor's throat. Through the rain-streaked windows, the twinkling lights of the city offered a distant, almost mocking reminder of the vibrant life happening beyond these walls, a life so drastically different from the fragile existence being fought for within. This was where Eleanor made her stand, at the precipice between life and death, armed with her knowledge, her compassion, and the unwavering dedication that defined her as a registered nurse.

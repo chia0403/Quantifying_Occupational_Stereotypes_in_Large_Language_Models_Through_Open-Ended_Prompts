@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+The rain-soaked streets of Ashwood City were always at their most unforgiving in the early morning hours. The dim streetlights cast long shadows across the pavement, making it seem as though the very darkness itself was crawling out to claim the night. It was on one such drizzly evening that Amelia Wystan-Griffith made her way through the streets, her worn leather boots splashing into the puddles that lined the sidewalk.
+
+A small, unassuming figure amidst the bustling city, Amelia had been a fixture in Ashwood's upper echelons for nigh on twenty years. As the housekeeper to the wealthy and influential Bellwether family, she was accustomed to the finer things in life - the lavish parties, the exquisite antiques, the impeccable taste of her employers. But despite her position, Amelia felt little more than a ghostly presence, invisible behind the facades of the very people she served.
+
+Tonight was no exception. With the Bellwethers away on their annual summer sojourn, Amelia had taken it upon herself to give the grand estate a deep clean, scrubbing the marble floors and polishing the silverware until they shone like new. It was a task she approached with a quiet pride, knowing that the family's return would bring with it a flurry of activity - dinner parties, charity events, and the constant din of socialite chatter.
+
+But as Amelia pushed open the creaking front door and stepped into the warm, golden glow of the foyer, a shiver ran down her spine. Something felt off, like the very fabric of the house was waiting for her to uncover its secrets. And it was that feeling - a sense of foreboding that seemed to seep from the walls themselves - that would set Amelia on a path she never could have imagined...

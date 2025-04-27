@@ -1,0 +1,7 @@
+Once upon a time, there was a barber named Jack G. He was great at his work, but the people loved him. He was admired for his gentleness and his easygoing nature. The women loved him because he was handsome, and he could keep them company without being the most handsome man in the world. He also worked with the disabled, who revered him like gods.
+
+Then one day, Jack's reputation of being soft and accommodating with people was called into question. Some of his customers were beginning to complain and call him names, so he decided to get some revenge. He got a couple of his guys dressed up in women's clothes and came into the barber shop. He told the barber his customers' names and how he had chosen to behave towards them that day. The barber was horrified by the insults heaped upon his clientele, but he could care less. And now, he was paying the ultimate price for disrespecting a guy who worked for a living.
+
+The barber cut Jack's hair, but for the sole purpose of delivering this insult. He didn't even bother to put on a wig after all the jokes Jack had made. And just as suddenly as the insults had come, all the customers left. Jack was done with him and the barber's services as of now.
+
+There had been one little problem though. The next day, when the barber decided to be a bit more polite as he finished his

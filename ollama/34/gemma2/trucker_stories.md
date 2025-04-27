@@ -1,0 +1,4 @@
+The biting Wyoming wind clawed at Thaddeus “Thad” Montgomery’s face as he wrestled his rig into the lone gas station in Baker, Wyoming. The neon sign flickered like a dying ember, casting long, skeletal shadows across the cracked asphalt.  Dust devils danced between the sputtering pumps and tumbleweeds rolled past the boarded-up windows of what was once a diner. Thad squinted at the dusty map pinned to the visor above his seat. He needed to hit Cheyenne before nightfall, but Baker promised coffee, and maybe even a hot meal if he was lucky. The air hung heavy with the smell of diesel and something faintly metallic – like blood left out in the sun too long.  Thad ignored it. 
+
+
+He was just passing through. This town held no secrets for him. At least, none he hadn't already seen reflected in his rearview mirror.

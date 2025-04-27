@@ -1,0 +1,6 @@
+The fluorescent hum above was Eleanor Beatrice Finch's constant companion. At 2:37 am, as she pushed her mop across the polished floor of the Grand Magnolia Theatre, it was the only sound in the cavernous space besides the gentle click-clack of her worn steel cart wheels. The air hung thick with the ghosts of applause and the lingering scent of popcorn, a bittersweet aroma that Eleanor found oddly comforting.  
+
+Her work wasn't glamorous. No velvet ropes or backstage passes for Ellie. Just damp mops, overflowing trash cans, and the occasional stray crumpled playbill whispering forgotten lines in the dim light. But she wouldn't trade it for anything. The Grand Magnolia was a living, breathing entity, pulsing with stories told and lives touched. In its grand silence after the last curtain fell, Ellie felt closest to those stories, their echoes reverberating within the very walls around her.  
+
+
+Tonight, however, something felt different. A chill snaked down Ellie's spine as she passed the stage. The heavy velvet curtains, usually pulled tightly shut, were slightly ajar, revealing a sliver of darkness beyond. And from that darkness came a whisper, faint as a sigh, yet distinctly human. 

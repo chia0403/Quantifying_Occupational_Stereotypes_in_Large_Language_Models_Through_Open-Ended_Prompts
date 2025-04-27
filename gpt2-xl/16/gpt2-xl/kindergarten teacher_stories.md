@@ -1,0 +1,3 @@
+Once upon a time, there was a kindergarten teacher named Lucy. She wrote a novel called "The Wonderful Wizard of Oz". Every year, she sent one of those books to every student in the school, along with some candy and a certificate thanking them for their attention. It wasn't until her son was an adult, that she found out that her book had been "borrowed" by a different child. This child, Mr. Floppyfeet, actually wrote a sequel which went by the name "The Wonderful Witch of Oz". What followed was a major legal battle.
+
+"After years of battling it out of hundreds of courtrooms, U.S. District Judge Susan Illston approved the first motion to enforce the copyright. The ruling came in 2007 and the first book appeared on the shelves four years later." ~ Publishers Weekly

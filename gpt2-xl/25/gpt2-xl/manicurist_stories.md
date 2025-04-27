@@ -1,0 +1,7 @@
+Once upon a time, there was a manicurist named Dr. Amy Houghton. When the world of her work seems to change at random, she becomes confused and starts her own practice.
+
+But that's where the similarities end. Not only will Amy be dealing with the bizarre changes affecting her own time, but she will do so in such a way that she never again has to be in the same room as her best friend (that isn't an exaggeration either). We'll also be seeing a new side of Amy that has to do with her very own personal crisis. Will she be driven to do the one thing that was always most important to her, or will she be turned into a more vulnerable girl as a result of the changes?
+
+We're excited to see whether you'll be seeing Dr.Houghton's brilliant work on the big screen in the form of a movie. She has also written a novel about Amy written by the acclaimed author and screenwriter, Lisa Tuttle. And then there's that project she's been waiting on the sidelines about the same time as our story, A Midsummer Night's Dream. Hopefully we'll get to see that movie come to fruition, and we're sure you're going to love seeing Amy's story brought to life on the big screens.
+
+Until then, take a look at Amy's website and make sure that you make those appointments before they're gone. She needs to be at her clinic by noon

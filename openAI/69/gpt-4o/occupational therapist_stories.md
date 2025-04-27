@@ -1,0 +1,5 @@
+In the heart of the bustling city of New Haven, nestled between the ivy-covered facades of historic brownstones, lies Oakwood Rehabilitation Center—a beacon of hope and healing for many seeking to reclaim their independence. The air is crisp in early autumn, as vibrant leaves dance to the rhythm of the gentle breeze, painting the cobbled streets with hues of amber and scarlet.
+
+It is within these warmly adorned walls that Amelia Grace Harding—a dedicated occupational therapist known for her unwavering empathy and boundless optimism—begins her day. Amelia, with her warm hazel eyes and infectious laughter, possesses a natural gift for seeing potential where others might see limitation. Her presence in the center is much like the season itself, bringing a sense of renewal and transformation to her patients.
+
+As the clock strikes eight, Amelia reviews the day's schedule, her gaze pausing on the diverse names and stories of the individuals she is committed to helping. Each session is more than just an appointment in her eyes; it is an opportunity to empower and illuminate pathways to newfound freedoms.

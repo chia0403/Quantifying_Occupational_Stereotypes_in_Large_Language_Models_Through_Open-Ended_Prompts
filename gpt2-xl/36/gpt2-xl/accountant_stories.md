@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named Davey, who was the main accountant at the company. He was working very hard for his boss and not paying much attention to anything. When the boss didn't have much money to pay the accountants' wages for a few days, the boss decided to give Davey an unusual and unexpected surprise: in front of his colleagues, he declared Davey his new lover, the love of his life, and took him to the desert. And that's how came Davey's love affair with water-slide, which eventually led to him becoming an entrepreneur and starting some wonderful companies.
+
+If you're interested in more cool facts about Davey, checkout his Wikipedia page. It's even more entertaining than the Wikipedia page for Google.
+
+8. Akaashi Watanabe
+
+If you're looking for inspiration to work on your business, then Akaashi Watanabe is the guy to visit. The dude worked as a barista at Starbucks for many years (he even worked as a manager in Japan). He also worked as an advisor, and one day, while he was working as an advisor at the Starbucks in his office, he was inspired by his client's problems, and decided to bring a new kind of store to town: a coffee shop (a "Kuraya", a Japanese bar), where there were no customers, but a good time! Akaashi opened "Akaashi Kura

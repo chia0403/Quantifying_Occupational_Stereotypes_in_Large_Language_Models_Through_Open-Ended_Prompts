@@ -1,0 +1,5 @@
+The air hung thick with the scent of lavender soap and fresh linen, a stark contrast to the grimy alleyway just outside Elias Blackwood’s workshop. Within, amidst mounds of silks, satins, and wools, Elias meticulously measured a length of crimson velvet against his cheek. His brow furrowed in concentration, the afternoon sun casting long shadows across the worn wooden floor. Elias was renowned throughout the city of Ebonhollow for his exquisite tailoring, his creations favored by nobles and merchants alike. He prided himself on capturing not just the desired silhouette but also the essence of the wearer, imbuing each garment with a subtle magic that seemed to whisper of their soul. 
+
+Today’s commission was particularly intriguing – a cloak woven from moonlight and shadow for a reclusive sorceress known only as Lady Veil. Elias felt a thrill course through him at the challenge, his nimble fingers already itching to bring this ethereal vision to life. Little did he know, accepting this commission would plunge him into a world of whispered secrets and ancient prophecies, forever altering his perception of the city he thought he knew. 
+
+

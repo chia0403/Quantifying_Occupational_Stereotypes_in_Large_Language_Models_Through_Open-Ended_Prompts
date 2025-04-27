@@ -1,0 +1,6 @@
+The scent of disinfectant hung heavy in the air, battling with the faint aroma of cinnamon from the gingerbread house Mrs. Peterson had painstakingly crafted during her last therapy session. Amelia Rose Harper sighed, pushing back the stray strands of auburn hair that perpetually escaped her braid. The sun, filtering through the dusty windows of the occupational therapy room at St. Jude’s Children’s Hospital, cast long shadows across the colourful toys scattered on the floor. A worn teddy bear lay discarded beside a tangle of brightly coloured yarn, remnants of a project abandoned mid-stitch. 
+
+Amelia adjusted her glasses and glanced at the whiteboard calendar. Today was Monday, and that meant it was time for her weekly session with Ethan, a ten-year-old boy whose spirit remained unyielding despite the physical challenges imposed by cerebral palsy. 
+
+
+St. Jude’s, a bustling hive of activity during the day, seemed to settle into a quiet hum after the evening rush. The air held a mixture of hope and despair, the constant soundtrack of medical equipment punctuated by hushed conversations and the occasional burst of laughter from the playroom down the hall. It was in this space, amidst the chaos and calm, that Amelia found her purpose: helping children like Ethan rediscover their independence, one small victory at a time.  

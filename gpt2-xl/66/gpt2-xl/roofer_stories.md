@@ -1,0 +1,7 @@
+Once upon a time, there was a roofer named Jim," according to SCTV. "But he didn't like to talk to the guys so they had to make a roofing contract with a contractor named Jim to keep the money coming in."
+
+The show then goes on to describe a scene from the late 1980s where the roofers go to a bar and drink and have some fun until one of them says "I've got to say, I like the way these guys are living." The first word that comes out is "bro."
+
+Another one of those words was "punch." In the episode "Slumber Party," a scene shows a roofer named Mike "doing his job" when he starts feeling sad because he has no one to talk to about anything at the office. So Mike decides to buy a machete, one of the few items in the house that other people will want. He then goes to the shop that he works at and gets it fixed for him. As he is talking to the owner, who has a thick accent, he says "I hope I don't get that machete in the face."
+
+This all is a pretty good sketch for a few reasons. First of all, it's well done and shows the humor in the real world of a place that is usually considered to be not very funny. Furthermore, this episode has references to one of the weirdest times in comedy history. I will mention that this

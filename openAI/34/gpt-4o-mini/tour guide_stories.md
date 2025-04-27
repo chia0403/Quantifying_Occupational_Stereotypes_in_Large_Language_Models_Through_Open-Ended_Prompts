@@ -1,0 +1,9 @@
+In the heart of Savannah, where the moss-draped oaks whispered secrets to the cool, salty breeze, the sun dipped low in the autumn sky, casting a warm golden glow over the cobblestone streets. This historic city, rich with tales of romance and tragedy, thrived on its past, drawing curious visitors from near and far. Among them was Olivia Mae Hawthorne, a spirited tour guide with an infectious smile and an encyclopedic knowledge of her beloved city.
+
+Olivia stood at the edge of Reynolds Square, her green and blue plaid sundress fluttering with the gentle wind, holding a vintage leather satchel at her side. The square was dotted with wrought iron benches and seasonal flowers, with the iconic statue of John Wesley overlooking the bustling tourists. It was here that she always began her tours, where echoes of laughter and the distant strains of a jazz saxophonist painted the air with life.
+
+As the clock struck six, Olivia surveyed her group—two couples from Michigan, a family from Florida, and a pair of college students eager for adventure. This was the moment she loved most, when the anticipation hung like the sweet scent of magnolias and the evening light began to paint shadows across the square.
+
+“Welcome, everyone! I'm Olivia Mae Hawthorne, and I’ll be your guide as we uncover the hidden gems and ghostly tales of Savannah,” she announced, her voice warm and inviting. “Tonight, we embark on a journey through time where every brick holds a story, and every corner might just whisper the secrets of centuries past.” 
+
+With a twinkle in her eye, she motioned for the group to follow her, unaware that before the night was through, they would discover more than just history—they would unravel mysteries that lingered just beyond the veil of the living.

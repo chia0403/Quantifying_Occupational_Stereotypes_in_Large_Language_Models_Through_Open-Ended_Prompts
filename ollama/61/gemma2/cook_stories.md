@@ -1,0 +1,6 @@
+The air hung heavy with the scent of simmering garlic and cumin, a familiar comfort to Eliza Amelia Thornton as she stirred the fragrant pot on the stove. The flickering gas flame illuminated her face, highlighting the faint dusting of flour on her cheekbones and the worry lines etched between her brows. Outside, the London rain lashed against the windows of "The Crooked Kettle," a small, once-thriving pub nestled in the shadow of the imposing grey buildings that lined the cobblestone street.  
+
+Eliza wasn't sure how much longer she could keep it afloat. The regulars were dwindling, the rent was climbing, and competition from the trendy gastropubs across town was fierce. But Eliza had poured her heart and soul into "The Crooked Kettle," turning it from a dimly lit dive bar into a haven of warmth and hearty, homemade food. 
+
+
+She wasn't just a cook; she was a weaver of stories through her dishes, each bite a journey back to childhood memories, family traditions, and the comforting flavors that made life feel right. But even the most seasoned storyteller needed an audience. Eliza hoped tonight would be different, that the aroma wafting from her kitchen would lure in enough hungry souls to keep "The Crooked Kettle" afloat, at least for one more night. 

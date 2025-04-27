@@ -1,0 +1,7 @@
+Once upon a time, there was a server named Sjofnir. Sjofnir was owned by someone named The_Kingdeng, and his daughter ran it. At that time, it was run by a bunch of friends who made fun of things, had a habit of falling asleep, and made up fake language to make players and other users confused about the game. It has been said that Sjofnir was run like a family business.
+
+
+Around 1/15/2012, Sjofnir was raided by DarkElf. For reasons unbeknownst to anyone, DarkElf chose to pick a fight with the person who owned the server for several days, demanding to know who and why the server was being run and how much money the owners made. DarkElf was well known in most of the server for going around killing people in raids, and claiming people and looting their houses. The raid eventually made it to what people considered Sjofnir's main server, and had caused most people to move. This happened on the 10th of October 2012.
+
+
+This created a wave of anger, and a huge amount of grief. DarkElf began to target random characters in town, making it difficult to do anything on the server because it was too easy to become the victim of a DarkElf raid. The worst hit was the players who were running the second major town server, TarkaGuild. They used to run there, and there was supposed

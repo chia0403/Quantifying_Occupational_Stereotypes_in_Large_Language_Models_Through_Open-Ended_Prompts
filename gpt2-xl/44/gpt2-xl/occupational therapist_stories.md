@@ -1,0 +1,6 @@
+Once upon a time, there was a occupational therapist named David J. Lasko who did some very interesting work with post traumatic stress in his work with the NFL. I'm not sure if my memory is on the correct side or not, but I'm pretty sure he came up with the concept of using a game played in a very physical NFL style and playing it as long as possible to reduce the amount of stress on the players and their bodies in a period of time that was not controlled. 
+Now, what I want to talk about is Lasko's theory on how to create stress tolerance and how to create stress tolerance in athletes. 
+This theory was recently discussed on a few other sites that I've read over the years and Lasko's ideas, in my opinion, are far too simplistic and without any real scientific backing to be actually used by any type of actual athletic trainers. This type of talk is why the word "toxicology" is usually associated with people giving a clinical or physiological view on an athlete so that others can take that perspective and work on it in their own program.
+I can understand a lot of the reasons why many feel, but I am not going to do my level of research and get caught up in it. 
+Here is my theory:
+If a player is constantly put under extreme pressure and then allows an opponent to get over the top with the same type of physical actions or play, there is a certain level of

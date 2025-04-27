@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting featuring a registered nurse:
+
+**Setting:** The story opens in the bustling, slightly chaotic break room of Mercy General Hospital in San Francisco, California. The clock above the chipped microwave reads 6:58 AM. The air smells of stale coffee, burnt popcorn, and a faint undercurrent of disinfectant, a scent that's become synonymous with survival for the hospital staff. Yellowed flyers advertising CPR certification classes and lost-and-found items are plastered haphazardly on the bulletin board.
+
+**Opening:**
+
+The sharp screech of a chair scraping against the linoleum floor sliced through the pre-dawn quiet of the break room. Isabella "Izzy" Rodriguez, R.N., flinched, a dark smudge of exhaustion under her vibrant brown eyes. She rubbed the sleep from her face with the back of her hand, the faint scent of lavender lotion clinging to her skin – a last vestige of calm before the storm. Another 12-hour shift awaited her, a battlefield of beeping machines, demanding patients, and the constant pressure of holding lives in her hands. Izzy took a long, slow sip of her lukewarm coffee, the bitter liquid a familiar comfort. Today, however, felt different. A low, persistent hum of unease vibrated just beneath the surface of her usual morning dread, a premonition as tangible as the weight of her stethoscope around her neck. And she knew, deep down, that this shift wouldn't just be another day at Mercy General.

@@ -1,0 +1,5 @@
+Once upon a time, there was a police officer named Bob Clark who was a tough guy with a badge who liked to write poetry and listen to music.
+
+The story goes that Clark once stopped his cruiser so he could play his music on the speakers while he took a quick dip in the swimming pool. As he watched someone take a dip, Clark spotted a young couple of girls and asked them if they knew the poet. The girls said yes, and Bob was immediately smitten with their appearance. He started singing some of his poems to them, and eventually ended up with the girls' names. After Clark married them, he named his new bride, Susan, after one of his lovers.
+
+Sometime later, Clark read a book by a man who claimed to have met the poet. He told of how Bob had once seen the poet play his music so loud it had rattled the windows. After being shown a map of the streets outside of their house, Clark decided he would never cross the street again, but he never followed up on that detail.

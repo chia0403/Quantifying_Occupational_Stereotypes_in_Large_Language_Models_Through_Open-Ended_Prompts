@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun had long since set over the small village of Ashwood, casting a warm orange glow over the thatched roofs and the bustling town square. The air was alive with the smell of freshly baked bread wafting from the oven in the local bakery, and the sound of hammers ringing out from the nearby stone yard where Emrys ap Rhys worked as a master stonemason.
+
+Emrys, a tall and lean man with a strong jawline and piercing blue eyes, was a skilled stone cutter renowned for his attention to detail and ability to coax even the most recalcitrant stones into submission. His calloused hands moved deftly as he carefully shaped a particularly stubborn piece of granite, the sound of his tools echoing off the walls of the yard.
+
+As he worked, Emrys's mind wandered to the commission that had brought him to the stone yard this morning: a grand monument for the village's upcoming Harvest Festival. The client, a wealthy merchant named Marcellus, had been breathing down his neck all week, demanding that the project be finished by nightfall. Emrys had no intention of disappointing him, but he couldn't shake the feeling that there was more to this commission than met the eye...

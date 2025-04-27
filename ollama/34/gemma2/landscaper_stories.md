@@ -1,0 +1,6 @@
+The Arizona sun beat down on Bartholomew "Bart" Thistlewick's neck like a blacksmith's hammer. Sweat stung his eyes as he surveyed the overgrown tangle before him: Mrs. Henderson's once-pristine backyard had become a jungle of prickly pear cacti, scraggly palo verde trees, and weeds taller than his knee.  The air hummed with the drone of cicadas, their insistent song providing a relentless soundtrack to Bart's usual symphony of clippers snipping, leaves rustling, and the reassuring thwack of a shovel against earth.  
+
+This wasn't just any backyard; this was "Paradise Found," as Mrs. Henderson had christened it in her flamboyant pink flamingo lawn ornaments. Now, it looked more like "The Lost World." Bart sighed. This job was going to take longer than usual, and his schedule was already tighter than a hummingbird's beak.  But he couldn't disappoint Mrs. Henderson – she relied on him as much for company as for his green thumb, especially since her chihuahua, Coco Chanel (yes, really), had taken to nipping at the ankles of any new landscaper who dared venture onto her property.  
+
+
+Bart wiped his brow with a calloused hand and reached for his trusty pruning shears. He was going to tame this jungle, one prickly pear at a time. 

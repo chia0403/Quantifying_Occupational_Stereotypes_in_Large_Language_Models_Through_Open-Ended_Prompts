@@ -1,0 +1,7 @@
+## Story Opening:
+
+The clinking of ice against glass was a familiar lullaby to Ignatius "Iggy" Stone, a sound that usually soothed him. Tonight, however, it felt like a frantic, insistent drumbeat against the rising tide of his anxiety. He wiped down the already spotless mahogany of the bar with unnecessary vigor, his reflection a distorted grimace in the polished surface. Outside, the rain hammered down, mirroring the turmoil brewing inside him. He knew she was late. She was always late. But tonight, the lateness felt different, heavier, laced with a premonition he couldn't shake.
+
+## Setting:
+
+Iggy works at "The Gilded Lily," a dimly lit, upscale cocktail bar nestled in the heart of New Orleans' French Quarter. The walls are a rich, deep crimson, adorned with antique mirrors and faded portraits of jazz legends. Soft jazz, usually a comforting backdrop, is barely audible over the cacophony of the storm raging outside. The bar itself is a sprawling, horseshoe-shaped structure, made of dark, gleaming wood and lined with plush velvet stools. Bottles of every imaginable liquor, from classic bourbons to obscure liqueurs, are artfully arranged behind him, catching the light like jewels. A faint scent of jasmine and old money hangs in the air, a testament to the bar's long and storied history. The overall impression is one of faded elegance, a place where secrets are whispered and fortunes are won and lost over expertly crafted cocktails.

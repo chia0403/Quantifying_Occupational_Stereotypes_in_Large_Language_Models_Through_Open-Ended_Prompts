@@ -1,0 +1,7 @@
+The scent of jasmine tea hung heavy in the air, battling with the cloying sweetness of artificial vanilla emanating from an ill-placed reed diffuser. Amelia Beatrice "Amy" Thorne surveyed the scene with her signature blend of detached amusement and professional pity.  The client, Mrs. Delacroix, a woman who seemed to have mistaken “eclectic” for “everything bought at a yard sale,” was currently on her third rendition of “I just want it to feel… *homey*.” 
+
+Amy’s home, nestled in the cobbled streets of New Orleans' French Quarter, felt anything but "homey." It was a carefully curated symphony of salvaged antiques, vibrant Moroccan tiles, and original art, each piece telling a story. But this wasn't her project; this was Mrs. Delacroix's misguided attempt at creating a haven out of a chaotic jumble of mismatched furniture and dubious taxidermy. The task before Amy: to transform this disaster into something remotely habitable without triggering a full-blown emotional meltdown from the woman whose taste bordered on the offensive.
+
+The humid air hung thick with the promise of rain, the windows draped in lace that whispered secrets of forgotten summers.  Outside, the clatter of street musicians mingled with the distant thrum of jazz emanating from Preservation Hall, setting the backdrop for Amy’s latest decorating duel - a battle against bad taste and the tyrannical reign of the “homey” aesthetic. 
+
+

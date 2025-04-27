@@ -1,0 +1,7 @@
+Once upon a time, there was a landscaper named Richard T. Givand who made a living on the side collecting garbage. As it turned out, he made a lot more money working for the City of Rochester. He was one of the richest men that ever lived, but the City of Rochester was getting ready to tax his garbage collection profits to pay for their garbage collection system, after which they would get all those millions, along with the money from the sale of his land.
+
+So he had a choice. He could give the City of Rochester all that money, give it to them to finance the garbage collection system they paid him to build, but he would never see a cent. So he refused and he didn't take any of the money they gave him.
+
+So when the City of Rochester sued him for it, he settled the case. He bought back his entire collection site, all his personal property and even more importantly, all those valuable parking spots he promised them but failed to pay for.
+
+The City of Rochester still did not get that million dollars. There was still a debt of $27K. The city did not go away and there was a second court hearing to get that money. But then, the City of Rochester decided to take the "uncontested portion" of an arbitration agreement, and for the next 30 years, that money was never paid for. And that is where we are today! They do not have the authority to collect

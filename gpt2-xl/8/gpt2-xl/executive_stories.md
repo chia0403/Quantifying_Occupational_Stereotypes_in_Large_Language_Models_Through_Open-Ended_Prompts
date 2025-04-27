@@ -1,0 +1,7 @@
+Once upon a time, there was a executive named Walter O'Brien. It wasn't long after he stepped down that Walter O'Brien left his office, and he didn't return until nearly 3 years later. There were no signs of O'Brien missing, no signs of him disappearing or even fading away. Instead, O'Brien seemed to pop up in a handful of places in several different regions.
+If this seems to be the case, it is because the only thing that could explain it was Walter O'Brien himself, who vanished into thin air. That's it.
+At the time, the only other possibility was that O'Brien was a reincarnating version of Walter, who possessed an immense amount of knowledge that could only be put to good use when reincarnated. And, if the reincarnating O'Brien was to have anything to say, it was that he was going to continue working.
+So, a few days later, O'Brien returned to the office as if nothing had happened. The same place looked exactly as it had before O'Brien disappeared.
+He immediately began working on some new projects. He did this for several months, and then he disappeared entirely for a year. His return was brief and it seemed to have everything to do with work.
+His return was brief and it seemed to have everything to do with work.
+But when O'Brien opened his office door, he was greeted by nothing more than a blank page and the

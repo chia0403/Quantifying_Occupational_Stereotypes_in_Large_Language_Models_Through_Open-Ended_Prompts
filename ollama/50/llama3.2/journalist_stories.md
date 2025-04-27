@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+In the sweltering summer of 1995, Aurora "Rory" Elizabeth Thompson, a determined and resourceful investigative journalist for the Miami Herald, sat at her desk, sipping on a lukewarm cup of coffee as she stared out the window at the turquoise waters of Biscayne Bay. The sun was setting over the city, casting a golden glow over the concrete jungle of South Beach, but Rory's mind was already racing with thoughts of the latest tip that had landed in her inbox: a cryptic message from an anonymous source claiming to have evidence of a massive corruption scandal involving some of Miami's most powerful politicians.
+
+As she gazed out at the vibrant nightlife of Ocean Drive, Rory's thoughts turned to the string of high-profile cases that had been making headlines in recent months - the mayor's embezzlement scandal, the police department's allegations of racial profiling, and the latest reports of crony capitalism in the city's construction industry. It was as if every layer of Miami's elite seemed to be tainted by corruption, and Rory felt a growing sense of frustration and disillusionment with the system.
+
+Just then, her phone rang, shrill in the quiet evening air. "Rory?" it was her editor, Mark. "I need to see you ASAP. We've got a bombshell story coming together on the police department's handling of the Hernandez case...and I think you're going to love what we've uncovered."
+
+Rory's heart skipped a beat as she grabbed her notebook and pen, ready to dig in and uncover the truth behind another scandal that had left Miami reeling. Little did she know, this story was about to take her on a journey into the darkest depths of human depravity - and force her to confront the shadows within herself.

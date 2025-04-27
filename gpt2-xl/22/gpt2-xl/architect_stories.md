@@ -1,0 +1,7 @@
+Once upon a time, there was a architect named Philip Johnson and this was a book called A Study and Plans for the New York City. What was interesting about the book was how Johnson tried to design New York and how he tried to redesign New York to his architectural ideas. Johnson looked at some of the old buildings in the financial district and suggested there were too many tall buildings in the financial district. He recommended more open streets or small streets and he suggested people walk to work instead of driving. He also said instead of having one central shopping center like now, let's have five shops and you park next to them so you can just walk to the stores. He put the subway on the ground floor.
+
+
+Johnson thought of the old banks, what was the biggest one, the Chase Manhattan bank, as a skyscraper. They made it too tall so he suggested they should be built closer together and that they should be made more open in shape, where only one bank or only one tower would stand tall. They called the new Chase Manhattan the City Plaza, because it was made out of all these old buildings that were already there and he wanted the buildings to blend together. That's what Johnson said should have happened in the financial district.
+
+
+What happened is in the 1920s the city realized what he was saying and they made the Chase Manhattan tower taller and it became what we know as the Citibank Tower. By the 1930s Johnson had died and his ideas were too old to

@@ -1,0 +1,9 @@
+The morning sun spilled its golden light over the sprawling Montana landscape, casting long shadows across the rolling hills and shimmering off the dew-coated grass. A gentle breeze carried the earthy scent of the land, mingling with the rich aroma of freshly-brewed coffee. It was the kind of morning that held the promise of contentment for some and hard work for others. 
+
+Caleb Thorne's ranch, Thorne Acres, spread across hundreds of acres, quilted by patches of wheat and barley fields, lush pastures, and the occasional stand of Lone Pine trees clustered like sentinels watching over the land. It was as much a part of him as the weathered Stetson he wore or the sun-creased skin of his face. 
+
+Caleb, a broad-shouldered man with piercing blue eyes and a quiet, contemplative manner, stood on the wraparound porch of the homestead—a robust log cabin that his grandfather had built with his own two hands. The porch creaked under his weight as he leaned against the railing, mug in hand, surveying what was now his life's work and legacy. 
+
+Beyond the fence line, the cattle were beginning to stir; within the barn, the horses whinnied softly, eager to start their day. Each element was familiar, and each held its place in the rough-hewn poetry of ranch life. Caleb took a deep breath, feeling a grounded connection to the land that had been nurtured through generations of his family. 
+
+Today would be another day of hard work, unpredictable weather, and, if he was fortunate, the satisfaction of simple triumphs. He was ready—no, not just ready—he was eager for it. Because ranching, with all its challenges and rewards, was the life Caleb Thorne had chosen and embraced as his own.

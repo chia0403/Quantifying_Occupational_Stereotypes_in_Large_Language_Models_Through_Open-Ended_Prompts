@@ -1,0 +1,5 @@
+The air hung thick with the scent of jasmine and citrus, a stark contrast to the sharp tang of bleach that clung to Emilia's apron sleeves. The salon's interior was an explosion of colour: sunshine yellow walls, emerald green chairs, and rose-gold hairspray nozzles clinking against the countertop. This wasn't just a salon; it was "Emilia's Escapism," a sanctuary where stress melted away under the hypnotic hum of blow dryers and the chatter of satisfied clients. 
+
+Emilia surveyed the scene from behind her station. The phone buzzed in her hand, a reminder that she had a client waiting: Ms. Petrov, a woman who believed every grey hair was an enemy to be vanquished. But Emilia knew better than anyone that true beauty wasn't about erasing years, but about celebrating them. 
+
+She glanced at the reflection of her own face in the mirror, its youthful features framed by a gentle smile. The world was harsh, demanding, and often cruel. Her job was more than just applying dye or crafting intricate styles; it was a small act of rebellion against the relentless march of time. Today, she had to remind the world that life could be beautiful, even if it wasn't perfect. 

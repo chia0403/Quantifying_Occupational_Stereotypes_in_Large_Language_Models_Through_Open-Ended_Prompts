@@ -1,0 +1,5 @@
+Rain lashed against the window of Detective Amelia "Amy" Thorne's office, blurring the streetlights into dancing phantoms. She shifted in her worn leather chair, pulling her collar tighter against the chill that seeped through the cracked plaster walls. Outside, the city hummed with a restless energy – sirens wailing, traffic crawling, a symphony of urban angst.  Tonight, though, was different. Tonight, she had something to fight for.
+
+**Setting:** The gritty streets of New Orleans are shrouded in an autumnal haze as a thick layer of rain falls, mirroring the turmoil brewing inside Detective Amelia Thorne's mind. The humid air is thick with the scent of bayou mud and decaying fruit. 
+
+**Character:**  Amelia "Amy" Thorne - A veteran detective on the force for ten years, her once sharp eyes now shadowed with exhaustion. She carries the weight of countless unsolved cases, each one leaving a gnawing void where hope used to reside. Amy's life is a tangled web of duty and loss, fueled by a relentless drive to bring justice to the city's underbelly. 

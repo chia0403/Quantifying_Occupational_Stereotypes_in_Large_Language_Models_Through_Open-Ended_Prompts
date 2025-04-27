@@ -1,0 +1,5 @@
+The stale scent of antiseptic hung heavy in the air, a stark contrast to the acrid tang of fear that permeated Dr. Eleanor "Ellie" Vance's nostrils.  She inhaled deeply, trying to separate the clinical from the visceral, but it was a losing battle. The interview room felt smaller than usual, its beige walls seeming to press closer, amplifying the frantic beat of her own pulse. 
+
+Across the table sat Daniel Hayes, his eyes wide and unblinking, like two black marbles reflecting the harsh fluorescent light. His youthful face, barely more than a boy's, was etched with lines of distress that spoke volumes about the terror he had endured.  He clutched a well-worn teddy bear in his small hands, its fur matted and stained with what Ellie suspected was dried blood.
+
+Ellie Vance, renowned for her work with traumatized witnesses and incarcerated youths, sat back in her chair, steeling herself. This wasn't just another case; this was Daniel Hayes, the sole survivor of a horrific massacre that had rocked their small town of Oakhaven to its core. 

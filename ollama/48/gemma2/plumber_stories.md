@@ -1,0 +1,6 @@
+Rain hammered against the corrugated iron roof of Harold Percival Pipkin's workshop, each drop a tiny drumbeat in the symphony of the storm. Inside, the air was thick with the scent of motor oil and pipe cleaner, punctuated by the occasional hiss of escaping steam from a faulty radiator he was tinkering with. Harold, his hands greasy and calloused, squinted at the intricate network of pipes beneath the workbench, muttering to himself about "darned incompetent contractors" and "leaky seals." He was a man of routine, finding solace in the predictable rhythm of fixing what others had broken. But tonight, the rain seemed to whisper a different tune, hinting at a storm far larger than any plumbing problem he could handle.  
+
+The workshop sat nestled on the outskirts of Oakhaven, a sleepy town where everyone knew their neighbour and gossip travelled faster than the local bus. The once-bright red paint of Harold's workshop had faded to a dusty pink, mirroring the worn welcome mat that read "Pipkin Plumbing – We Fix What Breaks!" in chipped, white letters.  Outside, the wind howled like a banshee, whipping fallen leaves into frenzied dances against the grimy windows. 
+
+
+Harold took a swig of lukewarm coffee, his gaze lingering on the storm-swept landscape beyond the workshop. He knew, with an unsettling certainty, that tonight, something was about to change.  

@@ -1,0 +1,7 @@
+The chipped Formica countertop of the diner was sticky beneath Elias Thorne's elbow. He didn't bother wiping it; the grime was a permanent fixture, like the chipped blue paint on the walls and the smell of burnt coffee that clung to everything. Elias was used to it. He frequented "The Greasy Spoon," as the locals affectionately called it, most mornings before his trek out to the defunct WKLV radio tower.
+
+The diner sat on the edge of Harmony Creek, West Virginia, a town clinging to the side of a mountain like a stubborn weed. Harmony Creek was a place where time seemed to have stopped sometime around 1958, and even then, the radio station hadn’t been exactly cutting edge. That was why, five years after its official shutdown, Elias was practically the only soul who still cared about the old WKLV tower, perched precariously atop Widow's Peak overlooking the town. He nursed a lukewarm cup of coffee, its bitter tang a necessary evil before wrestling with decaying transistors and corroded wiring. The bell above the door jingled, announcing the arrival of Maisie, the waitress, her hair a gravity-defying beehive held together by sheer force of will and hairspray. She squinted at him through thick, cat-eye glasses.
+
+"Mornin', Elias. Still chasing ghosts up on that hill?" she asked, her voice a gravelly alto.
+
+Elias Thorne managed a weary smile. "Just trying to bring back a little music to Harmony Creek, Maisie. Is that so wrong?"

@@ -1,0 +1,9 @@
+The crisp mahogany paneling of the office doors seemed to hum with an unseen energy as Amelia Grant pushed them open.  Her day was already off-kilter from the moment she’d stepped into the sweltering summer heat that had seeped through the cracked window panes, but Mrs. Vanderwood's voice on the other end of the phone line hadn't helped matters. 
+
+"Darling," Mrs. Vanderwood had said, her breath rasping like dry leaves, "Mr. Sinclair has gone missing." Amelia sighed.  She knew what that meant: endless calls to Mr. Thornton, the man who claimed she was "his sole and trusted representative", and a labyrinth of phone calls with various lawyers, investigators, and social workers. 
+
+Amelia glanced at the overflowing filing cabinet in the corner. Her job as Mrs. Vanderwood's secretary had become more than just maintaining order; it had morphed into a tangled web of intrigue, where every document felt like a clue to a hidden truth. The air was thick with a tension Amelia hadn’t expected when she took on this position last year. 
+
+The sprawling Victorian house that served as Mrs. Vanderwood's mansion, an anachronism in the bustling city center, echoed with whispers of scandal and the ghosts of unfulfilled promises.  She had a feeling this case would be more than just another bureaucratic entanglement; something about Mr. Sinclair’s disappearance prickled at her, like the memory of something she couldn't quite grasp. 
+
+The setting was an almost tangible entity: a gilded cage of history, elegance, and unspoken secrets, all swirling within the confines of the Vanderwood estate in West Kensington. The air buzzed with the weight of untold stories, each one whispering promises and hiding shadows.  Amelia knew she was on the precipice of something big; she just had to figure out where to begin before time ran out. 

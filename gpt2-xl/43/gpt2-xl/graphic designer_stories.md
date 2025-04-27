@@ -1,0 +1,7 @@
+Once upon a time, there was a graphic designer named David J. Peterson. When he created the first computerized painting program — an early version of AutoCAD — it was an instant hit, and he was soon asked to create some more popular programs. But he had another big idea brewing. "One of the things I did in my spare time was to design and create custom graphic design software for clients to use," Peterson says. "I started talking with people like John Maeda, the head of Apple, who asked that I release a commercial version of software so that he wouldn't have to pay for commercial programs but get away with having his own private software at no cost."
+
+Advertisement
+
+By the late 1970s and the beginning of the early 1980s, a number of computer companies were pushing into the visual design market and offering a range of tools to those who could design well, or those who wanted to create them. By the year 1990, the software industry was worth $30 billion and many were trying to innovate or copy that success.
+
+So the first of these companies was Lucasfilm. Peterson was a great collaborator and a natural and very hands-on artist. He was also extremely important to their strategy, he says, for several reasons. "The first was that I helped to start the Lucasfilm Design Group, which was kind of a design incubator for Lucasfilm. I designed some of the first interface graphics for Star Wars. I designed lots of

@@ -1,0 +1,5 @@
+## Story Opening:
+
+The hum of the fluorescent lights in the office was Amelia Beatrice Finch's white noise, the familiar static that accompanied her days. It was a Tuesday, which meant vendor invoices for the East Coast division were due, and Amelia was up to her elbows in receipts, purchase orders, and suspiciously optimistic expense reports. Outside, the sky was a bruised grey, threatening a downpour that would likely clog the already overburdened city drains. But Amelia was oblivious. Her world was currently contained within the four walls of her cubicle, the clatter of her adding machine a rhythmic counterpoint to the relentless tap-tap-tapping of Mrs. Periwinkle's acrylic nails on her keyboard in the next cubicle over.
+
+She chewed on the end of her pen, her brow furrowed in concentration. A discrepancy of $17.32 stared back at her from the invoice for "Themed Party Supplies." A themed party, Amelia scoffed silently. More like another opportunity for Barry, the Sales Manager, to expense his questionable taste on the company dime. Last year it was a luau with a questionable fire dancer, this year... she shuddered to think.

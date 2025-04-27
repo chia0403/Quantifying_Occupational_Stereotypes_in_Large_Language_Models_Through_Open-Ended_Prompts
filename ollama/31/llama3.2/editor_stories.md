@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The rain-soaked streets of Edinburgh were always at their most unforgiving in the early hours of the morning, when the fog rolled in off the Firth of Forth like a damp, grey shroud. In a small, cluttered office above a vintage bookstore on George Street, Emilia "Mia" MacKenzie hunched over her desk, sipping a lukewarm cup of coffee and staring out at the rain-lashed pavement below.
+
+As an editor for a small publishing house, Mia had spent countless hours huddled in front of her computer, poring over manuscripts and revisions. She was known for her keen eye and sharp wit, but also for her unyielding dedication to the craft – and her ability to make even the most talented authors squirm with self-doubt.
+
+Mia's own writing career had stalled years ago, after a promising debut novel failed to find an audience in a crowded literary market. Now, she was content to focus on helping others bring their stories to life, rather than chasing her own dreams. But as she gazed out the window, lost in thought, Mia couldn't shake the feeling that something was about to change – and it might just have everything to do with the mysterious manuscript that had landed on her desk that morning...

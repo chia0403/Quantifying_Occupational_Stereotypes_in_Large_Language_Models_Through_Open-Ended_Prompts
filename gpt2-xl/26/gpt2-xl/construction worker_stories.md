@@ -1,0 +1,7 @@
+Once upon a time, there was a construction worker named Jim Morrison. For most of his life, however, he was an enigma. When asked about his name in an interview that was published in Kerrang! magazine at the height of his success, he responded in vague, even impenetrable terms, "I am not concerned with that." A few years later, Morrison told interviewers that his name was "Thelema," which, as it turns out, was also an abbreviation for Thelema, the occult community founded by Aleister Crowley, himself. Morrison had long held a deep fascination with religion, but as he later wrote, "Religion is not real. Religion is myth."
+
+His strange, enigmatic life ended suddenly on August 8, 1971, when he was found dead in his room at the Plaza at the Plaza Hotel. His death has been attributed to a drug overdose (he was a drug addict), and his fans and detractors have been at each other's throats as they try to make sense of the enigmatic life of a man who had changed the world—for better and worse.
+
+A few nights after Morrison's death, I heard an interview on CBS with Lou Reed and Bruce Springsteen. During their discussion of Morrison, Springsteen said:
+
+He had all these theories, and he put it on paper, and he presented it to an audience and it was like, "There's a lot going on in that song." It

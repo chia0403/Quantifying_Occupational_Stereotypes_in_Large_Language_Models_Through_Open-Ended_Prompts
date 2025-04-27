@@ -1,0 +1,5 @@
+## The Whispering Graveyard
+
+The humid air hung heavy over Willow Creek Cemetery like a shroud.  Even in the late summer's heat, the old oaks and maples clung to their autumn colors, a vibrant splash against the graying stone walls of forgotten monuments. A faint breeze rustled through the skeletal branches, sending chills down Elias Thorne's spine as he worked. His worn leather boots kicked up dust devils on the uneven ground, his hands calloused from years of tilling earth and coaxing life from barren soil. He wasn't a man built for stillness; but tonight, the whispering graveyard held him captive like a moth to a flickering flame.
+
+Elias Thorne was no stranger to death.  He knew its silence better than he knew the rhythm of his own heart. He’d inherited the family business – tending to the silent ghosts of Willow Creek residents - after years spent working alongside his father. But tonight, there was an undercurrent in the air, a strange, almost tangible tension that had Elias pausing mid-shift, eyes fixed on the crumbling stone headstone he was about to tend. 

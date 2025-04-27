@@ -1,0 +1,7 @@
+Once upon a time, there was a janitor named Larry who managed a large department store. One day, his supervisor told him about a secret room behind the main entrance which contained the remains of some of the company's previous employees. Larry believed the room was cursed and he needed to get rid of anybody who had used it. During one such visit, he managed to kill a young boy, who was in fact his stepson's favorite nephew. Larry hid the body in a secret room and tried to forget about it for years.
+
+One day, a young woman entered the store. She looked at a man sitting behind a glass case, and asked if his name was Larry. This startled Larry, but he knew nothing of this man. Upon finding out, he began to tell the girl his life story, but only managed to say: "My name is Larry. I've been in my room for a long time and have nothing to hide."
+
+Larry had been cursed by somebody to become a killer. When a person is cursed with this curse, he cannot help anyone, not even his own sister. So, Larry, who had a very short temper, ended up killing his own stepson, while he was drunk. This happened in a department store, which is a store of many sales. All sales were recorded in a book, and the book was filled with each person's name and some other personal information that could be useful in killing someone.
+
+Now, many

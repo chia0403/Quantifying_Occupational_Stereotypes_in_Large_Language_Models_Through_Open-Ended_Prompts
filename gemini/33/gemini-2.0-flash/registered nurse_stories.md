@@ -1,0 +1,10 @@
+## Story Opening:
+
+The smell of antiseptic and stale coffee clung to the air, a familiar perfume that usually brought a small measure of comfort to Elara Madeline Vasquez. Tonight, however, it felt like a suffocating shroud. She stood at the nurses' station, a whirlwind of brightly colored scrubs and focused intensity swirling around her, yet felt strangely detached. Her fingers, still damp from washing her hands for the tenth time in the last hour, drummed a nervous rhythm on the counter. Across the bustling ER, bathed in the harsh glare of fluorescent lights, a curtain was drawn around Bay 7. That was where Mrs. Albright had been. Where Mrs. Albright *was*.
+
+Elara had held Mrs. Albright's hand as her breath rattled thin and shallow. She'd squeezed it, offered empty reassurances, and watched as the life slowly drained from the elderly woman's eyes, leaving behind a vacant, unsettling stillness. It wasn't the first time Elara had witnessed death. She'd seen plenty of it in her seven years at St. Jude's. But Mrs. Albright, with her sweet, tremulous voice and stories of mischievous grandchildren, had gotten under her skin.
+
+A sharp beep pierced the air, signaling another code blue, and the adrenaline started to pump again, pushing the grief back into its carefully constructed box. This was her job. This was what she was trained for. She took a deep breath, straightened her shoulders, and prepared to face the chaos once more, praying that this time, she could make a difference.
+## Setting:
+
+**St. Jude's Hospital, Emergency Room, Chicago, Illinois. Late October. The air is crisp and turning colder outside, but inside the ER, it's a humid, pressure-cooker environment, thick with the anxieties and hopes of the city. The walls are a pale, institutional green, chipped and scuffed from years of constant activity. Beeping monitors, the rhythmic whoosh of ventilators, and the urgent murmur of voices form a constant, unsettling soundtrack. Stretchers laden with patients line the hallways, nurses and doctors weave between them with practiced efficiency, and the air is heavy with the scent of disinfectant, blood, and the metallic tang of fear.**

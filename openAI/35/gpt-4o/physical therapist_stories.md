@@ -1,0 +1,7 @@
+The low hum of the early morning city was a comforting soundtrack as Jenna Belasco unlocked the door to her small clinic nestled between a bustling coffee shop and a tiny bookstore. The smell of freshly ground beans wafted through the air, promising caffeine-fueled daydreams and focused energy. Jenna smiled, breathing it in as she stepped into the familiar warmth and serenity of Momentum Physical Therapy.
+
+The clinic was modest, yet inviting, with soft sea-green walls and large windows that welcomed the first streams of dawn. Gentle sunlight kissed the array of exercise equipment: stability balls perched like sentinels, resistance bands coiled in neatly arranged baskets, and the smooth, inviting surface of the massage table waiting for its first client.
+
+Jenna cherished these early hours before the building fully awoke with the rhythm of feet on treadmills and the quiet determination of people seeking the relief and strength that came with her guidance. A framed photograph of a serene beach hung near her desk, a constant reminder of a place where peace and healing went hand in hand—her grandmother’s seaside cottage where she had spent many summers.
+
+As she prepared for the day's appointments, Jenna caught sight of the calendar on the wall, its spaces filled with names and notes. Today would be challenging but rewarding, and she thrived in those moments where empathy met expertise, where she helped bridge the gap between pain and possibility.

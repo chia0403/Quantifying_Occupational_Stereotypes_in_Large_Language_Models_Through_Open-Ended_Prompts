@@ -1,0 +1,5 @@
+The worn linoleum floor beneath Elias "Eli" Cartwright's worn-out shoes felt as familiar as his own heartbeat, an echo chamber of echoing footsteps and creaks. The air in the Grand Majestic Theatre hung thick with the ghost of laughter from decades past. A hundred whispers followed each creaking step Eli took across the stage, through the dusty wings where forgotten romances were spun into dust motes in the sunbeams that dripped through grimy windows.  
+
+Eli was a silent custodian of memories; his job wasn’t just about sweeping and mopping; it was about preserving the decay, absorbing the stories whispered in the cracked paint and chipped marble. The theatre was a beast alive with unspoken narratives, each creak and groan a forgotten melody. 
+
+Today's task was monumental: deep cleaning after the final dress rehearsal of "The Titanic." Eli’s grimy hands rubbed against his grease-stained uniform as he stepped into the theater's grand lobby - an echo of opulence now shadowed by time's relentless advance.  His eyes, weary but sharp, searched for the glint of something out of place. 

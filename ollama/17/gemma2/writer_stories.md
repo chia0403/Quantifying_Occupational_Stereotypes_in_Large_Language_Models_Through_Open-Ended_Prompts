@@ -1,0 +1,5 @@
+The Parisian air hung heavy with the scent of freshly baked bread and impending rain. Inside her cluttered apartment overlooking the Seine, Elodie Beaumont tapped furiously at her laptop, the glow from the screen illuminating the dust motes dancing in the single shaft of sunlight piercing through the blinds. Her brow was furrowed, her tongue poking out from the corner of her mouth in concentration as she wrestled with a particularly stubborn sentence. The deadline for her historical fiction novel loomed like a hungry wolf, and Elodie, despite being halfway through the manuscript, felt strangely lost. 
+
+Her fingers hovered over the keyboard, unable to find the words that would propel her protagonist, a defiant French revolutionary woman, through the tumultuous streets of Paris in 1789. The vibrant city she loved so much, with its cobbled lanes and ancient buildings whispering tales of bygone eras, suddenly felt suffocatingly quiet.  
+
+Elodie sighed, pushing back from her desk. Perhaps a walk along the river would clear her head, she thought. Maybe inspiration awaited her in the rhythm of the lapping water and the murmur of the city waking up.   

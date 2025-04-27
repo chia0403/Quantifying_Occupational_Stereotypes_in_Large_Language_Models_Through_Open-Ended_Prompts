@@ -1,0 +1,8 @@
+The rain hammered against the leaky roof of Arthur "Artie" Grubb's van like a thousand tiny fists.  Its tinny, metallic song was punctuated by the occasional groan as Artie shifted a heavy wrench in his hand, its weight oddly comforting amidst the storm’s fury. He squinted at the worn canvas of the old-fashioned map clutched in his palm - a relic from his grandfather's days as a cartographer for the city’s underground network of pipes and tunnels. This was no ordinary downpour; this was "The Drifter", a week-long torrent that even Artie, seasoned as he was, found unsettlingly potent.
+
+**Setting:** A sprawling, industrial cityscape known for its labyrinthine underbelly. The buildings here wore the grime of ages and their secrets whispered in the dripping water. This city wasn’t just about sewage; it flowed with history, hidden currents of industry, and the ghosts of forgotten dreams, all contained within a network that stretched beneath the concrete jungle. 
+
+**Main character:**  Artie Grubb – A man of few words, his life was an intricate dance between practicality and his yearning for something more than the routine his trade demanded. He wasn’t afraid of the dark or the grime; he understood it. Artie saw himself as a custodian, not just of pipes, but of the city's forgotten heartbeat. 
+
+
+**Conflict:**  A sudden gust of wind rattled the van's windows and a flickering light on the map indicated the source of an unknown leak in the old drainage system. The storm had brought with it something more than rain; something dangerous, something Artie wasn’t quite sure he could handle alone.

@@ -1,0 +1,5 @@
+Here's a potential story opening:
+
+Dr. Adelaide "Addie" Elizabeth Thompson stepped out of her small office and into the crisp autumn air, taking a deep breath as she gazed out at the vibrant foliage of the university campus. As a clinical psychologist at the prestigious Oakwood University Counseling Center, Addie had spent countless hours listening to students' problems and watching them grow from anxious freshmen to confident graduates. But despite her success in helping others, Addie couldn't shake the feeling that something was off - a nagging sense of restlessness that she'd been trying to ignore for weeks.
+
+The sun was setting over the campus, casting long shadows across the quad as Addie made her way back to her car, parked behind the center. She unlocked the door and slid into the driver's seat, feeling a familiar tension build in her shoulders as she began to turn the key. As she started the engine, a fluttering piece of paper caught her eye on the passenger seat - a note, scribbled in hasty handwriting: "Don't trust Dr. Lee."

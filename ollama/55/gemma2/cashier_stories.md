@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia "Amy" Beaumont's head, casting a sterile glow over the rows of brightly coloured cereal boxes. It was 7:32 AM, the witching hour at the Sparkle Mart, that desolate stretch of suburban purgatory where sleep-deprived parents and bleary-eyed teenagers met for their daily dose of caffeine and sugary snacks. Amy sighed, her gaze drifting to the clock on the wall. Another four hours before the rush began.  
+
+The air hung heavy with the scent of burnt coffee and day-old pastries. The only other sound besides the hum of the lights was the rhythmic click-clack of a cleaning cart being wheeled down aisle three by Mr. Henderson, a man who seemed perpetually stuck in an existential loop of dusting shelves and muttering about the decline of Western civilisation.  
+
+Amy leaned against the counter, idly drumming her fingers on the chipped laminate. Her reflection stared back at her - dark circles under tired eyes, hair pulled back in a messy ponytail, a nametag pinned precariously to her faded blue apron. Just another Tuesday morning in paradise. 

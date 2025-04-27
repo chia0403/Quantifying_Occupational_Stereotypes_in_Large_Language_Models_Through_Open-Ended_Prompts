@@ -1,0 +1,6 @@
+The sun beat down on Bartholomew “Bart”  Hemingway’s neck like a blacksmith’s hammer, each drop of sweat beading and trickling down his temple before vanishing into the grime that caked his skin. The air hung thick with the smell of tar and hot asphalt, punctuated by the rhythmic clang of his hammer against the shingles. Below him, the bustling streets of New Orleans stretched out like a simmering gumbo, full of honking horns and boisterous laughter. 
+
+Bart squinted through the glare, trying to focus on the intricate pattern of the roof he was repairing. He'd been doing this work for years, ever since his father passed, leaving him to care for their creaky shotgun house in the heart of the French Quarter. The job wasn’t glamorous, but it kept a roof over their heads and paid for his younger sister’s violin lessons.  This particular repair was more complex than usual – a leak had sprung up during the last storm, compromising the integrity of an entire section of the old Victorian mansion. 
+
+
+Bart knew every inch of this city's rooftops, each one telling a story as intricate as the wrought iron balconies that adorned its buildings. He felt a kinship with these structures, their weathered shingles and creaking timbers echoing the resilience he saw in the people who called New Orleans home. 

@@ -1,0 +1,11 @@
+Title: Shadows in the Fog
+
+Setting: The story unfolds in the coastal town of Greyhaven, where the relentless waves crash against jagged cliffs and the salty air mingles with a thick, swirling fog that seems to cloak secrets of its own. The town's cobblestone streets wind through a mix of charming seaside cottages and looming Victorian mansions, hinting at a storied past. The old lighthouse stands sentinel at the edge of a cliff, its bright beam cutting through the mist, a beacon for ships battling the turbulent sea—and perhaps a guide for lost souls wandering through the depths of their own mysteries.
+
+Opening:
+
+The fog hung heavy in the air, wrapping itself around the town of Greyhaven like an old ghost reluctant to move on. Officer Charlotte Quinn tightened her grip on the steering wheel of her patrol car, the soft hum of the engine barely piercing the silence that enveloped the early morning hours. The sun had yet to rise, its absence casting long shadows that danced in and out of view, melding with the mist creeping along the pavement.
+
+Charlotte's keen blue eyes scanned the deserted streets, flicking past the silhouettes of shuttered shops and quiet homes. This was the time of day when the town held its breath, and she often found solace in the stillness. After years on the force, she had learned that beneath the surface of tranquillity lay a web of secrets, each thread intertwined with someone’s story.
+
+Today, though, something felt different. A ripple of anticipation threaded through her veins as she drove past the old lighthouse, its weathered exterior seeming to loom taller in the murky dawn. She’d received a call just before her shift started—an abandoned car on the cliffs. It could be a simple case of a malfunctioning vehicle, or perhaps it was more. Charlotte’s instincts seldom failed her, and they were telling her that this day would not end quietly. With a deep breath, she steered her car toward the narrow road that led to the cliff's edge, her heart quickening with the promise of untold stories waiting to be uncovered.

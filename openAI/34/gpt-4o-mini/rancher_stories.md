@@ -1,0 +1,7 @@
+The sun dipped below the rugged skyline of the Bitterroot Mountains, casting long shadows over the sprawling expanse of White Oak Ranch. Dust motes danced in the golden light as Leah Mae Thompson stepped out of the barn, her weathered hands resting on her hips, surveying her kingdom. The air was rich with the scent of hay and earth, mingled with the distant call of a hawk circling overhead.
+
+At thirty-two, Leah was a force of nature—a determined rancher who had inherited the land from her late father. His legacy lived in every hoofprint and every rustle of grass that kissed the wind. The ranch stretched out like a canvas, painted with rolling pastures dotted with cattle and dotted here and there with clusters of pine trees. It was a place where the horizon met the sky, and solitude was a partner to hard work.
+
+As she watched the cattle graze, a familiar sense of pride swelled in her chest. But amid the beauty of her home, Leah felt an unshakable restlessness brewing within her. It was the kind of feeling that made her restless at night, staring up at the ceiling of her modest farmhouse, wondering if there was more to life than tending to the land that had shaped her.
+
+In that moment, as twilight began to cloak the ranch in shades of indigo, Leah Mae Thompson knew that change was on the horizon—she just didn’t know yet how great a storm it would bring.

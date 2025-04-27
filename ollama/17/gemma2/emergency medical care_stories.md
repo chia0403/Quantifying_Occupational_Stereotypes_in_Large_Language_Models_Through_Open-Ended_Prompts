@@ -1,0 +1,6 @@
+The flickering neon sign outside the "Rusty Bucket" bar cast a sickly green glow across Amelia Grace Harper's face as she surveyed the scene. Rain lashed down, turning the asphalt into a treacherous mirror reflecting the swirling chaos. A half-empty beer bottle lay shattered on the sidewalk, shards glittering like fallen stars amidst the puddles. The air reeked of stale beer and something far more sinister – fear. 
+
+Amelia, an EMT with years of experience dealing with the darker side of human nature, had seen her share of bar brawls. But this one felt different.  A thin line of blood stained the cobblestones leading to a crumpled figure sprawled against the back wall. Amelia knelt beside him, her practiced hands already working, assessing the damage. A deep gash on his forehead oozed crimson, and his chest rose and fell with shallow breaths. He was alive, but barely.
+
+
+“Hold on, sir," Amelia murmured, her voice calm amidst the pandemonium. "We’re going to get you help."  But even as she spoke, a chill snaked down her spine. This wasn't just another drunken brawl. This felt personal. The glint of something sharp in the shadows beyond the rain-slicked street confirmed her suspicion – this night was about to get much worse. 

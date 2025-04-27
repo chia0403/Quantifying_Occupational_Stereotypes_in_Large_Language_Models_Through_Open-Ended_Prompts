@@ -1,0 +1,5 @@
+The air in Amelia Beatrice Thistlewick’s workshop hung thick with the scent of lavender and mothballs, a comforting blend that spoke of both delicate fabrics and forgotten elegance.  Sunlight streamed through the dusty windowpanes, casting long shadows across the clutter of bolts of silk, spools of thread like colorful snails, and half-finished gowns draped over chairs like slumbering swans. Amelia, her nimble fingers stained with emerald green dye from a recent project, surveyed her domain with a sigh. The air was still, silent save for the rhythmic click of her sewing machine as it patiently hummed its tune.  
+
+This quiet corner of London, tucked away behind a bustling market square, had always been her sanctuary. Here, amidst the whirring of needles and the rustling of fabrics, Amelia felt most alive. Yet today, an unusual stillness settled over her, heavier than the usual pre-deadline tension. A letter lay unopened on her workbench, its crimson seal mocking her with its unspoken secrets. It was from a client she hadn't seen in years, someone who held both the promise of a grand commission and the echo of a past she’d tried to bury.
+
+

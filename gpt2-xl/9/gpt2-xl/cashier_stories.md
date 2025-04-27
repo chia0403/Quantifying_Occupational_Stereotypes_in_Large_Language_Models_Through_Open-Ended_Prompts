@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named John. That person wasn't a woman, and he didn't get his own column in The Wall Street Journal - that is another story altogether, though. What he did get in the paper was a column he named John the Cashier, and to this day that is his main reason for existing. No, what we have here to talk about is a much less glamorous person, who happened to be named John and for the very same service he provided, he had himself named president of the New York Mercantile Exchange. But John made no money off of the exchange, he made money off of the person who happened to be president of the exchange. And since then, people often find it fascinating to learn what kinds of jobs those who are named presidents have in order to justify the high salaries that those people are paid. Now, John, being John and an honest person, would tell the truth; and therefore, if he was the president, he would confess who his real clients were. So I am going to ask you a question, John; who are your clients?
+
+JOHN: I have never been able to name a single client.
+
+JOHN: I have been in the public service as long as I can remember - it's only the other day that it came to my mind - and it has always been very difficult to identify clients. I am a salesman.
+
+JOHN: I make my living by selling bonds

@@ -1,0 +1,5 @@
+Rain hammered against the attic windowpanes, blurring the already-dim light filtering through.  Anya Petrova sat hunched in her worn leather armchair, its frayed fabric mirroring the state of her mind. The musty air hung thick with the weight of unanswered questions and years of unresolved trauma. Outside, the storm raged on, mimicking the chaotic symphony playing inside her own head. 
+
+She was a clinical psychologist, dedicated to helping others navigate the treacherous waters of their minds. Yet, even she struggled to decipher the tangled mess within herself.  Her own past, shrouded in secrets and buried anxieties, felt like an unfathomable abyss.  And it was that very past - coupled with the increasingly bizarre events swirling around her – that had brought her here, to this forgotten attic room, amidst a kaleidoscope of forgotten photographs and cryptic journals. 
+
+Tonight, she wasn't just Anya, the esteemed psychologist; she was Anya, the girl who desperately yearned for answers, the girl haunted by whispers from the past she dared not face.  Tonight, Anya had to confront her own demons in order to truly help others face theirs.

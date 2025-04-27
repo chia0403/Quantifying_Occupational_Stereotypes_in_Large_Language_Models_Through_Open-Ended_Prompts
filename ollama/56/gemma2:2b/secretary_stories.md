@@ -1,0 +1,5 @@
+The air hung thick with the scent of old paper and forgotten dreams in the mahogany-paneled office.  A symphony of keyboard clicks and muffled phone calls filled the silence between Amelia Winthrop's carefully placed files and her worn leather desk. Amelia sighed, pushing back a stray strand of auburn hair as she glanced at the clock on her wall: 2:47 AM. 
+
+Amelia was used to working late, even in this small corner office tucked away on the top floor of an imposing Victorian building. But tonight, the night hummed with a peculiar tension, the kind that clung like cobwebs to every surface and whispered of secrets kept hidden behind closed doors. The air felt thick with unspoken anxieties, just as Amelia’s heart did with anticipation and dread. 
+
+Tonight was her first night on her own in the mansion's sprawling library. Tonight, she would finally unravel the enigma that had plagued this grand old house for over a century: the disappearance of Lady Eleanor Winthrop. It was whispered amongst the staff and lingering in the shadows of Amelia’s heart that her great-grandmother’s secret had to do with more than just forgotten love letters and stolen jewels. 

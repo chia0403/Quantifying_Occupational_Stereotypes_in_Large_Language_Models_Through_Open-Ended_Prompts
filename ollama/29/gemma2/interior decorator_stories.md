@@ -1,0 +1,5 @@
+The air hung thick with the scent of linseed oil and lavender as Amelia Beatrice Lavender surveyed the chaos before her.  A symphony of beige draped across every surface – walls, curtains, even the plush rug underfoot – made the entire living room feel like a giant egg yolk that had begun to curdle. 
+
+Amelia sighed. This was typical "starter home" décor: bland, uninspired, and utterly lacking in personality. But this wasn't just any starter home; it belonged to Olivia Montgomery, the renowned novelist whose latest book, "Whisperwood," had taken the literary world by storm. And Amelia, freshly graduated from Parsons School of Design with a reputation for breathing life into even the dullest spaces, was tasked with transforming this beige box into a haven worthy of its inhabitant's creative genius. 
+
+The setting sun cast long shadows through the oversized picture windows, illuminating dust motes dancing in the stale air. Outside, the city hummed with the energy of a Friday evening, but inside, Amelia felt an unsettling stillness, a sense that beneath the neutral surface lay a story waiting to be told – a story she was determined to bring to life. 

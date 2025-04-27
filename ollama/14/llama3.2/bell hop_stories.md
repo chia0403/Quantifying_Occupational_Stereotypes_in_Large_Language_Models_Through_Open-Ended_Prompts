@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The neon lights of New Haven's downtown district cast a gaudy glow over the rain-soaked streets, like a chorus of blinking eyes watching the world go by. Inside the grandeur of the Hotel Eclipse, 22-year-old Elliot Wynter polished his shoes for what felt like the hundredth time that night, his mind numb from the endless stream of suit-clad business types and tired tourists. As the bell hop, Elliot was used to being invisible – a quiet background presence behind the scenes of the city's elite gatherings.
+
+But tonight, something felt off. The air inside the hotel vibrated with an undercurrent of tension, like the low hum of a waiting storm. Elliot glanced up at the clock on the wall, where the hands seemed to be ticking away in slow motion: 11:47 PM. Another long night ahead, and he was still trying to make sense of the cryptic message scrawled on his notepad from earlier that evening – "They're watching you" – scribbled by a guest who'd been too drunk to finish their check-out time.
+
+As Elliot continued to tidy up the lobby, his eyes scanned the bustling room for any sign of trouble, or perhaps something more sinister. Little did he know, this night would be one that would change everything.

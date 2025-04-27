@@ -1,0 +1,7 @@
+Once upon a time, there was a elementary school teacher named Nancy. And her family moved to America for her children's education. But then the family lost the apartment and had to move again—and in America, a place it loved so dearly, Nancy couldn't go. Her daughters would cry. She couldn't explain to them why she couldn't attend school here, and they couldn't understand why their mother couldn't go back, and they fought at home over her. Nancy would say, "They'd be better off if I just stayed home." They would respond, "Oh, but you wouldn't feel as helpless. You have that baby of your own."
+
+In America, Nancy would have a good job as a high school guidance counselor, and they would go to church together, and there would be plenty of time for Nancy to play with the kids. But then one day, Nancy took the time off for her own studies. It wasn't a long time, maybe twelve months—and Nancy did exactly what most of the other Americans do. She went back to school, worked hard, and got an even better job than before.
+
+Nancy's story, then, isn't some anomaly. It's the story of ordinary Americans. America is an extraordinary nation. It has the freedom to dream of anything—the freedom to imagine limitless possibilities, the freedom to seize them. The people of America are not simply "normal"; they are extraordinary.
+
+* * *

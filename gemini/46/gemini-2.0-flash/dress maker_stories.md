@@ -1,0 +1,13 @@
+Okay, here's a story opening and setting with the full name of the main character, who is a dress maker:
+
+**Story Opening:**
+
+The rhythmic *snip, snip, snip* was almost meditative.  Anya Evangeline Moreau barely registered the sound anymore, her mind a whirling kaleidoscope of silk swatches, intricate beading patterns, and the impossibly demanding whims of Countess Dubois.  Outside, a dreary Parisian rain drummed a sullen melody against the frosted glass of her atelier window.  The grey light, though unwelcome, was the best for discerning true colors, and Anya needed to be certain the shade of blush pink she'd chosen for the Countess's upcoming ball gown was *exactly* right.  One shade too pale, and the woman would resemble a washed-out ghost. One shade too vibrant, and she would shriek about being mistaken for a… *quelle horreur*… a dancer from the Moulin Rouge.
+
+Anya sighed, letting the half-finished bodice of the dress fall onto her work table.  Her back ached, her eyes burned, and the endless parade of wealthy, entitled women was slowly chipping away at the joy she used to find in creation.  It wasn't about the clothes anymore, it seemed. It was about power, and envy, and the hollow pursuit of a fleeting beauty.  But tonight, perhaps, something would change. Tonight, she planned to sew a little bit of *herself* into this dress, a secret whisper of rebellion tucked into the seams.
+
+**Setting:**
+
+Anya Evangeline Moreau's atelier, "La Couture Moreau," is nestled on a quiet side street in the Marais district of Paris, 1923.  The exterior is unassuming, a modest storefront painted a soft, faded blue with gold lettering above the window. Inside, however, it's a different world entirely. Bolts of luxurious fabrics – silks, velvets, laces – in every imaginable color and texture, are stacked high against the walls. Sketches of elaborate designs adorn the walls, pinned haphazardly beside inspiration boards overflowing with magazine clippings, pressed flowers, and snippets of poetry.
+
+Sunlight streams through the large front windows, illuminating the dust motes dancing in the air and casting a warm glow on Anya's worn wooden worktable, which is perpetually covered in threads, pins, and half-finished projects. A vintage Singer sewing machine, a treasured heirloom from her grandmother, sits proudly in the corner, its foot pedal worn smooth from years of use. The air is thick with the scent of fabric, beeswax, and a hint of Anya's favorite lavender perfume, a comforting fragrance that always seems to calm her nerves amidst the chaos of her demanding profession. It's a space that is both beautiful and functional, a testament to Anya's artistic passion and her tireless dedication to her craft.

@@ -1,0 +1,7 @@
+The antiseptic tang of peppermint lingered in Amelia Katherine Thornton's nostrils even after she'd left the bustling dental practice. Outside, the July heat hung heavy over Maplewood, making the air shimmer like a mirage.  Amelia, her crisp white uniform damp against her skin, wiped a stray bead of sweat from her brow as she locked up for the day. It was always a symphony of whirring drills and chattering teeth inside Dr. Miller's office, but now, the only sound was the distant hum of traffic on Elm Street. 
+
+
+Amelia leaned against her cherry-red Vespa, its chrome gleaming under the fading afternoon sun. She loved the feeling of freedom it gave her, the wind whipping through her hair as she zipped through the quiet streets of Maplewood. Tonight, however, a sense of unease tugged at her. A patient had arrived earlier that day, someone new to Dr. Miller's practice, who reeked of fear and desperation beneath his nervous facade. His teeth were in terrible shape, beyond what Amelia had ever seen, riddled with cavities and decay. As she cleaned them, he kept muttering about a hidden truth, something dark lurking beneath Maplewood's placid surface.  Amelia dismissed it at the time as anxiety-induced rambling, but now, as she gazed at the familiar streetlights flickering to life, his words echoed in her mind. 
+
+
+Something was amiss in Maplewood, and Amelia had a feeling she wasn't just cleaning teeth anymore; she was uncovering something far more sinister. 

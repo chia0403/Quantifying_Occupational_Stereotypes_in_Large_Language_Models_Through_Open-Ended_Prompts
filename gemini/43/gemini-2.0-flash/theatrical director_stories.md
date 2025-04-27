@@ -1,0 +1,11 @@
+## Story Opening:
+
+The crimson velvet curtain hung heavy, a silent guillotine poised to drop and judge. Barnaby Quince, renowned and occasionally reviled theatrical director, ran a hand through his thinning, silver hair, a nervous tic he’d been battling since he was a fledgling assistant director, fresh out of RADA and terrified of a harsh word. Tonight, though, the harsh words were already in the air, clinging to the dust motes dancing in the theatre's dim periphery like miniature, malevolent sprites.
+
+He could feel the buzz of anticipation – or, more likely, apprehension – radiating from the stalls, each cough and rustle a pinprick of doubt aimed directly at his heart. Three years. Three years he'd poured into reimagining "Hamlet" as a steampunk dystopian nightmare, complete with robotic Rosencrantz and Guildenstern, and a Ophelia whose drowning was staged as a data crash within the digital consciousness that controlled their world. Three years, and all of it hinged on the next three hours. He just hoped the audience wouldn't string him up by his own intricate lighting rig.
+
+## Setting:
+
+**The Grand Elysium Theatre, London, England. Present Day.**
+
+The Grand Elysium Theatre was a monument to Victorian excess and faded grandeur. Built in the late 19th century, its facade was a riot of gilded ornamentation and sculpted cherubs, now blackened with decades of London grime. Inside, the air was thick with the scent of old velvet, polished wood, and the faintest, almost imperceptible, whiff of mothballs. While attempts had been made to modernize the theatre – new sound systems, state-of-the-art lighting – the ghosts of its past clung stubbornly to the walls. The cavernous auditorium boasted three tiers of boxes overlooking a deep proscenium stage, adorned with ornate plasterwork and a majestic, though slightly tattered, ceiling fresco depicting the Muses inspiring Shakespeare himself. Backstage was a labyrinthine network of narrow corridors, cramped dressing rooms with cracked mirrors, and dusty prop rooms overflowing with relics from countless past productions. The whole place felt both magical and decaying, a perfect reflection, Barnaby thought grimly, of his own life and career.

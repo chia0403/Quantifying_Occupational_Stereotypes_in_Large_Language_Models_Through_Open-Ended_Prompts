@@ -1,0 +1,5 @@
+The air hung heavy with anticipation and cheap perfume as Amelia Beatrice Hawthorne straightened the floral print napkins on tray 43B. Overhead, the gentle hum of the Boeing 747's engines vibrated through her very bones, a familiar lullaby she’d come to associate with both comfort and trepidation. This particular flight, bound for Reykjavik from London Gatwick, felt different though. A prickle of unease ran down Amelia’s spine as she surveyed the passengers settling into their seats –  a tapestry of weary business travelers, excited honeymooners, and a disconcerting number of individuals who seemed to be avoiding eye contact. 
+
+The cabin lights dimmed, signaling the start of the descent, and a wave of hushed murmurs rippled through the passengers. Amelia took a deep breath, pushing down her growing sense of foreboding. Reykjavik awaited, shrouded in the promise of auroras and Icelandic delicacies, but Amelia couldn’t shake the feeling that this trip was about to take a turn for the unexpected. 
+
+

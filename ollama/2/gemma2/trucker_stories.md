@@ -1,0 +1,5 @@
+The air hung thick with the smell of diesel and burnt coffee as Amelia 'Amy' Jean Beaumont wrestled the eighteen-wheeler into the deserted truck stop parking lot. Neon signs buzzed like angry wasps, casting long, wavering shadows across the asphalt that shimmered under the harsh desert sun. A rusty swing set creaked in the wind, its chains groaning like a tired animal. The silence was oppressive, broken only by the rhythmic hum of Amy's engine and the distant howl of a coyote. 
+
+This was Harmony Junction, Arizona - a forgotten speck on the map where weary travelers stopped to refuel their bodies and machines before continuing their journeys into the vast unknown. For Amy, it was just another pit stop in her endless crusade across the country, hauling freight from dawn till dusk.  But tonight, something felt different. A prickle of unease crawled up her spine as she parked, a feeling amplified by the deserted diner bathed in an eerie yellow glow and the unsettling stillness that seemed to cling to the air like desert dust. 
+
+

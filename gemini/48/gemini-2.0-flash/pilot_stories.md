@@ -1,0 +1,7 @@
+## Story Opening:
+
+The low hum of the radial engine was a lullaby to Amelia "Amy" Hawthorne. She inhaled the familiar scent of aviation fuel and aged leather, a perfume far more appealing than anything manufactured in a Paris atelier. The sun was a molten orange egg yolk dripping across the horizon, painting the sky in hues of crimson and violet. Amy gripped the worn leather control stick of her beloved Stearman biplane, "The Nightingale," and felt a surge of exhilaration. Tonight was the night. Tonight, she’d finally attempt the mail run over the treacherous Sierra Nevada mountains, a route that had swallowed good pilots whole.
+
+## Setting:
+
+Amy was stationed at the dust-blown airstrip of Harmony Flats, California, in the late summer of 1938. Harmony Flats was less a town and more a scattering of ramshackle buildings huddled against the vast, unforgiving landscape of the Mojave Desert. A single gas pump, a greasy diner called "The Greasy Spoon," and a corrugated iron hangar that served as both workshop and living quarters for Amy, comprised the sum total of its civilization. The surrounding terrain was a harsh tapestry of scrub brush, sun-baked rocks, and the relentless heat that shimmered on the horizon. The towering, snow-capped peaks of the Sierra Nevada mountains loomed in the distance, a stark reminder of the challenges that lay ahead. The air hung heavy with the scent of creosote and the promise of adventure, or perhaps, oblivion.

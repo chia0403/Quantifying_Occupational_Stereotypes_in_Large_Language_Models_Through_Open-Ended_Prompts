@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Paul Williams, whose name sounds like the perfect description for his subject. Williams, an avid news reader, did his job well at a time when it was the duty of everyone to constantly be on the lookout for any type of scandal. He covered breaking news in the area of the New York Yankees, the New York Knicks, the Brooklyn Dodgers and the Newark Spearmint Rhino, among others, and he was able to do so with some panache.
+
+Like all good journalists, Williams became friends with many of his subjects. At one point he went to see Bill James, then of The New York Times, and was surprised to discover that James was working for the team's archrival. As they worked to find out more about the rival, they met up on a regular basis. While James' writing is not as robust as the likes of Michael Lewis — he admits that one of his goals was to create "a kind of intellectual monolith" so that "you could put him in front of the most respected historians" — Williams is still among the best writers in this space.
+
+Williams' friendship with James made for a strong partnership. By the 1950s, James and Williams were best friends.
+
+But their relationship with the Boston Celtics also blossomed into something even stronger. Before the game between the Celtics and the Knicks in March 1959 came down to only a handful of points, they were on a plane to New York

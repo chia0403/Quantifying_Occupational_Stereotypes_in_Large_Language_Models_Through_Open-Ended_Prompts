@@ -1,0 +1,6 @@
+The July sun beat down on Elias Thorne's neck like a blacksmith's hammer. Sweat stung his eyes as he balanced precariously on the slanted metal roof, securing another shingle with practiced ease. The rhythmic clanging of his hammer against nails was the soundtrack to his workday in this sweltering Mississippi heat.  Below him, the quaint town of Oakhaven sprawled out like a forgotten quilt, its pastel houses nestled amidst a sea of emerald green lawns. 
+
+Elias squinted at the horizon, where the hazy blue sky met the shimmering expanse of the Mississippi River. His family's home, a modest two-story with peeling paint and a rambling porch, stood out amongst the others. A sense of quiet pride swelled in him as he thought about his wife, Lily, tending their garden in the backyard, her laughter carried on the gentle breeze that rustled through the oak trees lining Main Street.  He took another swing of his hammer, determined to finish this job before the sun reached its peak and turned the metal roof into a scorching furnace. 
+
+
+This was Elias's world: the dizzying heights of rooftops, the smell of hot tar and freshly cut shingles, the satisfaction of a job well done. It was a simple life, but it was his.  

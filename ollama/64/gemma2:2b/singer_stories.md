@@ -1,0 +1,5 @@
+The air hung thick and humid over the neon-drenched stage of "Luna's Last Call", buzzing with anticipation. A lone spotlight cut through the smoky haze, bathing in its harsh glare **Elowen Blackwood**, her emerald eyes glinting beneath the heavy black fringe of her hair.  Her voice, a rich baritone laced with an impossible blend of steel and honey, was barely audible above the roar of the crowd. 
+
+For years, Elowen had poured her heart into every note, weaving tales of heartbreak and hope into vibrant melodies that tugged at the very strings of your soul. Tonight, though, she felt hollow. The city's grimy underbelly vibrated with a desperation that mirrored the emptiness echoing in her own chest. A decade ago, Luna’s Last Call had been a beacon of life, but lately, it seemed more like a monument to forgotten dreams.
+
+As Elowen began to sing, the crowd held their breath. It was as if they were waiting for something, an echo of what used to be, or perhaps a glimpse into what might still be. This was her stage, her only solace, and tonight, it seemed, she had no audience but the ghosts of music past. 

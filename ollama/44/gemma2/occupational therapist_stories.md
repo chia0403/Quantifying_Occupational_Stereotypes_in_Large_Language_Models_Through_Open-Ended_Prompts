@@ -1,0 +1,5 @@
+The rhythmic clang of metal on metal echoed through the gymnasium, mingling with the grunts of exertion and the occasional squeal of laughter. Amelia "Amy" Grace Thorne adjusted her stethoscope around her neck, its cool metal against her skin a familiar comfort.  Sunlight streamed through the large windows, illuminating dust motes dancing in the air and casting long shadows across the worn wooden floor. She watched as a young boy, no older than eight, struggled to hoist himself onto a stationary bike. His face was flushed, his brow furrowed with concentration, but a triumphant grin lit up his features when he finally managed it.
+
+Amy smiled, her heart warming at his perseverance.  She moved closer, ready to offer words of encouragement and guidance. This wasn't just another workday for Amy – this was her passion, her purpose. She thrived on helping people regain their mobility, independence, and most importantly, their joy in movement. Today, the vibrant chaos of the pediatric rehabilitation center felt like her own personal symphony, each clanging bell and triumphant cry a note in its beautiful melody.  
+
+

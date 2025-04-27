@@ -1,0 +1,9 @@
+Title: "The Shadows of Elmswood"
+
+In the heart of Elmswood, a town where the cobblestones whispered secrets of bygone days, the fog clung to the streets like a shroud, wrapping the world in a hushed mystery. The once-bustling industrial town now lay in a state of quiet decay, its glory days buried beneath layers of drizzle-dampened grime and chipped paint. Yet, beneath the veneer of fading grandeur, Elmswood was a place teeming with untold stories and unforgotten sins.
+
+It was in this eerie twilight that Cecilia "Cece" Graves trudged down Canal Street, her silhouette a specter in the mist. As Elmswood's seasoned private detective, Cece had unraveled more enigmas than she cared to remember. Her reputation for solving the unsolvable had made her a reluctant local legend, though she preferred to keep her successes, much like her past, cloaked in discretion.
+
+Cece's narrow office was on the second floor of an old brick building, wedged between a derelict library and a defunct apothecary. The peeling sign on the door read "Graves Investigations" in faded script, giving no indication of the sharp intellect that resided within. Inside, the office was dimly lit, stacks of case files piled high on the oak desk that dominated the room, while a vintage map of Elmswood adorned the wall, dotted with pins of red, each marking a story unsolved.
+
+As the first strains of morning peeked through slate-gray clouds, Cece settled into her worn leather chair, her senses attuned to the rhythm of the town. The faint scent of aged paper and rain-dampened earth filled the air. A new case was unfolding, tugging at the edges of Cece's curiosity—a mystery woven into the very fabric of Elmswood itself, waiting for her to unravel its shadowed threads.

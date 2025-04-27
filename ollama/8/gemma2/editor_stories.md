@@ -1,0 +1,6 @@
+Rain lashed against the windows of Eleanor Beatrice Quill's tiny office, mimicking the frantic drumming of her fingers on her antique typewriter. Outside, London was shrouded in a gray, November haze, but inside her room above the dusty bookshop, Eleanor’s world was ablaze with words - or, at least, words that desperately needed fixing.
+
+She stared at the manuscript spread before her, titled "The Shadow Bazaar," a swirling mess of gothic romance and poorly researched historical details.  Eleanor sighed, pushing back a lock of fiery red hair that had escaped its braid. This wasn't the first time she’d found herself drowning in a sea of misplaced commas and nonsensical plot twists. In fact, it felt like every aspiring author seemed to think her name, "Eleanor Beatrice Quill," was synonymous with "magical word-smith" rather than just "tired editor trying to make rent."  Still, there was something about the chaotic beauty of a story that pulled her in, a hope that beneath all the grammatical errors and convoluted timelines lay a spark of brilliance waiting to be unearthed. 
+
+
+She took a deep breath, grabbed her red pen, and braced herself for another battle with the literary beast known as "The Shadow Bazaar."  

@@ -1,0 +1,5 @@
+The fluorescent lights hummed overhead, casting a sterile glow over the cluttered classroom.  Papers were strewn across every surface – grading rubrics piled precariously near half-eaten granola bars, student essays overflowing from overflowing inkwell trays, and a forgotten pile of construction paper unicorns teetering on the edge of a desk. A faint scent of cinnamon lingered in the air, a testament to Ms. Amelia Bellweather's attempt at autumnal decor. It was a far cry from the crisp fall days she yearned for, trapped as she was in the purgatory of November, juggling lesson plans and parent-teacher conferences while battling a perpetual case of the sniffles.
+
+Today was particularly challenging.  The day before, her beloved science museum had announced a surprise field trip closure due to "unexpected maintenance," leaving Ms. Bellweather scrambling for an alternative plan.  Now, staring at the restless faces of her 10th-grade biology class, she wondered if perhaps teaching teenagers about the intricacies of photosynthesis was as effective as trying to herd cats.
+
+

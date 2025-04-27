@@ -1,0 +1,5 @@
+The air hung thick with the scent of sawdust and cedar as Elias Thorne ran his calloused hand over the smooth grain of the mahogany tabletop. Sunlight slanted through the dusty windows of his workshop, illuminating motes dancing in the golden haze. Outside, the rhythmic click-clack of a blacksmith's hammer echoed from the town square, a familiar soundtrack to Elias’s work. 
+
+Elias Thorne wasn't just any carpenter. He was known throughout Hollow Creek as "Elias the Maker," renowned for his ability to breathe life into wood, crafting pieces that were more than just functional; they were works of art. His workshop, nestled on the outskirts of town near a babbling brook, was a haven of creativity and quiet contemplation. 
+
+But today, a sense of unease gnawed at Elias. A letter, delivered by a breathless messenger earlier that morning, had shattered the tranquil rhythm of his day. It spoke of an impending storm, not of wind and rain, but of something far more ominous—a darkness threatening to engulf Hollow Creek.  

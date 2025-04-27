@@ -1,0 +1,5 @@
+The scent of aging paper and leather hung heavy in the air, a familiar comfort to Amelia Beatrice Hawthorne as she dusted the spines of first edition classics lining the shelves. Sunlight streamed through the arched windows of the Blackwood Public Library, casting long shadows across the worn oak floorboards. Outside, the bustle of downtown Harrogate hummed with an almost imperceptible vibration – a counterpoint to the hushed reverence within the library's walls. 
+
+Amelia, her auburn hair pulled back in a neat braid and spectacles perched precariously on the bridge of her nose, paused to examine a particularly well-worn copy of Jane Eyre. A faint, barely perceptible tremor ran through the book as if it held its breath, waiting for something.  Amelia dismissed it as the wind rattling the windowpanes and continued her rounds. It was just another Tuesday afternoon in Blackwood, a place where time seemed to move at a different pace, a sanctuary from the ever-accelerating world beyond the library's heavy oak doors.  But Amelia sensed a change, a shift in the air, like a prelude to a storm brewing on the horizon. 
+
+

@@ -1,0 +1,7 @@
+## The Unforeseen Turbulence
+
+**Setting:**  A late-night Boeing 747, cruising at its cruising altitude over the star-studded expanse of the Pacific Ocean, heading from Los Angeles to Tokyo. It's a Tuesday night and the only passengers are a family celebrating their daughter's graduation, a young businessman with a nervous tic in his jaw, and Amelia "Amy" Thorne, a veteran flight attendant known for her calm demeanor and knack for making even the most chaotic airliner feel like a sanctuary.
+
+**Character:** Amy Thorne is a woman who has seen it all.  Her life has taken her from small-town Iowa to bustling airport terminals across the globe, but now she finds herself at the cusp of retirement, staring down the long runway of experience and wisdom with quiet determination. Her weathered face holds a thousand stories, etched deeply around eyes that sparkle with genuine warmth and the subtle knowledge that comes with years on the tarmac.  
+
+**Story Opening:**  The gentle hum of the engines seemed to lull Amy into a sense of calm as she prepped for her last flight before official retirement. A quick check-up on passenger needs, a whispered apology to a frazzled mother pushing a screaming toddler through the aisle, and then, finally, a chance to simply watch the world unfold from the window seat in a quiet corner of the plane.  But tonight, the serenity was shattered by the sudden jolt of turbulence that sent ripples across the cabin like an unbidden wave. 

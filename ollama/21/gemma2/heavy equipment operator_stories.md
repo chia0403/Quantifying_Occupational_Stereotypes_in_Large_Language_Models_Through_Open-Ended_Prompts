@@ -1,0 +1,3 @@
+The sun hammered down on Jeremiah “Iron” Thorne’s neck, sweat stinging his eyes as he wrestled the Caterpillar D9R through the muddy Louisiana bayou. Cypress knees poked up from the stagnant water like gnarled, arthritic fingers, their shadows stretching long and eerie in the hazy heat. The air hung thick with the scent of cypress, damp earth, and the faint tang of diesel.  Iron wiped his brow with a grimy rag, squinting at the tangle of red-stained pipelines snaking through the swamp like metallic veins.  His job was simple: clear a path for the new pipeline, no matter what lay in its way. But this bayou held secrets, and Iron had a feeling he was about to uncover one. 
+
+

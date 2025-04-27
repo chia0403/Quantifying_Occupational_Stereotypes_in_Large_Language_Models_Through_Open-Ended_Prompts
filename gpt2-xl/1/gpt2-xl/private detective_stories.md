@@ -1,0 +1,7 @@
+Once upon a time, there was a private detective named William "Buddy" Rogers who went around looking for clues in the area of the famous disappearance of his old friend, Buddy Bissinger. The two men parted up, in the end, when Rogers stopped Bissinger from getting his hands on some cash that Bissinger had stolen. Bissinger was killed, although his wife did not want him taken away, so after that she made herself the mistress of Buddy's employer until he died. When William Rogers retired, he used the money to retire in peace. But the money was never actually paid back, and at this point, his former partner has taken the money, or rather has been given it, and decided to use it to start all over and run his own detective agency, just like his old partner did. So the three of them do now have a new partner, and one day after a car crash, a woman pulls a gun on him, trying to get him to pay a debt. He is a rather decent guy at the end of the day, but he is a lot of fun to read about, and I like his humor quite a lot.
+
+Buddy Rogers is a detective who spends his days looking for clues in one of the most notorious unsolved murders in New England history. This is "The Good, the Bad and the Ugly."
+
+Predictable title and all, isn't it?
+
+The detective is still a detective

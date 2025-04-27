@@ -1,0 +1,5 @@
+The biting wind whipped across the exposed steel beams, stinging Francis “Frank” O’Malley’s cheeks and tugging at the brim of his hard hat. He squinted, the December sun glinting off the frosted glass of the skyscraper rising around him, a skeletal giant clawing at the pale winter sky.
+
+Frank was perched precariously on the twenty-seventh floor of the yet-to-be-named "Innovation Tower," a shimmering monument to modern architecture slowly rising from the heart of downtown Chicago. Below him, the city was a muted tapestry of grey buildings, frozen lake, and scurrying ant-sized vehicles. The roar of traffic was a constant, distant hum, barely audible over the clang and whine of machinery that was the soundtrack to his working life.
+
+He was a foreman for O’Connell Construction, a legacy company his grandfather had helped build, brick by painful brick, back in the roaring twenties. He knew every bolt, every weld, every square foot of blueprints for this building like the back of his calloused hand. And right now, that hand was wrapped tight around a wrench, trying to wrestle a stubborn bolt into submission before the lunch bell rang.

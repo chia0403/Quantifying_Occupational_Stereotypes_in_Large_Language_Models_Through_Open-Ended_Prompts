@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The humid Miami air clung to Esmeralda Maria Rodriguez like a second skin, plastering strands of her perfectly-coiffed auburn hair to her forehead. She sighed, swiping at the moisture with the back of her hand, leaving a faint smudge of hairspray and the ghost of a cinnamon scent hanging in the air. Today, the sticky heat felt less like a tropical embrace and more like a personal affront. Three hours until closing, and only Mrs. Henderson, bless her bouffant-loving heart, was scheduled. The lack of walk-ins, a rare occurrence even in the dead of summer, gnawed at her. Was it the humidity keeping people indoors? Or something else? Something more…ominous?
+
+**Setting:**
+
+Esmeralda’s "Shear Bliss" wasn’t just a salon; it was a microcosm of Little Havana. Located on Calle Ocho, nestled between a bustling domino park and a perpetually fragrant abuela’s bakery, it was a haven of gossip, laughter, and, of course, spectacular hair transformations. The walls were painted a vibrant mango orange, adorned with framed photos of Esmeralda's proudest creations – gravity-defying curls, shimmering balayages, and sleek, modern bobs. The air hummed with the rhythmic whir of hairdryers, the sizzle of curling irons, and the lilting melodies of Cuban salsa spilling from a vintage radio perched on a shelf cluttered with brightly-colored hair dyes and bottles of coconut-scented serum. The smell of freshly brewed Cuban coffee, perpetually steeping on the small hot plate in the back, mingled with the lingering aroma of hairspray and the sweet perfume of azucar, creating a uniquely vibrant and comforting olfactory experience. Sunlight streamed through the large plate-glass window, illuminating swirling dust motes and casting long shadows across the worn, checkerboard tile floor, a constant reminder of the rich history and vibrant culture that permeated every corner of Little Havana.

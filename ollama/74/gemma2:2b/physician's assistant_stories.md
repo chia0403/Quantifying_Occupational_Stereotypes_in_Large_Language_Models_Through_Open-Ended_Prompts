@@ -1,0 +1,5 @@
+The humid August air hung heavy as Amelia "Amy" Reed pushed open the weathered oak door of Dr. Peterson's clinic.  Sunlight streamed through the dusty windows, illuminating rows of outdated medical texts lining the shelves and casting long shadows across the worn linoleum floor. The smell of disinfectant was mingled with a hint of desperation, a potent mix that Amy knew all too well. 
+
+Dr. Peterson's practice in the heart of Appalachia had been her second home since graduating PA school years ago.  It wasn't glamorous; it lacked the sterile efficiency of urban hospitals and came with the bittersweet familiarity of a community struggling to survive against poverty, addiction, and limited access to healthcare. Yet, within the worn walls of this clinic, Amy found meaning. 
+
+This afternoon, she was assigned to Dr. Peterson for his usual routine check-ups. He was a fixture in the community, but he was also battling an increasingly challenging illness that left him exhausted.  It was Amy's hope, and her burning ambition, to ease some of his burden - not just by providing medical care, but by offering something more: a flicker of optimism amidst the bleakness. 

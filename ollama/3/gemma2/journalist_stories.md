@@ -1,0 +1,5 @@
+The air in the Parisian cafe hung thick with cigarette smoke and the scent of burnt sugar from the nearby patisserie. Rain lashed against the windowpanes, blurring the Eiffel Tower into an impressionistic smudge. Elara Dubois tugged her threadbare scarf tighter around her neck, its wool offering little solace against the November chill. Her fingers drummed impatiently on the worn wooden table, a rhythm mirroring the nervous flutter in her stomach.  
+
+Elara was waiting for Jean-Luc, a source deep within the French police force who had promised her information about a series of unsolved murders plaguing the city. A string of seemingly random killings, each victim found with a single red rose clutched in their lifeless hand. The case had captivated Paris and baffled even the most seasoned detectives. Elara knew this story, if she could get it right, would be her ticket to recognition, maybe even catapult her from the obscurity of local newspapers to the glittering pages of Le Monde.  But as the rain intensified and Jean-Luc was still late, doubt began to gnaw at her resolve. 
+
+

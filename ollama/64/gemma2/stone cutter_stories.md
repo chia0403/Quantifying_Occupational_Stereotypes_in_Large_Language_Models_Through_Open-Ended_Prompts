@@ -1,0 +1,5 @@
+The sun bled crimson onto the dusty streets of Carvedale, casting long shadows from the lopsided buildings that huddled together like tired sheep. The air hung thick with the scent of sweat, coal smoke, and the sharp bite of limestone. This was the life of Elara Stonehammer, a name whispered in hushed tones throughout the city – both for her skill and her stubborn independence. 
+
+Elara hunched over her workbench, the worn surface littered with chips of granite and shards of marble. Her calloused fingers danced across the stone like a weaver, shaping a rough chunk of amethyst into a delicate flower. The rhythmic tap-tap-tap of her hammer echoed through the cramped workshop, a familiar symphony to her ears.  Outside, the city bustled with life – merchants hawking their wares, children chasing stray cats, and the occasional disgruntled grunt from a passing ox cart. But in Elara's world, there was only the cool touch of the stone and the fire that burned within her, demanding expression through every chisel stroke. 
+
+

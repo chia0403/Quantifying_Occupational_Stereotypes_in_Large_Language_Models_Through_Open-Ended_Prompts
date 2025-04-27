@@ -1,0 +1,3 @@
+The afternoon sun slanted through the windows of Ms. Amelia Croft's kindergarten classroom, painting playful patterns on the colorful rug sprawled across the floor. The scent of crayons and sugar-laced apple juice hung in the air, a familiar comfort to both Ms. Croft and her eager charges. It was time for Story Time, which meant a wave of tiny faces popped up from their building blocks and drawing tables like startled butterflies. 
+
+Ms. Croft beamed as she adjusted her glasses and cleared her throat. "Alright, little explorers," she announced, "Gather 'round! Today we're going on a journey to the land of...drum roll please..." She paused for dramatic effect, then whispered with mischief, "...Fluffy Dragons!" 

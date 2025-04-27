@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The biting wind whipped off Lake Michigan, clawing at Evelyn Mallory’s face as she wrestled with her overflowing satchel. Today, she was dressed for escape, not the relentless Chicago winter. Instead of her usual practical boots, she wore suede wedges (optimism in shoe form, she'd declared to her cat, Fitzgerald, that morning). Instead of her sensible wool coat, a bright turquoise number hinted at the Caribbean waters she desperately wished to be swimming in. Today was the day she finally booked her own dream vacation.
+
+**Setting:**
+
+Evelyn worked at "Wanderlust Ways," a small, independent travel agency tucked between a bustling bakery and a vintage bookstore on North Clark Street in Lincoln Park. The agency was crammed with travel posters depicting idyllic beaches, towering mountains, and ancient ruins. The scent of old paper and exotic spices (a lingering consequence of a regrettable attempt to infuse the air with a "worldly" aroma last Christmas) perpetually hung in the air. The walls were painted a vibrant, albeit slightly faded, shade of tangerine, a hue Evelyn had chosen hoping it would inspire wanderlust. Ironically, it mostly reminded her of the cheap orange juice she subsisted on when business was slow. Today, however, the shop was unusually quiet, affording her the opportunity to finally focus on her own escape plan. Sunlight, rare in January, streamed through the large front window, illuminating dust motes dancing in the air, a silent ballet of longing and the promise of warmer days.

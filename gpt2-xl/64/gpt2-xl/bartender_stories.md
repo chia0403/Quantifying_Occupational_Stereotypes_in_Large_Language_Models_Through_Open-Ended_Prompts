@@ -1,0 +1,3 @@
+Once upon a time, there was a bartender named "Molly," who was a big fan of the show. They were constantly joking around, making jokes at each other's expense. Then, her eyes were glazed over when she heard the news of his marriage to his long-time girlfriend and she started crying. He would make a face and say, "You're right, she does love him," then they would be laughing at some joke told by Molly, and she would be crying. She eventually left, because she realized that the idea of her old friends having one more thing to worry about was really a big burden to bear.
+
+Molly now lives in Kansas City with several friends and keeps up her habit of asking the same old jokes. Her friends say she's been "on the road" ever since she stopped giving her all to Harry and Ron.

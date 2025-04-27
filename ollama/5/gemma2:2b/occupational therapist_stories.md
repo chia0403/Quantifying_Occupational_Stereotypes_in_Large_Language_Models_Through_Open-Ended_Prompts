@@ -1,0 +1,5 @@
+The late afternoon sun bled through the stained-glass window of Dr. Eleanor Hayes' office, painting squares of colour across the floor.  It was a calming spectacle, but the vibrant hues did little to ease the knot in Eleanor's stomach as she looked at the file on her desk: 18-year-old Liam O'Connell, with his spastic quadriplegia, who was struggling to adjust to life after a debilitating accident.
+
+Eleanor's office, tucked away on the second floor of the Community Wellness Centre, felt like a small sanctuary amidst the chaos of life in Oakhaven.  Oakhaven wasn't exactly bustling - more of a quiet village nestled amongst rolling hills and dotted with sprawling old-growth trees. It was here that Eleanor worked, nurturing the physical and emotional needs of its residents, using the gentle power of touch to help them rediscover movement and resilience. 
+
+But today, something felt different.  Liam's file wasn't just another case; it held the weight of a silent plea for help, a desperate yearning to reclaim some semblance of his lost life. Eleanor took a deep breath, adjusting the thick-rimmed glasses perched on her nose, and began to work. 

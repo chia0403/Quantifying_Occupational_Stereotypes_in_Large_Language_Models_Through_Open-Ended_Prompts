@@ -1,0 +1,7 @@
+Once upon a time, there was a executive named Jack Welch who saw an opportunity. If Apple could get Steve Jobs and Tim Cook to buy it from IBM, they'd make a fortune selling it to the world. But to succeed, they'd need to go where no Apple has gone before.
+
+Jack was wrong. Neither Jobs nor Cook ever bought the company. Instead, they moved it to Fremont, California, where it became the centerpiece of their company. And just as he missed the boat, Jack had a different kind of luck. Just like every other Apple CEO since, the company's fortunes, for the most part, have followed the same trajectory.
+
+Apple's stock price is the most iconic symbol of the company's fortunes. Yet just like any other popular index fund, there's no telling what your cash flow -- or your stock price -- will look like. Just as Jack got it wrong, so have all of Apple's CEOs.
+
+The stock price at the start of the Steve Jobs era was a mere $29. That was roughly the cost of $20 million in cash for Apple a year earlier. Today, Apple Inc. (Nasdaq:AAPL) sells for over $200 -- though it isn't clear whether it would have ever really been worth that much if Jobs hadn't been in its spotlight. That would only have been possible if Apple had stayed in IBM, where the company had spent years building out its computer hardware and software.

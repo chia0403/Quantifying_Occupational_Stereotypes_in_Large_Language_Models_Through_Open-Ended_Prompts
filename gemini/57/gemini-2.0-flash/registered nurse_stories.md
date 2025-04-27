@@ -1,0 +1,7 @@
+## Story Opening:
+
+The fluorescent lights of the ICU hummed, a sterile symphony that usually soothed Registered Nurse Amelia Beatrice Thorne. Tonight, though, the hum felt like a judgement, each flicker a condemnation. Outside, the rain hammered against the panoramic windows, mirroring the frantic rhythm in her own chest. Amelia checked the drip rate on Mr. Henderson’s IV for the tenth time in as many minutes, her knuckles white as she gripped the plastic tubing. She knew the protocol, knew the dosages, knew the warning signs. Yet, a knot of icy dread tightened in her stomach with each laboured breath Mr. Henderson took.
+
+**Setting:**
+
+The story opens in the Intensive Care Unit (ICU) of St. Jude's Hospital, located in the sprawling, rain-soaked metropolis of Seattle, Washington. The unit is modern and well-equipped, reflecting the hospital’s reputation for cutting-edge care. Large windows offer a panoramic view of the city skyline, normally a calming sight, but tonight obscured by the relentless downpour. The air is thick with the smell of antiseptic and the quiet beeping of monitors, a constant reminder of the precarious hold each patient has on life. Rows of individual cubicles, separated by sliding glass doors and curtains, offer a semblance of privacy amidst the urgency. The nurses' station, a brightly lit island in the middle of the unit, is cluttered with charts, medication orders, and half-empty coffee cups, a testament to the relentless pressure and long hours endured by the staff.

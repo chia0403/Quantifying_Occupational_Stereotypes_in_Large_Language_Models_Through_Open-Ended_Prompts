@@ -1,0 +1,8 @@
+The humid Florida air hung thick and heavy, clinging to Amelia Beatrice Hawthorne like a second skin as she stepped out of her beat-up Ford Focus. Palm trees swayed listlessly in the breeze, their fronds whispering secrets that only the seagulls seemed to understand.  Amelia adjusted the brim of her straw hat, shielding her eyes from the glare bouncing off the turquoise water of the Gulf of Mexico. She inhaled deeply, letting the scent of salt and sunscreen fill her lungs. This was Clearwater Beach, a place where dreams were built on sandcastles and shattered by hurricane winds. Amelia Hawthorne, however, wasn't here for the sunshine or the shore; she was here for business. 
+
+
+Amelia, with her sensible beige dress and name tag proudly pinned to her chest, looked out of place amongst the beachgoers in their bikinis and flip flops. She was an insurance agent, a fact that often brought confused expressions from clients who expected someone younger, perhaps more tanned.  But Amelia knew her trade; she understood the risks people took, both on land and at sea, and she could weave them into policies that offered a fragile sense of security in this unpredictable world. Today's client was Mr. Edward "Eddy" Delacroix, a gruff fisherman with eyes as blue and deep as the Gulf itself, who claimed his boat had been cursed by a vengeful mermaid. Amelia sighed, wondering if insurance really covered acts of marine folklore.  
+
+
+As she walked towards Eddy's ramshackle beach house, the sound of crashing waves and seagull cries filled the air, mingling with the distant strains of a steel drum band. 
+Amelia straightened her spine and adjusted her glasses. This was going to be interesting. 

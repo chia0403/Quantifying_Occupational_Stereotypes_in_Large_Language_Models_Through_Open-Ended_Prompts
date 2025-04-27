@@ -1,0 +1,5 @@
+The scent of formaldehyde and antiseptic hung heavy in the air, clinging to the worn linoleum floor like a ghost.  Evelyn Thorne, the sole remaining member of the Thorne family pharmacy after her father's tragic demise five years ago, adjusted her spectacles with a sigh. The late afternoon sun cast long shadows across the familiar rows of shelves, illuminating the dusty bottles of cough syrup and decongestants that stood as silent witnesses to decades of service. 
+
+Evelyn’s hometown, Riverbrook, was a place frozen in time; its charm was offset by a creeping sense of stagnation.  The once vibrant apothecary was now a relic of a bygone era. Business had dwindled since the advent of chain pharmacies and modern pharmaceuticals. Even the local doctor's office, across the street from her shop, seemed perpetually on the verge of closure.
+
+It wasn’t just the pharmacy itself; it was a symptom of something larger - Riverbrook’s reluctance to embrace change.  Evelyn felt like an anchor tethered to the same stagnant waters as the town itself, constantly struggling against an invisible tide of indifference. 

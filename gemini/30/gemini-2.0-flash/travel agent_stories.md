@@ -1,0 +1,13 @@
+Okay, here's a story opening and setting featuring a travel agent named Eleanor Grace Ainsworth:
+
+**Opening:**
+
+The scent of stale coffee clung to Eleanor Grace Ainsworth like a persistent tourist. She sighed, tugging at the hem of her sensible tweed skirt. Outside the window of "Eleanor's Escapes," a particularly miserable drizzle was doing its best to further discourage anyone from dreaming of sun-soaked beaches or snow-capped mountains. Eleanor glanced at the blinking cursor on her computer screen, where a half-finished email about "affordable all-inclusive packages in the Outer Banks" mocked her with its forced optimism.
+
+Honestly, affordable was a generous term. And the Outer Banks were currently experiencing a nor'easter, as her BBC weather app cheerfully informed her every five minutes. Eleanor loved her job, she truly did. She loved crafting bespoke itineraries and weaving tales of far-off lands. She just hated the reality of dealing with budget constraints, unreasonable expectations, and the occasional bridezilla convinced that a destination wedding on Mars was perfectly feasible.
+
+Today, though, a different kind of dread was pressing on her. A premonition, perhaps, or just the creeping realization that another Tuesday was unfolding with all the excitement of a lukewarm cup of tea. Little did she know, the mundane was about to be shattered, not by a demanding client or a cancelled flight, but by a visitor far stranger than any she'd ever encountered.
+
+**Setting:**
+
+Eleanor's Escapes was nestled on a quiet side street in the fictional town of Havenwood, Massachusetts. Havenwood was the kind of place where everyone knew everyone, and the biggest excitement of the week was the Friday night bingo at the community center. The shop itself was cozy, if a little cluttered. Travel brochures overflowed from wall-mounted displays, showcasing everything from Icelandic glaciers to Tuscan vineyards. Maps, globes, and postcards adorned every surface, lending a touch of worldly charm to the otherwise unremarkable storefront. A small, perpetually overflowing bowl of individually wrapped chocolates sat on the reception desk, a testament to Eleanor's generous spirit and her slightly unhealthy reliance on sugar to fuel her wanderlust-fueled days. The walls were painted a calming seafoam green, intended to evoke the tranquility of the ocean, but currently doing little to combat the dreary atmosphere of a rainy Tuesday in November. The shop was small, just one main room with Eleanor's desk in the front and a cramped back office containing a noisy printer, stacks of invoices, and a half-eaten box of biscotti.

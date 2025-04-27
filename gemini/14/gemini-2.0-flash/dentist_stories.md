@@ -1,0 +1,5 @@
+The fluorescent hum of the overhead lights was a constant, familiar drone in the otherwise silent surgery. Dr. Eleanor Vivian Finch, DDS, rubbed a stray tendril of salt-and-pepper hair behind her ear, the latex of her gloves squeaking in protest. Outside, the wind howled a blustery November tune, rattling the frosted glass of the single window overlooking Elm Street. Inside, however, Eleanor’s world was one of meticulous precision and the faint, metallic tang of dental amalgam.
+
+Her practice, “Finch Family Dentistry,” nestled snugly between Mrs. Higgins’ antique shop and O’Malley’s Irish Pub in the heart of quaint, coastal Port Blossom, Maine. It was a two-story Victorian house she’d inherited from her father, also a dentist, its pale green paint chipping slightly around the bay windows, a charming imperfection she hadn’t gotten around to fixing.
+
+Eleanor, however, wasn't focused on cosmetic improvements. She was meticulously examining an X-ray of young Timmy Johnson's molars, a worry line creasing her brow. Something wasn’t right. The image was blurry, almost as if... well, as if something was interfering with the radiation. And that was decidedly not normal.

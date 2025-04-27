@@ -1,0 +1,7 @@
+Once upon a time, there was a child care worker named Jane. When she was seven, Jane's life took an unexpected turn when she was attacked by a cat. She was so traumatized by the experience that she didn't leave the house for three years. When Jane came out of that time, she was adopted by an incredibly nice man named Harry whom she adored. After college, Harry decided to have Harry Jr. join our family. Unfortunately that plan would take some significant time to come into fruition in the early 2000's.
+
+As it turns out, Harry's daughter was taken away by Child Protective Services when she was just two years old. This caused us to start over and move back into the house we had lived in before the fire. To top it off, a few months after we moved back into the house, things took a horrible turn.
+
+Our landlord decided to start construction on the front wall of our house and in doing so, he started breaking things. One day I looked out the door and there was an eight foot tall rusty pipe hanging from the ceiling. I asked if we could just take it down, but the construction company told me it was not safe.
+
+I was very confused, but I did not want to just leave it there. One day I stumbled out onto the top floor and called the exterminator to check it out. When I asked him what he expected me to do, he told me that I should bring a ladder and

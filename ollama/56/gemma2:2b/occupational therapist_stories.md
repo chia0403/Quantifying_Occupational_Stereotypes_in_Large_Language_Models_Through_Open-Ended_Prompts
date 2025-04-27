@@ -1,0 +1,5 @@
+The salty air whipped Elara's hair around her face as she stood at the edge of the pier, watching the waves crash against the pilings. Sand clung to her worn leather boots, gritty beneath her fingertips. The setting sun cast long shadows across the harbor, turning the familiar boats into streaks of gold and crimson. Even the usual bustle of the seaside community felt subdued, perhaps a little apprehensive. 
+
+Elara was in Port Royal for the first time since she'd received word of what would be happening: the annual "Gathering," where the townfolk would finally confront their long-hidden fear - the one that whispered amongst children and hushed in older generations, the one that loomed over them like a dark cloud. 
+
+She was there to help. Not just as an occupational therapist, but as someone who understood the hidden scars of lives lived on the edge of something they couldn't control. Elara knew these weren't simply waves crashing against the pier; these were emotions, anxieties, fears that threatened to engulf them all. 

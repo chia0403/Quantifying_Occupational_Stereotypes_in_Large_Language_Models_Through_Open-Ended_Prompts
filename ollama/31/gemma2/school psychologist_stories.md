@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Dr. Amelia "Amy" Brightwell's head, casting a sterile glow over the worn linoleum floor of the elementary school counseling room. The beige walls were adorned with posters depicting smiling children engaged in various activities – sharing toys, reading books, solving puzzles – all carefully curated to evoke a sense of peace and normalcy. But Amy knew that beneath the surface of this picture-perfect haven lay a tangle of anxieties, fears, and unspoken traumas. She often felt like she was wading through a sea of hidden pain, desperately trying to guide lost souls back to shore.
+
+Today, it was eight-year-old Leo Sanchez who needed her help. He sat hunched over on the miniature beanbag chair, his face buried in his hands, shoulders shaking with silent sobs.  Amy watched him, her heart clenching with a familiar mix of empathy and frustration. This wasn't the first time she had seen Leo struggling, and she knew that unless they addressed the root of his distress, he would continue to drown in this emotional quicksand.   
+
+
+The bell outside the room chimed, signaling the end of recess.  Amy took a deep breath and began to speak softly, "Leo, I'm here for you. Whatever's bothering you, I want to help."

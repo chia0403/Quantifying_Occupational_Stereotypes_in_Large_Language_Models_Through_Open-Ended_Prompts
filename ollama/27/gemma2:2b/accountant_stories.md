@@ -1,0 +1,8 @@
+Rain lashed against the windows of Arthur "Artie" Hemmings' modest brick apartment, mirroring the insistent drumbeat of his anxiety in his chest.  The fluorescent lights hummed above him like trapped bees in a glass jar as he double-checked the numbers on the final spreadsheet for Mr. Fitzwilliam's annual accounts.  Artie hated this time of year - December.  It was a whirlwind of frantic deadlines, last-minute pleas from desperate clients, and an ever-present knot of dread that manifested itself as an irritatingly persistent itch in his scalp. 
+
+He rubbed his fingers over the worn leather of his briefcase. Inside lay the heavy weight of responsibility: Mr. Fitzwilliam's legacy, a life's work built on meticulous accounting and shrewd business acumen. The man had passed away unexpectedly last week, leaving Artie to navigate the treacherous waters of probate, inheritance taxes, and a looming deadline for the release of financial statements that could determine the future of his own modest life savings.
+
+The rain finally began to ease, leaving behind a crisp chill in its wake.  Artie sighed, looking out at the grey street below.  A lone figure stood across the street, silhouetted against the dying light of the evening sun. His gaze flickered to the window, a fleeting sense of unease settling over him. This man, he knew, was no stranger to shadows and secrets.  He had been a frequent visitor during Mr. Fitzwilliam's final months, his presence often shrouded in an air of mystery and veiled threats that Artie had learned to ignore.
+
+
+**Setting:**  A rainy Tuesday evening in the late 20th century in a bustling city known for its finance industry, England.

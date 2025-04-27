@@ -1,0 +1,5 @@
+The cockpit hummed with anticipation, the air thick with the scent of ozone and burnt coffee. Outside, the twilight sky bled into a bruised purple canvas, lit by the last flickering embers of the setting sun.  Amelia "Ace" Blackwood gripped the control yoke, her knuckles white against the worn leather. Her gloved fingers danced across the instruments, checking fuel levels, engine temperature, and airspeed. Every tick of the clock felt like an eternity as she waited for the signal to launch. 
+
+The setting was Hangar One at Fort McMurray Air Base in Alberta, Canada. The wind whipped around the hangar, carrying with it the scent of pine and damp earth, a stark contrast to the sterile metallic air inside.  Ace's sleek, black fighter jet, call sign "Raven," sat poised like a predator, its powerful engines rumbling with barely restrained energy. Tonight wasn't about training or routine maneuvers. This was a clandestine operation, shrouded in secrecy, entrusted only to the most skilled pilots in the Air Force – and Ace Blackwood was leading the charge.  
+
+

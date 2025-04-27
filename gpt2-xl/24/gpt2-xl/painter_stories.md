@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named Jean Charles de Chassebron; his name was Jean Charles de Chassebron. De Chassebron, for those who don't know, was a man whose paintings took the world by storm (see below). In fact, "He looked so much like Chagall that some people assumed his art was the real thing," as the critic Nicholas Carr has written. Chagall's work and de Chassebron's art were so similar, in fact, that the two even came under suspicion by the same government. For years, they were both suspected of smuggling, and even imprisoned for it.
+
+However, unlike Chagall, de Chassebron wasn't actually an artist after all. He was rather an actor, working as an actor. In fact, Chagall worked as both Chassebron and his own name, making the connection even closer than it probably should have been.
+
+So, which of these world-renowned artists is the real one? That remains one of the most debated questions in art history. However, the artist Chassebron has since been given a better name, thanks to the efforts of a man named Jean Charles Le Brun, who started a documentary about the matter entitled He Was a Painter.
+
+According to Le Brun, Chassebron didn't actually do anything. He didn't invent the art form of modern painting — he only stole it. As Ch

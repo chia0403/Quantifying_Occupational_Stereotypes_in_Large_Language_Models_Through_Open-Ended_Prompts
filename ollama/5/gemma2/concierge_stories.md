@@ -1,0 +1,5 @@
+The lobby of The Grand Bellagio shimmered under a cascade of faux-sunlight streaming through the enormous glass atrium ceiling. It was always like this, even at 10:30 pm, when most of Paris had retired to its cobblestone beds.  The air buzzed with hushed whispers and the rhythmic clinking of champagne flutes as wealthy tourists, oblivious to the creeping chill outside, indulged in the extravagance that was their evening's escape.
+
+Amidst this opulent chaos stood Etienne Dubois, the concierge. His tailored navy suit felt like a second skin, his silver tie pin glinting against the crisp white fabric.  His neatly combed hair, touched with grey at the temples, only accentuated the sharp lines of his face, etched with years of serving the whims of the privileged. He was a master of composure, an orchestra conductor managing the symphony of desires that played out within The Grand Bellagio's walls every night. Tonight, however, even Etienne’s practised calm wavered slightly. A peculiar request had just landed on his desk, one that promised to unravel the very fabric of this meticulously crafted world. 
+
+

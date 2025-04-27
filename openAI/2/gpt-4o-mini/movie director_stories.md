@@ -1,0 +1,11 @@
+**Title: "Fractured Frames"**
+
+**Setting:** The bustling heart of Hollywood, California, where dreams are spun and stories come to life amidst the glitz and glamour. Towering palm trees sway gently in the warm Golden State sun, their silhouettes casting long shadows against the vibrant colors of sunset. It is the end of summer, and the scent of sunscreen mingles with the sizzling aroma of street tacos from nearby vendors. The iconic Hollywood sign looms in the distance, a silent guardian watching over the frenetic energy of the film industry. 
+
+**Opening:**
+
+Cassandra Albright stood just outside the grand oak doors of the historic Warner Brothers studio lot, her pulse quickening with each thrum of her heart. The sun dipped low on the horizon, painting the sky in hues of orange and pink, but all she could see was the sprawling stretch of the lot ahead—the sound stages, the prop warehouses, the labyrinth of trailers that housed talent and crew alike. For fifteen years, she had navigated this world: a maze of egos, ambition, and relentless creativity. After a tumultuous few years of soul-searching and self-doubt, she was finally ready to step back into the light with her latest project—a passion project titled "Echoes of Yesterday."
+
+Cassandra, known to her colleagues as “Cass,” had earned her reputation as one of the most innovative directors in the industry. Her films often blurred the lines between reality and fiction, wielding a distinct vision that left audiences on the edge of their seats. But after her last film—a critically acclaimed but commercial flop—she had retreated from the spotlight, nursing a wounded heart and bruised ego. Today, she was determined to reclaim her place in the sun, even if it meant confronting the ghosts that haunted her creative journey.
+
+As she adjusted the sleek headphones around her neck and checked the final notes in her leather-bound notebook, Cass felt the weight of anticipation press heavily on her chest. She stepped forward, a woman armed not just with a camera, but with a story waiting to unfold—a story that would challenge her demons, explore the frailties of love and loss, and ultimately reveal what it meant to confront one's past. The lights were about to come on, and she would be the one to dim the world around her.

@@ -1,0 +1,6 @@
+The air in Amelia Blackwood's studio hung thick with the scent of linseed oil and turpentine, a familiar perfume she welcomed as a balm to her anxieties.  Sunlight streamed through the dusty windows, illuminating motes of dust that danced like miniature ballerinas across her worn wooden floor. Her easel, scarred and stained from years of use, held a canvas half-finished: a riot of crimson and cobalt swirling around a lone figure silhouetted against a moonlit sky. Amelia was fixated on capturing the fleeting moment before dawn, the fragile line between darkness and light, but her brushstrokes felt clumsy, her usual confidence replaced by a gnawing uncertainty.
+
+She lived in a rambling Victorian house on the outskirts of Port Townsend, Washington, a town known more for its maritime history than its art scene.  Amelia's studio was the top floor, a haven overlooking the misty Salish Sea where seagulls cried their mournful calls and the scent of salt hung heavy in the air. It was a sanctuary, a place where she could lose herself in her work, but today, even the familiar sights and smells couldn't soothe the growing unease within her. 
+
+
+Amelia, with her wild red curls escaping from her messy bun and paint splattered across her overalls, looked out at the sea, wondering if this was the day her world would finally shift on its axis.  

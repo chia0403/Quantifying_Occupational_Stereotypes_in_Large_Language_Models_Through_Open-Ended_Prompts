@@ -1,0 +1,6 @@
+The air hung thick with the scent of acetone and jasmine, a heady cocktail that was as familiar to Evelyn Celeste Beaumont as her own heartbeat. She sat perched on her chrome stool, watching the neon sign outside "Nails by Eve" flicker erratically in the twilight.  The late summer rain had begun to drum against the windowpanes, blurring the city lights into an impressionistic smear of gold and red. 
+
+Evelyn, with a sigh, ran a gloved hand over a half-painted set of nails – a deep emerald green that would have looked stunning on her client if she hadn't walked out mid-manicure, muttering something about "a bad feeling" and leaving a trail of glitter in her wake.  The evening was proving to be as predictable as it was mundane – the usual parade of hurried office workers, stressed mothers, and teenagers desperate for a touch of rebellion before prom. 
+
+
+Evelyn longed for something different, a story that would unfold beyond the confines of her tiny salon. A story where she wasn't just "Nails by Eve," but someone with a name that meant something, a life filled with more than just manicures and nail polish.  She dipped her brush into a pot of shimmering silver, hoping that tonight, maybe, just maybe, something unexpected would walk through the door. 

@@ -1,0 +1,6 @@
+The clacking of her heels against the polished marble floor echoed through the silent hallway. Penelope "Penny" Worthington adjusted the stiff collar of her beige blouse, smoothing down a nonexistent wrinkle with a practiced hand. Dawn had barely broken over Manhattan, casting long shadows from the towering skyscrapers that crowded the cityscape.  She inhaled deeply, trying to ignore the faint aroma of stale coffee and desperation that clung to the air like morning mist. It was always quietest this early, before the suits descended upon Mr. Thornton’s office, their faces pinched with urgency and ambition. 
+
+Penny had a different kind of urgency: she needed to find a new apartment. Her current one was a shoebox on the wrong side of town, perpetually plagued by leaky faucets and noisy neighbors.  But finding something decent in this city that didn't require selling a kidney was proving more difficult than anticipated. Still, she wouldn't let it distract her from her primary duty: keeping Mr. Thornton’s world running smoothly. 
+
+
+She reached the mahogany doors of his office, engraved with an intricate golden design, and inhaled again, bracing herself for another day in the heart of corporate New York. 

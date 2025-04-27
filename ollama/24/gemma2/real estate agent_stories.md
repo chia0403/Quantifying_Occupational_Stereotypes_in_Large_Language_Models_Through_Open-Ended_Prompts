@@ -1,0 +1,4 @@
+The humid Georgia air hung heavy, thick with the scent of honeysuckle and magnolia.  Sweat prickled on Amelia Beatrice Hawthorne's upper lip as she scanned the peeling paint of the Victorian mansion before her.  It wasn't exactly her usual clientele – Amelia specialized in sleek modern condos downtown, not crumbling historic homes in the outskirts of Savannah. But Mr. Silas Blackwood, a man known for his eccentricities and vast inheritance, had insisted on meeting with her personally, so here she was. 
+
+
+A rusty wrought iron gate creaked open as Amelia approached the overgrown path leading to the front porch. The house seemed to sigh around her, its ancient bones whispering secrets of forgotten lives. This wasn't just a listing; it was a story waiting to be told. And Amelia, with her keen eye for detail and insatiable curiosity, felt compelled to hear it.  

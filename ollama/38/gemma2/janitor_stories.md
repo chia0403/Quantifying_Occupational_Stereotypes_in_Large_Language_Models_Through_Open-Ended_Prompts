@@ -1,0 +1,5 @@
+The stale scent of dust and forgotten dreams hung heavy in the air as Elias Thorne pushed his mop across the polished floor of the Grand Aurora Theatre. He’d worked here for twenty years, long enough to know every creak of the ancient building, every flicker of the ghost lights that danced on the dusty stage after closing time. The once vibrant theatre, a haven for laughter and applause, now sat mostly silent, its grandeur dimmed by years of neglect and dwindling audiences. Elias knew its secrets – the phantom whispers echoing in the empty balconies, the scent of burnt popcorn clinging to the faded velvet seats, the way the stage floor seemed to sigh underfoot. 
+
+He wasn't a performer, not in the traditional sense. His stage was the backstage halls, his script the symphony of clanks and squeaks as he cleaned. He knew the story of this place as well as any playwright – its triumphs, its heartbreaks, its slow descent into obscurity. But tonight, something felt different. A prickling at the back of his neck, a faint tremor in the air. Elias paused, listening to the silence, wondering if the theatre was finally ready to tell him its next chapter.  
+
+

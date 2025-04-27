@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+The fluorescent lights overhead cast an unforgiving glare over the worn linoleum floor of the 7-Eleven convenience store where Ember Rose Jenkins had spent countless hours on her feet, scanning groceries and collecting tips from late-night revelers. It was a chilly autumn evening in the small town of Oakdale, and the rain-soaked streets outside were emptying as the last of the day's crowds filtered into the store for one final snack before bed.
+
+As Ember rang up a pack of Slim Jims and a lukewarm coffee for a sleepy-eyed truck driver, she gazed out the window at the deserted Main Street, her eyes tracing the familiar patterns of the old diner across the street. She knew every face that walked through those doors - the gruff but lovable owner, the regulars who always ordered the same thing, and of course, the new kid on the block who'd been coming in for weeks with his tired eyes and worn-out leather jacket.
+
+Ember's thoughts drifted to her own plans for the evening: a shift at home, scrubbing down the kitchen counters and reorganizing the pantry, before finally collapsing onto the couch with a good book and a steaming cup of tea. It was a routine she'd grown accustomed to over the past year, one that brought a sense of comfort and security in a town where nothing ever seemed to change.
+
+But as she handed the truck driver his receipt and wished him a safe drive home, Ember couldn't shake the feeling that tonight would be different. Maybe it was the way the rain seemed to press against the windows like a physical presence, or maybe it was the way her phone had buzzed with an anonymous text earlier that night. Whatever it was, Ember felt a shiver run down her spine as she watched the truck driver disappear into the darkness, leaving her alone in the store with only the hum of the refrigerators to keep her company.

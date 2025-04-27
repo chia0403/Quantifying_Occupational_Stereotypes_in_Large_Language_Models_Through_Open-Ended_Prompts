@@ -1,0 +1,5 @@
+The fluorescent lights hummed overhead, casting a sterile glow over the chaos that was ER room three.  Sarah Elizabeth "Ellie" Carter, her brown hair pulled back in a tight braid, navigated the flurry of activity with practiced ease. A patient screamed across the room, another coughed violently into a paper bag, and a doctor barked orders at a harried intern. Ellie, however, remained calm, her movements swift and precise as she prepared an IV line for a young boy who'd tripped and fallen off his bike, leaving a jagged gash on his forehead. 
+
+The ER of Mercy General Hospital was a place where life hung in the balance, where laughter and fear collided in equal measure. It was Ellie’s battlefield, her sanctuary, and the only place she truly felt at home. Tonight, though, something felt different. A subtle shift in the air, a hushed tension that even the constant din of beeping machines couldn't mask.  Ellie glanced at the clock - 10:47 pm. The night was young, but already it had a heavy feel to it, like a storm brewing on the horizon.
+
+

@@ -1,0 +1,7 @@
+Amelia Thorne had always believed there was magic in the stones of Ashwick Village. Nestled between the rolling hills of the Cotswolds, the village was a place where time seemed to pause, allowing the stories of yesteryears to whisper through the cobblestone streets and ivy-draped cottages. As the morning mist lifted, revealing a golden hue over the landscape, Amelia stood by the oak wood sign that read, "Ashwick – Est. 1623," ready to start her day.
+
+Her tours were renowned not just for the sights, but for the way she could weave history, lore, and a touch of imagination into a tapestry that captivated her audiences. Today, her company comprised a motley group of travelers—families with wide-eyed children, couples clutching each other's hands, and solitary adventurers armed with cameras and curiosity.
+
+Amelia adjusted her vintage leather satchel, her essential companion filled with maps, photographs, and a notebook where she'd scribbled the countless tales accumulated over years of guiding through this enchanting hamlet. The air was crisp with the scent of blooming wildflowers from the surrounding meadows, promising a perfect day to explore.
+
+As she welcomed her group, her eyes sparkled with the anticipation of sharing Ashwick’s secrets, from the mysterious markings on the old parish church to the legend of the Wishing Well hidden deep within the wood. Today, Amelia Thorne felt the village had a story of its own to tell—one that even she hadn’t yet heard.

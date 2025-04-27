@@ -1,0 +1,7 @@
+The fluorescent lights hummed above Amelia "Amy" Bellweather's head, casting harsh shadows on the worn floor tiles of the ambulance bay.  A symphony of beeps played off in the background – an orchestra of worry, pain, and the desperate hope for the next patient to come through the door. Outside, rain lashed against the windows, mimicking the frantic thrumming in Amy's chest as she surveyed the scene before her: a young man sprawled on the hospital gurney, his once-bright face pale and etched with fear. His name, etched on the bed beside him, was Johnathan Carter.
+
+Amy had seen countless faces like this one – a kaleidoscope of suffering, each story etched onto their skin in its own unique way. But Johnathan's story felt different - an almost palpable ache hung about him, and it mirrored the heavy weight in her own heart as she adjusted his medical bracelet for the tenth time in the last hour. 
+
+This wasn’t just another job; it was a responsibility, a duty that fueled her soul, to bring light into the darkness where others had been crushed by their pain. As she knelt beside Johnathan, the storm outside mirrored the turmoil within her – a relentless tide of emotions threatening to overwhelm her. This case, however, was personal. 
+
+Amy knew her grandmother's story, and the scars that ran deep in his family. He wasn’t just another patient; he was the echo of their pain, their shared history woven into his every breath. 

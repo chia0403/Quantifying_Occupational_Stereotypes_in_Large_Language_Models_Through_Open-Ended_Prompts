@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting with a manicurist as the main character:
+
+**Story Opening:**
+
+The scent of acetone hung heavy in the air, a sharp, cloying perfume that would cling to Clara Beatrice Hawthorne’s nostrils long after she'd clocked out. Today, however, the chemical tang felt… different. Charged, almost. Maybe it was the oppressive July heat finally breaking, a storm promising to unleash itself over the city later. Or maybe it was just Mrs. Abernathy's insistence on glitter acrylics with tiny, damn-near-invisible rhinestones glued onto each and every nail that was pushing Clara past the edge of sanity.
+
+“Just one more coat of Seche Vite, dear,” Mrs. Abernathy chirped, her voice a high-pitched warble that Clara knew was fueled by a cocktail of gossip and hard candies. Clara forced a smile, holding her breath as she carefully applied the top coat, the brush a tiny, delicate wand in her steady hand. She was good at this, a master of her craft. But sometimes, staring at the swirling pearlescent hues and the endless array of polished perfection, Clara felt like she was drowning in a sea of artifice. And lately, that feeling had been rising like a tide.
+
+**Setting:**
+
+The story is set in "Nail Haven," a mid-range nail salon in the heart of Charleston, South Carolina. Nail Haven is located on King Street, surrounded by upscale boutiques, antique shops, and trendy restaurants. The salon itself is a small, brightly lit space, meticulously decorated with pastel walls, plush velvet chairs for clients, and rows upon rows of colorful nail polishes displayed like jewels. Despite its charming exterior, the air inside is perpetually filled with the aforementioned scent of acetone, the low hum of electric nail files, and the constant chatter of clients and manicurists. There are five manicure stations, each equipped with a UV lamp, various tools, and a small, personal workspace. A back room serves as a storage area for supplies and a break room for the staff. The overall vibe is one of bustling activity and meticulously crafted glamour, a small oasis of beauty amidst the historic charm of Charleston. Outside, the humid Southern air hangs heavy, contrasting sharply with the sterile, air-conditioned atmosphere of Nail Haven.

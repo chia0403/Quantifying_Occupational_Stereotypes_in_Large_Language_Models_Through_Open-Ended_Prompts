@@ -1,0 +1,7 @@
+In the heart of a city that never slept, where neon signs buzzed like forgotten dreams and midnight rain washed the guilt from hurried footsteps, Detective Evelyn Montgomery found solace in the chaos. The streets of New Crest City spoke in whispers and half-truths, a cacophony that Evelyn had learned to decipher through years of chasing shadows. Her modest office was tucked away above a corner bookstore on Fifth Avenue, the kind of place where dust took residence in every crevice and the wood floors creaked in protest with each passing hour.
+
+Inside, the dim light of a single desk lamp cast elongated shadows over stacks of case files and a worn-out typewriter, its keys like tiny gravestones recounting tales of deceit and despair. The faint scent of old books drifted up from the store below, mingling with the aroma of freshly brewed coffee that Evelyn nursed as if it were as essential as air.
+
+Tonight, as the rain drummed a steady rhythm against the window, Evelyn sat at her desk, her fingers absently tracing the edge of a photograph—a young woman, eyes full of secrets. The phone call that had brought this case to her desk rang with desperation, a mother's voice caught between hope and fear. It was a stark reminder that beneath the city's bright veneer, darkness always lurked.
+
+Evelyn set the photograph aside and leaned back in her chair, listening to the city's pulse, feeling the familiar hum of anticipation building within her. Another case. Another chance to step into the shadows and bring the truth into the harsh, unforgiving light of day.

@@ -1,0 +1,7 @@
+Rain hammered against the attic window, its rhythm a counterpoint to the frantic drumbeat in Elara Thorne's chest. The air hung thick with dust and the scent of aged wood, both comforting and unnerving.  Her canvas lay bare on the worn wooden floor, a vast expanse of white waiting for her touch. Yet, her brush remained stubbornly frozen, its bristles still as cobwebs spun across the attic skylight. 
+
+Elara was known throughout the small coastal town of Oakhaven for her vivid, almost ethereal paintings that captured the essence of the sea's wild grace.  But tonight, her muse was elusive, her hands clumsy and unsure. She’d dreamt of it – a stormy night at the foot of the Old Watchtower, its silhouette dark against the swirling grey canvas of the sky. Yet, she couldn't translate it onto the canvas. The storm seemed to echo her own unease. 
+
+She was meant for this life. For years, she’d spent her days painting seascapes, capturing the beauty and raw power of nature's fury in every stroke. But now, even the ocean itself felt distant, its vastness swallowed by the claustrophobia of her attic room. The storm raged on, mirroring the tempest inside Elara.  
+
+Oakhaven was beautiful, but it held a certain melancholic charm. It was as if history had seeped into every cobblestone and weathered plank of wood, leaving an echo of time passing by like waves crashing against the shore. Tonight, though, that beauty felt suffocating. The silence within the attic room pressed down on her like a thick fog. 

@@ -1,0 +1,11 @@
+**Title: Beneath the Surface**
+
+**Setting:** In the small coastal town of Willow Bay, where the air carries a hint of salt from the ocean and the streets are lined with quirky shops and vibrant flowers. The town’s quaint charm is bolstered by its community spirit, but it also harbors secrets beneath its picturesque facade. The local dental clinic, "Willow Smiles," is painted in soft pastels, with a cheerful awning that flutters in the ocean breeze. Inside, the atmosphere is bright and inviting, with walls adorned by photographs of patients sporting their gleaming smiles. 
+
+**Story Opening:**
+
+Allison Mae Thompson loved teeth. It wasn’t just the gleaming surfaces or the way a fresh cleaning could light up a patient’s face; it was the stories they carried—whispers of laughter, echoes of love, confessions hidden behind shy smiles. As a dental hygienist at Willow Smiles, she often felt more like a confidante than a caregiver, unearthing the subtleties of her patients’ lives through the simple act of tending to their oral health. 
+
+On a crisp autumn morning, while the sun spilled golden light across the waiting room, Allison prepared her tools with the meticulous precision of a seasoned artist. She glanced out the window, momentarily distracted by the rhythmic crashing of waves against the jagged rocks below. The ocean, vast and unknowable, held a certain allure. Little did she know, that day would bring far more than just routine cleanings and friendly chats—it would plunge her into a mystery lurking beneath the town's serene shoreline, one that would ultimately test her resolve and the very fabric of the community she loved.
+
+As the door creaked open, a familiar face walked in—the iridescent smile of Mrs. Evelyn Granger, the town's beloved librarian, quickly fading, replaced by a furrowed brow and a look of distress that set off alarm bells in Allison's mind. Today, the dentist’s chair would cradle more than just an aching tooth; it would hold the beginnings of a story that would change everything in Willow Bay.

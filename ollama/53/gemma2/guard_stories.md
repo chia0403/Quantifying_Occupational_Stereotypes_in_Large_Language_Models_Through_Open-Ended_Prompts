@@ -1,0 +1,6 @@
+The air hung heavy with the scent of brine and decay.  A perpetually damp fog clung to the cobbled streets of Saltwind Harbor, swallowing sound and obscuring the grimy rooftops beyond. It was here, amidst the teeming crowds and shadowed alleys, that Corvus Blackhaven patrolled. He wasn't a soldier, not in the grand sense. His rank was "Harbor Guard," a title whispered with both scorn and begrudging respect. 
+
+Corvus adjusted his worn leather jerkin, the clasp digging into his chest.  His gaze swept over the bustling marketplace. Fishmongers hawked their wares, children darted between legs, and sailors swore in guttural tongues, all under the watchful eyes of weathered guards like himself. Each clang of the nearby shipyards, each burst of laughter, each muttered curse was a piece of the ever-shifting symphony of Saltwind Harbor. 
+
+
+But tonight, something felt different. A prickle of unease crawled up Corvus's spine.  Perhaps it was the unsettling silence emanating from the usually boisterous docks, or the way shadows seemed to deepen and twist with an unnatural menace. Whatever it was, Corvus knew he needed to be vigilant. This night held a hidden danger, a whisper on the wind that promised trouble. 

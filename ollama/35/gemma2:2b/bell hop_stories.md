@@ -1,0 +1,7 @@
+The air hung thick with cigarette smoke and despair in The Grand Astoria. Rain slicked the cobblestones outside, turning them into shimmering ribbons under the gaslight lamps. Inside,  the grand foyer of the once-legendary hotel was silent save for the rhythmic tick-tock of a grandfather clock in the corner. 
+
+Felix Hawthorne, his name etched on a worn leather satchel slung across his shoulder like an old friend, checked his watch for the tenth time. He wasn’t supposed to be here. At least, not in this dreary city that clung onto its past like a drowning man holds onto a broken rope.  He was supposed to be back at The Hawthorne Hotel in San Francisco, tending bar under the watchful eye of his father and the gentle hum of the Golden Gate Bridge. 
+
+But fate, it seemed, had other plans. A telegram awaited him, its official stamp bearing the insignia of the Grand Astoria's owner: a shadowy figure known only as Lord Barrington. He’d never met the man but felt a sudden unease at the mere mention of his name in their hushed exchanges. 
+
+The bellhop adjusted his bow tie and smiled, pushing aside the lingering sense of foreboding. After all, he was ready to face the unknown, armed with nothing but hope, courage, and a worn-out satchel full of dreams.  Tonight, Felix Hawthorne would find out if fate had brought him to this forsaken city or whether it was merely leading him towards something more… dangerous. 

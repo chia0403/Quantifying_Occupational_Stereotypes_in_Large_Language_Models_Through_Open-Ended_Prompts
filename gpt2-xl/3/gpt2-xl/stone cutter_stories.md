@@ -1,0 +1,7 @@
+Once upon a time, there was a stone cutter named Agrin, and he kept cutting the wood for the bridge. Soon after, a girl named Alaric's friends told Agrin that all of the bridges leading into Norsca had already been built. As it was getting late, Agrin wanted to sleep in the sun while Alaric went about his duties. As he was making a hole in the forest and listening to the waterfall nearby, he suddenly heard voices inside it, and he realized who sounded like the girl whom he loved. This caused Agrin to get angry and he sliced all of his own hands off, then tried to stab Alaric while he was still sleeping. While it's not certain whether this story happened or not, Agrin's hands were eventually brought back to life in a magical handbag, making Norsca a magical land where no one ever forgets that someone once cut their hands and they live in misery.
+
+Grizzly Bears, Dragons and Dwarves
+
+Norsca has had a long history of war. The first wars were between Nord and High Elf forces over who would control the island (Nords ruled Norsca on a long held "might is right" basis).
+
+The other great wars which were won against the Elves were in the late 13th century IC by the Orcish invaders and in the early 1500's by the Nordic armies united under a mighty king named

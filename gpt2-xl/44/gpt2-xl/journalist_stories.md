@@ -1,0 +1,7 @@
+Once upon a time, there was a journalist named Bob Woodward, who published a book. It was good, it was about his life, about the Watergate scandal, and, oh, how he was betrayed by Bob Woodward, how his whole life got destroyed by him. That was a book.
+
+It was a terrific book, but his book, "All the President's Men," was later revealed to be a very long con. People were in it for the long haul. They trusted Woodward. They trusted Bob Woodward. And then all of a sudden, in 2008 at the end of a very bad year for Woodward's book, his next book, "All the Same Sorrow," and that book was actually very good, it was about the Iraq War.
+
+So Woodward and Company, the Woodward and Company, did this con to get that book into the stores and not a book about the Iraq War, a book about the administration's corruption at high levels, and now, two years later, he's running around again with a book about the Benghazi massacre. This is some sort of a scam, I guess.
+
+This is a very good example of how books can be sold in a number of ways, to promote the author or to sell their brand to gullible readers, and then they can become very dangerous. The way that Bob Woodward made money was by selling this narrative to an audience of his gullible readers. And he used that narrative as a sales strategy and

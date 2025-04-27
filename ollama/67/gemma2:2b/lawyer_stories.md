@@ -1,0 +1,7 @@
+The rain hammered against the windowpane, each drop like tiny fists pounding on the glass.  Inside his mahogany-lined office, Theodore "Teddy" Grant, his hair slicked back with that signature sheen of desperation, stared out at the storm swirling outside. The city he'd defended for years – a beacon of glittering skyscrapers and roaring ambition – was now reduced to a blur of grey and black, each flicker of neon against the downpour seeming like a mocking glare. 
+
+It had been a rough few weeks for Teddy. His latest client, a young socialite accused of embezzling millions from her estranged father's company, had gone cold as ice. No longer interested in cooperating with the police or offering any explanation. Her silence was deafening, the weight of her secret a stone pressing down on his heart.  The clock ticked relentlessly, each second reminding him of the looming deadline - tomorrow afternoon. 
+
+The air hung thick with tension, the scent of stale coffee and expensive suits clinging to the room like an unwelcome guest. Teddy took a deep breath, trying to regain his composure amidst the rising chaos around him. The storm had mirrored his own internal tempest – a raging inferno of worry and anxiety that threatened to consume him. 
+
+He glanced at the file on his desk, its edges frayed and stained with ink. Every word felt like a betrayal, every sentence a reminder of the precarious balance he was attempting to maintain in this life where justice met the law, and truth was often a casualty.  

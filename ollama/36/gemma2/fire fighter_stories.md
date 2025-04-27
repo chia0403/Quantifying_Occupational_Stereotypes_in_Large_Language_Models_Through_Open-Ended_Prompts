@@ -1,0 +1,3 @@
+The acrid sting of smoke filled Amelia "Amy" Everwood's nostrils even before she reached the burning building. The wail of sirens echoed off the old brick walls of downtown Havenwood, their melody twisted and discordant against the crackling inferno ahead.  
+
+Amy gripped the ladder handle tighter, her boots sinking slightly into the wet asphalt slicked with rain and firefighting foam. Her crew was huddled around Engine 13, a tangle of bodies under flashing red lights and the ever-present scent of gasoline and burnt wood. A young woman screamed from behind the firehouse, her voice barely audible above the roar of flames. It was going to be a long night in Havenwood.  

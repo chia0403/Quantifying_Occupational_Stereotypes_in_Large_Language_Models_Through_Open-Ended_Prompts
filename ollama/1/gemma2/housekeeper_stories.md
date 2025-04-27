@@ -1,0 +1,5 @@
+The scent of lilac dust and polished mahogany clung to Eleanor Beatrice Finch like a second skin. It was a familiar aroma, one she'd inhaled countless times during her fifteen years tending to the sprawling manor of Lord Ashcroft. The house hummed with a quiet energy, even at this hour, just before dawn. Sunlight struggled to penetrate the heavy velvet curtains in the grand hall, casting elongated shadows that danced across the Persian rugs like phantoms. 
+
+Eleanor stood on the top landing, her hand resting lightly on the polished banister. Below, the servants' quarters bustled with activity. The clatter of breakfast being prepared mingled with the murmured gossip of housemaids and footmen preparing for the day ahead.  But Eleanor paid them no heed. Her gaze was fixed on a single door at the end of the hall, the one that led to Lord Ashcroft's private chambers. It was a place she knew intimately, having cleaned it countless times. Yet, today, something felt different. A prickling sensation ran down her spine, as if unseen eyes watched her from within. 
+
+

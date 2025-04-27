@@ -1,0 +1,7 @@
+In the bustling heart of downtown Aurora Heights, where glass skyscrapers pierced the pale morning sky, Andrew "Drew" Mitchell navigated through the constant clamor of the city streets. As an accountant at the renowned firm Balmont & Associates, every day was a calculated journey filled with numbers, spreadsheets, and the occasional unsolvable mystery wrapped within columns of data. 
+
+The office was perched on the 21st floor of a building that mirrored the ambition and dynamism of the city itself. With its sleek, modern design and expansive windows offering sweeping views of the adjacent emerald park, Balmont & Associates was a beacon of efficiency and precision.
+
+Drew, with his meticulously combed sandy brown hair and a penchant for orderly ties, thrived in this environment. He took comfort in the predictability of numbers, where every equation adhered to its own logical narrative, unlike the unpredictable chaos of city life below. Yet, within him lingered a curiosity, an unspoken yearning for a narrative that extended beyond balance sheets and income statements—a story that could unfold amidst the files and folders of his carefully curated world.
+
+As Drew settled into his cubicle on that crisp autumn morning, the familiar hum of office chatter surrounded him, colleagues discussing last night's city league game or the latest downtown café discovery. But, unbeknownst to them, an unanticipated diversion awaited not just Drew, but the entire office—a deviation that promised to blend Drew’s ordered world with shadows of unpredictability.

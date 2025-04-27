@@ -1,0 +1,6 @@
+The bell above the door tinkled merrily as Anya Petrova swept her blonde hair back behind her ear, catching a glimpse of the afternoon sun streaming through the dusty window of "Anya's Aesthetics."  She took a deep breath, inhaling the familiar scent of lavender shampoo and ironed linen.  Her small salon, tucked away on a quiet side street in Prague, was a sanctuary for her: a world of soft lighting, whispered confidences, and the transformative magic she wielded with each carefully applied curl, each expertly blended shade. 
+
+But today, the sun's warm glow felt strangely muted, and even the scent of lavender seemed to carry a hint of unease.  Anya glanced at the empty chairs waiting for their clients, her brow furrowing slightly. It was usually bustling this time of day, especially with the influx of tourists eager to try out Prague’s renowned beauty services. Yet, today, the silence hung heavy in the air. 
+
+
+Anya adjusted the worn velvet cushion on her main styling chair, a nervous flutter beginning in her stomach. Perhaps it was just a slow day? Or maybe... something else was at play?  Her thoughts drifted to the cryptic message she had received earlier that morning, tucked into the folds of a discarded newspaper: "Beware the shadows." 

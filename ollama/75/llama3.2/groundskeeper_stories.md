@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The misty dawn crept over the sleepy town of Ravenswood, casting an ethereal gloom over its narrow streets and worn buildings. It was April 15th, Easter Sunday, and the residents of this rural community were stirring from their weekend slumber. Amidst the quiet morning routine, one figure stood out - Emrys "Eli" Fletcher, a rugged but gentle groundskeeper who tended to the town's historic cemetery.
+
+Eli trudged through the damp grass, his worn work boots sinking into the earth as he made his way to the old oak tree at the center of the cemetery. He had been working there for nigh on 20 years, and over that time, he'd grown to know every inch of the grounds, every weathered headstone, and every whispering wind. The townfolk looked up to Eli as a sort of guardian of their collective past, and he took his responsibility seriously.
+
+As Eli began to prepare the oak tree for the day's ceremony - a small Easter service to honor the town's deceased - he couldn't shake the feeling that something was off. A chill ran down his spine, despite the warmth of the rising sun. It was as if the very spirits he'd spent years learning to quiet and respect were stirring once more...

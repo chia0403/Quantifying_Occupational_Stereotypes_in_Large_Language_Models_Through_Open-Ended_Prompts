@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting:
+
+**Story Opening:**
+
+The scent of antiseptic and stale coffee hung heavy in the air, a familiar blanket comforting and suffocating in equal measure. Eleanor Abigail Hayes, RN, rubbed the sleep from her eyes, the telltale lines of exhaustion etched deeply around their corners. Her phone buzzed insistently on the cluttered counter, flashing the dreaded caller ID: "St. Jude's ED." A sigh escaped her lips, a weary sound lost in the early morning hum of the hospital. Another shift, another onslaught. She swallowed the dregs of her lukewarm coffee, the bitter taste a fitting prelude to the day ahead. “This better not be Mrs. Henderson again,” she muttered to herself, already bracing for the inevitable. The phone buzzed again, more urgently this time. Eleanor closed her eyes, took a deep breath, and answered, “Hayes.”
+
+**Setting:**
+
+The story is primarily set in the Emergency Department of St. Jude's Hospital, a large, chronically understaffed hospital located in the heart of a bustling, but economically struggling, Midwestern city. The ED itself is a cacophony of controlled chaos. Fluorescent lights hum incessantly, casting a harsh, unflattering glare on the chipped linoleum floor and the perpetually sticky surfaces. The air is thick with the sounds of beeping monitors, frantic calls over the intercom, and the low murmur of worried families huddled in the waiting area. The atmosphere shifts constantly, from moments of quiet urgency to periods of frantic, all-hands-on-deck activity. Within the ED, Eleanor's "domain" often includes Trauma Bay 3, a space she knows intimately - the layout of the equipment, the slight squeak of the gurney wheels, the faint, lingering smell of bleach. Outside the hospital, Eleanor lives in a small, slightly rundown apartment above a bakery on the edge of the city's revitalizing arts district, a stark contrast to the sterile environment of her workplace.

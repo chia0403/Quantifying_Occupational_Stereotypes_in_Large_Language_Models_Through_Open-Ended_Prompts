@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named Michael. He was the last remaining member of a clan known as the Clanks, and he would do anything it took to stay alive. But when a mysterious illness strikes Clank, he comes under constant attack by one of its own, with the threat of killing him at any time if the clan is conquered. Will Michael be able to survive, or will his body be overcome by this illness and lead him to death?
+
+In the Shadow of Kong – The Kong family has always had secrets, but this time, the Kong family has a secret they won't tell you; a brother who might be more powerful than they realize. Now the Kongs will have their hands full as they find themselves fighting on the front lines of an epic struggle to save the whole Kong family from its own deadliest foe.
+
+Beware the Beast – When Kongs are born, no one knows they'll be the beasts that terrorize the mainland. In a country where a child's worst fear is accidentally stepping on a rat, the fact that one of this cursed breed is a girl is a horrifying revelation. But this girl is no ordinary beast; she's a woman too… And she's not looking to stay that way. Will she find her true path in a world that has turned almost completely upside down?
+
+The Clank series is part of IDW Publishing's ongoing series of comic books based on the classic toys, first published by Has

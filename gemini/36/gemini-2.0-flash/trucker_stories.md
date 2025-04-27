@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+The dashboard clock bled a sickly green glow across the crinkled face of Harold Eugene "Gene" McKinley. He squinted, the numbers blurring into a single, accusatory haze: 3:17 AM. Gene blew out a weary breath, tasting stale coffee and the ghosts of last week's pecan pie from a dusty diner in Oklahoma City. He hadn't seen a real bed in three days, and his bones felt like they were filled with gravel.
+
+Gene was hauling a load of refrigerator parts from Fort Worth, Texas, to Jacksonville, Florida. His route took him through the humid heart of the Deep South, a landscape he knew intimately and yet always managed to find both unsettlingly familiar and eerily alien. Tonight, the road was a black river snaking through the inky blackness of rural Alabama. Towering pines lined the highway, their branches clawing at the sky like skeletal fingers. The air hung heavy and damp, thick with the scent of honeysuckle and something else, something older and earthier, that Gene couldn't quite place. It smelled like secrets buried deep in the red clay soil.
+
+The interstate was mostly deserted at this hour, save for the occasional ghost of a headlight in his rearview mirror and the rhythmic thump of his eighteen wheels devouring the asphalt. Gene kept his eyes on the road, but his thoughts wandered, as they often did on these long hauls, down the winding, forgotten lanes of his past. A past he preferred to leave buried alongside those secrets in the red clay soil.

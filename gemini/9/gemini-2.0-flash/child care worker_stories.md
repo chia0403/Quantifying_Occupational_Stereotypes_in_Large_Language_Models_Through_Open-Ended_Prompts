@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting, featuring a child care worker:
+
+**Setting:** The "Little Explorers" daycare center, a vibrant, slightly chaotic space located on the ground floor of a converted Victorian house in the quiet, tree-lined neighborhood of Ashwood. The walls are painted in cheerful primary colors, decorated with finger-painted masterpieces and alphabet posters. A large, fenced-in backyard is visible through the windows, currently buried under a blanket of fresh snow. Inside, the air smells faintly of crayons, apple juice, and disinfectant wipes. It's a Tuesday morning, just after the first wave of drop-offs, and the hum of childish chatter fills the room.
+
+**Opening:**
+
+Beatrice Eleanor Montgomery sighed, adjusting the brightly colored bandana holding back stray wisps of her auburn hair. She surveyed the aftermath of the morning's arrival frenzy: building blocks scattered across the rug like fallen dominoes, a rogue stuffed dinosaur lurking beneath the art easel, and the remnants of a particularly enthusiastic finger-painting session splattered across the table (mostly contained, thankfully). Nine tiny humans were now engaged in varying levels of cooperative and chaotic play. Beatrice, or Bea, as she was known to the children, took a deep breath and grabbed a dustpan and brush. It was going to be one of those days. Just as she bent to sweep up a stray Lego, a small hand tugged on her apron, and a voice, high-pitched and laced with urgency, piped up, "Bea! Lucas says my sparkly unicorn is ugly!"

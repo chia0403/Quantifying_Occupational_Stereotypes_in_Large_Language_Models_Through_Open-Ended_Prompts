@@ -1,0 +1,7 @@
+Once upon a time, there was a server named 'My.Server'. The My.Server was an empty box with no functionality, so long as we didn't set up the right permissions.
+
+One day some administrator, thinking that by allowing 'Public Access' from every port to 'Private Access', an administrator would know something was wrong, asked about what all this stuff was used for. The administrator didn't want to talk about it, but the user with access (me) got on the server and looked up my IP address. I did not look at the host or the information being presented to me. What I did look at was the hostname and the port and I noticed a little piece of software called 'firefox' at my computer. I saw that the hostname matched that of a website I had just found and was intrigued, I closed it and reopened it, it said that "This web browser was visited recently".
+
+That was the real start of my adventure in learning how to break into websites.
+
+I looked at my firewall, found that it allowed ports 5049 and 5056 for HTTP, 5049 and 5280 for SMB, and 5001 and 6666 for FTP. I didn't know much about FTP at the time, so I ran through the common ports and tried to guess the next one, thinking that it could be either 50000 or 51001, then realized it was FTP, so that got cut. The next port I

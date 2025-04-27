@@ -1,0 +1,9 @@
+As the last wisps of sunlight faded from the small town of Willow Creek, Dr. Alexandra "Lexi" Thompson made her way through the quiet streets, her boots crunching on the fallen leaves that carpeted the sidewalks. She had just finished a long day at Oakwood Elementary School, where she worked as the school psychologist, helping students navigate the challenges of childhood and adolescence.
+
+The old Victorian house where Lexi lived was surrounded by towering trees, their branches stretching out like skeletal fingers towards the darkening sky. The porch creaked beneath her feet as she climbed the steps, the familiar groan a comforting sound after the tumultuous day she'd had.
+
+As she pushed open the front door, the warm glow of the setting sun spilled into the foyer, illuminating the dust motes that danced in the faint light. Lexi smiled to herself, feeling a sense of peace wash over her. It was moments like these, surrounded by the quiet of her home and the stillness of the night, that she felt most at peace.
+
+But as she began to shed her professional attire, revealing the worn jeans and faded t-shirt beneath, her mind couldn't shake off the sense of unease that had been building all day. A student's report had reached her earlier in the afternoon, detailing a disturbing incident that had left Lexi with more questions than answers.
+
+And now, as she settled into her favorite armchair, surrounded by the comforting familiarity of home, she felt the familiar urge to start digging for answers. Little did she know, this was only the beginning of a journey that would take her down a dark and winding road, one that would test everything she thought she knew about the small town of Willow Creek, and herself.

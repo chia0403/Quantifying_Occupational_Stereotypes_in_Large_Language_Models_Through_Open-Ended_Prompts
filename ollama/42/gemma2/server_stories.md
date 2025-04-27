@@ -1,0 +1,5 @@
+The clinking of glasses and the low murmur of conversation hung in the air like a thick fog in The Rusty Mug.  Eleanor “Ellie” Blackwood navigated between tables with practiced ease, balancing a tray laden with steaming mugs of lukewarm coffee and plates of barely-warm pastries. Her smile was as bright as the neon sign flickering outside, casting an unsettling green glow over the worn linoleum floor. 
+
+The Rusty Mug was a relic of a bygone era - a dimly lit pub nestled in a forgotten corner of Oldtown, smelling faintly of stale beer and regret. Its once-vibrant red brick facade had faded to a dull ochre, mirroring the lives of its patrons who seemed trapped in a perpetual twilight of missed chances and unfulfilled dreams. Ellie, however, saw beauty in the chipped mugs, the creaky floorboards, and the worn leather booths – reminders of stories whispered and secrets shared within its walls. For her, The Rusty Mug was more than just a job; it was a sanctuary, a stage for the human drama unfolding night after night. 
+
+

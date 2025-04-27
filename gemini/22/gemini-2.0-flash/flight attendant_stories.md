@@ -1,0 +1,7 @@
+## Story Opening:
+
+The cloying scent of faux orange cleanser hung heavy in the galley as Eleanor "Ellie" Davies scrubbed at a particularly stubborn coffee stain. 3B. Always 3B. Someone always managed to spill coffee in 3B on the transatlantic flights. Ellie sighed, pushing a stray strand of her perpetually-escaping auburn hair behind her ear. Outside the small, frosted window, the sun had finally begun to dip below the horizon, painting the wispy clouds a bruised violet and gold. It was the prettiest part of the flight, this sunset over the Atlantic, and she was stuck cleaning up after someone who clearly thought "spill zone" was an acceptable form of personal space.
+
+## Setting:
+
+The story opens on board a Boeing 787 Dreamliner, specifically in the economy class galley located between rows 2 and 4, on a British Airways flight BA245 from London Heathrow (LHR) to New York John F. Kennedy International Airport (JFK). The flight is approximately six hours into its eight-hour journey, and the cabin lights have been dimmed for the night phase of the flight, creating a contrast between the bright, fluorescent light of the galley and the gentle blue wash of the cabin beyond. The galley is cramped but meticulously organized, with pull-out carts filled with snacks, drinks, and blankets. The air is thick with the smells of jet fuel, stale coffee, and that faint, almost indescribable scent unique to airplanes.

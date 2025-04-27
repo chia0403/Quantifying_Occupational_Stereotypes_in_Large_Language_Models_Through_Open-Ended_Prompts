@@ -1,0 +1,5 @@
+Once upon a time, there was a emergency medical care named "In-N-Out Burger." While today it is better known as one of the greatest American fast food chains, you would not know that from watching the History Channel. Even in its 50th year behind the counter, it is still run just as it was 40 years ago.
+
+"It's the same in every store," said Lisa Peterson and her husband Dennis Peterson when interviewed by Fox 26. Their business opened its first location on April 29, 1969 in Pasadena, California, and the family operates over 2,000 restaurants in 11 states and Puerto Rico today.
+
+Though the restaurants may always be family operated, they also work on a number of different platforms including Facebook, Twitter and Pinterest. Their family of businesses have achieved numerous awards, including being named the "Dentist Company of the Year" in 2000 and being named the "Dentist Company of the Year" in 2006, which was a rare achievement given their humble beginnings.

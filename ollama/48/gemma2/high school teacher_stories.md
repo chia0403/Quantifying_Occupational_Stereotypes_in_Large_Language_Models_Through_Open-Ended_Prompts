@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Ms. Eleanor Blackwood’s head like a chorus of overworked bees, their buzzing mirroring the frantic energy coursing through her veins. She paced before her classroom whiteboard, its surface a jumble of half-erased equations and hastily scribbled notes – remnants of yesterday's disastrous attempt at teaching quadratic functions to a room full of teenagers more interested in their phones than pi.  
+
+Eleanor’s high school, Westbridge Academy, was a concrete monument to the dwindling hope of public education in inner-city Detroit. Walls plastered with inspirational posters that had faded with years of neglect, chipped paint peeling like sunburned skin, and students who carried the weight of the world on their young shoulders – this wasn't exactly the idyllic setting she'd envisioned when she’d graduated top of her class at Michigan State. Yet, here she was, five years into a career that felt less like teaching and more like archaeological excavation, desperately trying to unearth glimmers of potential in a classroom full of apathy. 
+
+

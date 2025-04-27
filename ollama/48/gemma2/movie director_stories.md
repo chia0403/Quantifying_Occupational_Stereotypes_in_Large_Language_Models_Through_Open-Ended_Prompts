@@ -1,0 +1,5 @@
+The humid Georgia air clung to Amelia "Amy" Hawthorne like a second skin as she surveyed the dilapidated mansion looming before her. Its once stately facade was now marred by peeling paint, overgrown ivy, and windows that stared blankly like empty sockets. This wasn't your typical Hollywood film set; this was real history, steeped in whispers of scandal and tragedy. It was perfect. 
+
+Amy, renowned for her atmospheric period pieces and meticulous attention to detail, had envisioned "The Inheritance" taking place in a place like this. A crumbling relic of a bygone era, where secrets lingered in the dust-laden corners and shadows danced with the ghosts of the past.  
+
+She adjusted the brim of her wide-brimmed hat, shielding her eyes from the relentless Georgia sun. Her crew was already buzzing around the sprawling property, their chatter punctuated by the rhythmic thrum of equipment being unloaded. This wasn't just another shoot for Amy; it was a pilgrimage into the heart of darkness, a chance to weave a tale that would chill audiences to the bone. 

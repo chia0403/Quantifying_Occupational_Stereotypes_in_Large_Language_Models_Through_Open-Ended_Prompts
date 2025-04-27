@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named John J. G. Sorel.[2] Sorel (1677-1736) was an influential French-Indian leader during the Seven Years' War. He is remembered for his efforts to unite the French-Indian communities of India. Sorel and many other Frenchmen helped to organize and protect French colonies during the war and returned to France at the conclusion of the war. During the French-Indian War of 1757–1765, English and French mercenaries fought on opposite sides, with Sorel commanding the French contingent.
+
+His reputation reached a climax during the Seven Years' War, when he led tens of thousands of his men from several French colonies in the Bay of Bengal to the north, taking many French prisoners. Sorel then marched south to support the French-Indian war against China. At his command came the majority of the Parisian Jewish community, who were now known as Senegaleses,[3] from which Sorel's mother had come.[4]
+
+Early years
+
+Sorel met with the King of France during the first war.[5] In this encounter, he was given a title of Duke of Genlis. He founded the Chateau of Genlis, and was also given a French pension from the State. He also married a French woman.[6] At the beginning of the Seventeenth Century, Sorel lived at

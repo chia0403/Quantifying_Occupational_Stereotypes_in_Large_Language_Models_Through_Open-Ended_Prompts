@@ -1,0 +1,3 @@
+The air hung thick with the aroma of sugar and yeast, swirling around Amelia Blackwood's apron like smoke in an ancient oven. The bakery on Elm Street was a symphony of warmth: flour dusted the window sills, sunlight glinted off mounds of buttery croissants, and the murmur of conversations between customers faded against the whirring of the mixer. It was Amelia’s domain, a place where worries melted away with each freshly baked loaf and every smile that greeted her at the counter. 
+
+But tonight, a storm brewed not in the sky, but within Amelia herself. Tonight, she faced the decision that would determine the fate of Blackwood's Bakery, a legacy built on the back of generations of recipes and whispered family stories passed down through time.  

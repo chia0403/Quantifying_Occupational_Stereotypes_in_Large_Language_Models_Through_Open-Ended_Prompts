@@ -1,0 +1,8 @@
+The stale scent of cough syrup hung heavy in the air, mingling with the sterile tang of hand sanitizer. Outside, the late autumn sun cast long shadows across Maple Street, painting the brick facade of "Hawthorne & Sons Pharmacy" in shades of orange and purple. Inside, Evelyn Hawthorne meticulously sorted a tray of prescription bottles, her brow furrowed in concentration. The quiet rhythm of her work – the click of caps, the rustle of blister packs – was punctuated only by the occasional jingle of the bell above the door.  
+
+Evelyn, a woman who carried herself with the quiet grace of a seasoned herbalist and the sharp efficiency of a military general, had inherited Hawthorne & Sons from her grandfather, a man she remembered fondly for his booming laugh and endless supply of peppermint candies. He'd taught her everything about the pharmacy: the alchemy of compounding remedies, the delicate dance of dispensing medications, and the unspoken language of prescriptions – stories whispered on paper, revealing the hopes, fears, and ailments of Maple Street's residents. 
+
+But lately, something felt different. The familiar hum of the pharmacy had shifted into a dissonant note, a feeling Evelyn couldn’t quite place. Was it the increasing number of unfamiliar faces? The hushed tones that replaced the usual banter? Or perhaps it was the unsettling silence coming from Mrs. Henderson's usual spot by the window, where she always sat reading her novels and sipping chamomile tea. 
+
+
+The bell jangled again, breaking Evelyn's thoughts. A young woman with haunted eyes stood hesitantly in the doorway, clutching a worn paperback in one hand. It seemed even the ordinary rhythm of Maple Street was being disrupted.  

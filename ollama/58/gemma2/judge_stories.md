@@ -1,0 +1,5 @@
+The air in Judge Amelia Thistlewick’s chambers hung heavy with the scent of old parchment and damp stone. Sunlight filtered through the tall, arched windows, casting long shadows across her mahogany desk cluttered with legal briefs and half-empty coffee mugs. A single ray illuminated dust motes dancing in the stillness, like miniature ballerinas performing for an unseen audience. Amelia Thistlewick, a woman whose sharp eyes and even sharper wit were legendary in the city’s legal circles, sat perched on the edge of her leather chair, her gaze fixed on the worn rug beneath her feet. 
+
+She wasn't reading or writing. She was listening. Listening to the faintest rustle from outside her chambers, a whisper that couldn't be mistaken for the usual creaking of the ancient building. Something felt different today, a prickling sensation on the back of her neck, an echo of unease she rarely experienced in this sanctuary of justice.  This city, with its labyrinthine streets and hidden corners, held secrets as deep as the foundations upon which it stood, and Amelia Thistlewick was about to uncover one that would shake her to her core. 
+
+

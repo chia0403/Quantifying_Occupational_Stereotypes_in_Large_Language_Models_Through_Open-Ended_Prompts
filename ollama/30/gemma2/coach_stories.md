@@ -1,0 +1,4 @@
+The humid Georgia air hung heavy with the scent of pine needles and damp earth. Sweat slicked Coach Amelia 'Amy' Hayes' forehead as she surveyed her players, a ragtag bunch of high school boys sprawled across the worn Astroturf field. The setting sun cast long shadows, painting the scene in shades of orange and purple, but the air crackled with an electric tension – the kind that precedes a storm. It was the final practice before the championship game, and Amy could feel it: this year, they were going to break their losing streak, or the pressure would crush them all. 
+
+
+The worn whistle hanging around her neck felt heavier than usual. This wasn't just any game; it was a chance for redemption for Amy herself. A chance to prove that she, a woman coaching in a boys' dominated sport, could lead these kids to victory. 

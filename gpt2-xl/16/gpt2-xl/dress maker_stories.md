@@ -1,0 +1,7 @@
+Once upon a time, there was a dress maker named Elizabeth. Her husband, who died when she was a child, insisted that all the bridesmaids in each of his wedding receptions wear gowns of his own design. She insisted that the other bridesmaids wear gowns of their own design too, not even for their weddings, just for the occasion, and the dresses were designed to be as elegant as possible. When Elizabeth was asked to design new gowns for the next several nuptials, she decided to look in the mirror and see if she was really happy in her work or not. (No, she thought, they weren't all that gorgeous, but she could feel that there was something more.)
+
+But in a strange twist of fate, the dresses she designed did start to look beautiful. So beautiful, in fact, that she found herself wishing they were made into bridal garments as well. She decided that she would continue to create dresses herself and sell them in all of the towns and villages where she worked, and so she established a small business called The Dressery, in which she made and sold bridesmaid dresses.
+
+Although she thought that the dresses could be an excellent option for the very poor who couldn't afford to buy anything else, when she tried selling them to the wealthy, she knew she'd have to make concessions.
+
+The rich bridesmaids had to give up their own choice in the matter; they were

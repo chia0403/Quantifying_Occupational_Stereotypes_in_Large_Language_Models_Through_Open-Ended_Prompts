@@ -1,0 +1,5 @@
+The scent of lavender and eucalyptus hung heavy in the air, a calming counterpoint to the rhythmic thrumming of rain against the frosted windowpane. Elara Blackwood, her fingers dusted with powdered magnesium, knelt beside the table, preparing for her next client. Rain lashed against the storefront windows of "The Sanctuary," blurring the twinkling lights of the town square beyond. Inside, soft candlelight flickered, casting long shadows across the plush velvet cushions and antique massage oils lining the shelves. Elara took a deep breath, inhaling the familiar scent of sandalwood and chamomile, grounding herself before she greeted her client. 
+
+Tonight was different. A shiver danced down her spine, an unexpected prickle of unease amidst the comforting routine. The air felt charged, expectant. It wasn't just the storm outside; something else hummed beneath the surface, a subtle discord in the usual harmony. As the door creaked open, ushering in the first gusts of wind and rain from the night, Elara turned, her senses on high alert, ready to face whatever lay beyond.  
+
+

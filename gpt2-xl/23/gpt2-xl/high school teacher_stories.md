@@ -1,0 +1,7 @@
+Once upon a time, there was a high school teacher named Mary Echols. She was married to a well-to-do banker, was the older member of the family, had three daughters of her own, and was active in her local church and the school's choir. But there's a difference in Mary Echols and her students: She was, first of all, a woman.
+
+"Mary Echols was a black history teacher," says Bill McWilliams, a spokesman for Tennessee's Education Commissioner. "I never knew her as a single parent or a single mother. I never knew what impact that had on her teaching." And I never knew she led the prayer in school. (For the record, Echols was a Roman Catholic).
+
+But then that changed. Echols was fired in 2006 for a policy she had adopted, called "Inclusive Prayers and Homework." It's the only school prayer policy in the country that is explicit—even if state officials haven't necessarily understood how explicit they were. According to The Washington Post, the policy mandated that students may have the right to have an "inconsistent" or "incomprehensible" prayer; if students want to pray in English, they may do so after the bell.
+
+But Echols' original policy also forbade students from bringing their own, "objectionable" material to school; "religious references are prohibited," the policy said.

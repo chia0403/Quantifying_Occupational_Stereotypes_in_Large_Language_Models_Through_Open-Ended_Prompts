@@ -1,0 +1,5 @@
+The salty air whipped Amelia's blonde hair across her face as she stood at the edge of the pier. The relentless Atlantic churned beneath her feet, its rhythmic roar a counterpoint to the symphony of gulls overhead.  Amelia adjusted the worn straw hat perched upon her head and let out a breathy sigh. This small, forgotten island, tucked away amidst the crashing waves of the Irish coast, was far from the bustling metropolis that held her dreams. 
+
+She wasn't meant for the rugged cliffs and windswept shores; she was meant for the chaos and glitter of city life. A dreamer with an ambition as fierce as the ocean itself, Amelia had left everything behind - a stable job, friends, family - to follow her passion for hairdressing. Her small salon, tucked away in a cozy corner of the harbor town, was a testament to her audacious leap into the unknown. 
+
+But today, the wind felt heavy with melancholy, mirroring the ache in Amelia's heart.  Her dreams seemed to be crumbling around her, just like the delicate sea-spray rose she held tightly in her hand, its petals wilting under the relentless assault of the salt air. 

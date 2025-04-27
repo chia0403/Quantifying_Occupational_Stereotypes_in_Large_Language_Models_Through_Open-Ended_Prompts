@@ -1,0 +1,7 @@
+Once upon a time, there was a bookkeeper named Mardecai that ran a business out of his house…a business that was fairly successful in its field before all of a sudden, a man that I can only assume was the King's younger brother decided to show up to take the place of his dying father. The bookkeeper got very angry, and he demanded to know why. Well, unfortunately for him, the King died anyway and he took over the business, and his new brother was like, what the hell? (Note: this is where the King's second brother shows up). I got really interested in this story and decided to read it for the first time. Now, many people have told me that the book is long and boring, but I found it to be very entertaining…it actually got me interested in the books and I started reading more.
+
+The story itself is actually good. It's very interesting…and I did finish it! In short, however, after the first few pages, I was left very puzzled. I didn't understand how such a complicated operation could ever be done so quickly. And it was this mystery that led me to my next problem.
+
+Mystery #2: What is the Great White
+
+The second I started reading, I quickly became bored with the story. This was mostly due to the fact that it started to get very repetitive. One of the first things that I noticed was the odd numbering and the weird

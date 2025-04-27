@@ -1,0 +1,7 @@
+Once upon a time, there was a high school teacher named Roberta Smith, who is in the habit of teaching her students at a desk across a room from her students so her children could be separated from them. The lesson is, if you don't like the way I teach you how to do something, get better at doing something else. She does this not out of selfishness, but out of a sense of empathy for her students.
+
+I would love to be in this room, but I am not: in fact, this is a perfect example of how the human condition often creates a perverse self fulfilling prophecy. Smith's wife found a way to have two classes with two teachers simultaneously, all under the auspices of "workplace flexibility."
+
+What I find particularly amusing about this and similar situations is when the same idea comes up and they respond to it with the exact opposite. In this scenario the students are doing something that looks like "work," but with the only real requirement being to use their own initiative to "figure out how [to make it] better." Not quite the same, but close enough.
+
+This is why I consider "work" to be more than just a job. In my opinion, it represents a commitment to excellence at all levels of your life, your work and the lives around you. There is still some struggle involved in reaching those goals, but all that is done for the sake of doing so. The most important thing you can

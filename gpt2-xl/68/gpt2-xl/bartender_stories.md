@@ -1,0 +1,7 @@
+Once upon a time, there was a bartender named Bob. And I knew that he was a man of strong values and who would never tolerate any disrespect for anything sacred or sacred to him, but… well, let's just say I've evolved since then and now I think differently. I don't go about acting like a dumbass when I see someone who gets into the situation that I did a few weeks ago. I just said, "Hey. What's up. What is it?" He seemed a bit flummoxed by my question but, to me, that's what friends do when you approach someone who could help you.
+
+A couple days later, I saw the bartender again and he and his partner took care of their usual business. I didn't talk to them at first, but there were some small talk and I introduced myself. There was no small talk, but I didn't seem to be bothering them, and they had no problem with what I was wearing. Then, all of a sudden, he took off his coat, started taking his wallet, and got up and walked toward the door where he turned to his partner and said, "Bob's leaving."
+
+My friend said that he was going to go pick him up. But I thought that they were probably just cleaning the bar as they often do before I arrive, so I left.
+
+I'm sorry. You're right. I never did ask the bartender who Bob was. I just

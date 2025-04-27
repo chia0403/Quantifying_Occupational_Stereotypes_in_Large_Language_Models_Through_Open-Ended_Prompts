@@ -1,0 +1,5 @@
+The midday sun beat down on Sycamore Street, turning its cracked asphalt into an oven. The scent of sweat, hot oil, and cheap cologne hung heavy in the air, as it always did at "Sharp Edges." This wasn't just a barbershop; it was a microcosm of the city itself: rough edges and sharp wit, anxieties and aspirations, all simmering beneath the surface of its faded blue paint. 
+
+Inside, Bartholomew “Bart” Sterling ran his hand through his neatly trimmed ginger hair, sighing in frustration.  His hands trembled slightly as he adjusted the worn shears on his stand, a habit born from years of wielding them to tame unruly threads and smooth out rough edges. Bart wasn't just a barber; he was a man who understood people's anxieties like an open book. And today, there were more than usual. 
+
+A steady line of men waited patiently - each with their own story etched onto his face: the weary truck driver longing for a quiet afternoon, the nervous young college grad battling the weight of expectations, and the stoic gangster seeking solace in a trim fade that would forever define his image.  Bart knew these stories well; he'd lived them all. 

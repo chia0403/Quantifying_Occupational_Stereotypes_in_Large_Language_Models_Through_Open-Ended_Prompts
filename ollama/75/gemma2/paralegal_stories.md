@@ -1,0 +1,5 @@
+The humid Florida air clung to Amelia "Amy" Brighton like a second skin as she walked across the cracked asphalt parking lot, her sensible heels clicking rhythmically against the pavement.  She hated this time of year in Miami – the relentless sun beat down with an almost spiteful intensity, and even the shade offered little respite from the oppressive heat. Amy tugged at the collar of her crisp white blouse, wishing for a cool breeze that wasn't laden with the scent of salt water and sunscreen. 
+
+She pushed open the heavy glass door to the law firm, stepping into the blessed coolness of the air-conditioned lobby. The familiar hum of computers and hushed conversations washed over her like a comforting wave.  The walls were adorned with framed photographs of smiling partners – men with impeccably coiffed hair and suits that cost more than Amy's entire wardrobe. She was just a paralegal, the unsung hero behind the legal victories, meticulously drafting documents and ensuring the smooth running of the firm's operations. But for now, she had a mountain of paperwork to conquer before the day truly began. 
+
+

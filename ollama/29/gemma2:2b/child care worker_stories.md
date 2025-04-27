@@ -1,0 +1,6 @@
+Rain hammered against the windows of Sunnybrook Cottage like a thousand tiny fists, each one punching away at the warmth of the room's glow. Inside, Amelia "Amy" Jones, her fingers nimble as she folded laundry, hummed an off-key tune to herself, trying to ignore the wind that rattled the loose shutters. The storm had rolled in with alarming ferocity just as the last batch of tired parents dropped their charges at the cottage door, leaving Amy and a gaggle of giggling, energetic four-year-olds to fend for themselves. 
+
+Amy was no stranger to chaos. After all, she’d been working as a child care worker at Sunnybrook Cottage for five years now, and she knew that her days were filled with unpredictable adventures: the messy art projects, the impromptu dance parties, the endless supply of juice boxes and sticky fingers. But even amidst the whirlwind, there was an undeniable sense of peace within the cozy confines of Sunnybrook. The cottage felt like a home, a refuge from the storm outside, one where she could nurture these little human souls as they blossomed and explored. 
+
+
+The storm raged on outside, but inside, Amy found solace in her own world of laughter, color, and a comforting sense of purpose.  

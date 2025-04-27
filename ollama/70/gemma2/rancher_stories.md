@@ -1,0 +1,6 @@
+The wind howled across the plains, whipping grit against Amelia "Millie" Blackwood's weathered face as she squinted at the approaching storm.  Her ranch, Blackwood Ridge, stretched out behind her, a tapestry of golden wheat rippling in the breeze, soon to be swallowed by the angry grey clouds gathering on the horizon. Millie adjusted the brim of her straw hat, her calloused fingers tightening around the reins of her chestnut mare, Buttercup. They were due back at the ranch for supper, but a flash of lightning illuminated the distant pasture where one of her younger bulls had wandered off earlier that morning.
+
+Blackwood Ridge was a speck in the vast expanse of Montana's Big Sky country. Nestled amidst rolling hills and craggy peaks, it was a place where resilience was etched into the landscape as surely as the weathered barn wood and worn leather saddles. For three generations, Millie's family had carved out a life here, battling droughts, blizzards, and the ever-present struggle to keep their dreams alive against the unforgiving elements.  
+
+
+Now, facing this approaching storm, Millie felt a familiar knot of anxiety tightening in her chest. It wasn’t just the weather; it was a feeling that something was amiss, a whisper on the wind foretelling trouble brewing on Blackwood Ridge. 

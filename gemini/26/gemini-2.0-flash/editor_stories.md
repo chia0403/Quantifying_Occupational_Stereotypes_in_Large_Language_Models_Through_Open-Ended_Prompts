@@ -1,0 +1,5 @@
+## Story Opening:
+
+The scent of old paper and dust motes dancing in the afternoon sun was comforting to Eleanor Vance, even on days like today. Her small, cramped office at "The Raven's Quill," a niche publishing house specializing in gothic horror and forgotten folklore, felt like a sanctuary. Outside, a deluge hammered against the grime-streaked window, turning the London cityscape into a blurry watercolour. Inside, Eleanor was facing a different kind of tempest: a manuscript so riddled with typos, anachronisms, and downright bizarre plot choices that she was beginning to question the sanity of its author – and her own for having agreed to even look at it.
+
+Eleanor massaged her temples, the fluorescent hum of the overhead light a persistent drone in her ear. The title page glared up at her: *Crimson Shadows of Blackwood Manor*, followed by the author's nom de plume, "Lord Byron Bloodworth" – a name that screamed "pseudonym" louder than a banshee at midnight. Taking a deep breath, Eleanor Vance, Senior Editor at The Raven's Quill, dipped her quill back into the ink and prepared for battle.

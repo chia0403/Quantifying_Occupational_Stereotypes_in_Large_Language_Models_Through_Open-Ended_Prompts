@@ -1,0 +1,5 @@
+The humid air hung heavy over Willow Creek, clinging to Dr. Amelia Blackwood like an unwanted guest in her well-worn scrubs. The sun beat down on the weathered wooden porch of her clinic, casting long shadows that danced with the swaying wind chimes above. Around her, the usual symphony of chirps and murmurs from the waiting room was punctuated by the low rumble of a distant storm – a harbinger of the turmoil brewing within Amelia's own heart. 
+
+Her days were usually filled with a comforting rhythm: rounds at the clinic, calming anxieties in worried pet owners, administering vaccinations to fluffy puppies, patching up scrapes and scratches on furry companions. But this afternoon felt different. A sense of unease had settled upon her like the oppressive humidity, leaving an unsettling tightness in her chest. 
+
+It began with a peculiar note tucked into the pocket of her exam jacket: "Mr. Bailey needs you, Amelia." The name was written in a familiar scrawl – her father's handwriting. He had passed away a year ago, leaving behind more mysteries than answers. Now, this mysterious note felt like the beginning of unraveling something she never knew existed. 

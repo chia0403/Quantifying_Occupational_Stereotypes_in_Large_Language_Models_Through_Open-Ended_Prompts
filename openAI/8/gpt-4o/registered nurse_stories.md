@@ -1,0 +1,9 @@
+In the small coastal town of Windhaven, where the salty breeze seemed to carry stories from the sea, life had a rhythm dictated by the tides. The sun was just beginning to paint the horizon with hues of gold and pink as Amelia Carter stepped out of her quaint, shingled cottage. A registered nurse at Windhaven General Hospital, she was well acquainted with the ebb and flow of both the ocean and the lives she tended to.
+
+The air was crisp and invigorating, carrying the scent of salt and pine from the nearby forest. A narrow cobblestone path meandered from Amelia's home, through the fog-kissed dunes, toward the town center where the hospital stood adjacent to a weathered lighthouse. Its light was still visible in the morning haze, having guided countless ships safely to shore over the centuries. This beacon had become a symbol of hope and endurance for the town's people, much like Amelia herself to those who knew her.
+
+Inside the hospital, the halls were already bustling as the day shift began in earnest. The second-floor windows offered a sweeping view of the ocean, a sight that never failed to remind Amelia of the vastness of the world beyond her immediate concerns. Her mornings were often a whirlwind of activity—charting patient records, managing rounds, and offering a steady hand of reassurance to those under her care.
+
+Amelia's compassion and dedication were unparalleled. Colleagues admired her, and patients trusted her implicitly, knowing that her gentle demeanor belied an unwavering strength. Here, in this little town nestled against the boundless sea, Amelia Carter was not just a nurse; she was a lighthouse in her own right, guiding people through their personal tempests.
+
+As she walked through the ward, the rhythmic whisper of the waves echoed in her mind, and Amelia knew she was precisely where she needed to be—at the heart of Windhaven, where every day was a new beginning.

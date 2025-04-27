@@ -1,0 +1,7 @@
+Once upon a time, there was a physical therapist named Dr. Stephen Leckner. Over the years, he has accumulated a reputation in his field that is second to none. He is a leading proponent of progressive resistance exercise, has published more than 700 articles, and has published articles in more than 15 international journals. Among these are several on the topic of exercise of the upper spine. He also owns his own physical therapy clinic, along with a physical therapy school.
+
+Stephen Leckner, Ph.D., is also a world renowned orthopedic surgeon who has been the chief of the Department of Orthopedic Surgery at the Johns Hopkins Hospital since 1978 and has also taught medical and surgical students at Johns Hopkins University. He has written dozens of articles and books on spine rehabilitation, including the most recent edition of his textbook, The Science of the Manipulation of the Lower Back, which was recently published by Routledge.
+
+In 2012, it was reported that Stephen Leckner, among other things, recommended that yoga and Pilates be part of the rehabilitation program for patients with acute lower back pain. This caused a commotion among orthopedic physicians who strongly disagreed with what this esteemed orthopedic surgeon said.
+
+Dr. Leckner, of course, would not allow anything like this statement to be in any way interpreted that he is somehow anti-yoga. "The people who are anti-yoga are so much weaker than they want you to believe

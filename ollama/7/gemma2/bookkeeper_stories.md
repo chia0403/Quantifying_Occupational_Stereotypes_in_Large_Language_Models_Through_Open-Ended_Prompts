@@ -1,0 +1,5 @@
+The smell of stale coffee and printer ink clung to Amelia Josephine Butterfield like a second skin.  She inhaled it deeply, savoring the familiar scent as she meticulously balanced the ledgers before her. Her small office, tucked away in the back corner of Bartholomew's Bookshop on Elm Street, was a haven of order amidst the chaotic charm of the bustling bookstore. Sunlight streamed through the dusty windowpanes, illuminating shelves overflowing with forgotten treasures and casting long shadows across Amelia's worn oak desk. 
+
+The gentle tick-tock of a grandfather clock in the corner punctuated the silence, broken only by the rustle of turning pages and Amelia's quiet humming as she worked. She was a woman of routine, finding solace in the predictable rhythm of her days – reconciling accounts, filing invoices, and ensuring Bartholomew’s finances were always in perfect order. But lately, that familiar comfort had been tinged with unease. A shadow hung over the bookshop, a whisper of trouble that Amelia couldn't quite place. 
+
+

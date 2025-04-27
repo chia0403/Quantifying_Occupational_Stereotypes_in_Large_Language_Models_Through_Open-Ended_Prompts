@@ -1,0 +1,7 @@
+## The Gardener's Vigil
+
+The air was thick with the scent of earth and decaying leaves. It clung to Thomas Blackwood like a familiar shroud as he surveyed his domain. For years, the sprawling manor of Ashworth Hall had been his sanctuary – an emerald haven amidst the encroaching grey of the Yorkshire moorlands.  He knelt on the worn turf, tracing the lines of an ancient oak's roots with a calloused finger. The gnarled branches, silhouetted against the bruised twilight sky, held stories of generations past - whispers of love lost and secrets kept within their silent heartwood. 
+
+At sixty-two years old, Thomas was a man of quiet routine. Dawn found him tending to the rose gardens, then sweeping paths through the sprawling grounds, meticulously pruning wayward branches. Evenings were spent in the solitude of the greenhouse, the flickering gaslight illuminating his worn face as he tended his orchids and chrysanthemums. He had grown accustomed to the symphony of nature, the wind rustling through leaves, birdsong filling the air, and the gentle patter of raindrops on the tiled roof – a familiar comfort that echoed the rhythm of his soul. 
+
+But lately, an unsettling tension coiled within him. The shadows seemed deeper, the silence more oppressive. A sense of foreboding clung to Ashworth Hall like the first frost of winter. And Thomas, ever vigilant, felt it gnawing at the edges of his contentment. He was a man bound to the manor, its rhythms intertwined with his own - yet something felt different, off-kilter. 

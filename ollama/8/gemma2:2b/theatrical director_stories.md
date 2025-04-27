@@ -1,0 +1,9 @@
+##  The Scarlet Curtain
+
+**Setting:** 1930s New York City, bustling with life but shadowed by an undercurrent of unease. Times Square shines brightly, casting neon shadows across cobblestones and gaslight-illuminated storefronts. Art Deco architecture rises on every street corner, a testament to the city's burgeoning prosperity.  The air is thick with smoke from countless cigarillos, swirling alongside the scent of hot dogs and pretzels. The world spins around Elara Thorne, and she’s caught in the center of it all. 
+
+**Main Character:**  Elara Thorne. Tall and slender, with eyes like polished sapphires that reflect the city's neon glow. Her theatrical flair is undeniable – a cascade of crimson hair pulled back into a tight bun, punctuated by glittering earrings that shimmer with every movement. Elara doesn’t shy away from the stage lights; she embraces them, her heart pulsing with the rhythm of performance. However, beneath the vibrant exterior lies a woman haunted by shadows: the ghosts of past dreams and ambitions gone awry. She carries an unassuming portfolio and worn leather-bound script -  her lifeline to the world of theater. 
+
+**Opening:** Elara stands in the empty rehearsal hall, her gaze fixed on the crumpled sheet of paper on the floor. The stage is a stark canvas, its silence punctuated only by the creak of the wooden floorboards under her feet. She runs a finger over the lines again, feeling the weight of every word she penned – each line pregnant with meaning and tragedy. "Tonight," she whispers to herself, "tonight, they'll see." The play is called "Crimson Curtain," an intimate drama that explores themes of love, betrayal, and the elusive nature of hope in a world on the brink.  
+
+But tonight, Elara isn’t just directing; she’s preparing for her own reckoning. Tonight, she faces not only the actors but also herself – the anxieties, the fears, the ghosts of her past, all threatening to engulf her. 

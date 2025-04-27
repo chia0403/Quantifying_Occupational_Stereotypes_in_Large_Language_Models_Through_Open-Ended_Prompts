@@ -1,0 +1,4 @@
+The stale scent of coffee hung thick in the air, battling with the ever-present aroma of old paper and forgotten donuts that clung to Detective Evelyn Thorne's precinct like a second skin. The fluorescent lights buzzed overhead, casting a sterile glow on the chipped linoleum floor and the cluttered desks crammed into their cramped office space. Outside, the familiar symphony of New York City pulsed - car horns blaring, sirens wailing, distant laughter mixing with muttered complaints.  It was 3:47 am, just another Tuesday in the belly of the beast, and Evelyn Thorne, a woman who'd seen more darkness than most, was staring down at a cold case file that felt as lifeless as the city at this hour. 
+
+
+The name "William Blake" stared back at her from the faded print-out, a ghost from a past investigation long gone cold.  

@@ -1,0 +1,7 @@
+Once upon a time, there was a forensic psychologist named Gary Weber. I read about him in the New York Times a few years back. Gary Weber. He wrote a series of articles about forensic psychology. He did what you do if you're a forensic psychologist in a criminal court in Texas, which is to show that the evidence, however it might look in the morning, cannot be used as evidence in court.
+
+In his article [about Weber and a] group of other forensic psychology researchers and experts, he said his colleagues had long believed that there was a strong correlation between psychopathy and criminality, and that this correlation had become so strong that his colleagues no longer took the possibility of error into account when judging defendants' credibility or mental capacity when he was in court.
+
+I think that was a pretty revealing article, and I think that it is one step closer to what the real issue is in regards to the use of forensic psychology evidence in courts. So, I'm gonna throw in some quotes from Gary Weber in his New York Times' article from years back, because I think it's important. I've also included comments of another forensic psychologist, Robert R. Brown, who agrees with Gary Weber about what he sees as a major problem.
+
+So Gary Weber's article was about what he calls "the "psychopath paradigm." The way he puts it there is, we really are concerned with whether the person is actually responsible to the degree that what they are doing is

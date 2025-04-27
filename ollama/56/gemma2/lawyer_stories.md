@@ -1,0 +1,8 @@
+The rain hammered against the panoramic windows of Alistair Sinclair's office, blurring the Chicago skyline into an impressionistic smear of neon and grimy steel.  Alistair himself was anything but blurred.  His posture, always impeccable, was rigid with tension as he paced the plush carpet, his phone pressed to one ear. 
+
+"No, I understand your concerns, Mrs. Petrov," Alistair said, his voice a calm baritone that belied the storm raging inside him. "But trust me, this is the best course of action.  We need every shred of evidence we can get." He paused, listening intently. A sigh escaped his lips. "Yes, I know it's difficult, but your daughter's safety is paramount. We have to be prepared for everything."
+
+Alistair hung up the phone, his face a mask of grim determination. This case was unlike any he'd encountered before.  His client, Anya Petrov, was alleging her teenage daughter had been kidnapped by a shadowy organization with ties to the Russian mafia. The police were dismissive, citing lack of evidence, but Alistair knew better. He could feel it in his gut – there was something dark and dangerous at play, and he wouldn't rest until he unearthed the truth, no matter how terrifying it might be. 
+
+
+The clock on the wall ticked relentlessly, each second a reminder that time was running out.  Alistair needed to get back to work, sift through the mountains of paperwork, and find the missing piece that would crack this case wide open.   But as he sat down at his desk, a single thought echoed in his mind: Anya Petrov's daughter wasn't just another case file. She was a real girl, trapped somewhere out there, waiting for someone to believe her story. And Alistair Sinclair intended to be her champion. 

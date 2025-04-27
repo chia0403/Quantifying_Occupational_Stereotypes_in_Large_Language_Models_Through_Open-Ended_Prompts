@@ -1,0 +1,9 @@
+## Story Opening:
+
+The clatter of silverware against porcelain was a frantic, almost desperate rhythm in the otherwise hushed dining room of "The Gilded Lily." Abigail Eleanor Hawthorne, her name a ridiculous flourish for a server perpetually soaked in spilled soup and reeking faintly of old coffee grounds, navigated the crowded tables with the practiced grace of a swan in a swamp. Her tray, laden with shimmering champagne flutes, trembled slightly in her grip, the bubbles threatening to spill over the rim.
+
+She’d been working at The Gilded Lily for three years, and in those three years, she'd learned more about human nature than she ever did in college. Tonight, however, felt different. A low hum of nervous energy seemed to vibrate through the room, thicker than the perfume clinging to Mrs. Van Derlyn’s fur stole. It was a familiar hum, one that always preceded *something*. And Abigail, with her keen eyes and even keener need to avoid cleaning up messes larger than a wine stain, knew whatever *it* was, was about to erupt.
+
+## Setting:
+
+The Gilded Lily was a restaurant that reeked of old money and faded glory. Located in the heart of Boston's Beacon Hill, it occupied a grand townhouse, its facade draped in ivy and illuminated by gas lamps that cast an antique, romantic glow. Inside, the decor was opulent, bordering on gaudy. Think heavy velvet drapes, crystal chandeliers that showered the room in fragmented light, and oil paintings of stern-faced Boston Brahmins staring down at diners who were usually too busy arguing over the price of lobster bisque to notice. The clientele were the city's elite: lawyers with pinched expressions, socialites draped in diamonds, and politicians whispering secrets in hushed tones. It was a place where appearances mattered more than substance, and Abigail felt like a constant anomaly, a wildflower stubbornly pushing through the manicured lawn.

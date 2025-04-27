@@ -1,0 +1,9 @@
+## Story Opening:
+
+The buzzing of the fluorescent lights in the aging office building was a constant, infuriating hum that threatened to drown out the carefully curated chillwave playlist emanating from Amelia Grace Davies' headphones. She glared at the pixelated monstrosity on her screen, a banner ad for "Dave's Discount Dental," featuring a cartoon tooth wearing a cowboy hat and wielding a lasso made of floss. It was, without a doubt, the ugliest thing she'd designed all week, and that was saying something, considering she'd just finished a logo for a cat grooming business that featured a Siamese cat inexplicably dressed as Marie Antoinette.
+
+Amelia sighed, the digital pen feeling heavy in her hand. The color palette clashed, the font was atrocious, and the overall message screamed "dental decay waiting to happen." But Dave paid on time, unlike some of her more "creative" clients, and bills had a way of demanding prompt attention, artistic integrity be damned. She was just about to resign herself to another hour of tweaking the lasso when her phone buzzed, disrupting the carefully constructed sonic barrier between her and the soul-crushing reality of corporate graphic design.
+
+## Setting:
+
+The setting is a cramped, poorly lit office cubicle on the third floor of a mid-sized marketing firm called "Synergy Solutions" located in a forgettable industrial park in the suburbs of Denver, Colorado. The walls are a depressing shade of beige, decorated only with a motivational poster featuring a mountain climber clinging precariously to a rock face and the caption "Perseverance: Never Give Up!" The desk is cluttered with half-empty coffee cups, scattered sketches, and a precarious stack of design magazines. Sunlight rarely penetrates the grime-covered window, lending the entire space a perpetually overcast and slightly depressing atmosphere. Outside, the low drone of traffic from the nearby highway provides a constant, monotonous background noise.

@@ -1,0 +1,7 @@
+Once upon a time, there was a architect named Peter Jackson in New Zealand whom I admired deeply. A few years ago, I asked him for help with a project and he generously agreed to help me. He created and furnished a huge, fancy office in Auckland called Studio B. It was the perfect place to work, he had a large table for discussing ideas, I had the space to set up a screen that could double as a projection room, and it had a large kitchen for cooking and eating. The studio was completely furnished with everything I wanted, and as long as I did my own organizing, he would help me clean, iron, and hang stuff.
+
+The next day, I got up to find an envelope and a letter on my doorstep. I went into my studio and the first thing I went to had a box on top of it with a notice that it contained a CD of the first film of The Lord of the Rings. When I closed the door, I couldn't tear my eyes away from the beautiful thing: a beautifully printed CD about the design of The Lord of the Rings, a gorgeous cover, and a poster of Frodo and Sam on top of it. But what was its message?
+
+Says the note:
+
+Hello! I have a wonderful surprise for you today: the Lord of the Rings Trilogy in 2CDs plus the first 3 movies plus CD box with poster, all as an extended version. I cannot promise that you'll enjoy

@@ -1,0 +1,7 @@
+**Opening:**
+
+The scream of the Merlin engine, a visceral roar that vibrated through Amelia Beatrice Sterling's bones, was the only sound that mattered. The cockpit of her Mustang, affectionately nicknamed "Sweet Sally," was a cocoon of controlled chaos, a steel and glass bubble suspended precariously between earth and sky. Rain lashed against the canopy, blurring the already indistinct outline of the airfield below. Amelia gripped the control stick, her knuckles white, the familiar weight grounding her in the face of a gut-wrenching dread. Today, the mission was different. Today, it was personal.
+
+**Setting:**
+
+It was late November, 1944. The biting wind that swept across the English countryside hinted at the brutal winter to come. RAF Lakenheath, a sprawl of hastily erected Nissen huts and muddy runways, was a hive of frenetic activity. Mechanics, bundled in greasy overalls, scurried around bombers and fighters, coaxing every last ounce of performance from their machines. Airmen, faces etched with fatigue and grim determination, rushed to briefings, their voices a low hum against the backdrop of constant engine noise. The air was thick with the smell of aviation fuel, oil, and the ever-present dampness that seemed to seep into everything. A pall of grey hung over the base, mirroring the mood of the men and women stationed there, each acutely aware of the high stakes and the ever-present threat of loss that clung to the air like a malevolent spirit.

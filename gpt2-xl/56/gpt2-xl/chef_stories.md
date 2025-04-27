@@ -1,0 +1,5 @@
+Once upon a time, there was a chef named Eric. He was quite popular. He was a good friend of a lot of people. And he was in charge of food for a lot of people. And one day, he took the chef's favorite dish and he was so proud of it, he took it to a new chef named John, and said he was going to start his own restaurant. And they went to Eric's restaurant called The Blue Flame.
+
+And the chef says if there is ever a problem, and this happens to a lot of people, don't worry. Don't cry. Okay? Don't be upset. Don't complain, just move on. And the next day, all of Eric's employees came in. And Eric said, what is your problem right now? And everybody says, the customer service. So finally Eric said, oh my gosh, this is too much. How are you going to be able to do that? So he hired John as a cook. Well, John took over the kitchen.
+
+The day it opened, all of the chefs were in the kitchen. And all of the food was ready for cooking. So the chef called for the next cook. And the chef says, go ahead. Go ahead. Run it by me. And he went in the back and John came out. And the chef went back in and said, hey, we need one more person. I can't do it. It is too

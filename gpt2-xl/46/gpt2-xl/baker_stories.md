@@ -1,0 +1,5 @@
+Once upon a time, there was a baker named Mrs. Fritze-Lang who had a bakery. She had a cake stand she sold around town, and to attract the kids, she sold them a cake and a piece of fruit. One day she sold too many cake stands, and the children became greedy and wanted cake for themselves. Not wanting to lose her business, she began to hide the cake. Every now and then, she would drop a piece off in the shape of a star. One day, she was at her stand, when a boy with a magic ring found the cake and took the star and ran away with it. However, she didn't catch him, and she was never able find out who he was. No one knows what happened to the piece of cake that was part-cake in its form.
+
+The tale of the princess and the prince is of fairy tale's origin. There is no way to completely understand this tale with the current knowledge of folklore. The tale was probably a retold from another fairy tale of the time, however, the original story and storyteller have been lost or misplaced.
+
+Advertisements

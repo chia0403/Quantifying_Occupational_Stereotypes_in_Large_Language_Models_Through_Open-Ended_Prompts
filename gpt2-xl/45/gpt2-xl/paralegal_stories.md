@@ -1,0 +1,7 @@
+Once upon a time, there was a paralegal named Kate. She had a great sense of humor and wanted to go to university. Unfortunately, her grades weren't up to snuff so she tried to get a job as a paralegal by pretending to find the job, as a joke, on the resume she was signing in the job interview. Kate was successful in getting a paralegal job but had trouble getting the job. She was fired three times by different supervisors of paralegals before she finally got it. Then, it just so happened that when she was fired, she was a teacher at a private school.
+
+
+To make matters worse, the school did not want Kate teaching there so she had no choice but to apply to the paralegal position at the school. Fortunately for her, the school had a few openings and she got it. Then she was given an assignment for a school trip to New Jersey and an assignment for a science class during the school week which she missed out on because she had to spend the school week going back home to Illinois to be with her family during Thanksgiving. The school had a few problems with her homework and she got in trouble so that she could be dismissed. Then it happened. She got fired. Kate decided to go back to uni. It was a tough decision to go back but was needed to pay off some of the loans she had taken out to attend college. She did so.
+
+
+It happened some

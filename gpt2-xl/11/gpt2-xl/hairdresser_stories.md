@@ -1,0 +1,6 @@
+Once upon a time, there was a hairdresser named Bob. But Bob was a total pain in the ass and didn't quite have the same respect that women used to get for their gender. He took advantage of some poor, vulnerable girl and made her look like a monkey. I'd like to tell you she was a victim of Bob, but I don't believe in fairy tales. She took it as a form of revenge. She took that humiliation badly – and got even worse. Bob was, essentially, a rapist with a human face. And the more he did it the more she loved it.
+
+I like to think that she is still around with me. Sometimes I get her in the yard or on the porch and rub some of the red out of her hair. It looks less strange when she does it. It gives her more hair to do with the other stuff. Maybe we can work out a deal when the moon comes back and we can all wear a little piece of moon dust. I hope not.
+
+I'm not sure if the last line up in the mirror says who I really am. It's sort of a mess. My beard keeps growing out and I keep changing my haircut sometimes too. I don't really think it should be something that everyone has to agree on. I do what I feel like doing and if other people feel like doing it too, that's fine. I guess I've been a little too forward here.
+

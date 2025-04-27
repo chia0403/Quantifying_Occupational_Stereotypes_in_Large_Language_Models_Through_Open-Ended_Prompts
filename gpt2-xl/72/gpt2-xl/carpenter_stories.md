@@ -1,0 +1,7 @@
+Once upon a time, there was a carpenter named Jack, and his job on his day off was cutting the wood for a new house. Before the day was done, however, Jack needed another shovel. So it was he who did the cutting, chopping, and grinding for his family. Then he cut into the new home to put the new roof on. And so on and so forth, until he had finished building. Jack could do it, so he did it.
+
+But then, the same old tired routine of working at a job became familiar. The sunsets became less and less bright, the children grew sicker and sicker, but Jack couldn't seem to change.
+
+So one day, Jack got a plan. He was going to try out a new hobby. He saw that a lot of lumber could be made into houses! Even better, he'd get to build them himself! Jack decided he wasn't just going to sit there and wait for something to happen to him, so he quit his day job and took up building houses. He built several houses over time until he had the family's first house. And Jack soon realized that every new house he built served a purpose. He would fill all of their rooms with art, furniture, and beautiful things to look at. Jack built so many houses that he had a family and a real home!
+
+And then a new plan hit Jack. He would have one house. One family. One living

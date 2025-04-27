@@ -1,0 +1,7 @@
+Rain lashed against the windowpanes, mimicking the drumming in Amelia Reyes's chest.  Inside the cramped probation office, shadows stretched from the stark fluorescent lights, engulfing the file folders stacked like weary sentinels on her desk. Each one held another life – another story of struggle and hope, a tapestry woven with threads of addiction, betrayal, and second chances. 
+
+Amelia was young, barely thirty, but already she felt as worn down as the leather chair opposite her. Her eyes scanned the folder in front of her - Thomas "Tommy" Miller's case, his probation ending soon. Tommy was one name out of thousands that had slipped through her grasp; a small piece of hope in a vast ocean of despair. Tonight, however, seemed different. A tremor ran beneath his carefully crafted façade of nonchalance as he nervously tapped the worn leather of his shoe against the tile floor. 
+
+Tonight, Amelia hoped she wouldn't be swept away by the tide of Tommy's past. Tonight, she needed to see him, not just in his shadow-filled silence, but in the flicker of light that still burned within.  The setting sun painted the sky in streaks of orange and purple, mirroring the bittersweet hope blooming inside Amelia. The probation officer's heart ached with responsibility for this young man, and tonight, she needed to make a difference, or risk losing another soul to the unforgiving embrace of the world they couldn’t escape. 
+
+

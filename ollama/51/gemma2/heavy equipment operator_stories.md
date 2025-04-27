@@ -1,0 +1,6 @@
+The sun beat down on Amelia "Amy" Brighton's neck, turning her already tanned skin into leather. Sweat dripped from her brow, stinging her eyes, but she didn’t dare wipe it away. One hand needed to remain firmly planted on the control levers of the CAT 345 excavator, guiding its massive arm as it meticulously scooped up a pile of dirt and deposited it onto the waiting dump truck below. 
+
+The air hung heavy with the smell of diesel and dust, a familiar aroma that had become almost comforting after twenty years in this line of work.  Her ears were bombarded by the constant thrumming of engines, the clang of metal on metal, and the occasional bellow of a foreman barking orders across the vast construction site.  This was Amy’s domain – a sprawling wasteland of freshly excavated earth and half-built concrete skeletons rising against the backdrop of the city skyline. 
+
+
+She squinted at the blueprint clutched in her other hand, its edges softened from countless readings under the harsh sun. This project, a new highway bridge spanning the winding river that sliced through the heart of their city, was one of the biggest she’d ever worked on. The stakes were high, and mistakes were costly. But Amy thrived on the challenge, the physicality of it all, and the pride of seeing something tangible take shape from the dust and chaos. 

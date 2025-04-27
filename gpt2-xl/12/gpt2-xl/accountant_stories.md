@@ -1,0 +1,6 @@
+Once upon a time, there was a accountant named Bill who went to one of the banks that was run by these guys. The story, as told in the book, revolves around an interview that Bill, a very wealthy businessman, does with his accountant's assistant and her husband. Bill asks the assistant about accounting procedures and then, as always, he makes the assistant and her husband sit off to the side. This time, when the husband asks about how they can tell if their client is being honest about the amount of money going in and out of the account, the accountant's assistant's response was "It's that simple. They're not taking their pants off." What a nice little joke! The husband, thinking he had just been dealt an unfortunate hand of poker, got all bent out of shape and the wife, just as before, is thinking "It must be that simple." Not so fast Mr. or Mrs. Accountant, we were all lying there like a bundle of sticks, wondering just how you could come to a conclusion like that, only worse, because now you might be accused of just that.
+
+
+The Book was published in 1983 by Viking, then a small group of publishers and is now out of print but you can find a new copy for less than a dollar from any bookstore or in most public libraries.
+
+This was my first book and it was a lot of fun at first. I think I found some new areas and found a lot of fun as

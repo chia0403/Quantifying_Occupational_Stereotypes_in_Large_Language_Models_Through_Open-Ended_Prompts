@@ -1,0 +1,6 @@
+The worn oak desk felt cool beneath Judge Amelia Thorne's fingertips. Rain lashed against the courtroom windows, blurring the streetlights into hazy halos. A low hum emanated from the fluorescent lights overhead, barely competing with the steady drumming of rain and the distant rumble of thunder. 
+
+Amelia straightened a stack of files before her, their titles whispering accusations: "Theft," "Arson," "Grand Larceny." Each file represented another piece in the intricate tapestry of human misery that she had sworn to untangle. Tonight, however, the weight felt heavier than usual. A gnawing unease, like a persistent itch beneath her skin, refused to be ignored. The storm outside mirrored the tempest brewing within her – a storm fueled by a cryptic message received earlier that day, its sender unknown, its contents chillingly ominous: "The truth will be revealed."  
+
+
+Amelia leaned back in her chair, her gaze drifting towards the empty jury box, imagining the faces that would soon fill it. Her mind raced, piecing together fragments of the case she was about to preside over, a complex web of deceit and betrayal that threatened to unravel years of carefully constructed lives. It was a case that had already consumed her thoughts, now intensified by the unsettling message. 

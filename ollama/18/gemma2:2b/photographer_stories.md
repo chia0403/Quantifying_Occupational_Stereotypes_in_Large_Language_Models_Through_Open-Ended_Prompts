@@ -1,0 +1,6 @@
+The air hung thick with salt and humidity as Elara Reyes, her camera slung across her shoulder like an extension of herself, adjusted her tripod at the edge of the pier. Below her, the waves crashed against the pilings in rhythmic fury, their white crests meeting the grey of the ocean sky in a silent, swirling ballet. The setting sun cast long, orange fingers across the water, transforming it into an ethereal canvas. Elara knew this was one of those moments where time seemed to slow down, each breath a symphony of waves and wind, every rustle of leaves on the swaying palm trees a story waiting to be told.  
+
+This was her haven, a place that whispered secrets in the rhythm of the sea breeze. She'd come here countless times before, drawn by its raw beauty and the melancholic song of the ocean. Yet, tonight, Elara found herself wrestling with a different kind of emotion, one she couldn't quite articulate, a knot of uncertainty tied to her gut like a loose thread on a forgotten photograph. 
+
+
+**This is just a starting point for your story.** What happens next? How does the setting play into the photographer's feelings? Who or what is Elara trying to capture in her photographs? The possibilities are endless!  

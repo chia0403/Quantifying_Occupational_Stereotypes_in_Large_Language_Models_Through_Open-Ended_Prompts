@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named Tim, who ran the department. He had one rule: "Don't look at the evidence once you've seen it."
+
+There is no room for ambiguity here: Tim O'Brien's "evidence" consisted of pictures of what he assumed were gunpowder remnants -- but wasn't, because it wasn't in fact gunpowder remnants -- a cigarette butt, and the "skeletal" remains of a woman. This was a "crime scene" that was under investigation and was now, due to the fact that he had "not been inside the residence at the time of the crime," at "a dead end" with no evidence. Why is this relevant to anything?
+
+The answer, as you'd expect, is because the police and the state's lead investigative officer, Officer O'Brien, did what was necessary to conduct their investigation. To what purpose? To find the truth. And after all the work, they still had nothing. But this is precisely the point: This isn't about the evidence, and it isn't even about the investigation.
+
+What happened at this point is this: the prosecutor's office, through the office of the lead investigator, filed a grand jury subpoena. The police were sent instructions: turn off your video cameras. Don't turn on your audio recording devices. Never turn on your video camera when someone is calling 911. Don't record or photograph anything until you have a search

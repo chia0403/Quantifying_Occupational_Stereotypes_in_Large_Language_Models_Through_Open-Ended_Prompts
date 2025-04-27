@@ -1,0 +1,9 @@
+The air hung thick with the scent of freshly cut grass and damp earth. A thin layer of mist clung to the manicured lawns of Oakhaven Manor, blurring the edges of the ancient oak trees that lined the drive.  At dawn, Bartholomew "Barty" Everly, head groundskeeper for the past twenty years, pushed his rusted mower through the dew-laden clover patch. He'd been tending these acres since he was a boy, learning the rhythms of the seasons and the secrets whispered by the wind rustling through the leaves. 
+
+Oakhaven Manor, once a grand testament to wealth and prestige, now stood silent and melancholic, its opulent facade faded with time and neglect. The mansion housed countless stories, some joyful, some shrouded in tragedy, all etched into the very fabric of the overgrown gardens Barty carefully preserved.  He knew every stone path, every gnarled branch, every hidden nook as well as he knew his own reflection. This wasn't just a job for him; it was a legacy, a connection to his past and a responsibility to keep the memory of Oakhaven alive.
+
+
+As the sun began to crest over the horizon, casting long shadows across the dew-kissed grass, Barty paused, listening to the symphony of birdsong that filled the air. He inhaled deeply, savoring the scent of fresh earth and blooming honeysuckle, feeling a sense of peace settle over him.  His life was simple, predictable, but within these walls, he found solace and purpose. Until today, that is. 
+
+
+A flash of red caught his eye near the crumbling rose trellis. He stopped, his heart skipping a beat. It wasn't a wild cardinal, nor a vibrant poppy pushing through the cracks in the stone.  It was a single, gleaming ruby, nestled amongst the withered petals. And Barty knew, with a certainty that sent a shiver down his spine, that it wasn't meant to be there.

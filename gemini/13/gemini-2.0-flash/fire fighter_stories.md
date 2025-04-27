@@ -1,0 +1,9 @@
+## The Ashes of Yesterday
+
+**Story Opening:**
+
+The pager shrieked, ripping Leo Maxwell from a fitful slumber filled with the scent of burning pine. He slammed a hand down on the nightstand, silencing the insistent buzzing, his heart already pounding against his ribs. "Structure fire, five blocks east, possible entrapment," the robotic voice rasped from the tiny speaker. Leo swore under his breath, adrenaline instantly flooding his system, chasing away the lingering tendrils of sleep. He threw back the rumpled covers, the chill of the pre-dawn air prickling his skin. This was it. The nightmare he’d been training for, dreading, and secretly, perversely, *needing* since he was a boy staring up at the burning remnants of his own childhood home.
+
+**Setting:**
+
+Leo Maxwell lives in the small, close-knit town of Havenwood, nestled in the foothills of the Cascade Mountains in Washington State. The town is dominated by the vast expanse of the surrounding forests, a source of both its beauty and its ever-present danger. Havenwood is a place where everyone knows everyone else, a community forged in the crucible of shared struggles against the elements, particularly the ever-present threat of wildfire. The fire station, a sturdy brick building painted a cheerful, if slightly faded, red, sits on the edge of town, a silent sentinel watching over the sleeping residents. Inside, the scent of stale coffee mingles with the pungent odor of turnout gear, a constant reminder of the lives these men and women dedicate themselves to protecting. Leo's own modest bungalow is located a few blocks away, a testament to his dedication and frugality. It's a simple place, filled with well-worn furniture and the lingering aroma of his late mother's apple pies, a silent echo of a past he can never quite escape.

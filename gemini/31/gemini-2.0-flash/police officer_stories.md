@@ -1,0 +1,7 @@
+**Opening:**
+
+The salt spray stung Detective Isabella “Izzy” Rossi's face as she leaned against the railing of the pier, the relentless Atlantic wind whipping tendrils of her dark hair across her cheek. The rhythmic crash of waves against the pilings usually soothed her, a familiar heartbeat in this perpetually restless town, but tonight it felt like a mocking drumbeat against her skull. The flashing blue and red lights cast long, distorted shadows across the wet planks, painting the scene with an unsettling urgency. Beneath it all, the acrid scent of burnt plastic hung heavy in the air, a phantom echo of the inferno that had choked the life out of her patience, and maybe, just maybe, a piece of her soul.
+
+**Setting:**
+
+The setting is Havenwood, Massachusetts, a small, insular coastal town clinging precariously to the edge of the Cape Ann peninsula. Havenwood is a town of weathered clapboard houses, salty sailors, and generations-old secrets. Tourism thrives during the summer months, but the winter brings a harsh isolation, leaving the locals to contend with the biting cold and the ghosts of their past. The pier, where Izzy now stands, is a vital artery of the town, a hub for fishing boats, tourist charters, and clandestine meetings. It’s a place where the line between the respectable and the illicit blurs, a place where the sea both sustains and swallows secrets whole. The year is 2023, and the town is teetering on the brink of change, a change Izzy isn't sure she's ready for.

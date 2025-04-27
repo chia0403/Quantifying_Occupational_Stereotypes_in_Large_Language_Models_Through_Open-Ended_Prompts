@@ -1,0 +1,7 @@
+Rain lashed against the windows of Arthur's office, each drop echoing like a tiny hammer blow on his tired mind. The fluorescent lights hummed overhead, casting a sickly yellow glow over the mountains of spreadsheets before him. It was 2:17 AM, and he should have been sleeping.  His wife had already fallen asleep hours ago, her snores a lullaby far too loud for Arthur's ears to endure.
+
+Arthur was an accountant – a profession that demanded not only precision but an uncanny ability to read between the lines of numbers and people's motivations.  But tonight, the numbers were blurring; even his normally meticulous calculations seemed lost in the swirling storm outside. The only thing clear in this maelstrom of financial chaos was the gnawing emptiness within him – a feeling that echoed louder than any spreadsheet ever could.
+
+Arthur sighed, running a tired hand through his hair. He had spent the last few weeks immersed in the labyrinthine accounting records of Riverton Industries, chasing down missing funds and navigating a web of hidden transactions that felt more like a spy thriller than anything else.  His name was Arthur Finch – a man who believed in order, balance, and an unyielding sense of responsibility. But even he couldn't help but wonder if the river of money he had dedicated his life to measuring might ultimately be too turbulent, its currents carrying him further and further from any semblance of a true sense of self. 
+
+

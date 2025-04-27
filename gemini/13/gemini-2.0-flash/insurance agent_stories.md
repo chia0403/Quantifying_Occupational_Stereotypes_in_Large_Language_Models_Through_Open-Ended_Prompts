@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, featuring a main character who's an insurance agent:
+
+**Opening:**
+
+The flickering fluorescent lights of the DMV hummed a mournful tune above Amelia Hayes, a soundtrack entirely too familiar for a Thursday afternoon.  Amelia, armed with a stack of brochures thicker than a well-loved dictionary and a forced, yet professional smile, watched the numbers tick down on the digital display with the same grim fascination one might reserve for a ticking bomb.  B-47.  Her number.  Finally.  She straightened her navy blazer, the kind that screamed "trustworthy" and whispered "slightly underpaid," took a deep breath that tasted vaguely of stale coffee and desperation, and approached the designated window.
+
+**Setting:**
+
+The story begins in the sprawling, sun-baked city of Phoenix, Arizona. While the opening scene is inside the sterile, government-issue blandness of a particularly busy Motor Vehicle Division office, the broader setting is the world of insurance in the Valley of the Sun.  Amelia Hayes lives and works in a rapidly growing suburb just outside of Phoenix proper, a place of neatly manicured lawns, identical stucco houses, and an ever-increasing need for home, auto, and life insurance. The scorching heat, frequent dust storms, and surprisingly common monsoons of the region all contribute to a unique and often unpredictable risk profile for her clients. Her office, "Sunrise Insurance Solutions," is a small but brightly painted storefront nestled between a dry cleaner and a tax preparation service in a strip mall, constantly battling the encroaching beige of its neighbors. The interior is meticulously organized, overflowing with motivational posters featuring soaring eagles and quotes about achieving your dreams, all designed to project an image of success in a cutthroat industry.

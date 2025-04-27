@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named Frank Loyd. One day, Frank was trying to lead the group of youths his church had set out to convert to Christ. One of them asked, "Is this the Lord's Church?" And Frank answered, "Yes."
+
+And then he said something that should be emblazoned on every young Christian reading his book: "What if all Christians are wrong?"
+
+The young man didn't get to finish his question, because the next thing Frank Loyd did was call his first Bible, the New Testament, and read to the group some passages that seemed to contradict some of the messages in the Old Testament. One passage said, "The Holy Spirit shall not strive with man, because the Lord God has made him to be a mighty warrior" (1 Corinthians 15:55). Another said, "For all created things are yours, and you are Christ's" (Colossians 1:15). He taught them that humans must work cooperatively with God and that a society must be run by a common sense system of laws.
+
+Now, all of this, Frank said, was just common sense. But we've all lived our whole lives being taught the opposite. What was odd here was that this group of young men, these true Christians, also felt comfortable with the scriptures. That's because some of them had never read the actual New Testament books. They had read the Old Testament but never any of

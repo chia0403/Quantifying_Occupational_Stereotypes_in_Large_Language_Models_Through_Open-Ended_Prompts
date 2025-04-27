@@ -1,0 +1,11 @@
+Title: Shadows of the Night
+
+Setting: The story is set in the crumbling halls of an abandoned theater in a small, forgotten town. Once a vibrant hub of creativity, the grand building now stands as a relic of the past, its ornate designs faded and chipped, with whispers of laughter and applause echoing faintly in the dusty air. The velvet seats, now moth-eaten and torn, remain fixed in place, and flickering lights dance across the walls, creating ghostly silhouettes that linger in the dim corners. As night falls, the building is cloaked in darkness, illuminated only by the occasional glimmer of moonlight streaming through shattered windows.
+
+Opening: 
+
+Rufus J. Thompson leaned heavily on his mop, watching the shadows stretch like fingers across the dilapidated wooden floor. The old theater creaked and sighed, each sound seeping into the stillness of the night like an old ghost trying to call its long-lost patrons back home. Outside, the chill of autumn settled over the town of Willow Creek, wrapping it in a quiet embrace that only deepened the theater's somber atmosphere.
+
+Rufus had been a janitor here for over a decade, but in all those years, he'd never felt quite so alone. For him, cleaning the remnants of a once-glorious show was less about the dirt and more about the stories that lingered in every corner. He wiped his brow, the faint aroma of stale popcorn mingling with the residue of mildew from the neglected curtains. With each sweeping stroke, he could almost see the love stories played out on stage, hear the symphonies of heartbeats that matched the rhythm of the performers’ movements. 
+
+Yet, tonight felt different. There was an electric tension in the air, a murmur deep within the theater's bones that seemed to beckon him closer to the stage. As he moved farther in from the lobby, shadows flickered in his periphery, and the air grew thick with an unshakable sense of foreboding, as if the theater itself was holding its breath, waiting for Rufus to uncover its secrets.

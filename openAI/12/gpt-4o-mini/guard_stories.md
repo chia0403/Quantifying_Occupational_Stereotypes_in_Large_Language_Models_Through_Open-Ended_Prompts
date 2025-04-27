@@ -1,0 +1,7 @@
+In the heart of the Kingdom of Eldoria, where the mountains kissed the sky and the rivers flowed like silver threads through the emerald valleys, lay the formidable Castle Blackthorn. Its towering spires pierced the heavens, casting long shadows over the bustling village below. Guards in glimmering armor marched in disciplined lines along the stone walls, their voices echoing against the ancient stones.
+
+Among them was Brannoc Aricsson, a veteran guard known for his unwavering loyalty and exceptional skill with the sword. Standing tall at the castle’s north gate, Brannoc’s sharp blue eyes scanned the horizon, vigilant for any sign of trouble. The late afternoon sun cast a golden hue over the landscape, illuminating the bright banners of House Blackthorn that fluttered proudly in the wind.
+
+The castle, with its imposing gates and intricate ironwork, was home to Lady Seraphine, the young heir to the Blackthorn lineage. Her recent ascension instilled both pride and unrest in the hearts of the people. Whispers of betrayal and brewing discontent echoed in the taverns, while shadows lurked in the alleys of the village. 
+
+As Brannoc adjusted his gauntlets, a chill swept through the air, hinting at a brewing storm—a storm that would soon test not only his mettle but also his allegiance to a realm on the brink of chaos. With a tightened grip on his sword hilt, he steeled himself for whatever fate may hold, for secrets lay hidden within the castle’s walls, and Brannoc was destined to unearth them.

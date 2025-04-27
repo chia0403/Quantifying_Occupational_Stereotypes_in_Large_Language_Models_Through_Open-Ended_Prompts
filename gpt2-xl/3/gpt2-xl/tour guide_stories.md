@@ -1,0 +1,7 @@
+Once upon a time, there was a tour guide named Joe, who shared his story of the trip back in the day. He described an encounter where he "heard" aliens (or perhaps not so much "heard") from the other side, although he didn't really know what they were talking about. It was at this time that he experienced what he called a "light on," as he "felt a huge force and a bright object fly over my head."
+
+"The whole situation was completely surreal. It was as though I might be in a dream, although not really," Joe told his story to his friends. However, he didn't really want to admit how he knew all this. After all, most people wouldn't want to tell his story to other people, although perhaps he had done exactly that to others in the same situation.
+
+Joe has told to him friend Mike about this, about how he had seen the aliens at that time, and how he was later able to see them again and even feel that time had passed for a while for Mike. It's been over 30 years since Joe initially saw the aliens. It's hard to believe what an amazing story he must also have had to tell.
+
+Joe has been sharing his tale with different people for years now, yet to no avail, while not being able to actually prove or prove anything to the "experts" who "knew" so much. The UFO phenomenon has been in the public eye

@@ -1,0 +1,7 @@
+Once upon a time, there was a tour guide named Gertrude. One day, she told the crowd about a local fish-farming family who, during their summers, caught lots of giant-lobed angler fish. That's when everybody knew the name of the fishermen's village in Japan.
+
+The fish they caught were enormous, and many would grow to the scale of a city block. Then they would kill the fish by feeding them on the corpses of their dead fish buddies. A few days later, they'd cut up the fish, and eat the soft, raw flesh, but nothing like this: their stomachs contained giant, indignant-looking creatures the size of small cars and buses; they were angry about something.
+
+The angler fish were not simply another exotic species, though. They were a very real part of the village, the people knew them and were quite familiar with their appearance. They would attack the fishermen and drag them away with their teeth chomping through their gums.
+
+Many of the angler fish died, of course, but their guts filled up with water and they began to swim away up the stream, the people believing they had to swim out of the village to get back to the safety of the lake. They found more and more angler fish living in the water, and were even eating them, and they, in turn, were eating themselves, until, in a matter of days, the village

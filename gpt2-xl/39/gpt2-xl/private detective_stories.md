@@ -1,0 +1,8 @@
+Once upon a time, there was a private detective named J. Edgar Hoover. Over the years, Hoover amassed a vast network of informants worldwide, and kept tabs on many famous figures, including Abraham Lincoln, Martin Luther King Jr., Robert Kennedy, and John F. Kennedy. Not surprisingly, he was an enthusiastic supporter of police surveillance and censorship.
+
+Hoover's legacy is so great he has even created a Wikipedia page about him: "Hoover was also the first head of the OSS, the precursor to the CIA. After World War II, OSS was responsible for intelligence gathering of foreign targets, including Germany in WWII, and North Vietnam, the Soviet Union in the Cold War and Cuba on the US/Soviet divide."
+
+
+In the mid 1960s, under President Kennedy, the FBI's FBI was heavily involved in domestic and international intelligence gathering: "the FBI and CIA collaborated in the Vietnam War; together they carried out counterintelligence operations against domestic and international groups such as the anti-war movement; anti-Vietnam War veterans groups and Martin Luther King Jr.'s Southern Christian Leadership Conference. In 1968, the FBI's New York field office was one of the main bases for the FBI's Bay of Pigs invasion of Cuba, and another in the early days of Operation Chaos" (Gourevitch), the FBI's program to sabotage African-American communities. This program was led by James J. Angleton.
+
+Through his connections, Hoover was

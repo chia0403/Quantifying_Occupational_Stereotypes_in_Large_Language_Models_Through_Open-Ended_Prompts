@@ -1,0 +1,5 @@
+Once upon a time, there was a veterinarian named Dr. J-J. She was the best dog in the world, and everyone loved her, but the animal world soon discovered that her special sauce was in fact, a little too strong. That secret was finally exposed when J-J escaped from her crate, tore through the house, and ate the brains of those who had been treating her as a treat. So she became Dr. J. A woman named Miss Marple then took J-J under her wing. In time, J-J met Dr. Marple's grandson, William J. Marple II, and now, they're happily retired together as doctor and pet owner. The two of them just can't get enough of J-J. Even the veterinarian says that J-J's been a little too much for him, though.
+
+8. Nymphomaniac J-J
+
+J-J is a real life creature of the night, and it was only ever a matter of time before he made the jump to the big city. He ended up living on the streets of San Francisco, eventually falling in with a group of young hustlers. One day, while J-J was drinking at the bar, he got a call from a pimp named Denny who said that the girl he was interested in, named J-Ju, was looking for a place to live. This gave J-J the motivation he needed as he took out

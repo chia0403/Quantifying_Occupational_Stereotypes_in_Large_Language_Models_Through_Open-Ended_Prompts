@@ -1,0 +1,7 @@
+Once upon a time, there was a barber named Jack. Jack took care of his customer, a kid named Jack White—a guy who'd gotten his haircut by himself because Jack didn't know how to do it. Jack White was a pretty poor guy, so his family had to scrape by working the family farm. One day, Jack White decided it was time for a change. Jack White decided he should go to college, buy a car, and retire in Florida. On his way home from college, Jack White's son, Jack Jr., came to him and asked Jack to do his hair for him. Jack Jr.'s dad didn't want to hire his grandson, but Jack Jr. said he owed it to his dad. Jack Jr. told his dad that his dad owed him, too.
+
+That's how it went, basically. Nobody else wanted Jack's cut, and Jack's customers didn't come in.
+
+And suddenly, there was a new barber's shop—called Jack White's.
+
+He also took care of John Lennon, of course, and John was the first famous person to pay a visit to Jack White. And it's interesting, because the only customer Jack sold to was The Beatles, because John was a singer/songwriter then, and you'd have to be pretty big to be a singer back in 1968. So all of these very famous people could tell a story about their own haircuts to Jack, and they'd

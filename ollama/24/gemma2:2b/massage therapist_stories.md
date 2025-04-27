@@ -1,0 +1,5 @@
+The steam from the sauna swirled around Amelia "Amy" Thorne's shoulders like ethereal tendrils, carrying with it the scent of pine needles and sweet cedarwood. The air hung thick and humid inside the small brick studio nestled in the heart of a bustling city block.  As she knelt on the damp wooden floor, gently kneading the tired muscles of her client, Amelia couldn't help but feel a pang of melancholy. This was her sanctuary, a place where the weight of the world seemed to melt away under the rhythmic pressure of her hands. Yet, even here, surrounded by the earthy scent of healing and serenity, she felt increasingly isolated. 
+
+**Setting:** The studio is tucked away in a quiet back alley, far from the noisy clamor of the city outside. It's run down on the exterior with exposed brick walls and chipped paint but warmly decorated on the inside with hand-painted tiles and wood paneling.  
+
+**Main character:** Amelia "Amy" Thorne - A young woman in her late twenties who runs a massage therapy practice, offering services to both locals and tourists. While successful in her profession, she struggles with loneliness and a desire for deeper connection. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named John G. Avildsen. In 1956, Avildsen (a pseudonym) signed an agreement with Paramount Pictures (a.k.a. Paramount Pictures, Inc.) to make his feature-length adaptation of "The War of the Worlds." The plan was to produce a 50,000-seat epic film and a 200-page screenplay that would become a best-seller. Paramount would then turn it into a television series on a network that wasn't that far away.
+
+At Paramount, Avildsen was quickly promoted beyond the directorial level and then onto a series of series and mini-series that he worked on for the next two decades. When the series of movies finally came to an end in 1975, Avildsen was left with just a screenplay. The script, written by Tom Clancy (an American writer and novelist based in Dublin) had just begun to sell, and Paramount offered it for the first time to the producers of a TV series.
+
+They turned it down—but Paramount would pay for the next 25 years anyway.
+
+In the late 1970s, the television networks were trying to create something as big as the blockbuster films of the 1960s, and everyone wanted to know which person's name would sign the documents that would go into the production of the film, and which one would be executive producer, and which one would direct. By the late 1970s, there were dozens of TV networks

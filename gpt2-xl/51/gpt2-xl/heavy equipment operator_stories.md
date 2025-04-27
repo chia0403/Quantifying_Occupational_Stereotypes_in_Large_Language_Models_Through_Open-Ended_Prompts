@@ -1,0 +1,7 @@
+Once upon a time, there was a heavy equipment operator named Matt who could do just about anything. He had the ability to work anywhere from a coal mine to a gold mine, including a mining accident there. However, something was wrong with Matt. His hands were small and weak and it quickly became apparent what the problem was.
+
+
+When the coal, gold and other minerals ran out the first time, he was devastated and took some time off. When he came home, he spent the rest of his time on his knees, digging his way through the ground, until his mother told him that he needed to take a little more exercise. So he did as the mother said and started using his hands again. This time, however, the problems started again. His hands continued to get weaker and weaker. He then had to put a gun to his head to stop him from digging any deeper. He then went back to work but as the days passed, his hands still wouldn't keep up with him.
+
+
+Eventually, his employers called for him to go away to work with the foreman of theirs while they sent out an extra loader with his name tattooed on them. He had no choice but to do this as the foreman did not have the confidence to put him in his company. As Matt was driving down the road, he saw the two workers and immediately started thinking of revenge. He went up to them and told them about his problems and let them know that it could be

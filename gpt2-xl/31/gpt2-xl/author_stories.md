@@ -1,0 +1,7 @@
+Once upon a time, there was a author named "John Steinbeck." In his first book, The Grapes of Wrath, which was published in 1925, the Irish novelist, poet, and short story writer took to heart the lessons of his hometown, Solano County, California, and the region's place on the American frontier.
+
+Steinbeck's tale of the American Southwest focuses on a pair of middle-class families that migrate to rural California to seek adventure. The family patriarch, a hardworking, hard drinking Irish immigrant named Tom Buchanan, takes his young son Carl to the foothills with hopes of catching the "gold rush of life."
+
+A few decades later, he returns after the death of his son, John and his wife, Grace. The young man had left behind a wife, two children who had recently died, and his mother. Although an early marriage to Grace had broken their family, John Steinbeck had hoped to restore, with the help of a good education, the family fortune. But Grace died at age 15, leaving their future to a generation of sons and daughters living in the rough, sparse areas around Solano, California.
+
+One of the sons in this family is Jack Brennan, the first of the Brennan family, to become a novelist. His first novel, One Flew Over the Cuckoo's Nest, was released in 1962 and became a best seller. The novel's success was due in large part to its portrayal of

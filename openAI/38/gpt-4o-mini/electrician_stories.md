@@ -1,0 +1,11 @@
+**Title: The Shadowed Circuit**
+
+**Setting**: The small, weathered town of Eldridge Falls lies nestled in a rugged valley surrounded by dense forests. Its old cobblestone streets wind through a blend of quaint cottages and half-abandoned storefronts, remnants of a time when bustling trade enlivened the town's spirit. A silver river snakes through the town, its gentle babbling contrasting with the rustling leaves overhead. The sky often hangs low, heavy with clouds that threaten rain, giving the town an atmosphere of mystery and nostalgia. The heart of Eldridge Falls is the old, dimly lit diner with a flickering neon sign that reads "Harriet's Place," a favored haunt for locals seeking warmth and solace over a cup of coffee.
+
+**Story Opening**: 
+
+The hum of machinery filled the stifling air as Spencer Elias Hawthorne crouched beneath the floorboards of Harriet’s Place, a place he had visited countless times as a child. Now, at thirty-five, Spencer was known as the town's go-to electrician, a title that could stir a mix of pride and trepidation in his chest. Today, however, the flickering lights and erratic power issues had become a weight on his shoulders rather than a badge of honor. 
+
+Sliding his hands into the darkness, he traced the brittle wires with his fingers, their brittle texture telling the story of years gone by, constructing a narrative of neglect. The light above him buzzed, for a moment illuminating his tousled dark hair and angular features, a fleeting reminder of the world above—warm, bustling, and vibrant. It felt alien, as if he had slipped into the depths of a forgotten realm hidden beneath the town he loved, a labyrinth of shadows and tangles. 
+
+“Just a glitch,” he murmured, more to himself than to the swirling darkness around him. But even he knew there was something more tangled in the wires tonight, a whisper of unease that tickled at the back of his mind. As thunder rumbled in the distance, Spencer’s heart raced with the thrill of a challenge, ignited by an instinctual urge to uncover the truth—whatever that might cost him.

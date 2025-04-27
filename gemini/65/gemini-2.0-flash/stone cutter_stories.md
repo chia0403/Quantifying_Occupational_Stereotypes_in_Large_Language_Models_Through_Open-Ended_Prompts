@@ -1,0 +1,7 @@
+## Story Opening:
+
+The rasp of steel against granite was a song, a familiar lullaby that had echoed in Silas Blackwood's bones since he was a boy barely tall enough to heft a mallet. He stood now, forty years and a lifetime of dust caked into the lines on his face, before the half-finished angel. Her wings, still trapped within the grey stone, promised flight, though Silas felt grounded, weighted down by worries as heavy as the quarried blocks stacked around him. He traced a calloused finger along the curve of her nascent cheek, a whisper escaping his lips. "Soon, my beauty. Soon."
+
+## Setting:
+
+The quarry was a gaping wound in the side of the Dragon's Tooth Mountain, located in the remote, windswept province of Aethelgard. Jagged cliffs, stained ochre and grey, rose skyward, dwarfing the tiny figures of the men who toiled below. The air was thick with the smell of shattered rock and sweat, punctuated by the rhythmic clang of hammers and the deeper boom of controlled blasts. Scattered around the quarry floor were piles of rubble, discarded blocks, and the occasional half-formed sculpture - evidence of forgotten dreams and abandoned commissions. A rickety wooden crane, creaking under the strain, dominated one corner, while a small, stone shed, serving as Silas' workshop and living space, nestled against the base of the mountain, offering a meager haven from the elements. Even in the heart of summer, the air held a chill, a constant reminder of the mountain's cold, unyielding heart.

@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+It was a drizzly autumn evening in New Orleans, the kind of night that made you want to stay inside with a warm cup of coffee and a good book. But for 25-year-old Elijah "Eli" Baptiste, there was no time for such indulgences. As a bell hop at the prestigious Hotel Monteleone on Bourbon Street, Eli was used to dealing with the city's vibrant nightlife, and tonight was no exception.
+
+As he wheeled his cart through the crowded lobby, Eli greeted the late-night revelers with a warm smile and a tip of his fedora. The sounds of jazz music drifted from the bar, mingling with the chatter of the patrons and the clinking of glasses. Eli knew every face in the room, but tonight, he was on high alert. A mysterious guest had arrived at the hotel earlier that evening, and rumor had it that they were looking for something – or someone.
+
+Eli's eyes scanned the room, taking in the familiar sights and sounds of the iconic hotel. He had worked here for five years, learning the ins and outs of the place from his father, who had been a bell hop before him. But as much as Eli loved the Monteleone, he couldn't shake the feeling that something was off tonight. And when a hushed voice called out to him from across the lobby, "Eli, I need a room with a view," he knew that his evening was about to take an unexpected turn.

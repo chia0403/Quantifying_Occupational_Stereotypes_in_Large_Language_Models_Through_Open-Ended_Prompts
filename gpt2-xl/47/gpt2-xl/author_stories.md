@@ -1,0 +1,7 @@
+Once upon a time, there was a author named Joseph Smith whose prophetic skills, among other things, saw a group of American Indians as having white skins, hair, and eyes. Smith's followers thought to themselves, "That's a guy we could write our history around."
+
+It's always a good idea to make sure your historical narratives are true, but it's easy to miss the point when you keep saying that a guy called Joseph Smith saw American Indians wearing white skins, hair, and eyes! What are you even thinking?
+
+In the first place, it can be assumed that the Prophet wrote his 1838 book of Doctrine and Covenants with a group of white people who saw no evidence of any such thing. As John Taylor said, "If any one were to claim as a fact that one of the early revelations of Joseph Smith was actually taken from the pen of a white man, it would be quite as absurd to suggest that the revelations of Jesus as recorded in the New Testament were written or dictated by any but one of several of his closest associates."8
+
+Second, I am almost certain that the people who went out of their way to prove that Joseph Smith saw white skin, hair, and eyes were only able to find evidence of such white things because Joseph seemed to take the matter of African Americans at face value. In fact, it's interesting to note that the Book of Mormon itself contains no reference to white skins on the skin but rather focuses entirely on the

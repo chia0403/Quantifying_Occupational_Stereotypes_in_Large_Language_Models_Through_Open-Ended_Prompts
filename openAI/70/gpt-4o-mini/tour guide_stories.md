@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The heavy fog clung to the cobblestone streets of New Orleans like a whisper, wrapping the historic structures in a shroud of mystery. Gas lamps flickered with a soft, golden glow, casting elongated shadows that danced in the dim light. It was just past twilight, and the sounds of laughter and music drifted from the nearby French Quarter, where tourists mingled with locals, oblivious to the secrets hidden beneath the surface of this haunted city. 
+
+Standing at the edge of Jackson Square, her vibrant red scarf fluttering in the night breeze, **Celeste Amélie Fontaine** adjusted the brim of her wide-brimmed hat. Known as one of the city's most passionate tour guides, Celeste was an expert in all things New Orleans—from its rich history and cultural intricacies to its ghost stories that sent shivers down the spines of even the most skeptical visitors. With a clipboard tucked under one arm and a lantern in hand, she was prepared to lead her group on another unforgettable journey through the enchanted streets. 
+
+As she took a deep breath, inhaling the intoxicating mix of magnolia and simmering gumbo, she felt a spark of excitement flicker within her. Tonight, she was determined to intrigue her guests with tales of hauntings and folklore, revealing the shadows that danced alongside the vibrant life of the Crescent City. Little did she know, this night would unravel something more personal—a story intertwined with her own heritage, buried amongst the very streets she cherished.

@@ -1,0 +1,7 @@
+Once upon a time, there was a physical therapist named Matt who lived in the same building with a girlfriend who was also a therapist. One day, she asked him if she could take him to the doctor. When he replied, "No," she told him she had found a way to trick him into thinking she had already had the procedure done, and he became a believer! "It was a little bit like the Wizard of Oz," Matt said.
+
+One of Matt's patients had just started to experience problems, but they kept disappearing until she finally took her pain to a nurse practitioner. She couldn't figure out what was going on until she looked at her chart, and found a prescription being written for a muscle relaxer. "This is a great patient you have at Loma Linda," she said. "Tell your wife to put it on her list"
+
+That was how she had discovered it worked, not for the patient, not for the symptoms… but for the person. I've known many people who believe that certain medications cause their physical symptoms on their own. Like some of their friends, they may hear that they need to take the painkiller as soon as possible, in order to avoid having pain the next day. It can often start that way. It can also be a lot of information to take in at one time.
+
+As a first step, I would recommend a quick online search for how to start treating your own pain, for yourself. Start

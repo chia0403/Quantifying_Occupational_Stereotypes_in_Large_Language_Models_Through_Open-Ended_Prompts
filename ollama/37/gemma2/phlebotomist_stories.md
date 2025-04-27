@@ -1,0 +1,6 @@
+The fluorescent hum of the clinic’s waiting room buzzed in Eleanor Grace Cartwright's ears like a chorus of agitated bees.  She tapped her foot against the linoleum floor, the rhythm mirroring the nervous tap-tap-tap of a middle-aged woman across from her. This woman, clutching a crumpled tissue and sporting eyes red-rimmed with anxiety, was waiting for her blood draw. Eleanor understood. The prick of the needle, the slight sting, the cold vial filled with crimson – it wasn't exactly anyone’s favorite experience.
+
+Eleanor worked at Willow Creek Family Clinic, nestled in a quiet suburban town where houses wore manicured lawns and gossip flowed freely like iced tea on a summer porch. The clinic itself was a symphony of beige walls, muted floral patterns, and the faint scent of antiseptic clinging to everything.  She was good at her job, efficient and calm, a steady hand amidst the swirling anxieties of patients. But sometimes, in the quiet moments between draws, she wished for something more, something beyond the predictable rhythm of blood tests and whispered concerns.
+
+
+Eleanor glanced down at her wristwatch – 9:57 am. Her next patient was due any minute. She straightened her blue scrubs, tucked a stray strand of auburn hair behind her ear, and took a deep breath. Time to work her magic.  

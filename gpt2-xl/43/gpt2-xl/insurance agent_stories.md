@@ -1,0 +1,7 @@
+Once upon a time, there was a insurance agent named J. F. K. Whelan, who was known by his nickname, "Lucky Joke." He was, of course, a good insurance agent. In his early years as a public servant, his great contribution to society was not his ability to extort a living, but his ability to provide his clients with a pleasant and dignified existence. As the years went by, this ability slowly disappeared in the face of the demands of our modern age, but his name still gets spoken, in some form, in pretty much every single insurance agency.
+
+
+In the old days, insurance agents were known to show up after the sun had set and offer their services to those who were sick or had fallen ill. Of course, these were not the same people who offer today for "life reinsurance." In those days, after selling a claim, the insurance provider would go home and take it up with some hospital. It was a matter of going into each office and asking them to pay up, and the hospital would have to accept. This gave the buyer enough time to find another house or a better job.
+
+
+In the early days of life insurance, if the insured person did not pay up the claim, the claims administrator sent a "guardian" out to collect it. Often, the guardian was an employee who was just looking for a paycheck. This was especially true for older people, because they lived on a

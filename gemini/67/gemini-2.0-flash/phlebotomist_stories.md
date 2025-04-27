@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a phlebotomist named Clara Beatrice Albright:
+
+**Setting:** The fluorescent lights of the "Sunrise Wellness Clinic" hummed a monotonous tune, a symphony of sterile efficiency. Outside, a watery dawn was just starting to bleed across the Seattle sky, painting the Sound a bruised purple. The clinic itself was a warren of beige walls and uncomfortable chairs, punctuated by the nervous coughs and rustling magazines of early-morning patients. The air hung thick with the faint scent of antiseptic and the underlying, almost imperceptible, metallic tang of blood. Clara stood in the small, designated "Phlebotomy Suite," a room barely bigger than a walk-in closet, meticulously arranging her supplies.
+
+**Opening:**
+
+Clara Beatrice Albright took a deep breath, the scent of lavender hand lotion, a small act of defiance against the clinical smell, filling her nostrils. At 6:57 AM, precisely three minutes before her shift officially started, the anxiety would begin to bubble in her chest, a familiar, unwelcome guest. Today, though, it was a little stronger, a little more insistent. Yesterday had been rough – a screaming toddler terrified of needles, a frail elderly woman whose veins kept collapsing, and a particularly insistent patient convinced she was being experimented on. The day had ended with Clara accidentally poking herself with a used needle, a heart-stopping moment of panic followed by the long, agonizing wait for blood test results. Thank God they came back negative.
+
+But those were the things that happened when you were a phlebotomist. You were a lifeline, a comforting presence, and sometimes, a punching bag. She picked up a fresh tourniquet, its smooth rubber cool against her fingers. Time to face the dawn, and the veins that came with it.

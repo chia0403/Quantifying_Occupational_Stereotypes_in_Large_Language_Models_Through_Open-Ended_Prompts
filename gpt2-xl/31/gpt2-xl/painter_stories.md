@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named David. He and his wife were the subject of great adoration. So were the painter's children. Their father was like "Yeah, David didn't do the paints, but David also made sure that his family lived a meaningful life," and so he was put on a pedestal. The artists revered him at the same time as they respected his wife. What did he paint, David?
+
+[A portrait of David painted by David]
+
+David didn't paint anything. What David did was a little more subtle, a little more artful. David would say "You know what, it's OK," and just let it be. He had a sense of humor, and a good relationship with the families of the artists who worked at his studio. He was a bit of a rebel, a bit of a goofball. His house was filled with paintings. When his wife died, he had them painted over with the same colors as before. And that became the standard, the style. Now, everybody wants to create that way.
+
+This is the most basic part of the job. The main things a painter does, the main things a professional does—they just paint. But painting's not the end of it. It's not the last step of it. Painting and the process of art, it's not that complicated, and I'm always surprised at how good all of us are at painting. I hope we

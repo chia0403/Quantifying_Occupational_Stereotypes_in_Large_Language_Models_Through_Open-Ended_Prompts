@@ -1,0 +1,9 @@
+## Opening:
+
+The steam curled from Brenda Mallory's chipped ceramic mug, obscuring her already weary eyes. Coffee, strong enough to strip paint, was the only thing standing between her and the overflowing in-tray on her desk. The aroma, however, couldn't quite mask the faint scent of stale cigarettes and disappointment that perpetually clung to the air in the District 5 Probation Office. Another Tuesday, another uphill battle. The phone buzzed, a short, sharp trill that sliced through the morning hum. Brenda sighed, pushing the mug aside. It was probably Mrs. Peterson, frantic again about her grandson, Ricky. Lord help her, Ricky was a walking, talking recipe for disaster.
+
+## Setting:
+
+The District 5 Probation Office occupied the second floor of a crumbling brick building in a forgotten corner of the city. The paint, a sickly institutional green, peeled in long, mournful strips from the walls. The fluorescent lights flickered sporadically, casting a jaundiced glow over the worn linoleum floor and the mismatched collection of desks and chairs that populated the room. Each desk was a small fortress, barricaded by stacks of files, legal pads scribbled with notes, and the personal ephemera of lives dedicated to navigating the murky waters of the justice system.
+
+A single, grimy window offered a view of a narrow alleyway, littered with overflowing dumpsters and the discarded remnants of urban life. The alley cat that haunted the area, a scarred ginger tom with a perpetually suspicious gaze, seemed to embody the overall atmosphere of the place: beaten down, wary, and stubbornly resilient. The only signs of cheer were a faded "Employee of the Month" poster featuring a smiling, impossibly young Brenda Mallory from a decade ago, and a small, wilting spider plant clinging precariously to life on her windowsill. This was Brenda's kingdom, her battleground, and her penance, all rolled into one dreary package.

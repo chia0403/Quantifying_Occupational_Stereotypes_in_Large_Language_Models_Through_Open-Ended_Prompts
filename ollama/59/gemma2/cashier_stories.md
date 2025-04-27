@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia Beatrice Perkins like a swarm of anxious bees, their buzzing echoing in the cavernous emptiness of the supermarket aisle after closing. The air hung thick with the scent of stale popcorn and cleaning products, a perfume unique to grocery stores that clung to everything, even Amelia's worn cotton apron. Outside, the last tendrils of sunset painted the sky in bruised purples and oranges, promising a night as cold and indifferent as the linoleum floor beneath her feet. 
+
+Amelia ran her hand through her unruly dark curls, sighing as she finished restocking the shelves of canned tomatoes. A lone shopping cart sat forlornly at the end of the aisle, its occupant long gone, leaving behind a trail of crumbs like miniature fossils. The silence was almost unbearable, broken only by the distant whirring of the refrigeration unit and the rustling of Amelia's movements. 
+
+
+She glanced at the clock above the break room door: 10:47 PM. Closing time was in ten minutes. Time enough to finish stocking this aisle, run through the till one last time, and escape into the relative warmth and anonymity of her apartment building. But tonight, something felt different. A prickle of unease ran down Amelia's spine, as if someone or something watched her from the shadows. 

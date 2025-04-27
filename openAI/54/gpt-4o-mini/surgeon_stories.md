@@ -1,0 +1,11 @@
+**Title: Beneath the Knife**
+
+**Setting:** The story unfolds in the bustling city of Chicago, known for its towering skyscrapers and vibrant cultural mix. In the heart of the city is St. Margaret’s Hospital, a prestigious yet under-resourced medical facility situated in a neighborhood that blends historic charm with modern chaos. The sterile scent of antiseptic fills the air, mingling with the distant sounds of sirens wailing outside and the hurried footsteps of medical staff navigating the crowded corridors. Neon lights flicker outside the emergency wing as night falls, casting an otherworldly glow on the faces of patients and visitors alike.
+
+**Opening:**
+
+Dr. Eleanor Judith Hawthorne stood over the operating table, her gloved hands steady as she prepared for another complex surgical procedure. The bright lights overhead illuminated the expanse of the sterile room, casting sharp shadows that danced across the walls. She could hear the hum of the monitors and the faint beeping of the heart rate tracker, a symphony of life and death that marked her every waking moment. With a practiced eye, she surveyed her team—each member poised, ready to follow her lead. 
+
+Eleanor had grown accustomed to the high-stakes environment of St. Margaret's, where every decision had the power to save or shatter a life. Her mind raced through patient charts and medical histories, every detail etched into her memory like scars of experience. As she looked down at the young man lying unconscious before her, an accidental victim of a drive-by shooting, she felt the familiar weight of responsibility settle upon her shoulders. Here, in this moment, she was not just a surgeon; she was a guardian angel, armed with scalpel and skill, determined to rewrite the ending of a story that might have been all too brief.
+
+But as she took a deep breath and focused on the task ahead, a lingering thought teased the edges of her mind: What happens when the lines between saving a life and pushing the limits of medicine blur? In the world of surgery, every choice mattered, and Eleanor was about to find out just how far she was willing to go.

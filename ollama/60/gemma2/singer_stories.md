@@ -1,0 +1,4 @@
+The humid air hung thick over Nashville like a damp blanket, clinging to Amelia Rose Harper's skin as she pushed through the throngs of tourists clogging Broadway. The neon lights from honky-tonks pulsed in her vision, creating an erratic rhythm that mirrored the anxious beat of her heart.  She adjusted the strap of her worn guitar case and squinted at the stage of Tootsie's Orchid Lounge, a landmark she'd dreamt of playing since she was a girl belting out country ballads in her grandmother's dusty living room. Tonight, it could be hers. 
+
+
+The roar of the crowd inside the bar washed over Amelia like a tidal wave, drowning out her own nervous whispers. Her fingers tightened on the case, knuckles turning white against the faded denim. She wasn't just here for a shot at the open mic night; she was here to prove something - to herself, and maybe, just maybe, to the world that this small-town girl with big dreams could make it in Music City.  

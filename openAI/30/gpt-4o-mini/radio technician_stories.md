@@ -1,0 +1,11 @@
+Title: Echoes in the Ether
+
+Setting: The small coastal town of Windhaven, tucked between rugged cliffs and a restless ocean. The air is thick with the scent of salt and pine as waves crash against the rocks, their rhythmic roar offering a constant backdrop to life in this secluded hamlet. At the edge of town, an old brick building stands, partially obscured by tall grasses and wildflowers—this is the home of KWAV, Windhaven’s local radio station. Its weathered sign swings lazily in the sea breeze, the letters peeling but the spirit of communication still palpable within.
+
+Opening:
+
+Parker Jameson stood at his workbench, the warm glow of antique lightbulbs illuminating the clutter of tools and equipment that surrounded him. A soft hum filled the cramped space, resonating with the familiar crackle of radio waves permeating the air. It was here, amidst the wires and circuits, that Parker felt most at home—a radio technician by trade, but a dreamer at heart. He deftly adjusted the frequency dial of the old analog transmitter, his hands moving with a practice born from years spent coaxing life into the machines that connected the town of Windhaven to the world beyond.
+
+As dusk began to cast long shadows across the room, Parker peered through the smudged glass of the studio window, watching the sun dip below the horizon. The vibrant oranges and purples painted the sky, but it was the sight of the sea against that backdrop that drew his gaze—the vast, mysterious expanse that mirrored the waves of his own thoughts. Ever since his childhood, Parker had been captivated by the stories that traveled over the airwaves, each static-filled transmission igniting a spark of adventure in his imagination. With each click and pop of the transmitter, he saw himself as part of that great tapestry, a voice echoing into the ether. 
+
+But tonight, there was something different in the air—a tingle of anticipation that crackled like energy through the wires. He could feel it in his bones, and as he tuned the station to the evening broadcast, he had no idea that this night would change everything for Windhaven and for him.

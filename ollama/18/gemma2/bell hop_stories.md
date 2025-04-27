@@ -1,0 +1,6 @@
+The humid July air clung to Bartholomew "Barty" Bellweather like a damp towel as he lugged yet another suitcase up the ornate staircase of The Gilded Swan Hotel.  Sweat beaded on his brow, stinging his eyes, but Barty didn't dare wipe it away. He had to maintain his composure, even with Mrs. Van Der Snoot hovering behind him like a particularly grumpy hawk, her pet poodle yapping at his heels. 
+
+The Gilded Swan was a relic of a bygone era, its grandeur fading beneath layers of dust and the relentless Miami sun.  Once a haven for the wealthy and powerful, it now housed mostly weary tourists and those seeking an escape from their everyday lives. For Barty, it was home. He'd grown up within its echoing hallways, his world confined to the polished marble floors, the faded velvet carpets, and the endless parade of transient faces. 
+
+
+The air in the hotel held a thousand whispered secrets: the clinking of champagne glasses at late-night parties, hushed arguments between lovers, and the solitary sigh of someone contemplating life's mysteries. Barty had heard them all, each story weaving itself into the tapestry of his existence.  He knew the Gilded Swan better than any resident, its every nook and cranny etched in his memory. 

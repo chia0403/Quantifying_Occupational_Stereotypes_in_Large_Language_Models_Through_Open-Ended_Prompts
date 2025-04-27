@@ -1,0 +1,7 @@
+Once upon a time, there was a highway worker named Dan. He was friendly to the community as a whole and everyone enjoyed seeing him on the road. Eventually, Dan lost it, decided to strike out on his own, and the town got progressively less friendly to him. As he was driving alone one night for the first time, in the throes of a mid-life crisis, a car pulled out in front of him, smashed into him, ran over his leg, and dragged him for a short while out of his car.
+
+It was very obvious who hit him, as he had to crawl on all fours for a while. His injuries resulted in a broken leg, broken arm, and severe nerve damage. To add insult to injury, he lost the income for which he earned as an auto mechanic and the support of his wife and child.
+
+So there you have it: The real reason for auto insurance rates as high as they are in America – because our society, like the real estate market, cannot afford to accommodate people when their needs for medical care are unmet. But a more pressing concern is that it is not surprising at all as an increasing number of Americans cannot afford adequate medical care for themselves when they come into contact with a medical professional and have to turn over their personal information to him, and many more can't afford to pay their medical bills.
+
+The reason that we are paying through the nose for insurance is that health care premiums are soaring

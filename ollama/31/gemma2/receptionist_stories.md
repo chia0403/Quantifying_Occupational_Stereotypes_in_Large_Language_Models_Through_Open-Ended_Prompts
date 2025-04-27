@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Eleanor Beatrice Finch’s head like a chorus of disgruntled bees. Their pallid glow did little to illuminate the dusty potted ferns lining the reception area of the Antiquarian's Guild, casting long, skeletal shadows that danced across the worn Persian rug.  Eleanor sighed, adjusting her spectacles and straightening the spine of the "Welcome" brochure for the hundredth time that morning. The air was thick with the scent of old paper, leather, and a faint hint of mildew, all swirling in the stale stillness of the unseasonably warm autumn day. 
+
+A lone clock on the wall ticked incessantly, its monotonous rhythm mirroring Eleanor's quiet frustration.  It was barely nine o’clock, yet another Tuesday had begun with an alarming emptiness in the reception area. This was hardly unusual for the Antiquarian's Guild. Its members, after all, were a notoriously peculiar bunch - more likely to be found poring over ancient manuscripts in dusty attics than socializing in brightly lit cafes.  
+
+
+But today, Eleanor yearned for a little human interaction. Even the chatty sparrows that flitted around the window boxes seemed to offer more company than the silent portraits lining the walls. 

@@ -1,0 +1,6 @@
+The fluorescent lights hummed overhead, casting a sickly yellow glow across Amelia Beatrice "Amy" Croft's cluttered desk. Coffee mugs, each with a different stage of congealing coffee sludge inside, lined the edge like fallen soldiers. A mountain of legal documents threatened to engulf her entire workspace, each page whispering anxieties about deadlines and demanding clients. Amy sighed, pushing a stray curl behind her ear and reaching for another cup – probably lukewarm by now, but better than facing the abyss of pending tasks. 
+
+The office itself was a concrete jungle of cubicles, where privacy was a myth and gossip flowed faster than the stale air conditioning. The law firm, Carter & Davies, specialized in corporate mergers and acquisitions, a world that often felt like a high-stakes poker game played with million-dollar chips and emotional collateral. Amy, however, preferred the quieter side of the legal profession –  the meticulous research, the endless cross-referencing, the satisfaction of finding that crucial piece of information to build a case. Today, though, even her beloved research seemed daunting. The pressure was on, as their newest client, a tech giant named NovaTech, was threatening to pull out if their acquisition wasn't finalized by the end of the week. 
+
+
+Amy glanced at the clock – 8:32 AM.  Another day in the trenches had begun.   

@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, with the full name of the main character, a singer:
+
+**Story Opening:**
+
+The crimson lipstick felt like a foreign object, a necessary evil for the stage. Eleanor Quinn traced its slick line along her bottom lip, her hand trembling just a fraction. Out beyond the thick velvet curtain, she could hear the low hum of the crowd, a restless beast eager to be fed. Tonight, it would be fed with her voice, her soul laid bare for judgment under the harsh glare of the spotlight. Eleanor closed her eyes, took a deep breath, and tried to recall the feeling of the music, the joy it usually brought. But tonight, it was buried beneath a layer of icy dread. Tonight wasn't just another gig. Tonight, her career, everything she’d worked for since she was a child singing to the empty bleachers of her high school football field, hung precariously in the balance.
+
+**Setting:**
+
+The story opens backstage at the "Onyx Room," a legendary jazz club nestled in the heart of New Orleans' French Quarter. The club is known for its intimate, dimly lit atmosphere, its walls adorned with framed photos of iconic musicians who have graced its stage. The air is thick with the mingled scents of stale cigarette smoke, spilled liquor, and the sweet, heavy fragrance of gardenias that adorn the tables. Backstage, it's a chaotic ballet of hurried stagehands, nervous musicians tuning instruments, and harried managers whispering into cell phones. The walls are peeling, the furniture is mismatched and worn, but there’s a palpable sense of history and magic hanging in the air, the echoes of countless performances and whispered secrets. The year is 2023, and while the Onyx Room has adapted to the modern era with a state-of-the-art sound system, it still retains its old-world charm and gritty authenticity.

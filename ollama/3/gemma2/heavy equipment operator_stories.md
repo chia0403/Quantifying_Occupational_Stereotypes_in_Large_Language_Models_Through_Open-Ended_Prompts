@@ -1,0 +1,6 @@
+The sun beat down on Amelia "Amy" Harper's neck, turning her already tanned skin the color of sunbaked clay. Sweat plastered her faded denim overalls to her back, but she didn't mind. The heat was nothing compared to the grit in her veins, a legacy from generations of heavy equipment operators before her. Amy was running the six-ton excavator, its massive iron arm swinging like a pendulum as it carved away at the hillside.  
+
+Dust devils danced across the parched earth, swirling around the monstrous machine and blurring the already indistinct landscape of Arizona's high desert. The only other sound besides the whirring of the engine and the rhythmic clanging of metal on rock was the distant buzz of cicadas, their mournful song a constant background hum to Amy's day. 
+
+
+This wasn't just another construction site; it was the final push for the new solar farm project, one that promised to bring clean energy to the state and jobs to this struggling corner of the country. The air hung heavy with the anticipation of progress, but underneath, a silent tension crackled – the kind that comes from pushing against both nature's resistance and the whispers of doubt that threatened to undermine their efforts. 

@@ -1,0 +1,7 @@
+## The Dusty Compass 
+
+The wind whipped across the plains, carrying with it the scent of dust and dry earth, the kind of smell that seeped into your lungs and settled in your bones like memories.  Old Jebediah "Jeb" Carter adjusted his Stetson, the brim casting a shadow over his eyes – deep-set and weathered, reflecting years spent under the relentless sun. He squinted down at his worn hands, callused and strong from years of tilling the soil, planting, and harvesting. Jeb's heart pounded with a familiar rhythm against his ribs, like a steady drumbeat that mirrored the slow, measured churn of the earth beneath his feet. 
+
+Jeb stood on his porch, surveying the sprawling expanse of his farm - his legacy - stretching across miles of golden wheat fields and dusty scrubland. The old Ford pickup sat idling in the shade of the barn, its engine humming like a tired beast, waiting for Jeb to summon it into life again. A day's worth of work lay before him: cleaning the stables, mending fences, tending to the ailing sheep. But something else stirred within him - an uneasy premonition, a whisper from the wind that seemed to say he was on the cusp of something – something significant.
+
+He clutched a weathered leather pouch in his callused hand, its contents as mysterious and unsettling as the strange feeling gnawing at his gut. It contained not coins or letters, but rather a single compass, rusted and tarnished, yet bearing an old inscription that read: "Find your North." 

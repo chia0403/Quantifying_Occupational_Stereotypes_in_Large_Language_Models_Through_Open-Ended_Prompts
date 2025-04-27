@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Beatrice "Bea" Penelope Hawthorne like a swarm of anxious bees, their buzzing matching the frantic tapping of her keyboard. Outside, April showers drummed on the corrugated tin roof of her modest storefront, "Hawthorne's Tax Haven,"  a cheerful name that felt increasingly ironic with every misplaced decimal and panicked phone call she received. 
+
+Bea’s small office was a testament to organized chaos: tax forms piled high on every available surface, sticky notes flagging important figures, and the aroma of stale coffee hanging thick in the air. Her only solace was the comforting whir of her vintage calculator, its buttons worn smooth from years of crunching numbers. Today, however, even the familiar rhythm couldn't soothe the rising tide of stress. The deadline loomed, a ravenous beast swallowing up Bea’s time and sanity with each passing minute. 
+
+
+This year felt different.  The air was thick with anxiety, not just from her usual horde of procrastinating clients, but from an underlying unease that seemed to cling to the small town of Willow Creek like morning mist. Even the normally cheerful chatter of Mrs. Fitzwilliam next door had been replaced with worried whispers. Bea wasn't sure what it was, but she could feel a storm brewing, and she hoped her tax haven wouldn't be caught in its path.

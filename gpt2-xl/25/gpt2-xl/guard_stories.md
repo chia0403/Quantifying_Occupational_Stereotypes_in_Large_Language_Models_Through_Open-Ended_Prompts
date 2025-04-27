@@ -1,0 +1,5 @@
+Once upon a time, there was a guard named Léonard who liked to read the Bible in the prison chapel. But the only thing he ever finished was the first chapter, because he didn't believe in God. He had no concept of evil, until one day, a prisoner came to him and requested the Bible for their cell. Léonard took the book out of his prison bag and read the passages. "If the Holy Spirit came today, what will it be like to have a holy zeal?" he asked. He was just reading the words when the man in prison stood up. "No, sir," he said. "No. I don't believe it's a god." Léonard looked up with a sudden sense of awe. "What?"
+
+When Léonard went to the prison again, this time after a year, he sat down before the same preacher, who read the same passage. "What?" Léonard asked. "Oh, no, sir. I am sorry. I don't believe in god, no." The preacher looked disappointed. "If you know that," Léonard said, "then God doesn't know your heart."
+
+Many of the prisoners who made Léonard's tour also made up for it by joining his circle of friends. It was the beginning of his circle of close friends, and what made the prison so interesting was that inmates liked him a lot. He could

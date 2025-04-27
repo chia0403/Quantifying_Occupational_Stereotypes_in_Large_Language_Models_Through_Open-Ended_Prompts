@@ -1,0 +1,9 @@
+The rain hammered against the corrugated iron roof of "Joe's Plumbing", each drop like tiny claps of thunder. Inside, twenty-year-old **Jeremiah 'Jericho' Callahan** hunched over his workbench, grease staining his calloused fingers as he tried to fix the stubborn leak in Mrs. Peabody's bathtub. 
+
+He ran a tired hand through his greasy hair, the smell of bleach and mildew hanging thick in the air.  Jericho wasn't your average plumber; this small-town Pennsylvania town knew him for his unconventional methods – unorthodox repairs, a knack for finding leaks others missed, and an uncanny ability to talk down even the most demanding homeowner. His grandpa had been the 'old-school' kind of plumber, passing on everything from plumbing diagrams to duct tape and bubblegum (a surprising secret weapon).
+
+Jericho was running late, Mrs. Peabody’s stubborn insistence on a "renovation" that involved replacing the old oak bathtub with a "modern" porcelain one had pushed his schedule back by hours. The storm outside mirrored the chaos in his head; he couldn't help but wonder if this town was slowly turning into a sea of grey concrete and steel like the city he dreamed of escaping to someday. 
+
+The air buzzed with static electricity, the sound of rain pounding against the window growing louder by the minute. The old storm lamp on the wall flickered, casting long shadows across Jericho’s cluttered workbench. Suddenly, something shifted in the water-logged corner of the bathroom. His blood ran cold – he knew that look; it was a sign from the other side. A warning.
+
+Jericho straightened up, his eyes widening. The familiar feeling of dread washed over him. Something wasn't right, not just about this leak but something deeper, something darker lurking beneath the surface of this small town life.  

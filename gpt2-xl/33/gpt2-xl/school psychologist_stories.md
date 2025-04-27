@@ -1,0 +1,7 @@
+Once upon a time, there was a school psychologist named Dr. John Green, and he was a very, very big deal. After he left the University of Texas, Green went to work for the University of Illinois, where he had the good fortune of becoming the school's counseling chair, and he was in great demand as a speaker and a professor. He left those jobs only three days before he died of lung cancer.
+
+The day before his death, Green was in a press conference in his honor. But at that same press conference Green expressed concern that his fame was being overshadowed by a new, more radical kind of psychology, called behaviorism. The first time I heard Green's name, I thought it was some kind of joke. When the second time I heard him mentioned, I knew that the psychologist was dead.
+
+Green had been very, very popular with psychologists, and after his death there were a few people who wanted to claim Green as their own. I thought it might be nice to read all the references that Green had made to himself in his own published work, for the amusement of those who had never heard of him. I put out two of these articles, and they were so popular that I did another one later on.
+
+But back to the story. I went to the library, and there were some 500 volumes on psychology. I ordered 10 books about behavioral psychology, and all of them had to be typed, because the library in California was so

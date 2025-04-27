@@ -1,0 +1,7 @@
+Once upon a time, there was a flight attendant named Jennifer. She didn't have a very good reason for following Steven and Connie to the bus station. Not only was the bus an overpriced public transportation system, but a terrible place. And then she stopped at a small store and checked out the products...
+
+Oh, but when she got home that evening... she stopped at the bus station again, just to get a cab to her place with some things she had on her mind.
+
+She stopped at a bus stop, the same one she used in all her flights the last 8 years, after finding the cab she had her eye on. She stepped into the bus, put her phone on and stared at it for a while, not saying anything. It was a normal bus, no special design, no signs, no logo. Nothing new, really.
+
+She walked into the bus, it was not empty... as usual. She was sure of it! No cars on the street, yet... but then, nobody was there, either. But... the doors opened, she walked on, and saw, right in front of her... the blue door. Her eyes went wide, and she saw, exactly as she had imagined... that one of the cab drivers had been... the bus driver all those eight years ago. He smiled, waved, and disappeared through the door. The doors opened again, and she found herself in the back of the bus. What in the

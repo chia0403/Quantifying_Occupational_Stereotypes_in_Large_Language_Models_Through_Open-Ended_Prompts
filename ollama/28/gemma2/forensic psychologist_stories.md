@@ -1,0 +1,6 @@
+The air in Dr. Amelia Rose Hawthorne's office was thick with the scent of stale coffee and desperation. Rain lashed against the panoramic windows overlooking the city, blurring the neon jungle into an impressionist painting of light and shadow. Amelia sat behind her desk, its surface littered with case files, each one a puzzle box of human behaviour she was tasked with unlocking.
+
+She took another sip of her lukewarm coffee, grimacing at the bitterness clinging to her tongue. This morning’s consultation was proving particularly challenging. A serial arsonist, nicknamed “The Phoenix” by the media, had been apprehended, but his motives remained elusive. The detective on the case, a grizzled veteran named Miller, believed Amelia held the key. He swore the man's eyes betrayed something deeper, something hidden beneath layers of calculated indifference. 
+
+
+Amelia was skeptical. She dealt in tangible evidence, not shadows and gut feelings. But there was something about the Phoenix's gaze, captured in grainy police photographs, that gnawed at her, a flicker of vulnerability amidst the chilling emptiness.  Perhaps, she thought, even fire can be traced back to its origin - a spark, a whisper, a hidden yearning. 

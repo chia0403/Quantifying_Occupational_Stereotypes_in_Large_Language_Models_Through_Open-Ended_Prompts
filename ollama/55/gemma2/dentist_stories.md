@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Dr. Eleanor Vance's head, casting a sterile glow over the gleaming chrome and stainless steel of her dental practice.  Outside, the humid August air in New Orleans pulsed with the rhythm of jazz music spilling from an open doorway down the street. Inside, it was quiet, save for the rhythmic whirring of the suction apparatus and Eleanor’s own measured breaths as she prepared to examine Mr. Bartholomew Dubois. 
+
+Bartholomew, a fixture in her practice since childhood, sat hunched over in the chair, his weathered face creased with worry. His eyes, usually bright and full of mischief, were clouded with pain, reflecting the throbbing agony he'd been enduring for days. Eleanor couldn't help but feel a pang of sympathy; Bartholomew was more than just a patient, he was a friend, a reminder of her childhood summers spent on his porch swing, listening to his tales of New Orleans magic and history.  
+
+
+Now, staring at the man through her surgical mask, she saw not only his pain, but also a vulnerability that tugged at her heart. It was this combination – the medical challenge and the personal connection – that kept Eleanor going, that fueled her passion for dentistry in this vibrant city. 

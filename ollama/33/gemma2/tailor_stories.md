@@ -1,0 +1,6 @@
+The air hung thick with the scent of lavender and cedarwood in Beatrice Everly's workshop. Sunlight streamed through the dusty attic window, illuminating motes dancing in the warm air. Beatrice, her brow furrowed in concentration, carefully adjusted the collar of a sapphire velvet waistcoat, humming a tuneless melody under her breath. The worn leather of her work table was scarred with years of stitching and shaping, each mark telling a story of garments past. 
+
+Her workshop, nestled above Mrs. Peabody's bustling bakery on Thistle Street, was Beatrice's haven. A symphony of fabrics swirled around her – bolts of silk shimmering like captured rainbows, rough tweed whispering tales of country life, and sturdy linen promising comfort and durability. Each thread held a promise, a chance to transform the ordinary into something extraordinary.  Beatrice prided herself on crafting not just clothes, but emotions, dreams woven into tangible form. 
+
+
+Today, however, Beatrice felt a tremor of unease beneath her usual calm. A crumpled note lay forgotten on her workbench – an invitation to a grand ball hosted by Lord Ashton himself. An event for the city's elite, whispered about in hushed tones at the bakery downstairs. An opportunity she usually wouldn't consider, yet one that now tugged at her with an irresistible allure. 

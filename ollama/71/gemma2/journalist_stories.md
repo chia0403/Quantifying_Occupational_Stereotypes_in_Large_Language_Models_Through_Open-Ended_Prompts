@@ -1,0 +1,5 @@
+The flickering neon sign outside the "Blue Flamingo" cast an unsettling, sickly green glow on Evelyn Rosalind Sinclair's trench coat as she stepped out into the humid Miami night. Rain slicked the cracked pavement, reflecting the city’s chaotic energy back at her like a funhouse mirror. It wasn't the glamorous Miami of glossy brochures; this was a city where dreams drowned in cheap tequila and ambition choked on the salty air. Evelyn, with her rumpled trench coat and perpetually worried frown, was as much a part of its grimy underbelly as the overflowing dumpsters and the shadows that clung to every corner.  
+
+She adjusted the strap of her worn leather satchel, feeling the weight of her notebook and recorder against her hip. Tonight's story wouldn't be easy. She had a tip about a shadowy figure pulling strings in the city's underbelly, someone who whispered deals in smoke-filled backrooms and left behind bodies that washed up on deserted beaches. Evelyn wasn't sure what she was walking into, but she knew one thing: the truth always had a way of getting out, even in a city like Miami. 
+
+

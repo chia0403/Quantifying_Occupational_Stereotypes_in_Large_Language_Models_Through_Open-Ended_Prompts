@@ -1,0 +1,7 @@
+Once upon a time, there was a server named 'Dread Pirate Roberts'. He was located on the Tor network, accessible by thousands of people, working behind the scenes to bring to life the fantasy world of the internet. Every day, I logged on and looked at his earnings, hoping to learn which games he was running, and what he was up to. When he finally opened his mouth, all I could hear was talk that I knew was false."
+
+He continued, "He said that he had access to over 100 people and they were all contributing significantly to his profits. It was in my view utterly ridiculous, as none of the people he 'connected' had done anything."
+
+"The more my investigation went on the more I found out about his operation and his team; a bunch of crooks. When you look at their evidence, the only people they were really interested in were myself and a few others who had the ability to get in. If I had been a bank he had no respect for, he would have left it to my lawyers to sort out."
+
+As the story went on, we found out that the man behind the website has a history of run-ins with law enforcement: in 1997, he was arrested again, this time under the US Computer Fraud and Abuse Act. This past June, the Department of Justice charged Dread Pirate Roberts, the owner of the Silk Road website, with one count of narcotics trafficking conspiracy. This is the same Dread

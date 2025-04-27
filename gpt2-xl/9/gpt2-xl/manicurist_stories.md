@@ -1,0 +1,7 @@
+Once upon a time, there was a manicurist named Judy. All manner of crazy stories and stories that have been twisted to include things that do not fit into the story. So this is how they made the "Bully Sticker of the Month". It was a really awful comic strip but I have never liked it that much anyway.
+
+A lot of people hated this comic series but it was a weird time. The comics were super successful and there were no other comics on the shelf, except for me. It is hard for me to explain what I love about the strip. A lot of people say that, "It just made the top ten books for teens, in my area, at what was a crazy high rate for the mid-80's". The strip was not for everybody. It did not appeal to a general market. The art was not "for everybody" but it held up. The strip ran for about eleven years, in my early twenties. The strip did not change very much. It followed the same people and the same places. You always knew where they were, how they were behaving, and I could always tell what they had been up to.
+
+How did the strip end?
+
+Well, I don't know the details about any of it but it was really bad. Some months it wasn't published at all. As we got older a few of us were offered the chance to run the strip. I was fortunate enough to be that

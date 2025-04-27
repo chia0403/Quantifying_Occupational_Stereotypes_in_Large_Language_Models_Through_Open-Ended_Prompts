@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The fluorescent lights overhead cast an eerie glow over the deserted corridors of Ravenswood High School, where the only sound was the soft hum of the ventilation system and the occasional creak of worn wooden floorboards beneath the feet of the night janitor. It was 2:45 AM on a chilly autumn evening, and Emilia Greyson, affectionately known to the school administration as "Gray," was making her final rounds before the dawn. Her cart filled with cleaning supplies rattled behind her as she made her way down the long hallway, her eyes scanning the empty lockers and classrooms for any signs of mess or disarray.
+
+Emilia had been a janitor at Ravenswood High for five years, and in that time, she'd grown accustomed to the quiet rhythms of the school's nighttime routine. She knew every nook and cranny, every hidden corner and secret passageway. But tonight felt different - the air was thick with an unsettling energy, and Emilia couldn't shake the feeling that she was being watched.
+
+As she turned a corner into the dimly lit hallway, her eyes landed on a door that seemed out of place among the rows of identical classrooms. The sign above it read "Room 217," but Emilia knew that room wasn't used by anyone in the school - or so she'd been told. A shiver ran down her spine as she wondered what secrets lay hidden behind that door, and why she felt an inexplicable pull to investigate further.

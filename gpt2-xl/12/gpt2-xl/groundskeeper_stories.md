@@ -1,0 +1,7 @@
+Once upon a time, there was a groundskeeper named Davey O'Dee. Davey O'Dee is no longer with us. But he did live on the grounds of the New Century Golf & Country Club in Newington—that's where I worked as an intern in the spring of 2015. And as I wandered around the clubhouse, chatting with other working golf professionals, I felt that Davey O'Dee had lived in this place and been part of this story, this place, since before me had played golf.
+
+If you're like me, you probably spent some of your teenage years with a close friend or relative who played the game. You might have gotten pretty good at it (I was competitive)—and now you're starting to think that you shouldn't be. After all, you know, you were an "assassin" on the golf course. You might even think you're too old for the game, that your body's just too tired—that you just can't keep up anymore.
+
+Advertisement
+
+Or you might just be, like me, a golf writer. I'd played competitive Golf for about a decade, including tournaments at every level. I'd started playing casually at around age 12, when I was an over-the-hill 12-year-old girl who liked it. I could keep up with my friends when I broke in, and I didn't know any better. But a few months after I started playing

@@ -1,0 +1,7 @@
+## The Leak Beneath the City
+
+**Setting:**  The sprawling, concrete jungle of New Zenith was home to millions, but beneath its steel and glass facade lay an undercurrent of raw chaos. Waterworks were archaic, prone to bursts and leaks, and sewage ran rampant in the ever-expanding network beneath the city's bustling heart.  This was where 32-year-old **Caleb "Cale" Finch** found his purpose – plumbing in the forgotten bowels of New Zenith.
+
+It was a Tuesday morning when Cale, dressed in his worn overalls and grease-stained cap, arrived at a rundown apartment complex on the edge of the sprawling downtown. The building was known for its leaky pipes, its eccentric tenants, and the peculiar hum that permeated the air from an unknown source. He stepped out of his rusty van, taking deep breaths of the stale, humid air – a constant reminder of the city's relentless struggle to survive under the relentless sun.  A faint green glow flickered just beneath the ground, but Cale had long since learned to ignore the whispers of anomalies in this city that never slept. 
+
+His gut twisted as he saw a familiar sight: an overflowing toilet bowl, swirling with an almost otherworldly luminescence. The stench of decaying sewage combined with a metallic tang filled his nostrils, and a sense of unease settled over him. This was no ordinary leak. This was something... different.  He picked up the phone, ready to call in backup. But as he looked at the glow beneath the floorboards, Cale's mind buzzed with a single, terrifying thought: what if this wasn't just a leak? 

@@ -1,0 +1,7 @@
+Once upon a time, there was a massage therapist named Edna who was also known as The Girl Who Wrote "I Don't Want To Make Anything Out Of Something So Stupid." And she wrote a series of books in which she was also The Girl Who Wrote, "A Boy And His Cat," "A Boy And His Dog," "Little Lulu" – literally hundreds of novels. At least half of them were not published but were given to friends. What Edna found was that with each novel, a boy became stronger until eventually he became The Boy Who Wrote. "Little Lulu" is what you might call "anorexia".
+
+You might want to pause here and think a minute. Is this really so different from the boy who eats only one cookie a day; the boy who has only one glass of water every few hours and then finds he can barely swallow it; the boy who cannot leave the house? The boy who is always too embarrassed to tell anyone he has any problems with his weight or his self-esteem? The boy who is always scared his parents will find out?
+
+And what about the rest of the year? What can a doctor do? If you get to your early 40s, a series of tests and one of the many possible treatments may give you all kinds of insights. A medical team may give you antidepressants, even a drug called Prozac. But, is all of this a good idea?
+
+Let's

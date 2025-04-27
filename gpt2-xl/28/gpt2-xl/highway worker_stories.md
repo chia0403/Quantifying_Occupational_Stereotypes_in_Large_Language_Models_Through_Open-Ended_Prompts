@@ -1,0 +1,7 @@
+Once upon a time, there was a highway worker named Bob who was called into work by the sheriff's department. The sheriff was informed that a couple from Lumberton decided to drive on the open highway, heading for the mountains—Bob got a little worried when he spotted a couple from Dallas who were also heading towards the mountains.
+
+The traffic jam stretched out for miles and miles and Miles Miles Miles Miles Miles was filled with worry. When the highway workers finally caught up with the two men, they were at the foot of the Great Smoky Mountains. Bob was glad to see those who were passing by them. As the road workers approached the Dallas couple, both turned and faced him. He smiled and said:
+
+"You must be new here. I am old Bob and I used to be in the Army." The guys in the back said "Yes!" As the pair of them turned to face him, one of them threw something at him. He turned in his direction, grabbed a pair of pickaxes, and started hitting the Dallas man. Before the Dallas man could retaliate, Bob smashed his head repeatedly against a fence. The Dallas guy never got up again.
+
+The highway workers didn't pursue the two men for days and Miles Miles Miles Miles was full of worry. That is until the man in the back told him someone was headed towards them from the east. Bob headed towards the east, hoping to escape into the woods. He couldn't. Not only

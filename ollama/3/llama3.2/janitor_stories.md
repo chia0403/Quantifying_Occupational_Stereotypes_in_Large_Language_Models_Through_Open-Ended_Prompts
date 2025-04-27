@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The fluorescent lights above the dimly lit corridors of Ravenswood High School cast an unforgiving glare on the worn linoleum floor, where Winston Everett Jenkins trudged along with his trusty mop and bucket by his side. As the school's janitor, Winston took pride in keeping the halls spotless, even if no one ever seemed to notice his efforts. He had been working at Ravenswood for over a decade, and despite being tasked with cleaning up after the students' messy antics, he found solace in the quiet routine of his job.
+
+As he swept up crumbs and discarded trash from the cafeteria floor, Winston's mind wandered to the peculiar events that had been occurring around school lately. Equipment malfunctioning, strange noises at night, and an eerie feeling that someone was watching him – all of these signs hinted at something more sinister lurking beneath the surface of Ravenswood High.
+
+Winston sighed and continued his rounds, the rhythmic swish-swish-swish of his mop a soothing balm to his frazzled nerves. But as he turned a corner into the empty hallway, he stumbled upon a cryptic message scrawled on the wall in bold, red letters: "The cleaner sees all." Winston's heart skipped a beat – what did it mean, and who could have written such a ominous phrase?

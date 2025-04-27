@@ -1,0 +1,5 @@
+The flickering fluorescent lights hummed above Amelia Beatrice Finch's head, casting a sterile glow on the beige carpet and the rows of identical desks that stretched before her. The air was thick with the smell of stale coffee and unfulfilled dreams – the familiar aroma of the Harper & Sons publishing house. Amelia tapped away at her keyboard, the rhythmic click-clack a counterpoint to the muted murmur of conversations drifting from cubicle to cubicle. Outside, the sun dipped below the Chicago skyline, painting the office windows in shades of burnt orange and dusky purple, but inside, it was still precariously bright, clinging stubbornly to its daytime persona. 
+
+Amelia longed for the moment when the last emails were sent, the phones fell silent, and the clatter of her colleagues’ keyboards would fade away. Then, she could escape into the world beyond Harper & Sons – a world where the scent of freshly brewed coffee didn't mingle with despair, and where dreams weren't buried under mountains of manuscripts and rejection letters. 
+
+

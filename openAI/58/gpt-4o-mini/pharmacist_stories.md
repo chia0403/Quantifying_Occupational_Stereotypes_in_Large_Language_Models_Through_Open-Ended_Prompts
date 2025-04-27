@@ -1,0 +1,7 @@
+The rain fell in soft sheets against the window of the small pharmacy, each drop rhythmically tapping like a steady heartbeat. Nestled in the heart of Maplewood, a quaint town with cobblestone streets and timeworn brick buildings, Eliza Mae Hargrove spent nearly every day among the familiar shelves lined with bottles of medicine and colorful boxes of over-the-counter remedies. 
+
+It was a Saturday morning, the air thick with the scent of damp earth and blooming lilacs, a signal that spring was finally making its presence known after a long, harsh winter. The bell above the door jingled, startling Eliza from her thoughts as she meticulously labeled a batch of prescriptions. She looked up, her short chestnut hair framing her face, and offered a warm, genuine smile to the elderly woman who shuffled inside, clutching a tattered umbrella.
+
+"Good morning, Mrs. Thompson! What can I do for you today?" Eliza called, her voice steady and inviting, a quality she’d refined over the years spent serving the community. 
+
+With every interaction, Eliza felt the pulse of the town—a vibrant tapestry of secrets, stories, and lives intertwined. Little did she know that on this rainy Saturday, she would soon find herself unearthing a mystery that would change everything she thought she knew about Maplewood... and herself.

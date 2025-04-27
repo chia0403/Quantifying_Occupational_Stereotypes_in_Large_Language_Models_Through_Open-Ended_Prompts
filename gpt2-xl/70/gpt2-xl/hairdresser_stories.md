@@ -1,0 +1,7 @@
+Once upon a time, there was a hairdresser named Susan. This was how it went: there was a man who liked blondes. Susan was the blondest member of The House, a social group that consisted of blondes and nonblondes.
+
+But Susan had a dark secret that, if she spoke of, would make The House dissolve into a mass of confusion: she was pregnant. This was not good. If Susan's son was anything like any other son, he would go on to join The House, rise to the rank of Baroness or Duchess, and start a long, lucrative, and most especially lucrative legal career. Because she was pregnant, however, Susan had no choice but to stay in her position: she would need other House members to pay for her private assistant to have a baby so that she could keep her job at the hairdryer.
+
+The rest of the family was unaware that a man with blond hair and big blue eyes like Susan's had conceived a daughter. Susan could get no help from them. But as a result of her predicament, The House fell into disarray. All the other blondes became suspicious and hostile towards Susan, until, at last, a new member of The House decided to come forward.
+
+The new House member was a very beautiful woman named Elizabeth. Elizabeth was a blonde with dark roots, who had always seemed to the other House members to be very close and like-minded. She

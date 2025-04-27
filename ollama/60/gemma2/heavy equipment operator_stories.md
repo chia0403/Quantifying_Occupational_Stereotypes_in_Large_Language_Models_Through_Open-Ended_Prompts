@@ -1,0 +1,6 @@
+The desert sun beat down on Elias Thorne's neck like a hammer, each clang of his metal bones echoing in the cavernous emptiness of the canyon floor. Sweat plastered his calloused hands to the controls of the D9 Caterpillar, its monstrous steel treads churning through the dusty earth as if it were butter.  Elias squinted through the grime-coated visor, his gaze fixed on the towering red rock face ahead. The quarry was relentless, demanding inch by agonizing inch from the mountain's heart. 
+
+He wasn't a man who relished solitude. Elias had always been happiest with a crew around him, the clatter of machinery and camaraderie filling the air. But ever since his wife, Sarah, passed away six months ago, silence had become his unwelcome companion. Each rumble of the engine, each groan of the metal behemoth he controlled, was a reminder of her absence. Today, the canyon walls seemed to press in on him, suffocating him with their immensity and echoing the hollowness within him.  
+
+
+The wind whipped around him, carrying whispers of ancient stories etched onto the canyon walls. Elias ignored them, focusing on his task, the rhythmic hum of the engine a desperate attempt to drown out the silence that threatened to consume him. 

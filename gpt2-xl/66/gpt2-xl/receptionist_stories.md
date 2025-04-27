@@ -1,0 +1,5 @@
+Once upon a time, there was a receptionist named Jenny who answered the phone while you were out shopping. It was the 1980s. Things were different, though. The 1980s were the dawn of the age of the cellphone and dial- up internet access, which meant that customers could receive calls on the house in less than a second. They were a new frontier of service delivery, and it's how you'd place your order in the middle of what had been your quiet morning.
+
+Jenny and her colleague, Barbara, didn't use cell phones. They knew that people around them used the new technology, so they'd get on their way. They walked down the hall to their office and went in. As they waited for their order, they overheard a customer making a desperate phone call to one of their older customers at the front of the store. Barbara couldn't tell what the customer was saying, but they could see the desperation in his voice.
+
+"It's him again. He's just calling to confirm that everything's good," Barbara said, turning to Jenny. "We just don't get up to answer the phone anymore. We're not cut out to answer the phone."

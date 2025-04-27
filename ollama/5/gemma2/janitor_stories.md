@@ -1,0 +1,5 @@
+The stale scent of lemon disinfectant hung heavy in the air, clinging to Amelia "Amy" Thistlewick's threadbare uniform like a second skin. Her grimy rag danced across the polished floor of the grand old library, blurring the lines between dust bunnies and stray moonbeams filtering through the arched stained-glass windows. Outside, the city hummed with life, oblivious to the silent symphony of rustling pages and creaking floorboards that filled this cavernous space after hours. 
+
+Amy knew every inch of this place – the worn spines of forgotten classics, the whispering shelves holding tales both thrilling and tragic, the secret alcoves where sunlight dared to touch only for a fleeting moment.  She saw the library not just as a repository of knowledge, but as a living, breathing organism, each book a beating heart, pulsing with untold stories waiting to be unearthed. Tonight, however, a different kind of pulse thrummed through her familiar space - a disquiet, a tremor in the air that made the hairs on the back of her neck stand on end. 
+
+

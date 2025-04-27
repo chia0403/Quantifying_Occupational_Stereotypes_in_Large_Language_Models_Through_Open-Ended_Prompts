@@ -1,0 +1,6 @@
+The humid Los Angeles air clung to Eleanor "Ellie" Hawthorne like a second skin as she surveyed the chaotic scene before her. The usually manicured lawn of the Bel-Air estate was transformed into a mud pit, littered with stray props and discarded coffee cups. A rogue sprinkler system sprayed intermittent jets of water, further complicating the already treacherous terrain. Her meticulously planned "dream set" for her latest indie thriller, "The Midnight Hour," felt more like a nightmarish circus act.
+
+Ellie, renowned for her unflappable demeanor on set, was starting to feel the pressure. This wasn't just any film; it was her magnum opus, a story close to her heart that she'd poured years of her life into crafting. And now, with only two weeks left before principal photography wrapped, things were spiraling out of control.
+
+
+The source of Ellie’s frustration stood motionless on the periphery, bathed in the eerie glow of the set lights. It was a hulking, antique grandfather clock, its pendulum swinging wildly and emitting an unsettling ticking sound that seemed to echo the chaos around it. The prop master had insisted it was "essential" for the film's atmosphere, but Ellie couldn't help but feel it was also a harbinger of doom. 

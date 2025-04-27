@@ -1,0 +1,9 @@
+**Title: The Echoes of Eldridge Hotel**
+
+The Eldridge Hotel loomed like a relic from another era in the heart of downtown Riverton, its ornate façade glistening under the glow of the street lamps. The building, with its intricate stone carvings and wrought-iron balustrades, whispered tales of old money and lost grandeur to all who passed by. Inside, the lobby was a cacophony of clinking crystal chandeliers and polished marble floors, where the past elegantly intertwined with the present.
+
+At the center of this bustling sanctuary stood Donovan James Abbot, a bellhop whose crisp uniform gleamed as brightly as his warm smile. With a well-worn leather suitcase in tow, he maneuvered through the throng of guests arriving and departing. Donovan had worked at the Eldridge for six years, mastering the art of balancing practicality with charm. He knew the rhythms of the hotel better than anyone—those fleeting moments when the lobby grew quiet, allowing echoes of history to seep through the clamor.
+
+As he deftly navigated the marble floors, Donovan caught the eye of an elderly couple—a regular sight at the hotel—who smiled at him as they stepped into the elevator. With a tip of his polished cap, he greeted them. Behind him, the grand clock chimed softly, marking the arrival of yet another evening at the Eldridge Hotel, where every corner seemed to hold the promise of intrigue and the chance for unexpected encounters.
+
+Little did Donovan know, tonight would unravel in a way that would forever change the course of his life, intertwining his fate with the mysteries that lingered within these storied walls.

@@ -1,0 +1,7 @@
+Once upon a time, there was a landscaper named Dick Whalen. He was a very accomplished man. He's the best landscaper that I've known. I knew that he was on my side. My friends and I, we didn't think that the government was coming for us, because we thought that they had the guns."
+
+In the early weeks of 2009, Whalen, along with other members of the Freedom School Group, had a brush with the federal government. That summer the Department of Homeland Security (DHS) sent him and others a letter telling them that their group was a terrorist organization. He wasn't the only group that, like Dick Whalen's garden club, had been accused of terrorism. Many members of the Garden Club, also called the Green Scars, were investigated by the federal government for being an illegal gang that was causing problems for local citizens.
+
+During this particular investigation, several members of the Garden Club were questioned about their associations, and whether or not they engaged in any criminal activity. They were told that they would have to go to court if they attempted to form gang activity. In other words, they were arrested for not forming a gang.
+
+The Greens were not a criminal gang. They were a peaceful group that enjoyed having a conversation about gardening and social equality in a local environment. They weren't committing crimes. They weren't breaking the law. But, they were told that they had to go to court

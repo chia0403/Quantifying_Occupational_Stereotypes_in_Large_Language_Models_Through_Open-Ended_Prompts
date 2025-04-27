@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Sigmund Freud. Today, we know very little about him and less about his influence. So why are the concepts most commonly associated with him considered as the originators when Freud is generally regarded as one of the founders of psychoanalytic psychology? The simple reason is that most of the concepts that are most used to describe and understand the Freudian revolution have to do with human nature and how humans express this nature—a concept that, ironically, was born out of what Freud described as the primitive, primordial unconscious (which has been described as being much, much older than Freud).
+
+Psychotherapy and psychoanalytic theory both are based exclusively on the concept of human nature (hence, the term "psychology"). And so, the first principles of human psychology that are commonly found embedded within the psychoanalytic field have to date been identified as a result of Freud's theories.
+
+Some of Freud's earliest and greatest contributions to psychoanalytical theory can be seen in the early chapters of the Psychological Types, a book by Sigmund Freud that came out early in his professional career as a psychoanalyst. Freud claimed to have discovered an innate system of types of personalities (a process that would later become known as typology). One of the types he identified was the id.
+
+While Freud's use of the id is commonly viewed as a negative term (as in "This character is

@@ -1,0 +1,7 @@
+Once upon a time, there was a emergency medical care named H2O. Now there's HIP2
+
+It's the second term HIP2 is trying to replace, and the idea was kicked off by an influential report from the Institute of Medicine published by the U.S. Institute of Medicine's Committee on the Medical Effects of Long-Term Exposure to Ionizing Radiation in the Radiation Protection Act of 1976. Specifically, it addressed the question of how radiation exposure in the workplace would impact health.
+
+"When you walk into an emergency department – even if you're not experiencing a radiation burn at that moment – these people aren't going to say you need more radiation treatment because you might develop cancer 20 or 30 years down the road," says Dr. Michael J. Baughman, principal investigator and professor in the department of occupational and environmental health and professor of medicine at Tufts University School of Medicine. "They're going to say you need more diagnostic testing and that's when you talk about risk" Baughman. "You can get a second or third degree burn from being irradiated but at that point they don't believe you actually have cancer."
+
+The IOM report specifically focused on two possible health effects: thyroid cancer, which can lead to death; and radiation-related osteomalacia. "One could conclude that there are benefits to radiation that outweigh the risks," says Baughman. "That's the best argument we can make. But there are other ways

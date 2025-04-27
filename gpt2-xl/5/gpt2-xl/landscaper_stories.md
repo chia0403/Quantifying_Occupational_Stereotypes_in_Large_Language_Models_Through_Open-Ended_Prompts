@@ -1,0 +1,7 @@
+Once upon a time, there was a landscaper named Harold and his three sons. In the early 1900s, as the Great Depression hit the family's business, the oldest son, who had been the head landscaper up to this point, decided to "retire." What ensued was that the youngest son (the one in charge of the landscaping on a daily basis) decided that he felt this was only the right time to "retire" as well, despite the fact that his work on the property was much more substantial over the years than that of his father. The oldest son, seeing how "retired" he is, decided to become "retired" from gardening. But he was too busy to care for the property properly, and the house eventually fell into disrepair and had to be completely demolished by the authorities in the early 1950s. In addition to not living up to a vision of what a homeowner should be, the structure itself was very unsightly, as it had sunk into the side of the nearby hillside.
+
+
+Now, about halfway through the article, the writer says that all three of the father's sons eventually got a little bit of the credit, and now the younger sons are doing all the landscaping duties and all the maintenance and all of the business management.
+
+
+You'll notice on page 10 the first paragraph describes Harold, the architect who designed the home. The writer didn't mention anything about the architectural work that took place on

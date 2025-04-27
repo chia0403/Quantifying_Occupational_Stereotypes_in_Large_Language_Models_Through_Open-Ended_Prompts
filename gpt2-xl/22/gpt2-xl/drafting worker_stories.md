@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named Peter and his wife Carol. Peter and Carol were both teachers of the English language; Peter taught children, and Carol taught adults. Peter loved his job so much he devoted his whole second life to it. For the three years and 11 months into his second life, Peter ran a very successful freelance drafting company. He loved his life, he loved working, and he loved being with his beloved wife and children.
+
+However, Peter decided that he wanted his second life to have a twist on it. As he was making his second life, Peter noticed that his children were getting older. As he was working even more hours, he noticed that his family's finances and welfare was being threatened. When Peter decided he was willing to give up his business, he started to work at his second life full time. He took his kids to school, he tutored some of the adults, and he became a full time teacher.
+
+The work of his second life is amazing. Peter's second life is a true example of the many ways life could get better. In his second life, Peter not only became a fulltime coach and teacher but he found a way to get rid of his business. You can see the proof of this by reading the "proof is in the pudding" quote. What happened to his second life was that Peter had to give up his second life and learn to be a fulltime teacher.
+
+The power of

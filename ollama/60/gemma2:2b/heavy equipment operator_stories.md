@@ -1,0 +1,4 @@
+The desert wind whipped across the construction site, carrying with it the faint scent of burnt diesel and the promise of another scorching Arizona day.  Dust devils danced around the colossal earthmover, its massive claw poised like a metal beast about to devour the earth itself. Its namesake, **Magnus "Mac" Peterson**, sat in the cab, knuckles white as he gripped the controls. Years spent clawing at life's unforgiving corners had left him hardened and weathered, but his smile, when it finally came, was genuine.  His eyes, however, were trained on the distant horizon, reflecting a yearning for something more than just another day in the endless churn of the construction boom. 
+
+
+ **Setting:** A desolate Arizona desert, miles away from civilization with only the rustle of wind and the rumble of machinery as companions. The site is mostly comprised of flat plains covered in sand, punctuated by the towering structure of a new housing complex.  

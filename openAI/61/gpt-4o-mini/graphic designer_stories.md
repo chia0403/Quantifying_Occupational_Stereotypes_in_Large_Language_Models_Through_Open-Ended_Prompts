@@ -1,0 +1,9 @@
+**Title: Fragments of Light**
+
+**Setting:**  
+In the heart of a bustling metropolis, where towering glass buildings gleam under the sun and the streets pulse with life, a small, vibrant studio sits nestled between a quaint coffee shop and a vintage bookstore. Inside, the walls are adorned with colorful prints and inspiring quotes, each piece a reflection of the creative energy that flows through the space. The scent of roasted coffee beans mingles with the faint trace of paint and ink, while the hum of conversations and city sounds vibrate through the large, open windows. It’s a perfect blend of chaos and calm—a haven for artists seeking solace in their craft.
+
+**Main Character:**  
+Evelyn Mae Carter, a spirited graphic designer in her late twenties, sits at her sleek, cluttered desk, surrounded by sketches, color swatches, and her beloved collection of art books. With a sharp eye for detail and an adventurous soul, she believes that design is more than just visuals; it’s a language that speaks to the heart. Her passion for storytelling through graphics is both her lifeblood and her greatest source of frustration, as she grapples with an ever-looming creative block that threatens to dull her vibrant imagination.
+
+As the morning sun streams through the window, casting playful shadows on her workspace, Evelyn takes a deep breath and looks out onto the city below. Each person passing by carries their own narrative, their own struggles and dreams—something she yearns to capture in her work. Today, however, she feels the weight of her own unresolved emotions pulling her in different directions, making it hard to find her artistic voice. But with a stubborn flicker of determination igniting within her, she resolves to conquer the canvas of her mind, ready to embrace whatever inspiration may come her way.

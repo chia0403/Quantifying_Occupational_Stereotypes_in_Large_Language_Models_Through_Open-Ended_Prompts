@@ -1,0 +1,1 @@
+Amelia Whitmore Hastings

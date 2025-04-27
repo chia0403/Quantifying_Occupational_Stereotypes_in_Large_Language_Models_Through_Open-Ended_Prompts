@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The fluorescent lights above the worn linoleum floor hummed in unison as Maxwell "Max" Thompson swept the empty classrooms of Oakwood High School. The once-vibrant colors of the lockers had faded to a dull sheen, and the walls were smeared with scrawled graffiti from years past. Max navigated his cart around the rows of desks, avoiding puddles left by last night's water main break in the cafeteria. As he worked, the silence was oppressive, punctuated only by the occasional clang of a bell from the hallway or the distant hum of the school's PA system.
+
+Max had been a janitor at Oakwood for over a decade, and in that time, he'd seen generations of students come and go. He knew the quirks of each classroom, the favorite table spots, and even the secret hiding spots behind the lockers. But despite his familiarity with the school's layout, Max felt like an outsider, watching from the periphery as the lives of those around him unfolded.
+
+As he finished sweeping the last corner of room 214, a faint noise echoed down the hallway, followed by the soft rustle of papers being stuffed into a backpack. The sound was familiar, but it sent a shiver down Max's spine. It was the unmistakable scent of one student, and he knew that whoever it was, they were in for trouble...

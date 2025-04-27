@@ -1,0 +1,7 @@
+## Story Opening:
+
+The scent of damp straw and damp dog hung heavy in the pre-dawn air, a familiar comfort to Evelyn Rosewood. She shivered, pulling her worn Carhartt jacket tighter around her. The first rays of sun, pale and watery, were just beginning to bleed over the horizon, painting the frosted fields surrounding the Sanctuary a soft, ethereal pink. A rooster crowed in the distance, a strident call that echoed through the otherwise silent sanctuary. Evelyn sighed, the sound a puff of white in the frigid air. Time to face the day.
+
+## Setting:
+
+Evelyn Rosewood worked at the "Havenwood Animal Sanctuary," a sprawling 50-acre haven nestled in the foothills of the Appalachian Mountains. It was a sanctuary in the truest sense of the word, a refuge for neglected, abused, and abandoned animals of all kinds. There were meticulously maintained kennels for the dogs, spacious pastures for the horses and donkeys, and a sprawling aviary that housed rescued parrots and birds of prey. Scattered throughout the grounds were smaller enclosures for everything from orphaned raccoons to injured squirrels. Havenwood was a patchwork of repurposed barns, hand-built structures, and carefully planned enclosures, all linked by a network of muddy paths that snaked through the rolling hills. Despite its rustic charm, Havenwood was meticulously organized and deeply loved, a testament to the dedication of Evelyn and the small, dedicated staff.

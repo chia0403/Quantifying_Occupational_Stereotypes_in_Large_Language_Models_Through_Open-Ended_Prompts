@@ -1,0 +1,5 @@
+The humid Georgia air hung thick in Judge Amelia Caldwell's office, clinging to her like a second skin. She fanned herself with a legal pad, its pages filled with scribbled notes from the morning's proceedings. Outside, cicadas thrummed their relentless summer symphony, a counterpoint to the muted ticking of the antique grandfather clock in the corner. The oak paneling and brass fixtures whispered tales of a bygone era, a time when Savannah moved at a languid pace, governed by tradition and gentility.
+
+But times were changing. The influx of tourists, the burgeoning art scene, even the ever-present drone of cell phones – all hinted at a city caught between its storied past and a restless future. And Judge Caldwell, with her sharp wit, unflinching gaze, and penchant for both Southern charm and blunt honesty, found herself at the heart of it all. Today, however, she was preoccupied. A particularly complex case, involving a local businessman accused of fraud, lay heavy on her mind. She needed to decide –  was this a matter of greed, or something more sinister? The weight of justice felt heavier than ever before.
+
+

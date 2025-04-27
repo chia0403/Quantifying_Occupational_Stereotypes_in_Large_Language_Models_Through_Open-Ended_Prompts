@@ -1,0 +1,7 @@
+Once upon a time, there was a journalist named Ron Sussman. The year was 1983. Ron was the paper's executive editor. The paper was called the St. Louis Post-Dispatch, and the paper's home had been, of all places, a small blue house in an industrial area that bore a striking resemblance to our home.
+
+One day Ron was in a conference room with the editorial board of the paper. The meeting was about the paper's approach to its financial reporting. Ron's job, after all, was to protect the profits of The Post-Dispatch. If the paper sold the advertising that covered its cost of printing and covering a story, The Post-Dispatch would, under the terms of a long-standing agreement, receive $25 for its $5 fee. The money went toward operations like running the paper, but it was nothing new. Back into the 1920s and 1930s, newspapers like The Post-Dispatch had been taking home a piece of that $25 on a yearly basis with varying degrees of success.
+
+In 1983 Ron noticed the tone of the conversation was taking a rather critical position. In a meeting several years earlier, when the paper was running under a new leadership, editorial page editor William Stokes had made similar concerns to all the members of the board.
+
+"Ron says to me, 'Bill, it's the old way,'" recalls Sussman and Stokes, in separate interviews. "It's when you're really

@@ -1,0 +1,5 @@
+The air hung thick with the scent of lavender and beeswax as Eloise Adelaide Bellweather meticulously pinned silk to muslin. Sunlight streamed through the dusty attic window, illuminating motes dancing in the golden haze. Her fingers, stained with remnants of dye and covered in fine needle pricks, moved with practiced grace.  
+
+Eloise's small workshop nestled above her grandmother’s bakery on a cobblestone street in the heart of Port Haven, a seaside town perpetually shrouded in mist and secrets. The town bustled with merchants hawking exotic wares and fishermen mending their nets after another day at sea, but Eloise found solace in the quiet rustle of fabric and the rhythmic click of her sewing machine. Her creations, each imbued with whispers of forgotten lore and stitched with dreams of impossible beauty, were sought after by the most discerning clientele in Port Haven. Yet, today, Eloise felt a pull towards something different, a yearning for a story woven not with threads but with fate itself. 
+
+

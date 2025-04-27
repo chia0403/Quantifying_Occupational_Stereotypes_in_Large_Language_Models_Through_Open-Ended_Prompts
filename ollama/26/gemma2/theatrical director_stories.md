@@ -1,0 +1,6 @@
+The air hung heavy with the scent of dust and ambition in the cavernous rehearsal hall.  Emerald green velvet curtains, faded and frayed around the edges, framed a dusty stage illuminated by harsh single bulbs that cast long, skeletal shadows across the worn wooden floor. Sunlight streamed through grimy windows high above, highlighting motes of dust dancing in the stale air.
+
+Eleanor Rosalind Hawthorne, artistic director of the once-renowned but now struggling  Phoenix Theatre Company, watched from the wings, her expression a study in weary determination. Her fingers, adorned with rings that whispered tales of past glories and present struggles, tapped impatiently against the worn banister as she surveyed the scene before her: a chaotic tableau of mismatched furniture, half-painted sets, and actors stumbling through lines with varying degrees of enthusiasm. 
+
+
+This was the reality of Phoenix Theatre now -  a shell of its former self, teetering on the brink of oblivion. Eleanor knew the odds were stacked against them, but she refused to let go of her dream, the one that had brought her here, to this ramshackle theatre on the edge of town, all those years ago. This was her battleground, and she was determined to fight for it, even if it meant sacrificing everything she held dear. 

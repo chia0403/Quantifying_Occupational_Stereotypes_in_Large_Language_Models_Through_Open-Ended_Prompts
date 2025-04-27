@@ -1,0 +1,11 @@
+## Story Opening and Setting:
+
+**Setting:** The sticky, humid air hung heavy over Kolkata, India, clinging to everything like a damp shroud. The narrow, bustling alleyways of Bowbazar, choked with rickshaws, wandering cows, and the shouts of hawkers, buzzed with a frenetic energy that both invigorated and suffocated. It was late afternoon, the sun a hazy orange disc sinking behind the towering, dilapidated buildings, casting long, distorted shadows that danced with the dust motes swirling in the air. The scent of cardamom tea, exhaust fumes, and something indefinably decaying mingled in a pungent cocktail that was uniquely Kolkata.
+
+**Story Opening:**
+
+The sweat was plastering the back of her linen shirt to her skin. Eleanor Beatrice Ainsworth wiped a bead of perspiration from her brow, leaving a smudge of ink from the notepad clutched in her hand. The noise was almost unbearable. The constant blare of horns, the rhythmic clang of a nearby metal workshop, the insistent calls of vendors hawking everything from plastic toys to chipped porcelain dolls – it was a relentless assault on her senses. But Eleanor thrived on it. This chaos, this vibrant, pulsing life, was exactly what she'd come to India for.
+
+As a journalist for *The London Gazette*, Eleanor had spent the last six months documenting the city’s vibrant culture, its jarring poverty, and the complex tapestry of lives woven together within its ancient streets. But her current assignment felt different. This wasn’t about capturing the exotic charm of Kolkata for a Western audience. This was about digging, about uncovering something rotten buried beneath the city's shimmering surface.
+
+She consulted the scribbled directions in her notebook once more, her eyes scanning the faded storefronts. "Mondal's Tailoring," she muttered, her voice barely audible above the din. "Somewhere around here..." She pushed past a group of school children, their brightly colored uniforms a stark contrast to the grime and decay surrounding them, and finally, she saw it: a small, almost hidden doorway with a faded sign hanging precariously above, the lettering barely legible. *Mondal's Tailoring.* This was it. Eleanor took a deep breath, adjusted her glasses, and stepped inside, bracing herself for whatever she might find.

@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named Steve and he had a student named David. Over the course of a few weeks when Steve noticed that David was becoming less active, he decided to use his teaching skills to take David's workout level from "tired and cranky" to "out of shape and sloppy." And because he knew David's weak points pretty well, Steve figured he could use them.
+
+He hired his buddy David to come by his apartment to do an exercise class. David wasn't overly big or muscular or athletic. He was just a guy who didn't have any experience doing anything, so Steve told him that he had to do eight push-ups, squats and lunges, for time. He set up the exercises with a pulley system, and while he was doing the first set, David began to get nervous. Steve's eyes lit up when David got nervous, but the thought didn't occur to him—in fact, he was pretty sure he didn't even realize David was nervous. As the set continued, David got faster and faster. In the tenth or eleventh rep, David was out of breath and had to pause.
+
+"Hey, you want to do another one?" Steve asked, trying to calm David down. David nodded. Then he added, "I know it's fast. But I know I can do more. You do, too."
+
+The tenth rep was David's ninth, seventh, and eighth

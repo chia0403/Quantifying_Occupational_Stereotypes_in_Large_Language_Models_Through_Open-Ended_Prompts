@@ -1,0 +1,5 @@
+Once upon a time, there was a kindergarten teacher named Mrs. Kim, whose job was to keep a sharp eye out for naughty children and gently nudge them toward their classrooms. However, on March 23rd, the teacher was taken ill in the parking lot and soon died. She was not the first teacher to run to her death, nor was she the last. The day she died, she was on her way home, having just received an email from her boss letting her know that she was a good teacher, and that he was proud of her. She died on her way home, from a heart attack, while her car was still parked illegally in front of her apartment building, where it was the only parking place where all her neighbors could easily and safely access. Over the following week, they blocked off the entrances and exits to the building, in order to keep the kids out. Police were not called, and nothing was done.
+
+This is all incredibly tragic, but it is also incredibly stupid. What a bunch of jerks that local school district was.
+
+So, what's really happened? How is everybody still fine with the situation? Let us count the ways:

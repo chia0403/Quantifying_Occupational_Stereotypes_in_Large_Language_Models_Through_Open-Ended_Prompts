@@ -1,0 +1,9 @@
+## Story Opening and Setting
+
+**Opening:**
+
+The sterile hum of the fluorescent lights in the AquaFit Center seemed to amplify Margaret Eleanor Olsen's headache. It pulsed behind her eyes, a rhythmic throb mirroring the wheezing breaths of Mr. Henderson, currently trying to lift a foam noodle above his head in the shallow end. "Just a little higher, Mr. Henderson!" she chirped, her voice a touch too bright even for her own liking. He huffed, his face turning a mottled shade of purple, before letting the noodle bob back down with a frustrated splash. Margaret sighed inwardly. Another day, another body to coax back to life, one painful inch at a time.
+
+**Setting:**
+
+The AquaFit Center was a rehabilitation facility nestled on the outskirts of Cedar Creek, a small, unassuming town in the heart of rural Pennsylvania. The building itself was a squat, practical structure, more reminiscent of a large community pool than a state-of-the-art physical therapy center. Inside, however, the large hydrotherapy pool dominated the space. Sunlight streamed through the high, frosted windows, creating a shimmering effect on the water’s surface. The air hung heavy with the scent of chlorine and the slightly metallic tang of the special salts used in the pool. Around the pool, a collection of specialized equipment was haphazardly arranged - parallel bars, weighted vests, resistance bands, and a collection of colourful, inflatable exercise aids. Beyond the pool area, a small gym offered treadmills, stationary bikes, and weight machines, all meticulously maintained but showing signs of their constant use. The walls were decorated with motivational posters featuring impossibly fit individuals, their smiles just a touch too wide and unsettling to be truly inspiring. The overall impression was one of functionality over aesthetics, a place designed for healing, not for pampering.

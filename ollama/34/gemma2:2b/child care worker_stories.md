@@ -1,0 +1,7 @@
+The crisp autumn air crackled with the promise of snow as Amelia “Amy” Reynolds steered her little blue van down Maple Street. The smell of burning leaves and cinnamon lattes mingled in the air, creating a sweet, melancholy haze that settled on Amy like an old sweater on a cold day. Today was another whirlwind of "firsts" at the Little Sprout Preschool: first time learning to separate crayons by color (the struggle!), first time drawing their own faces after watching Mr. Grumbly's animated movie about frowning fish (hilarious, she thought), and most importantly, first time making pumpkin spice cookies with Ms. Henderson. 
+
+Amy was known as "Mama Amy" by the kids. She understood them better than anyone, even when they were refusing to wear a mask or arguing over who had the right crayon in their hand.  She knew that each tiny human came with a secret language, a world of needs and anxieties only she could decipher. 
+
+As Amy pulled into the preschool's small parking lot, Mrs. Henderson's cheerful, if slightly frazzled, voice called out from within. "Amy! You made it!" The sight of Mrs. Henderson's floral apron already stained with sugar and flour, her hair askew from a whirlwind of baking instructions and tiny hands, was like the warm embrace of home. 
+
+"I did," Amy smiled back, pulling open the door to find a group of children, their faces smeared with paint and smiles wider than the fall moon, waiting for her.  

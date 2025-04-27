@@ -1,0 +1,7 @@
+Once upon a time, there was a systems analyst named Jim Robinson, who worked in the FBI and was interested in an open-source intelligence effort called Project Bojinka. In October 1988, Bojinka's researchers, using a computer code the Bureau had created, were able to hack an IBM system that housed all of the Federal Bureau of Investigation's secret-level information about the United States.
+
+In the ensuing weeks, Robinson, who had been trained at the U.S. Naval Academy, told me how the Bojinka team used the information they'd acquired to develop a comprehensive database containing detailed historical information—on everything from drug shipments in and out of American ports to the location and number of undercover agents in local drug syndicates and the amount of money confiscated each year.
+
+But the FBI never distributed Bojinka's findings and, in the decades that followed, it never attempted to build a similar system from the ground up. The FBI even tried to persuade Bojinka's computer-security researchers in 2004 to publish the work with the proviso that they could keep their source a secret. (The scientists published "Bojinka: The Source for a National System for Criminal Investigative Data, Vol. 1" in 2008.) But Robinson and the Bureau lost interest in Bojinka and later abandoned the effort in favor of a project that relied on a different type of code.
+
+According to Robinson, Jim Comey, the current director of the FBI, and William

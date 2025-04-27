@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Chris J. Berry. No matter how many times Berry wrote, nobody ever seems to recognize him. Now, he's the kind of man you love to hate. He can't stop calling, insisting there's something he doesn't see. It turns out, of course, that there's not.
+
+In 2004, Berry was invited to a press conference where then-Republican presidential candidate John Kerry was speaking. He was so excited at the chance to take his questions. The event was to be held in Blair House, a famous White House place for press conferences, where they send in the president to greet the press and make it look important.
+
+But just when he looked forward to taking his questions, Berry said he heard a noise behind the briefing table. They hadn't called an on-site reporter or sent a video on-site. It was somebody playing with a microphone nearby. If that was someone working on-site at the briefing, there was nothing he could have done.
+
+"But when I heard that sound behind me, I thought whoever that was, they must be doing this a number of times a day, and they would know a few key words, and they could tell the difference," Berry told The Blaze. "I'm always suspicious of someone who's been around me, and I'm always suspicious of me, because I keep reading something in a book or listening to a recording, and I don

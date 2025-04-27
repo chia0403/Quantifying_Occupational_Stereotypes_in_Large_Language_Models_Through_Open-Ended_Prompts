@@ -1,0 +1,7 @@
+Okay, here's a story opening, including the setting and full name of the main character, who is a hair cutter:
+
+**Setting:** The flickering fluorescent lights of "Shear Genius," a small, slightly run-down hair salon, hummed a discordant tune against the drone of a daytime talk show emanating from a dusty, portable television perched on a shelf. Rain lashed against the frosted windows, blurring the already dreary view of Bleeker Street in Greenwich Village. The air, thick with the lingering aroma of hairspray and disinfectant, hung heavy and damp.
+
+**Opening:**
+
+Winifred Beatrice Plummett, a woman whose own hair was a perpetually tangled mess of auburn curls she never quite had the time to tame, stared with a practiced eye at the mop of grey before her. Mrs. Kravitz, a regular Friday appointment, was droning on about the exorbitant price of organic kale at the farmer's market. Winifred nodded absently, her mind miles away from leafy greens and closer to the delicate balance of angles needed to sculpt a flattering bob. Another Friday, another head, another small act of artistry against the backdrop of a relentlessly ordinary life. She gripped her shears, the familiar cold metal a small comfort in the grey gloom of a New York autumn. “So, Mrs. Kravitz," Winifred said, her voice a touch too loud to cut through the rain outside and the chatter on TV, "still going for the chin-length, layered look?"

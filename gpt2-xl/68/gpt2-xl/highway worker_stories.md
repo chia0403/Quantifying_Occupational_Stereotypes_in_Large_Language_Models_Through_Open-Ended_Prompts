@@ -1,0 +1,7 @@
+Once upon a time, there was a highway worker named Joe, you guys have heard of him? He got his nickname -- the highwayman -- because he got up early in the morning and did every job at the same pace he'd been doing it for 20 years. And what he accomplished was incredible -- and no one could have written a better book about him.
+
+
+On the other hand, I can't imagine how anyone could make a better TV show. I mean I thought, "What a great idea" because you don't need scripts with lots of action (just the facts), you just need a story. But one of the things the producers had to keep on their mind was, this show had to look as close to reality as possible -- and that required very talented people. And one of the reasons that most, if not all, of these people are in your head, is because they had to meet with you to see where you were coming from -- which is probably why you were telling me so many things that made a difference. Some of the writers and directors in this show are the same people that used to be on your show, so you kind of know the world of television as well as people who worked on the show. So it's been a great learning experience.
+
+
+There are three actors in our show who have never appeared on an American television show before. They're actually the first people we met! And, as I said, you know, in the

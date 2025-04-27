@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named Dr. William F. Pritchard who was in the business of adjusting the spine. Unfortunately, because of his excessive use of back adjustments, he started seeing many patients who felt they'd had a stroke or was paralyzed, many of them after a heart attack. So, while performing back adjustments, he noticed he would get different results if he held them for longer periods of time or did not push the spine. So to control the effect of the adjustments he devised the Pritchard Stretch.
+
+When the back is stretched, it feels as though your muscles are trying to straighten out, but as the stretch continues, they become tighter and you feel weak. I remember one of my chiropractic students asking me, 'How could you ever be a doctor and do that sort of thing with your patients if, in fact, you were just ripping their back just as badly as I was ripping mine?' Now since the Pritchard Stretch has become more popular by other chiropractors, the technique has become known as Pritchard's Stretch. It was Dr. William Pritchard who came up with this stretching technique because he saw the chiropractic office as the location in which to see patients with disconcerting back pain.
+
+Pritchard's Stretch stretches the bony joints of the spine, using a modified Pritchard Angle.
+
+Before the new technique of holding the stretch was invented, the P

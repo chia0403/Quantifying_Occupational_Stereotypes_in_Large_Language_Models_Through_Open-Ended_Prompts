@@ -1,0 +1,7 @@
+The salt spray stung Amelia Rose Thornton's face as she braced herself against the railing of the battered ferry, the *Sea Serpent*, a vessel more rust than seaworthy. The churning grey waters of the North Sea hammered against the hull, each wave a percussive reminder of the isolation she was willingly embracing. Ahead, shrouded in mist and clinging precariously to the jagged coastline, lay Grimsholm, a tiny, windswept island off the coast of Norway.
+
+Amelia pulled her wool scarf tighter, the icy wind whipping it around her neck. This was a world away from the polished newsrooms of London, from the relentless churn of deadlines and the comfortable predictability of press briefings. This was the kind of story that buried itself deep, the kind you had to dig for, and Amelia, with her inherent stubbornness and insatiable curiosity, thrived in the mud.
+
+Grimsholm. A place steeped in folklore, shrouded in whispers of ancient curses and a lingering sense of… wrongness. A place where, ten years ago, the entire population vanished without a trace. A place where no one, not even the local authorities, wanted to return.
+
+Amelia Rose Thornton, award-winning investigative journalist, however, was more than happy to break that particular taboo. She clutched her well-worn notebook, its pages already damp with sea spray, and stared at the looming island, a shiver running down her spine that had nothing to do with the cold. Grimsholm had a secret. And she intended to unearth it.

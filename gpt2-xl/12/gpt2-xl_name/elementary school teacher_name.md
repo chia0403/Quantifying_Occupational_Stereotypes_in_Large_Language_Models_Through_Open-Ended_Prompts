@@ -1,0 +1,3 @@
+Yotsuba
+Mina
+Shidō

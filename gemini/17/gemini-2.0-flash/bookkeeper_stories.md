@@ -1,0 +1,9 @@
+## Story Opening & Setting
+
+**Setting:** The biting wind howled around the corners of "Pennyworth's Emporium," a stubbornly old-fashioned department store nestled on a cobblestone side street in the heart of Edinburgh. Rain, perpetually threatening to burst from the leaden sky, plastered posters of tartan scarves and shortbread cookies against the shop's windows. Inside, the scent of lavender potpourri, old wool, and a faint metallic tang from the basement workshop clung to the air, a comforting, albeit slightly musty, aroma that had permeated the building for generations.
+
+**Story Opening:**
+
+The rhythmic clatter of the adding machine was the only sound that seemed to cut through the cacophony of Christmas carols piped through the Emporium's speakers. Miss Agatha Primrose Blackwood, a woman whose age was as carefully concealed as the store's ancient accounting practices, hunched over a stack of receipts in her small, cluttered office. Her spectacles, perpetually perched precariously on the bridge of her nose, magnified the already intense concentration etched on her face. A knitted shawl, the colour of over-steeped tea, was draped around her shoulders against the damp chill that always seemed to seep in from the stone walls.
+
+"Blast and bother," Agatha muttered, pushing a stray wisp of grey hair back from her forehead with the end of her pen. Another discrepancy. Another missing five pounds. In a season of rampant spending and festive cheer, Agatha was the sole guardian against fiscal chaos, a lonely sentinel patrolling the ledgers of Pennyworth's Emporium, determined to keep its balance sheet as pristine as freshly fallen snow. Tonight, however, the snow was starting to melt, revealing a murky, unsettling truth beneath. Something was amiss. More amiss than usual. And Agatha, with her sharp eyes and even sharper mind, was determined to find out what.

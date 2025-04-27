@@ -1,0 +1,7 @@
+Once upon a time, there was a physician's assistant named Joe Sperry. Every day Sperry would go out to his car, pull out his smartphone, and click on every medical device he recognized, from stents and insulin pumps to an ultrasound machine and a CAT scan. Sperry, at the time, thought he had the "perfect office" — it was a comfortable spot in a tidy neighborhood, in a busy part of town that was generally well lit and quiet, only a short, five-minute walk to a crowded city clinic.
+
+As the day wore on, Sperry would check a few devices and then spend a few minutes going over others that he knew or thought the system might appreciate by performing a search. "They're all pretty important," Sperry says. He often took some of those devices home and brought them back every couple of days, checking each of them to be sure they were still working. But all of them had the same flaw: They failed.
+
+Sperry would call doctors, explaining that he had a device from another system the doctor liked to use. When a doctor wanted to see an iPhone or a new ultrasound machine, the device Sperry brought home, often from a different manufacturer or even a different country, would either not work at all or have a firmware bug. To Sperry, these bugs had become the new normal. He was spending too much time searching.
+
+"This is

@@ -1,0 +1,5 @@
+Once upon a time, there was a roofer named Billy Green that owned his own shop on the lower East End, and he was known as a hard worker, friendly, and honest dude. He'd do you a favor and clean up your roof, and you'd know exactly where to look for him, and when he'd be at the shop, you'd know exactly how long he's been there.
+
+I like Billy Green and everyone should consider him a mentor. He was that kind of guy. The one person who knew your shit, even if you didn't want to talk to them, who would see you a while later after they took a break, and offer some words of wisdom, a tip, that kind of thing. So I was in there one day, there the other day, talking to Billy Green from my shop. He's just one of those guys. Every day he had a big lunch. Every day he was very gracious to me, which is good – it's good to be nice to the people that are around you. The one time I had a bad day and he didn't call me back in a while, I asked him, 'Why do you call me so much? I just want to sell myself.' He said, 'Yeah, but you're not gonna sell yourself if you give him no trouble. He knows what he's doing, and they're gonna have a good time, too.'
+
+One day he said, 'Why

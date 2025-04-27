@@ -1,0 +1,9 @@
+**Title: Beneath the Scalpel**
+
+**Setting:**
+The story opens in the bustling surgical ward of Saint Helena's Hospital, renowned for its cutting-edge technology and high-stakes surgeries. Bright fluorescent lights flood the sterile, white-walled room, where the air is rich with the familiar scent of antiseptic. Monitors beep steadily, tracking patients’ vitals, while nurses hurry between beds, their soft chatter mingling with the rigorous click of surgical tools being readied for the day. Outside, the city of Riverton is alive with the hum of traffic and the distant echo of sirens, but inside the ward, focus sharpens as the clock ticks closer to the day’s first surgery.
+
+**Main Character:**
+Dr. Eliza Harper, a skilled and dedicated heart surgeon in her early forties, stands by the large glass window, her piercing gray eyes scanning the skyline. With her steely demeanor and quick wit, she commands respect from colleagues and patients alike. Known for her unyielding hands and meticulous nature, Eliza has become both a legend in the operating room and a source of inspiration for young medical residents. Yet, beneath her confident exterior lies a maelstrom of doubt and sacrifice—echoes of a life once filled with laughter and love, now often overshadowed by the weight of her responsibilities.
+
+As she turns away from the window, Dr. Harper's mind races with the day's impending challenges; a highly complex surgery awaits, one that could define her career—or end it. The stakes are high, but Eliza Harper has never backed down from a challenge. Today, like every other day, she will have to navigate not just the intricacies of anatomy, but the fragile emotions of hope and fear that pulse through her patients and their families.

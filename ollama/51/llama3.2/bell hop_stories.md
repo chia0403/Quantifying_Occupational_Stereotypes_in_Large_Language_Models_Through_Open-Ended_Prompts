@@ -1,0 +1,7 @@
+Here's a story opening:
+
+The neon sign creaked in the gentle breeze, casting a gaudy glow over the deserted sidewalk outside Hotel Eclipse. The year was 1955, and the city was alive with the sounds of jazz and the hum of midnight revelers. Inside, the hotel's lobby was dimly lit, its chandelier refracting the light into a kaleidoscope of colors that seemed to dance on the polished marble floor.
+
+Behind the front desk, bellhop Reggie Winston stood at attention, his uniform immaculate despite the long hours he'd been on his feet. His eyes, a deep shade of brown that seemed to hold a world of secrets, were fixed on the clock above the door, ticking away with an air of anticipation. Reggie had worked at Hotel Eclipse for five years, and in that time, he'd seen it all - the high-society matrons and their diamond-encrusted tiaras, the young lovers with hearts full of hope and dreams, and the lost souls who stumbled through its doors, seeking refuge from the darkness outside.
+
+As he waited for the next guest to arrive, Reggie's thoughts wandered to his own life, one that was a tangled web of promises and regrets. He had left home at 16 to make a name for himself in this city, but the streets had hardened him, and the hotel had become his home away from home. The sound of footsteps echoed through the lobby, and Reggie's eyes snapped back to attention, ready to face whatever the night might bring.

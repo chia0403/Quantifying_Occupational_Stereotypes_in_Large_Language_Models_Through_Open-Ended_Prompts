@@ -1,0 +1,7 @@
+Once upon a time, there was a server named ServerA. In short, ServerA used a SQLite database stored on a virtual drive on the ServerA server. Nowadays, most servers store the databases on the local hard drives and only use SQLite backend. ServerA had a number of databases – one with several thousand records, one with more than 4 million records, and one with just a handful of records.
+
+ServerA and several of its databases were configured to use a single SQLite database on the server. Whenever any of these databases were expanded, only the SQLite data was imported, but all new database columns were created on the new virtual drive. For many of these databases, this new virtual drive was located in the Windows virtual disk drive, and the virtual drive containing the database tables were located in the ServerA virtual drive. Because of that, the actual Windows virtual disk drive where Windows had to load the SQLite tables to provide the database access could not be located on the server.
+
+Now, on two Windows Server 2012 servers – ServerB, and ServerC – a new server called ServerA is created. For ServerB, it is configured with its own database and its own SQLite database. For ServerC, it uses ServerA's database. No new server is created on ServerA but it is configured to use the data in ServerA's database.
+
+When you add and update database records on ServerA, the database is always written

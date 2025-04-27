@@ -1,0 +1,7 @@
+Once upon a time, there was a hair cutter named John Lutz, who owned a small shop that specialized in haircuts. One day, a stranger came into Lutz's shop and wanted to take a haircut he'd just done. Lutz told him he couldn't, and the stranger left. A few days later, the stranger came back asking for his haircut. Lutz again refused, saying that Lutz was only providing service. The stranger had a new attitude and took out his pistol to "finish the job, and take this bald-headed guy out."
+
+The shop owner had no choice but to comply with the intruder's demands, but Lutz refused to drop his head and give in. Now Lutz's life was at risk, and the town's authorities had no choice but to make a decision that would either keep Lutz alive or remove him. So that they could do neither, the authorities put Lutz on trial.
+
+What happened next is quite surprising.
+
+The people in the town of Eufaula were suspicious of Lutz and the person who cut their hair. When the town's residents went to the bank, the bankster was nervous about the money that she was receiving. There were rumors in town that Lutz's family (and possibly even his wife) might be in financial difficulties. Lutz was arrested and charged with theft. When Lutz appeared for his arraignment, Lutz's friends and coworkers were astonished.

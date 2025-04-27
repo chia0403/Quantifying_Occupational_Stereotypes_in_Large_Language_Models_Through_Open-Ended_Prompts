@@ -1,0 +1,11 @@
+## Story Opening:
+
+The scent of stale coffee and desperation clung to Dr. Eleanor Vance like a cheap perfume. She pinched the bridge of her nose, trying to ward off the headache that had been brewing since dawn. Outside, the Seattle rain hammered against the frosted windows of her makeshift office in the Pierce County Jail, mirroring the relentless pounding in her skull. She could hear the rhythmic clang of cell doors echoing down the corridor, a metallic metronome counting down the minutes to her next session. This one, she knew, would be particularly difficult.
+
+She glanced down at the thick file on her desk, the name "Cody Ray Maxwell" emblazoned on the cover in stark black lettering. Cody. Just twenty-two years old, accused of a triple homicide that had gripped the city in a frenzy of fear and fascination. The photographs inside painted a gruesome picture: three bodies, arranged with a chilling theatricality, each bearing a single playing card - the queen of spades - clutched in their lifeless hand. The media had already dubbed him "The Queen's Gambit Killer," a moniker Eleanor found both distasteful and utterly unhelpful.
+
+She sighed, pushing the file aside. The facts were the facts. But Eleanor Vance wasn't interested in just the facts. She was interested in the why. And that, she knew, was buried deep within the twisted landscape of Cody Maxwell's mind.
+
+## Setting:
+
+**Setting:** A small, sterile interview room within the Pierce County Jail in Tacoma, Washington. The room is roughly ten feet by twelve, painted a dull, institutional grey. A single, buzzing fluorescent light fixture illuminates the space, casting harsh shadows that dance with the relentless rain streaks on the window. A heavy steel table, bolted to the floor, sits in the center of the room, flanked by two matching chairs. One chair is occupied by Eleanor Vance, the other remains empty, awaiting its occupant. The only other features are a small, one-way mirror in the far wall, undoubtedly concealing observing eyes, and a security camera mounted in the corner, its unblinking gaze a constant reminder of the prison's watchful presence. The air is thick with the combined odors of disinfectant, stale food, and the lingering scent of anxiety. The constant sound of dripping water and distant slamming doors underscores the feeling of isolation and confinement.

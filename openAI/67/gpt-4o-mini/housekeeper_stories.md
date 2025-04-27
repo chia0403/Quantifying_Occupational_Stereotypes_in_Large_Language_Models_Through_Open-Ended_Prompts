@@ -1,0 +1,11 @@
+**Setting: The sprawling estate of Elmwood Manor, nestled in the rolling hills of the English countryside. The grand mansion, with its ivy-covered stone walls and ornate, leaded glass windows, stands as a testament to its tumultuous history. The sprawling gardens, once meticulously maintained, are now an overgrown jungle of wildflowers and tangled hedges. Inside, the rich scent of aged wood and lingering polish fills the air, while the flickering candlelight casts dancing shadows in the otherwise silent rooms.**
+
+**Story Opening:**
+
+On a particularly overcast morning, as heavy clouds hung low over Elmwood Manor, Eleanor Beatrice Thatcher pulled her thick wool cardigan closer around her shoulders and stepped into the ornate foyer. With her coppery hair pinned tightly back and her sensible black shoes scuffing against the marble floor, she reflected on her role in this house—and the silent ghosts that inhabited its halls. 
+
+Eleanor had been the estate's housekeeper for nearly a decade, her hands accustomed to scrubbing floors and fluffing cushions, her mornings always beginning with the rhythmic sound of the grandfather clock echoing through the grand hallway. Yet today felt different; the air thrummed with an unsettling tension, as if the manor itself held its breath. 
+
+Peering out from the leaded glass window, she watched the rain begin to patter softly against the stones outside, creating a melancholic melody that mirrored the stirrings within her heart. Elmwood Manor still belonged to the Thackeray family, a name steeped in tradition and, for Eleanor, filled with memories—both cherished and haunting. 
+
+As she prepared her cleaning supplies, Eleanor felt a shift in the atmosphere, a whisper of something long forgotten. The doors to the past seemed to creak open just a little wider, beckoning her to explore the secrets woven tightly into the very fabric of the manor’s existence. And for a woman who had dedicated her life to this place, she knew there was no turning back now.

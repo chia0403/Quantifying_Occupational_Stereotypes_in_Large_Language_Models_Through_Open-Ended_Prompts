@@ -1,0 +1,6 @@
+Rain hammered against the corrugated iron roof of Leo Silas's office, each drop like a miniature drumbeat in the symphony of urban decay that was this part of Seattle.  The air hung thick with the scent of damp asphalt and stale cigarette smoke, mingling with the lingering aroma of burnt coffee from the pot that perpetually resided on Leo’s desk, its dark depths mirroring his mood. 
+
+Leo Silas, a man whose face bore the etchings of too many sleepless nights and broken promises, leaned back in his creaky office chair, his eyes fixed on the swirling patterns in the bottom of his half-empty glass of whiskey. He wasn't much for jazz, but even the mournful wail of the saxophone from the bar across the street couldn’t compete with the symphony of despair playing out inside him. 
+
+
+The rain intensified, and a bolt of lightning illuminated the squalid alley outside, momentarily revealing a figure huddled beneath the awning of his building. Leo sighed, already knowing it was going to be another night in this city where the only constants were rain, whiskey, and desperation. He reached for his battered fedora and walked towards the door, prepared to face whatever darkness the Seattle night had in store. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named Brian, he had a girl, she was hot, and he was going to put on a good show for her. They weren't married. After a couple of months, the instructors had to find the right girl and they went to the mall.
+
+This mall had really hot women, and that day, one of those women caught Brian's eye. Now, Brian had a lot of attractive women in his class, but for this woman, he found the perfect specimen. She was blonde, she was athletic, she was hot, and she was with him because of his athletic figure. He could tell it was going to be a great night. It made him shiver to think about getting into bed with this woman, but all he did was think about sex and forget about the consequences. He was the instructor, this instructor had to see it through to the end, even if it meant being alone and masturbating until the next day.
+
+As the day went on, he felt his body getting more and more aroused. This girl was hot; she had no doubt about it. She was so fucking hot that he wanted to take her out of the room and take her to his hotel room to fuck her. He kept staring at her, thinking about what he was going to do with her. He kept getting closer and closer. All that was on his mind was her.
+
+That night, as expected, his student

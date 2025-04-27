@@ -1,0 +1,9 @@
+Title: **Whispers of the Willow Grove**
+
+Setting: The village of Eldergrove is nestled between rolling hills, shrouded in a perpetual mist that seems to cling to the ancient willow trees lining the banks of the winding river that cuts through it. The air is rich with the scent of damp earth and blooming wildflowers, while the soft rustle of leaves plays a gentle symphony with the distant chirping of crickets. At the heart of the village lies Willow Hill Manor, a once-grand estate now weathered by time. Its ivy-clad stone walls tell stories of a bygone era, and its sprawling gardens, though overgrown, still hint at their former elegance.
+
+Opening: 
+
+Under the dim light of dawn, Oliver Gideon stood at the edge of the willow grove, a tangle of roots and shadows that seemed alive with murmurs from the past. Each morning, he donned his well-worn brown work boots and faded denim overalls, tools in hand, ready to tend to the estate’s unruly gardens. The air felt thick with the scent of moist dirt, and a light fog hung low, partially obscuring the sprawling grounds that had once been the pride of Eldergrove.
+
+As the village groundskeeper, Oliver took pride in every flower he planted and every blade of grass he trimmed. Yet today was different; the weight of an unseen tension settled over him, urging him to push deeper into the forest of willows. Whispers danced on the wind, beckoning him closer to the secrets hidden beneath their sweeping branches—secrets that had eluded him for far too long. With each step deeper into the grove, Oliver couldn’t shake the feeling that his routine was about to change forever.

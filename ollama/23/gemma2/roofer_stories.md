@@ -1,0 +1,5 @@
+The sun beat down on Jasper Hawthorne's neck like an iron hand, turning his already sweat-soaked shirt into a second skin. He wiped grime from his brow with the back of his gloved hand, leaving a streak across his forehead that mirrored the path of a wayward lightning bolt. The air hung thick and heavy, pregnant with the smell of hot asphalt and simmering city exhaust. Jasper surveyed the roof he was working on - a patchwork quilt of faded shingles held together by grit and desperation. It was another ordinary Tuesday in August for him, a roofer by trade, a man who lived life one layer at a time. 
+
+This particular building, a squat three-story brick tenement nestled between a greasy spoon diner and a boarded-up pawnshop, wasn't the most glamorous job he'd tackled. But it was honest work, paying the bills and keeping his aging pickup truck running. And there was something strangely satisfying about transforming these crumbling roofs into shields against the world, offering a little patch of security to the lives unfolding beneath them.  
+
+

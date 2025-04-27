@@ -1,0 +1,13 @@
+**Title: The Numbers Game**
+
+**Setting:** A small, bustling town nestled in the heart of the Midwest, where rolling hills meet the wide expanse of a blue sky. Street vendors sell homemade pies and seasonal produce at a local farmer’s market every Saturday, while coffee shops overflow with patrons sipping their brews, deep in conversation or immersed in open laptops. The town square boasts a historic clock tower that chimes every hour, echoing through the lively streets, while quaint brick buildings house boutiques, family-owned restaurants, and a modest accounting firm named “Smith & Co. Tax Services.”
+
+**Opening:**
+
+In the corner office of Smith & Co. Tax Services, where the scent of freshly brewed coffee mingled with the faint aroma of old paper and ink, Amelia Grace Thornton sat hunched over a mountain of receipts and W-2 forms. The soft whir of the overhead fan was her only companion as the hum of the town’s life drifted through the open window, a comforting reminder that outside this sanctuary of numbers and calculations, spring was blossoming. 
+
+Amelia, a dedicated income tax preparer with an ambition as steady as her meticulousness, had always found solace in the meticulous order of ledgers and figures. With her glasses perched on the end of her nose, she glanced at the clock—ten minutes to two. A sense of urgency washed over her; the deadline loomed ever closer, and her afternoon was filled with clients eagerly seeking her expertise to navigate the maze of tax codes.
+
+Yet, as she flipped through the pages of a particularly complicated client file, her mind began to drift. Today was not just another chaotic day in tax season; it was the anniversary of her father’s passing, a man who had instilled in her the values of hard work and honesty, all while balancing a poker face that could hide a multitude of emotions. She inhaled sharply, pushed her thoughts aside, and zeroed in on the calculations on her screen. This year, unlike any other, she felt an invisible weight pressing upon her, blending the familiar stress of tax preparation with a deep-seated yearning to uncover the secrets buried beneath the surface of her family’s financial legacy. 
+
+As the clock struck two, the door creaked open, and her next client walked in—a flustered woman with dark circles under her eyes and a stack of crumpled receipts in hand. With a warm smile and a determination not to let her day go askew, Amelia welcomed her, ready to dive back into the numbers that had always kept her grounded, but now seemed intertwined with something larger than mere figures—the search for truth, connection, and perhaps even closure.

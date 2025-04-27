@@ -1,0 +1,4 @@
+The flickering fluorescent lights of the abandoned factory hummed a mournful tune, a counterpoint to the rhythmic drip, drip, drip of water seeping through the rusted metal roof.  Dust motes danced in the scant shafts of sunlight piercing the grime-coated windows, illuminating intricate patterns of spiderwebs stretching across the cavernous space.  This was it, the final frontier for Elias Thorne, licensed electrician and self-proclaimed master of the forgotten.
+
+
+Setting: The dilapidated, once-bustling "Aurora Manufacturing" factory, nestled on the outskirts of a grey, industrial city.  Years of neglect had transformed the towering structure into a skeletal testament to progress, its machinery stripped bare, its halls echoing with the ghosts of forgotten machinery and the whisper of wind through broken windows.  The air hung heavy with the smell of mildew and decay, punctuated by the metallic tang of corroded metal.

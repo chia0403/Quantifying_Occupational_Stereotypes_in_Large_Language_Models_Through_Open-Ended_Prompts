@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named Charlie. Charlie was one of those cooks that loved to cook, and had done so for his entire life. After years of hard work, he became one of the finest cooks in the Kingdom of Narnia, and was even granted an office with the Royal Council to carry out his duties. His duties as a council representative involved watching over the security of the royal kitchens while carrying out his duties as a cook. Charlie was respected and liked by his fellow cooks, many of whom were loyal and devoted to him.
+
+One day, Charlie heard a noise outside of the kitchens, accompanied by a very unpleasant, deep and loud voice.
+
+"Whoa…Whoa whoa whoa, you naughty boy! What are you doing?!" shouted the voice, accompanied by a deep booming bass sound. He looked out his window and saw the beast, a huge lion, coming through the window in a frenzy and racking its teeth. Its claws opened and flapped down upon Charlie. Charlie was thrown far away from the window and into the forest, the noise deafening him. He fell into a crevice next to an enormous tree, and it took him awhile to find safety. Finally, he could breathe again, and found that a big deer had rolled through the crevice, snatching him up in its paws.
+
+The young cook, now a small child, found that despite his physical injuries, he could still go on

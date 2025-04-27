@@ -1,0 +1,7 @@
+Once upon a time, there was a occupational therapist named Frank Rizzo. He was a handsome, charismatic man with a PhD in psychology, and he was also a self-made millionaire. It all came under threat just a few years ago, though, when the federal government got wind of him working with troubled youth at a camp for troubled children at the Florida Keys. The feds raided the camp and sent Rizzo to prison for violating the Civil Rights Act.
+
+The truth is that there was a different Frank on the Florida Keys. It actually involved a "Frank." He was the son of a U.S. Army captain in the Pacific Theater of World War II, and he grew up to be a highly respected Army psychiatrist who eventually headed a team of psychiatrists at Walter Reed Army Medical Center for seven years. Unfortunately, Frank had spent much of his career in the Army as an adviser to General Douglas MacArthur before he returned to his civilian career.
+
+After World War II, Frank went back to Walter Reed to study with Stanley Milgram.
+
+Milgram's notorious experiment was a test run on the American public in the early 1960s to show the world how many people would comply with any orders to harm a person (often an old man) if it meant receiving $5 — a token payment. The test showed that most people could be led to hurt a defenseless person without even being threatened. (Of the 721 people subjected to the test, the vast

@@ -1,0 +1,4 @@
+The fluorescent lights hummed above Bartholomew Finchley's head, casting a sterile glow on his meticulously organized spreadsheets. Outside, the Chicago skyline was ablaze with the sunset, a vibrant tapestry of orange, purple, and pink that offered no solace to Bartholomew's soul. His office, perched high in the steel and glass behemoth of PricewaterhouseCoopers, felt more like a cold, metallic cage than a haven for creativity.  Bartholomew, a man whose life revolved around numbers, found himself increasingly trapped by them, his days an endless cycle of debit, credit, and reconciliation. 
+
+
+The air hung heavy with the scent of stale coffee and unfulfilled dreams. Bartholomew sighed, his glasses sliding down his nose as he massaged his temples. Another day, another audit, another step further away from the life he'd always envisioned. He longed for something more, something...unquantifiable. But where could he find that amidst the rigid order of his existence? 

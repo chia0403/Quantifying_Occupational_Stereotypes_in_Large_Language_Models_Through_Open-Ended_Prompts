@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Mike Wallace. Mike was a soft, gentle kid. But when he was 17, he decided to try a life spent writing for the Miami Herald or the Philadelphia Inquirer. He couldn't wait for the next deadline while his mother kept a gun in the house, and he had two very pregnant girlfriends and a good income. But it didn't turn out that way. "I didn't get out of a job," says Wallace now. "What I got out of a job was the story, a whole lot of people getting killed in Africa and Iraq."
+
+And when he realized that his story was becoming more of a reality than just a story? That the war in Iraq had taken a terrible toll on the people it was supposed to protect and educate, particularly young black men. "I'd lost track of some of the things [journalists were saying] at the time," Wallace says. "Those are stories I would like to have told that I didn't in the end."
+
+It was then that Wallace became a critic of the media. He told people why they had told him the myths they were telling: they needed the money. They needed the clicks. We have no obligation to you.
+
+Today, Michael Wallace has built his career as a commentator on cable TV. He hosts an hour-long show called Firing Line, which goes out in the early morning. He has worked for MSNBC for 10 years

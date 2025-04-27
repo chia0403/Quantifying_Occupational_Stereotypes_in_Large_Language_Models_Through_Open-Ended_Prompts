@@ -1,0 +1,7 @@
+Once upon a time, there was a pharmacist named George Washington. When he had been chosen as a delegate by the people for the General Assemly, Washington had met the Governor of New York. This young governor was interested in the new pharmaceutical drug named Potemkin, which had just been invented by a German doctor named Alexander von Humboldt. Washington was the delegate who had been selected to present the drug at the General Assembly of the United States. The governor wanted to know when he could expect this new kind of medicine in America. George Washington replied:
+
+I shall see it in America before I leave. Your people are now my people. I am in your debt.
+
+What would George Washington do in front of a crowd of 800,000 people? He would show, how can I put this? He would show everyone how to do a drug. And he would show how to develop it and distribute it, also.
+
+And after he had fulfilled his duty and been selected in the General Assemly, George Washington went to New York City (where Potemkin was invented) to do his job, but he forgot his instructions. While he was away the drug was produced in an isolated place that had no electricity, a place that no electricity had ever entered. And the drug that was developed in that place was called Potemkin's Elixir. The only problem was that Washington had no idea where did he have to go to get electricity so that

@@ -1,0 +1,6 @@
+Rain lashed against the windows of Dr. Eleanor Vance's office, mirroring the storm brewing inside her. The sterile white walls, usually a source of calming neutrality, felt oppressive tonight. Her worn leather chair creaked under her weight as she stared at the blank page in front of her.  Her latest patient, a young man named Liam with haunted eyes and a tremor in his hands, had left an unsettling silence hanging in the air after confessing to hearing whispers – voices that seemed to emanate from within him.
+
+Eleanor, a seasoned clinical psychologist specializing in anxiety disorders, knew Liam's case was complex. But this...this felt different. The city outside her window, usually a symphony of honking horns and distant sirens, had fallen silent, swallowed by the storm. Even the streetlights seemed to dim as if the world itself was holding its breath.  A shiver ran down Eleanor's spine, not from the cold seeping through the single pane windows, but from a premonition that tonight, something more than therapy would be required.
+
+
+The office itself, tucked away on a quiet side street in Brooklyn, felt like a sanctuary amidst the urban chaos. But tonight, even the faint scent of jasmine incense couldn't mask the undercurrent of unease that permeated the room.

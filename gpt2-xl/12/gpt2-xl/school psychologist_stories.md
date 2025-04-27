@@ -1,0 +1,7 @@
+Once upon a time, there was a school psychologist named Dr. Wanda, a well-respected figure in the community. One day, someone reported that Dr. Wanda had molested young girls in the local school. Dr. Wanda got sick to her stomach, and decided she'd had enough. After she got sick, she had a change of heart. "Do you really think any of that was necessary?" she asked herself. "I can't just give the kids a lecture on what to do better, can I? And I can't give them a bad time to forget it," she added, "because it'll just drive them deeper in the hole."
+
+She went to work with a class of 13-year-olds, and was horrified at the results. Of the girls who had sexual relationships with their teachers, 60% had been forced to have sex, according to a 2007 story in Mother Jones.
+
+I think Dr. Wanda would have loved to hear the story of a 16-year-old girl who ran away from home, spent a month in a homeless shelter, and came back pregnant. For every story of a victim of sexual abuse, there are thousands of other children — young people, in fact — who have suffered at the hands of others and are just as traumatized. Those children deserve help.
+
+Some have the misfortune of being victimized by trusted adults. You can't judge an entire population by the actions of a handful of

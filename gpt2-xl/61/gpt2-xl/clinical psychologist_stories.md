@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Dr. Sigmund Freud. Then, Freud switched to another psychiatrist called Wilhelm Reich, who was also a self-proclaimed mystic. Both men promoted ideas that were far outside of scientific practice, and both of them were accused of being Nazi criminals.
+
+Now, at long last, after almost 170 years since the birth of psychiatry, the Nazis were being criticized for their theories too, as part of a book by Dr. Andrew Wakefield, a physician who believes that vaccines are linked to autism. Although there are some questions about why he was attacked like this, he has been accused of many unethical practices, among other things. The book by Dr. Wakefield details the findings of his studies (which were published in The Lancet, the respected medical journal from which they were first published in 1998 and 1999, respectively).
+
+He conducted an actual experiment: He gave an elderly woman with Lyme disease a bunch of various vitamins, and then put her on antibiotics. The antibiotics, he suspected, might be killing off her bacteria. He also thought that the vitamin might be protecting her from infection. He then performed the same experiment but after 12 weeks. And when he did this, he discovered that the woman's bacteria had actually vanished, suggesting that it was protecting her – though of course he had no way of knowing this at that point.
+
+So the women, which were all women in their 70s and 80s who lived in

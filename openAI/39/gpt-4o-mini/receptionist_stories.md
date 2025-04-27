@@ -1,0 +1,11 @@
+**Title: The Whispering Walls**
+
+**Setting:** The story unfolds in the heart of a bustling city, within the elegant yet slightly faded halls of the Blackwood Heritage Hotel. The hotel, with its ornate chandeliers and plush velvet furnishings, echoes tales of glamorous soirées and whispered secrets from decades past. Despite its grand architecture, it shows the gentle wear of time—peeling wallpaper in the corners, a creaking floor that sighs as guests move about, and a front desk that stands as the guardian of its history.
+
+**Opening:**
+
+In the dawn light that streamed through the tall, leaded windows, Delilah Marie Summers meticulously polished the brass nameplate that graced the front desk of the Blackwood Heritage Hotel, its shine a stark contrast to the might of history it represented. With each careful stroke of her cloth, she dusted away yesterday’s worries and prepared for whatever today might bring. 
+
+Delilah, a 28-year-old with striking auburn hair that framed her freckled face, had made this worn hotel her second home. She often found herself lost in the stories that whispered through the walls—the laughter of a long-gone jazz singer during the roaring twenties, the hushed conversations of secret lovers in the elegant parlors, and the silent tears of those who sought solace in its rooms. Each morning, as she arranged the pristine brochures on the counter and double-checked the flowers in the lobby, Delilah felt an odd kinship with the place, a recognition of shared scars and dreams. 
+
+But today was different. As the city began to wake, drowning the air in the scent of fresh coffee and rain-soaked pavement, Delilah noticed a feathered envelope poking from the slot beneath the front desk. Its decorative wax seal seemed to hum with potential, a mystery waiting to unravel. With her heart racing, she took a moment to breathe deep and untangle the threads of curiosity that began to weave themselves tightly around her. Little did she know, that simple envelope held the key to a world she had only ever dreamed of—a world that would shake the very foundations of the Blackwood Heritage Hotel and set her on a path of discovery she could never have imagined.

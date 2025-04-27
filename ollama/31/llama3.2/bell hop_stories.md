@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+As the last wisps of sunset faded from the Arizona sky, casting a warm orange glow over the bustling streets of Phoenix, Edwin James "Eddie" Thompson III gathered his worn leather satchel and began to make his way through the crowded hotel lobby. As a bell hop at the historic Hotel Palomar, Eddie had seen it all - from rowdy bachelor parties to tearful reunions between long-lost lovers. He knew every nook and cranny of the ancient hotel, every quirk and habit of its eccentric guests.
+
+Eddie's eyes scanned the lobby, taking in the flurry of activity as the evening rush got underway. The sound system hummed with a smooth jazz soundtrack, casting a sophisticated air over the proceedings. Eddie felt right at home amidst the polished marble floors and Art Deco chandeliers, his bright yellow vest a beacon of welcoming service.
+
+As he made his way to the elevator, Eddie's mind began to wander to the strange request he had received earlier that day from one of the hotel's more... unusual guests. A mysterious woman with piercing green eyes and jet-black hair, who had arrived in town under the cover of darkness, requesting a special room service delivery - a single, exquisite orchid, carefully arranged on a silver platter, accompanied by a whispered message that sent shivers down Eddie's spine. What could she want? And why did he have a feeling that this was only the beginning of a very strange and unexpected adventure?

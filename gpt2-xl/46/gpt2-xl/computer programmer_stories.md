@@ -1,0 +1,7 @@
+Once upon a time, there was a computer programmer named Bill Gates. One day while having lunch, Bill asked one of his colleagues, who happened to be the richest man ever known, Warren Buffett, to lunch. Buffett asked Bill, "Who do you work for?" Gates answered, "I work for you, Mr. Buffett." This led Buffett to remark, "I'll never work for anybody again."
+
+This encounter prompted Bill to think deeper. He thought, "What if we're living in the future? What if Microsoft (MSFT.O) is not the most evil tech firm in the world; nor is it the best tech firm in the world." If they were not the most evil tech firm in the world, there might be a huge and unprecedented opportunity to make trillions of dollars because of how valuable Microsoft and Microsoft technologies are. What if this company was worth a billion dollars?
+
+This was a great thought. As a matter of fact, it is the only reason why Bill ever came to this country. He found an opportunity to reinvent himself and his life for the better.
+
+After several years, Bill eventually joined Microsoft with one goal in mind: to destroy IBM (IBM). This is what he did. Gates wanted to see what will happen if they can start a new company in the USA that was totally free. To reach IBM, he started buying all software. Why did he do this? Because this would lead directly to $2 billion in

@@ -1,0 +1,5 @@
+The air hung thick with anticipation and stale perfume as Ezra “Easy” Jackson checked his pockets one last time. He was a beacon of sunshine in a city that wore its melancholy like a tattered coat – even the pigeons seemed to carry a melancholic strut. The hotel, the grand Astor Grand, loomed before him, its ornate facade gleaming against the late-afternoon gloom.  It had seen more weddings, reunions, and whispered promises than any other building on State Street. 
+
+Ezra adjusted his bow tie, hoping it wouldn't clash with the crimson of his coat. He was no stranger to a well-polished smile and a friendly "Welcome home!" but tonight, something felt different. Tonight, he felt like he was carrying not just luggage and baggage, but a secret too heavy for anyone’s shoulders. 
+
+He took a deep breath, ready to face the whirlwind of arrivals, check-ins, and hushed whispers that always surrounded this legendary hotel. He'd been there since before the ink dried on his contract –  the Astor Grand was not just a place; it was a legacy in waiting for him. And tonight, Ezra "Easy" Jackson was about to write the next chapter. 

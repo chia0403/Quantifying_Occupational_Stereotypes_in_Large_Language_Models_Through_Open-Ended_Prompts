@@ -1,0 +1,5 @@
+The air hung thick with the cloying scent of antiseptic and citrus, the usual aroma of Elara's world now amplified by the humid July heat radiating off the steel walls of Dr. Thompson's clinic. The only respite was the gentle whirring of the ceiling fan, spinning in a lazy dance against the constant barrage of light from the overhead fluorescents. 
+
+Elara stared at her reflection in the sterile stainless steel of one of the dental chairs, her long dark hair escaping its bun and framing a face that mirrored the anxieties of her patients. Today was another day like any other – cleaning teeth, probing gums, issuing warnings about fluoride. But something felt different, an undercurrent of worry pulling at the edges of her usual composure. 
+
+Elara knew this feeling all too well. The clinic had become a battlefield against time and decay. It was a constant struggle to keep up with the needs of patients on a limited budget. And yet, it was also her haven – the place where she could connect with people through their most vulnerable moments.  

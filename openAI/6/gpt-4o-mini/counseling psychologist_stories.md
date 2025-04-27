@@ -1,0 +1,11 @@
+**Title: Beneath the Surface**
+
+**Setting: A serene coastal town named Windward Bay, known for its rocky cliffs and the calming sounds of waves crashing against the shore. The town is enveloped in a dense mist every early morning, giving it an ethereal quality. In the heart of Windward Bay stands a quaint, weathered building known as The Healing Harbor—a counseling center painted a soft seafoam green, with windows that overlook the turbulent ocean. Inside, the scent of lavender and chamomile lingers, and the walls are adorned with calming artwork inspired by the sea.**
+
+**Character: Dr. Amelia Blakewood**
+
+Dr. Amelia Blakewood sat in her cozy office, the gentle swaying of her hammock chair matching the rhythm of the waves crashing against the cliffs outside. The room was filled with the warmth of sunlight filtering through the gauzy curtains, illuminating the eclectic assortment of healing stones and photographs taken during her travels around the world. Amelia had always believed that comfort and beauty could open the heart, making it easier to unravel the complex threads of human emotion.
+
+As a counseling psychologist with more than a decade of experience, she had heard stories that whispered like the wind—tales of loss, resilience, and hope. Today, however, felt different. A shiver ran down her spine as she sensed an underlying tension in the air, almost electric in nature. She glanced at the clock and took a deep breath, preparing herself for the arrival of her next client. 
+
+It was the first session for Ethan Mercer, a local fisherman whose eyes carried the weight of unspoken battles. As she waited, Amelia gazed out the window, watching the fog roll in from the ocean, obscuring the horizon. She couldn't shake the feeling that the secrets he carried were as deep and unknowable as the very depths of the sea itself. Little did she know that unraveling Ethan's story would not only challenge her skills but also take her on a journey to confront the shadows of her own past.

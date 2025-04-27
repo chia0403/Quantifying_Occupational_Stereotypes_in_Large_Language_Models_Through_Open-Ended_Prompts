@@ -1,0 +1,11 @@
+**Title: Shattered Reflections**
+
+**Setting: Copper & Clover, a cozy bar nestled in the heart of an old neighborhood, where vintage posters adorn the brick walls and the soft hum of conversation mingles with the clinking of glasses. The warm, amber glow of pendant lights casts a comforting luminescence over the dark wooden bar, while shelves lined with various spirits form a colorful backdrop. Outside, the rain taps gently against the windows, creating a rhythmic soundtrack to the night.**
+
+As the clock struck ten, the steady drizzle intensified, turning the world beyond the glass into a blurry tapestry of neon lights and glistening pavement. Inside the Copper & Clover, the atmosphere remained lively, the kind of comforting chaos that only a Friday night could bring. 
+
+At the center of it all stood **Maxwell James Donovan**, a tall figure with tousled black hair and a knowing smile that made patrons feel right at home. In his mid-thirties, Maxwell had a presence that was both inviting and intriguing, with sharp features softened by the laughter lines etched around his striking blue eyes. Midnight tattoos curled up his forearms, telling the tales of adventures past, while the crisp white shirt he wore contrasted with the dark leather apron that hugged his waist.
+
+Maxwell swiftly poured a rich, amber whiskey into a glass, his deft hands working with practiced ease. As he turned, his eyes were drawn to the rain-splattered window, where silhouettes of people passed, their umbrellas blooming like flowers against the gloomy backdrop. Every evening in the bar offered a new story, a thread woven into the tapestry of human experience, and tonight was no different. 
+
+But beneath the jovial façade of Copper & Clover and the cheerful banter that flowed between friends and strangers alike, Maxwell felt the weight of a secret pressing against his chest—a past he couldn’t quite escape, no matter how many drinks he served. And as the night unfurled, he sensed that a new story was about to walk through that door, a stranger who might just shatter the peace he’d fought so hard to maintain.

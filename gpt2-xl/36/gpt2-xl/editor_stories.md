@@ -1,0 +1,7 @@
+Once upon a time, there was a editor named Bill Smith, who had started a magazine called the "Detroit News." At some point over a thousand years ago when Bill was in his 30's, he published an article by William J. Hester entitled "How the Indian Savages of America Were Saved." In it, Hester writes that it was through the grace of God that he was saved from his death bed.
+
+Hester was just a child at the time. He apparently had a sister to play with and this seems to be in some measure what saved him. When Hester was 12, he fell into a spring in a pond and almost went to hell. His sister's hand saved him. He did not need the grace of God, he needed his sister. When Hester was 13, his mother died. It is unclear if this saved him or whether it simply kept him from going to hell when he might not otherwise have.
+
+So we can see that Hester is a fool that does not understand the difference between a miracle and a miracle.
+
+Hester was also a prophet, and apparently all but one of his prophecies came true. The prophet is in a position to see things come to pass, whereas we are more apt to see things that have already come to pass if we have been saved. For instance, Hester predicted that there would come a day when men and women would be living like brothers and sisters, and he was correct

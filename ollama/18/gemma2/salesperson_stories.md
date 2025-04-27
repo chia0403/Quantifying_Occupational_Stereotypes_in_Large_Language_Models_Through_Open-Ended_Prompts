@@ -1,0 +1,6 @@
+The air hung thick with the scent of polished mahogany and desperation.  Amelia Beatrice "Amy" Thorne adjusted her crimson lipstick in the reflection of the mirrored wall, willing herself to appear more confident than she felt. Outside the showroom windows, the Atlanta sun beat down on Peachtree Street, a relentless reminder of the pressure mounting inside. This quarter was make or break for Amy and the high-end furniture dealership where she'd honed her salesmanship skills over the past five years. She needed to close a deal with the Harpers, a notoriously wealthy family known for their discerning taste and demanding nature. If she could land their account, her bonus would be enough to finally escape the cramped apartment she shared with two roommates and move into something... slightly less depressing.
+
+
+But the Harpers were notoriously difficult to impress. Amy knew their every whim, every complaint about a misplaced doorknob or an insufficiently plush throw pillow, thanks to weeks of painstaking research.  She ran her fingers over the velvet lining of her blazer, trying to feel the cool confidence she'd cultivated for this very moment. 
+
+This was it. The Harpers were due any minute, and Amy had one shot to convince them that their dream living room wouldn't just be furnished, but flawlessly transformed.  

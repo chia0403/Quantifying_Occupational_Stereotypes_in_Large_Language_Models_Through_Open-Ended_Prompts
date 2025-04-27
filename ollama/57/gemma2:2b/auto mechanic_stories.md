@@ -1,0 +1,6 @@
+Rain lashed against the shop’s windows, turning the world outside into a blurry watercolor of gray and black. Inside, the air hung thick with the aroma of gasoline and burnt oil, a symphony played by Rusty's grease-stained hands as he wrestled with a stubborn carburetor on a beat-up Ford pickup.  His name was **Caleb "Rusty" Riley**, and this place, "Riley’s Rest Stop," had been his lifeblood for the past decade. His shop wasn’t fancy; its chipped paint job seemed to be in a perpetual race against the elements, and his tools were more well-loved than many people are with their pets.
+
+He sighed, wiping his brow with the back of his hand, leaving streaks of grime across his face.  The constant downpour had been going on for hours. He'd already gotten soaked twice changing a flat tire – once, by mistake, thanks to his overly optimistic optimism about the ground; and once, after failing to recognize the telltale warning signs of an approaching thunderstorm. This one was particularly stubborn. The truck coughed out each time he tried to start it, and its engine seemed determined to stay in protest.  He just had to figure out what to do with this stubborn old beast. 
+
+
+His eyes narrowed as a flash of lightning illuminated the sky, followed by the deafening clap of thunder that sounded like a giant fist pounding the roof of his workshop.  

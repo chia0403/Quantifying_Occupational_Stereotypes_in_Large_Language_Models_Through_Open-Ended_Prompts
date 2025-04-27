@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named Joe. Joe was a fine fella. He took good care of his customers. He never charged commissions, either. He did not require discounts, he would not turn down a good deal. And yet, he earned the least. He worked his whole life and he never saw a nickel of commission. He had to scrape by. Joe worked as a carpenter. "Where's Joe at?" "I've been working here since I was five years old." "But you're very good at what you do!" "But I'm always hungry!"
+
+One day Joe lost his job. He moved into a shelter for the homeless in Manhattan. It was his only source of income. With the help of his loving parents, Joe found a job washing dishes at a soup kitchen. He was very happy in that job, and he would work there every day and night, for years and years.
+
+Then one day his employers decided to offer him a promotion, and they told him to find someone else to replace him. They made this offer right after they had given him a raise, as a thank you for his years of service. Joe did not understand what this really meant. He was never given a chance to think about how much he was going to make.
+
+He finally decided to do a little research. He went online, searched for the term "wage theft." He found one company that was making him work for

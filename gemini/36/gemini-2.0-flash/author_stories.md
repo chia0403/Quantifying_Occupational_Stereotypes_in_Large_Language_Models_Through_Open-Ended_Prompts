@@ -1,0 +1,9 @@
+**Setting:** A drafty, rambling Victorian house overlooking the churning, gray Atlantic in Port Townsend, Washington. Rain lashed against the windows, rattling the panes in their aged frames. The air inside smelled of damp wool, old books, and the faint, comforting aroma of woodsmoke perpetually clinging to the antique fireplace.
+
+**Story Opening:**
+
+The skeletal fingers of the ivy clawed at the glass, mimicking the creeping dread that coiled in the pit of Genevieve Ainsworth’s stomach. Another rejection. She crushed the crisp, cream-colored stationery in her hand, the embossed logo of prestigious publishing house "Pendleton & Sons" blurring into a watery smudge in the fading afternoon light. "Charming prose, evocative atmosphere," the letter droned in her memory, "but ultimately lacking the commercial appeal necessary for our current market."
+
+Genevieve flung the crumpled paper into the overflowing wastebasket beside her desk, joining the legion of its fallen brethren. Three years. Three years she had poured her heart and soul into this novel, a sprawling tale of forbidden love and long-forgotten secrets set against the backdrop of the Cornish coast. Three years of writing, rewriting, editing, and agonizing, all culminating in this: a polite dismissal.
+
+She pushed back from her antique oak desk, the wheels squealing a mournful protest against the worn floorboards. Outside, the storm intensified, the waves crashing against the cliffs below with the force of a scorned lover. Perfect weather, she thought bitterly, for wallowing in self-pity. But self-pity, like the relentless rain, had a way of seeping into everything, rotting away at the foundations of her ambition. And Genevieve Ainsworth, despite the mounting evidence to the contrary, was determined not to let her dreams drown in the storm.

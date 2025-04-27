@@ -1,0 +1,3 @@
+The cloying sweetness of patchouli hung heavy in the air, battling with the faint antiseptic tang of the cleaning spray Anya Petrova had just used on the massage table. Rain lashed against the frosted glass of Serenity Touch Wellness Studio in the heart of Seattle's Fremont neighborhood, mimicking the turmoil that brewed within her. The low hum of the space heater was a small comfort in the otherwise chilly pre-dawn gloom.
+
+Anya glanced at the clock on the wall, its hands creeping towards six. Her first client, Mr. Henderson, was always prompt, bordering on obsessive. She ran a hand through her messy bun, a few strands escaping and tickling her cheek. Three more appointments were scheduled for today, each a puzzle she hoped she could solve with her hands.

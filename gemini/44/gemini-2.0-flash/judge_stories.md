@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting, focusing on a judge:
+
+**Setting:**
+
+The story opens in the Honorable Judge Eleanor Beatrice Ainsworth's chambers, a space that attempts to balance stately authority with the personal comfort of a woman who spends an ungodly amount of time within its walls. It's a late October afternoon in Portland, Oregon. The rain is lashing against the tall, arched windows of the Multnomah County Courthouse, a dreary soundtrack to the weary routine. Bookshelves, overflowing with legal tomes and well-worn novels, line one wall. A collection of antique maps, mostly of the Pacific Northwest, adorn another. A large, oak desk dominates the room, meticulously organized save for a small, silver-framed photograph of a smiling, teenage girl – Eleanor's daughter, Clara – and a half-eaten apple, its flesh browning in the air.
+
+**Opening:**
+
+The rhythmic *thwack* of a windshield wiper struggled to keep pace with the deluge outside, mirroring the chaotic thoughts swirling within the Honorable Judge Eleanor Beatrice Ainsworth's mind. She reread the case file for the fifth time, her brow furrowed beneath her elegantly styled, silver hair. *State of Oregon vs. Marcus Bellweather.* A seemingly open-and-shut case of aggravated assault. The victim, a young man named David Garcia, had been brutally beaten, leaving him with permanent neurological damage. The evidence, mostly circumstantial but undeniably compelling, pointed squarely at Bellweather, a known associate of a local gang. Yet, something about the prosecution's case, something just beyond her grasp, felt profoundly wrong.
+
+She tossed the file onto her desk, the sound echoing in the otherwise silent chamber. The weight of her gavel, normally a source of comfort, felt heavy in her stomach. Eleanor had always prided herself on her impartiality, her dedication to justice. But in this case, that dedication felt more like a vise, squeezing the breath from her. A nagging feeling, an insistent whisper in the back of her mind, told her that condemning Marcus Bellweather might be a terrible mistake. And Eleanor Ainsworth, after twenty years on the bench, had learned to trust that whisper. The question was, what was she going to do about it?

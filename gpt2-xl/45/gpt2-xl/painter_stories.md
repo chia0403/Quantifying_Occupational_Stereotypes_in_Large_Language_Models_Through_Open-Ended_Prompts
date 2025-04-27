@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named Tadeusz Borowski, whose most iconic work still stands against centuries of post-war fascism: Triumph in Turin. It was painted after the Nazis' victory in 1945, and glorifies the fascist party. Nowadays it stands in an art gallery in Warsaw. Its paint is white, as though the Nazis had erased the dark blue of the city from history.
+
+The painting looks like one of the world's best examples of a work-in-progress: Its palette is not perfectly straight, its faces are not always aligned, and its background is hazy. Only the Nazis' faces really stand out; Borowski only chose to depict the ones he knew to be important to the audience. You can make out figures as young as 17 and as old as 77.
+
+Borowski's work is also full of references to the Nazis' propaganda. He has his hands pressed against a wooden cabinet to hide them from the camera, painting behind the counter with cigarette butts. For Triumph, he has the soldiers with swastikas spray-painted onto their faces, which he then cuts in half. But on the wall in front of the cabinet in the painting there is a piece of paper with the initials of the artist and the city of Turin written on it.
+
+In Borowski's world, the Nazis are the heroes of history. They beat the communists and stole the nation. So they must have killed

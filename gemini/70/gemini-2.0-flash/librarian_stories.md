@@ -1,0 +1,7 @@
+Okay, here's a story opening, setting, and main character introduction:
+
+**Setting:** The sleepy, coastal town of Port Blossom, Maine. Specifically, the Port Blossom Public Library, a creaky, Victorian-era building overlooking the harbor. The air is thick with the scent of salt and old paper, a combination that Martha Bellamy found both comforting and slightly suffocating after fifteen years of service.
+
+**Opening:**
+
+The squeak of the librarian's cart was the only sound cutting through the late afternoon stillness of the Port Blossom Public Library. Martha Bellamy, a woman whose sensible brown shoes and neatly coiled silver hair gave her the air of a particularly stern but ultimately benevolent schoolteacher, navigated the towering stacks with practiced ease. The dying sunlight slanted through the arched windows, painting stripes of amber across the worn spines of the books. She paused by the "Local History" section, her brow furrowing slightly as she noticed a volume askew. It was a thick, leather-bound journal, its title almost completely obscured by dust: "Of Whispers and…" she trailed off, straining to read the rest. As she reached out to straighten it, a brittle corner crumbled beneath her fingertips, releasing a puff of something that smelled faintly of…cinnamon? And something else, something unsettlingly like iron. Before Martha could dwell on the oddity, a small, intricately folded note slipped from the journal's pages and landed silently at her feet. It was addressed, in elegant, spidery script, to "M.B."

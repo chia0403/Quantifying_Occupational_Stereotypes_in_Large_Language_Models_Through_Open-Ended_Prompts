@@ -1,0 +1,7 @@
+## Story Opening:
+
+The humid air hung thick and heavy, smelling of damp earth and decaying leaves, even this early in the morning. Rain had lashed the sanctuary all night, turning the red-dirt paths into a slippery mess and leaving the enclosures shimmering with puddles. Eleanor Rose Thorne, her own red curls plastered to her forehead, surveyed the scene with a weary sigh. Another day, another deluge. At least the animals seemed relatively unfazed.
+
+**Setting:**
+
+Eleanor’s workplace, "The Whispering Wilds Animal Sanctuary," was nestled deep in the Georgia foothills. It wasn’t a zoo, not exactly. It was a sanctuary for injured, orphaned, or otherwise displaced wildlife, primarily native to the southeastern United States. Log cabins, weathered and stained by the elements, served as administrative offices, a makeshift veterinary clinic, and storage. Scattered throughout the sprawling property were a variety of enclosures, carefully designed to mimic the natural habitats of their occupants. There were spacious, forested areas for the black bears and deer, a winding creek flowing through the otter habitat, and a sun-drenched prairie section for the bobcats and foxes. The air was always alive with the calls of birds, the rustling of leaves, and the occasional low growl or hoot from its residents. Eleanor considered it home, a place where she felt more connected to the world than anywhere else.

@@ -1,0 +1,7 @@
+## Setting: The Whispering Blades
+
+The air in The Whispering Blades hung thick with sawdust and old cologne, a heady mix that could only be described as a comforting scent of history.  Outside, the wind rattled the shop's aged windows like a nervous heartbeat. Inside, the light from the antique lamp on the counter painted swirling patterns on the worn floorboards where Arthur "Artie" Sterling stood, his hand hovering over the clipper. A sigh escaped his lips – a tired, resigned sort of hum, almost lost to the rhythmic whirring of the clippers as he meticulously groomed the head of a young man.
+
+**Arthur "Artie" Sterling** was more than just a barber; he was a weaver of stories, a painter of faces, and a keeper of secrets whispered in hushed tones by men who walked through his doors seeking a new beginning. His shop was an island within the city's bustling chaos, where time flowed differently, measured not by clock hands but by the gentle rhythm of blades that sang a song only he understood.
+ 
+Today, however, Artie felt the weight of something else – a persistent unease gnawing at his gut.  A new face had walked through his doors this week - young and sharp-eyed, with a haunted glint in his gaze. His customers, usually stoic giants of industry and silence, now spoke more readily about their burdens than ever before, and Artie, used to the ebb and flow of whispers, felt like he was drowning in a tide of untold stories. 

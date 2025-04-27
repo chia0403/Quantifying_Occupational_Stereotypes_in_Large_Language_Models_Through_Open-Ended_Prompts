@@ -1,0 +1,5 @@
+The sun beat down on Elias Thaddeus "Tad" Cartwright's neck like a blacksmith's hammer. Sweat dripped from his brow, stinging his eyes as he wielded the jackhammer, its rhythmic pulse vibrating through his bones. Dust devils danced in the sweltering heat, swirling around Tad and the endless stretch of highway that snaked before him like a grey ribbon against the blinding Arizona sky. He squinted at the horizon, where the sun shimmered off the shimmering mirage – a cruel trick of the desert, promising water that wasn't there.  
+
+This particular stretch of Route 66 had become Tad’s personal purgatory. The asphalt was cracked and buckled like an old man's skin, and his job was to tear it all up and replace it with fresh concrete. He’d been at it for weeks, the monotony broken only by the occasional rumbling truck or the laughter of a passing family on their way to some far-off adventure.  Tad yearned for that kind of escape, but he was tethered to this lonely stretch of road, his future as uncertain as the shimmering horizon. 
+
+

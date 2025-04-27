@@ -1,0 +1,6 @@
+The relentless Arizona sun beat down on Elias "Eli" Santiago's back as he surveyed the cracked asphalt stretching before him like a thirsty beast. Dust motes danced in the air, shimmering with trapped heat.  He wiped the sweat from his brow, leaving a streak across his dirt-caked forehead. The highway stretched for miles on either side of him, a ribbon of gray cutting through the ochre and rust landscape. It was a road that had seen better days, pockmarked with patches where repairs had been hastily done, only to be devoured by the unforgiving desert heat again and again.
+
+Eli sighed, tugging at his hard hat. This stretch near Saguaro Junction was always the worst – too far from town for any decent shade, and prone to sudden flash floods that turned this dusty path into a raging river in minutes. He squinted at the horizon, searching for the telltale rumble of approaching trucks.  He knew his crew needed another break soon – their last one had been stolen by a pack of stray dogs who seemed particularly fond of peanut butter sandwiches and cold water bottles. 
+
+
+This stretch of highway was more than just a job to Eli – it was a lifeline connecting this small, forgotten corner of Arizona with the rest of the world.  And he, Elias "Eli" Santiago, was its guardian, patching it up day by day, mile by mile.

@@ -1,0 +1,7 @@
+Rain hammered against the windows of "Miller's Apothecary," echoing the tumultuous beat of Agnes Mortimer's own heart. Her hands, usually steady as she measured out potent elixirs, trembled slightly as she checked the final batch of antitoxin vials. A storm raged outside, mirroring the storm brewing inside her.  The pharmacy was supposed to be a haven of calm - a sanctuary for the ill and weary. But lately, it felt like an echoing chamber of anxiety, a constant reminder of the mystery that shadowed the small town of Oakhaven.
+
+Agnes sighed, pulling her thick wool cardigan tighter around herself. Outside, the wind whipped into a frenzy, rattling the old oak door as if trying to claw its way inside.  Her gaze drifted to the weathered clock on the wall, each tick a silent judgement echoing in the empty space. It was nearing closing time, and no customers had dared brave the onslaught of nature. The storm, she knew, was only one part of it. The real threat lay hidden behind her pharmacist's counter, an enigma with a secret that threatened to unravel everything she held dear - and herself. 
+
+
+**Character:** Agnes Mortimer
+**Setting:**  Oakhaven, a small town nestled in the heart of the Appalachian Mountains. It is known for its serene nature and tight-knit community, however, lately, a sense of unease hangs heavy in the air. The storm outside reflects not only the harsh weather but also the internal turmoil brewing within Agnes. 

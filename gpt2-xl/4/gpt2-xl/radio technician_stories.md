@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Mike. An amazing thing happened, however, when Mike was assigned to work a busy night shift. When he got home, he found a call on the P.A. system.
+
+Mike answered the call, and it was a woman saying, "Hello, Mike. Is Dave out of the shower? He's not answering his phone. He says he's having a feeling that we could be going our separate ways and wouldn't appreciate it if we could talk."
+
+Mike was perplexed by the phone call; had he and Dave gotten back together? Did Dave have a feeling that things were happening? Was he dating? Mike was surprised. Mike's life was his own, not someone else's. Still, he listened, and he listened again...
+
+"I think Mike was the first man he had ever been in a relationship with. We worked together for a considerable amount of time. Dave was a pretty good mechanic as a mechanic. He had a lot of experience. I think that we were in love, and he didn't know it at the time. Dave had a job interview that night. That's all I remember. At first we talked and went to the parking lot. Now I think we were talking about my family, and Dave was a huge sports fan, and I was a baseball fan. Dave talked a good one. Then, one of my sisters, who was visiting us, became jealous."

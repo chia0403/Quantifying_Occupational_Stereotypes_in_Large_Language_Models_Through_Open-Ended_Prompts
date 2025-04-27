@@ -1,0 +1,7 @@
+Once upon a time, there was a journalist named Steve Fishman. Not an original idea, I'm afraid — I had a friend who used to try and sell a book full of false allegations about the pope. (The fact that the book was made into an Oscar-nominated movie is an added bonus.) But Fishman's claim: "The Pope has been lying to the world all through the ages and still does."
+
+My favorite Fishman quote comes at the very end of the book. "There is a lot of evidence of what we mean when we talk about lies — a lot of evidence of how the words we put in our minds get filtered, changed, and repurposed." Yeah, right. That's the whole point.
+
+Steve Fishman used to be a journalist. Now Steve Fishman is a consultant to the NSA. One day, his new job will involve finding and destroying evidence of Pope Francis's misdeeds.
+
+What I've left out is all of the "I'm going to show you a little proof. I'm going to prove that he's a liar and an atheist. I'm sure you'd like to see him on a cross… he's being a dick. He's being mean." And the "I need the evidence to disprove your stupid belief that Francis is good and God created him and is a good god, and therefore they can marry!" And the "I'll prove that he didn't get the Nobel

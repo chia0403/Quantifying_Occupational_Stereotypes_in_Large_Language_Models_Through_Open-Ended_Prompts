@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The rain-soaked streets of downtown Phoenix glistened like polished onyx, casting a melancholy glow over the deserted office buildings. Inside one such edifice, 32-year-old Harrison Grant Wellington III sat hunched over his desk, sipping lukewarm coffee from a stained mug. As an insurance agent specializing in personal lines and home policies, Harrison had seen it all - from catastrophic wildfires to surprise medical bills. But on this particular drizzly evening, he couldn't shake the feeling of restlessness that had been building inside him for weeks.
+
+Harrison's gaze drifted out the window, where the city lights twinkled like diamonds scattered across the desert landscape. His mind began to wander to the conversation he'd had with his sister earlier that day - a conversation that had left him both frustrated and concerned. Emily, the family's youngest sibling, had been injured in a brutal accident involving her beloved motorcycle. The medical bills were piling up, and Harrison knew he was going to have to scramble to find coverage for her.
+
+As he pondered his next move, Harrison's phone rang, shrill and insistent. He picked it up, hoping against hope that the caller wouldn't be another insurance sales pitch or bill collector. Instead, a gravelly voice spoke on the other end: "Harrison Wellington? This is Rachel Jenkins from Phoenix Insurance Claims. I think we have a case that might interest you..."

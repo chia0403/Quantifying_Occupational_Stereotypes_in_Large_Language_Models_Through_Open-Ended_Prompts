@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named John Stapp.
+
+Stapp was a pioneer in Nevada horse breeding—the precursor to American rodeos. He owned a herd of thoroughbreds and sold his offspring as draft horses. That is, before the New Deal, before the Great Depression, and the invention of the "assortments system," or the idea that a horse's quality would be determined by its color and the name of its sire. Before, in fact, Stapp had even heard of "bred to order." It has a distinctly military ring to it, the way a German cavalryman might talk to one of his sergeants.
+
+A great-great-grandson of John Stapp, Robert Stapp, now a seventy-one-year-old engineer, remembers how his grandfather began his ranch, where he used to live in the saddle that his father bought for him: a horse named Johnny. "We never had time for other horses," he said. "If I missed him, he was gone."
+
+His grandfather made a living to do that. Stapp rode in one of the first rodeos, in 1915, an event sponsored by the Southern Nevada Athletic Club. He also traveled and held jockey parties, and he often took his horses to Las Vegas and around the country. One day, on his way back to the ranch from a race in Arizona, his horse, Johnny, fell off his wagon.

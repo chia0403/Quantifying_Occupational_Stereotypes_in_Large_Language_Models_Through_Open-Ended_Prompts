@@ -1,0 +1,4 @@
+The sun beat down on Bartholomew Thistlewick's neck as he surveyed his field of barley. The golden stalks swayed gently in the breeze, their brittle tops catching the light like a thousand tiny mirrors. A dry wind whistled through the gaps between them, whispering tales of dust storms and dwindling water sources. This year, the land was parched, desperate for rain. Bartholomew, with his weathered face and calloused hands, knew this as well as anyone. His farm, nestled on the outskirts of Hollow Creek in the heart of Arizona Territory, had always been a testament to his resilience, but even Bartholomew's grit was beginning to fray at the edges. The whispers of hardship were becoming shouts, and the silence between raindrops felt deafening. 
+
+
+This year, he wasn't just fighting for a bountiful harvest; he was fighting for survival.  

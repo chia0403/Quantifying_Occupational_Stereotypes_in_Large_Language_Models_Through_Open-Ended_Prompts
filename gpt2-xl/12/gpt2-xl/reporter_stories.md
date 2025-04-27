@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Jon Wertheim and he was writing a book about the internet, which sounded like a very interesting subject (it was). So, he went out and bought a domain that the guy who owned it already had; this was before the days that Amazon and Google could acquire new domains. So, Jon chose that domain name, and then the dude who owned the domain was like, "What the fuck is that?" Jon, being the super-super-nerdy genius that he is, thought of writing a book about it and going, "Well, let's write a book about all the shit that I could see happening."
+
+So, Jon got together, went to a book convention, and said, "Okay, you go around and talk to guys you think are cool." He went around to a convention called the World Science Fiction Convention and talked to this guy who he thought was super cool and introduced him to other people. Basically, he said, "I want to write a novel about the internet."
+
+The dude said, "Wait. You're a reporter? Like, you're an editor? Wait. You're going in?" And the dude was like, "No no no no no no, I'm a writer," which is just incredibly fucking weird because this guy wasn't even from America but he was going to try to write a book about the internet in America.
+
+So, Jon did his research,

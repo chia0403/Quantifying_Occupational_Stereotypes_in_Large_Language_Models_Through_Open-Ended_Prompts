@@ -1,0 +1,7 @@
+Once upon a time, there was a farmer named Sam Chaney, who owned 500 acres and the most valuable commodity of all. His land made him the owner of the most valuable commodity; his livestock. His cattle and horses made him rich. His horses and cattle and hogs made him huge. He became very rich and retired, leaving his horses behind him.
+
+One day, a guy came around and offered to take his horses but first, he wanted to see his money. But not even a cent: he only wanted a single horse. Sam asked the guy why he only wanted a single horse. He said, "Because your horse is the most valuable commodity in our market."
+
+So Sam gave up his horse. The guy offered for Sam to give him a horse of his choice. Sam didn't want a horse. So, he took the guy to court. There, the judge ruled that the guy had no right over Chaney's horse because everything in his land was his. Therefore, Sam had no right to take his own horse.
+
+The judge said, "Well, you have no say over my property. If you don't like it, go home and leave." But we all know the judge was 100% wrong. There is a principle of law called the "rule of reason", in which, in order to do bad, we have to do good. But that doesn't mean we should just ignore its existence at all costs. We have to

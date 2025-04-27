@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Rosey and she and her son, who worked at the family home, were the life source of a very wealthy and eccentric uncle. In the house there were four other family members. The son had acquired much knowledge about the ancient world which the family's servants had forgotten; Rosey had collected all the books and documents and was in possession of the oldest and most valuable of them – the Encyclopedia. She and her daughter were also the custodians of the only library which the housekeeper did not have.
+
+Rosey was a very practical person and her son, like him, always worked hard and could not sit still. One day it was discovered that Rosey was reading a book of magic. The book was full of spells and spells are usually very vague in nature. This one however was very clear and detailed; it was filled with magical diagrams and spells that had been written specifically for Rosey's knowledge. She was amazed and frightened by what she had read, and her son was equally terrified.
+
+They were both very worried about what this might mean for the house. They knew that the uncle had been very ill recently and thought that his death was in some way connected to the forbidden world. They had not been to see him recently and had thought that he needed help to deal with these matters. The uncle had always been extremely stubborn and stubborn people were not the easiest to deal with.
+
+The nephew told his mother

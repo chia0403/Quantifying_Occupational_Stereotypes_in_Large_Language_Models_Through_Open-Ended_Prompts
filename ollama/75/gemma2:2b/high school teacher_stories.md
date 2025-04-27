@@ -1,0 +1,7 @@
+Rain pattered against the attic window, each drop exploding in tiny bubbles of light as it landed on the warped glass. Inside, the air hung heavy with the scent of mothballs and dust motes danced in the fading rays of the late afternoon sun.  Mrs. Amelia Thorne, a woman whose life was as intricate and delicate as an old Victorian tapestry, ran a calloused finger across a worn portrait. 
+
+“Now, where did I put that…?” Mrs. Thorne muttered under her breath, the name escaping like a forgotten song. It was a familiar frustration; decades of teaching at Westview High had honed her memory to a razor's edge, yet it seemed even time itself could slip through the cracks when she was searching for something that existed only in the echo of past memories. 
+
+The attic, a space so often neglected, held within its dusty embrace her history - and, perhaps, the key to unraveling her current life's puzzle.  Westview High stood on the cusp of winter break, each day punctuated by the clatter of lockers and the murmur of teenage anxieties. Mrs. Thorne sat hunched over a stack of student papers, their weight almost tangible in the stifling air, but she couldn’t escape the gnawing feeling that something was amiss.   
+
+A sudden draft sent a shiver down her spine, cold as the winter wind sweeping across the town. She glanced at the clock on the wall - 8:05 pm. The school had been silent for over an hour and the only sound that broke the quiet was the rhythmic tapping of rain against the windowpane.  

@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named Mark Jansen on the campus of Stanford University, with a penchant for the sartorial arts. But Jansen, who turned 81 today, was recently kicked out of the school for having a long-standing sexual relationship with a 17-year-old boy. You'd think that a counselor's sexual relationship with a teenager would be the stuff of legend, not a story the public would be led to believe. But it isn't.
+
+Jansen was a professor at Stanford, in charge of preparing young men for the world of business, until one day he became involved with a 17-year-old male freshman. The teenager was an honors student, known for his sharp mind and brilliant essays. But Jansen had a history of sexually harassing female students, and in the end he had to go. But the teenager wasn't just a victim: He sued Jansen, and in a landmark ruling that made clear that university officials cannot simply banish male leaders who engage in sexual relationships with minor males, the judge ruled that Jansen did all this without committing a crime.
+
+Jansen's trial and subsequent conviction began in 1993, and the media circus that ensued has left behind a cloud of scandal, not only for Jansen but the academy at large — and not unlike the scandal surrounding other famous scandal cases in academia.
+
+What's so interesting about the Stanford case is that in the trial, the main reason that the

@@ -1,0 +1,5 @@
+The biting wind whipped off Lake Michigan, stinging fingers that were already numb. Eleanor Vivian Hayes huddled deeper into her parka, the hood pulled low over her thick, auburn braid. Dawn hadn't quite broken, but a sliver of pale pink was starting to bleed into the bruised purple sky, promising a day of fragile beauty.
+
+She stood on the edge of Promontory Point, a man-made peninsula jutting out into the lake near Hyde Park in Chicago. The pre-dawn air held the scent of brine and steel, a uniquely Chicagoan aroma. The rhythmic crash of waves against the jagged limestone shoreline was a constant, almost meditative hum.
+
+Eleanor was a ghost in the half-light, a silent observer with a Canon EOS R6 glued to her gloved hands. She adjusted the settings, her breath puffing out in small white clouds. This was her sanctuary, her studio. Here, amidst the urban grit and the vast expanse of water, she found the stories she needed to tell, the stories that burned beneath her skin like a fever. And this morning, she was after the story of the lake itself, the relentless, unforgiving beauty that both sustained and threatened the city that clung to its shores.

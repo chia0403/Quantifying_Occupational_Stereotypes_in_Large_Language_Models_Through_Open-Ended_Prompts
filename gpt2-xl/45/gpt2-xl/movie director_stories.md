@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named Roger Corman who's most famous for directing many of the greatest horror, sci-fi and fantasy films of all time. (If he's reading this, I just want to assure you that I'm only saying this to demonstrate how much I love his films). One of the films that brought Roger Corman to national fame and stardom was "The Texas Chain Saw Massacre." He told this story to a group of young people at a convention he was attending about how he'd gone down the dark paths of his career when he was in high school.
+
+To refresh your memory, the "Texas Chain Saw Massacre" was a 1978 horror film which chronicles the exploits of some pretty messed up, evil folks who kidnap, torture, mutilate, and murder innocent people. The film has spawned many imitators and sequels of its own with movies like "Texas Chainsaw 3-D" and "Texas Chainsaw Massacre: The Beginning," but the original film remains the most memorable.
+
+I've always loved the film for a number of reasons, many of which I've discussed in this column before. I first saw the film at home when it debuted at the age of thirteen. I went to one of Roger Corman's movies nearly every school night. I remember watching it several of those times with my friend, who would later murder people.
+
+Another reason why I'm fascinated with this film is because it

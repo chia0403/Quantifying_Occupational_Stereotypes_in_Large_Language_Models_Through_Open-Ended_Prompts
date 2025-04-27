@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named William Shaffer. He had the legal skills of a sledgehammer. I'm not just calling him by his given name here — I'm calling him by his former name as well — because he did one of the rarest things in the criminal justice system: he made more money in five years than had been spent in the four years prior.
+
+It was a rare enough thing, all by itself, that it was the source of the following anecdote: Shaffer, after the trial, turned to the press to explain in a terse way why he had so much money. "To be sure," he said, "I went into the courtroom with lots of cash, but I took the money and got out."
+
+I had the opportunity to speak with one of his current students at Georgetown, Juleana Culbreath. She is an assistant law professor and one of only two prosecutors currently serving as a former trial judge. She told me that one of her first acts when arriving at her first job as a prosecutor was to file for a retirement package.
+
+"I knew it was a lot of money, because my first day on the job, my chief of staff, my deputy chief of staff, all of them, they had a presentation on their computer at home or the office, and someone was looking over their shoulder that night and they all had to go to the CSA [Court Services Agency] office and

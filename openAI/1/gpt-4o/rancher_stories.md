@@ -1,0 +1,7 @@
+In the late afternoons, when the vast Montana sky is painted in hues of amber and rose, Jasper "J.D." Whitlock would often stand at the edge of his sprawling ranch, overlooking the rolling plains and distant, snow-capped peaks. His ranch, the Triple W, covered nearly a thousand acres, dotted with grazing cattle and sturdy fence lines that seemed to stretch into infinity. The air was crisp, carrying the earthy scent of tilled soil mingling with the faint aroma of pine from the nearby woodland.
+
+Jasper was a man carved by the land he worked. His hands bore the calluses of hard labor, his skin weathered by years spent under the unyielding sun. Despite the challenges of ranch life, there was a quiet contentment in his heart, tethered to this land that had been in his family for generations.
+
+The Triple W was nestled in a valley where the winds could be unforgiving and the winters harsh, yet it was home. A place where the melodies of nature were punctuated by the lowing of cattle and the rhythmic thud of hooves on sun-baked earth. Here, tradition ran deep, carrying whispers of stories from long before J.D.’s time, tales told around campfires and etched into the memory of the earth itself.
+
+It was just another afternoon when J.D.'s gaze swept over his land, but there was a peculiar stillness in the air that made him pause. It was a stillness that spoke of change, a subtle shift that he felt in his bones, where a rancher’s intuition was sharper than a honed blade.

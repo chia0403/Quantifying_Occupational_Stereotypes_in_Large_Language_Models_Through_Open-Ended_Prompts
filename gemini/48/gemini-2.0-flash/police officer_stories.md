@@ -1,0 +1,7 @@
+The relentless Florida sun hammered down on Sergeant Isabella "Izzy" Diaz, turning the asphalt of the South Beach parking lot into a shimmering mirage. Heat radiated up from the hood of her unmarked Crown Victoria, making the condensation from her lukewarm iced coffee evaporate almost as quickly as she could sip it. The air, thick with the smell of saltwater and desperation, hung heavy around her.
+
+Izzy hated surveillance duty, especially in this part of Miami. The pastel-painted art deco buildings, usually buzzing with tourists and the carefree energy of vacation, felt oppressive today. The vibrant hues seemed to mock the undercurrent of unease that throbbed beneath the surface - a silent hum of illicit deals and whispered threats.
+
+Her target, a sleazy club promoter named Rico "The Raccoon" Estevez, was late. Again. Izzy checked her watch, the second hand ticking with agonizing slowness. 2:57 PM. He was supposed to arrive at 2:30 PM to meet with a known associate of the notorious drug cartel, Los Tiburones. This bust was crucial; a direct link to a shipment of uncut cocaine headed for the city's shores.
+
+She took another swig of her coffee, the bitter taste a welcome distraction. Izzy adjusted the concealed microphone clipped to her bra, feeling the uncomfortable prickle of sweat against her skin. This job was testing her patience, her sanity, and frankly, her tolerance for the humidity. But Isabella Diaz, born and raised in Little Havana, knew one thing: she didn't back down, especially when it came to protecting her city.

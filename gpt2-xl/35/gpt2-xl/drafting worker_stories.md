@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named William who was so excited about coming into the draft capital to become a draftsman that he would spend his whole day walking around on the streets just waiting—to be drafted. In order to get to the draft capital, he would have to traverse multiple towns, and sometimes get lost along the way. What happened then is that a group of brave men sent out a notice on a blackboard: If you are willing to be drafted and work for the king, you may go.
+
+Of course, by this time, many people and their families had to be evacuated so that the castle could be saved. Also, the men had their hair cut in a very formal way. All in all, William could not wait to be drafted and was so excited that he went at once to the castle.
+
+What happened to William that day is like this: Someone had set a large rock on the rock face of the castle, and William, having no experience climbing, stumbled and fell on the rock. Luckily, the rock was too steep for him to climb up and safely stand back-to-back on it. He got wedged between it and the castle's wall as a result. So when the king asked William what his job was and that he was "the man from the castle," William simply replied, "Do you want me to be a draftsman?"
+
+The king laughed, and replied, "And what kind of

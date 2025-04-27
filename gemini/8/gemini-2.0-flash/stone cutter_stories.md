@@ -1,0 +1,9 @@
+## Story Opening:
+
+The grit of pulverized granite was permanently etched into Elias Thorne's skin, a testament to decades spent wrestling with the cold, unyielding heart of the earth. He didn't mind it, not really. The dust was a part of him, just like the calluses that armored his hands, the ache that settled deep in his bones each evening, and the quiet satisfaction he found in coaxing beauty from the rough-hewn stone. He paused, levered his hammer back, and brought it down with a rhythmic *thunk* against the chisel. A small chip of grey flew off, revealing a glimpse of the pristine white marble beneath.
+
+Elias Thorne straightened, wiping the sweat from his brow with the back of his arm, and squinted at the emerging figure. It was almost there, the flowing robe, the serene curve of the cheekbone. Another few days, perhaps a week, and the angel would be ready to grace the entrance of the Grand Cathedral.
+
+## Setting:
+
+The year is 1888. Elias Thorne's workshop, a sprawling shed of timber and stone, sits nestled at the foot of the Apennine Mountains, just outside the small, ancient village of Pietramonte. The air is perpetually thick with the scent of marble dust and the sound of chisels biting into stone. Inside, tools of all shapes and sizes hang from the walls, meticulously arranged and oiled. Marble blocks, in varying stages of completion, clutter the floor. Sunlight streams in through a large, dusty window, illuminating swirling motes of dust and highlighting the intricate details of half-finished sculptures. Beyond the window, the village of Pietramonte clings precariously to the mountainside, a tapestry of terracotta roofs and winding cobblestone streets. In the distance, the snow-capped peaks of the Apennines rise majestically, their stark beauty a constant source of inspiration for the artists and artisans who call this place home.

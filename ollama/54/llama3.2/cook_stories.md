@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+The sun had just set over the bustling streets of Paris, casting a warm orange glow over the winding alleys and quaint cafes that lined the Seine River. The smell of freshly baked croissants wafted from the patisserie next door to Le Coeur de la Vie, a small bistro where 28-year-old Chef Aurélie Dupont was busy prepping for the evening's service.
+
+Aurélie, with her dark hair tied back in a ponytail and a smudge of flour on her left cheek, expertly chopped a batch of shallots as she mentally rehearsed the night's menu. Her eyes scanned the kitchen, where her team of line cooks and sous chefs were busily chopping vegetables and sautéing proteins. The air was filled with the sizzle of meat on the grill and the soft hum of French pop music, creating a cozy atmosphere that made even the most discerning diner feel at home.
+
+As she finished plating the evening's specials – a delicate soupe de poisson served in a delicate ceramic bowl adorned with a sprinkle of microgreens – Aurélie couldn't shake the feeling that something was off. The phone had been ringing nonstop all afternoon, and she'd had to take calls from an unusually high number of suppliers about cancelled orders and forgotten ingredient deliveries. It seemed like every restaurant in town was short-staffed or running low on key ingredients, but Aurélie's bistro had somehow managed to avoid the chaos so far.
+
+Still, as she glanced around the kitchen with a practiced eye, Aurélie couldn't help but feel a twinge of unease. The phone rings, and her kitchen staff seem...off. Little did she know, tonight was going to be one for the books – and it would test even her culinary expertise to its limits.

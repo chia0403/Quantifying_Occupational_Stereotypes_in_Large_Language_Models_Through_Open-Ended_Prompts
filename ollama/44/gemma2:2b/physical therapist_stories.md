@@ -1,0 +1,9 @@
+Rain lashed against the windows of Dr. Amelia "Amy" Thorne's office, each drop like a whispered accusation as it fell upon her well-worn textbooks. Outside, the wind howled a mournful symphony through the ancient oaks that lined her quiet suburban street. It was 7:15 PM, and Amy was just beginning to unwind after another long day at the clinic. The patients were always demanding - some with fresh injuries, others grappling with chronic pain - but tonight felt particularly heavy. 
+
+Her eyes fell on the overflowing laundry basket in the corner – a reminder of her chaotic life.  Amy had never been one for extravagance, content with the quiet humdrum of her days. But lately, something had shifted beneath the surface. A nagging unease lingered alongside her tired shoulders as she stared at the pile of clothes. Tonight, however, was not about laundry or even her patients. It was about the letter. 
+
+The small white envelope lay crumpled in her hand, its crisp edges whispering a promise of change. Inside, the words were simple yet profound: "Amelia Thorne, you are being called upon." The mystery deepened as Amy traced the faded ink. She had to find out what this call meant, and quickly.  
+ 
+**Setting:** A small town in Connecticut, USA. It's a place where the seasons change slowly, and people tend to stay rooted in their lives, their routines meticulously followed.  The clinic is nestled amongst sprawling oak trees, reflecting Amy's own quiet disposition. The neighborhood holds secrets as old as time; whispers of forgotten tragedies and hushed conversations that seem to follow you down every street. 
+
+**Main character:** Dr. Amelia "Amy" Thorne - A dedicated but solitary physical therapist. She lives her life by schedule, a routine that seems both comforting and stifling to some. 

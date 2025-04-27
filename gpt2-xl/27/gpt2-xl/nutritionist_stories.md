@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named Dr. Atkins. He discovered his diet had something to do with eating less because of excess calories. He wrote a book on the subject. It was called The Art and Science of Low Carbohydrate Living. A man named Ray Cronise wrote a book called Fat Chance, which argued for a diet with a low or zero carb content.
+
+You see, all it means in real terms is that you have some excess carbs in your diet but you are consuming fewer calories than you used to. For example, suppose you have 1000 calories in a day and you eat 1200 calories. The carbs are 1500 and the calories are 1200. The problem is, you get fat because your body, which is fueled by carbohydrates, is making energy. So you are burning off your 1200 calories, but you are making less energy than you needed. You lost 2.5 pounds. But you gained 10 pounds of fat. Now, you are not going to lose the 2.5 pounds of fat, and no, in fact, you're pretty likely to gain it back.
+
+You gain weight because of several things. For example, the fat cells make insulin and cortisol, which are inflammatory molecules. You also create a huge amount of water when you digest food. There is no such thing as a "healthy" cell or tissue. All things start out as unhealthy.
+
+The problem with low carb that has been largely ignored is that eating too many

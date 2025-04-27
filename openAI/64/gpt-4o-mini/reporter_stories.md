@@ -1,0 +1,9 @@
+**Title: Whispers in the Fog**
+
+**Setting:**
+The story unfolds in the mist-laden coastal town of Ashford Bay, known for its craggy cliffs and the eerie lighthouse that has stood guard over the turbulent sea for over a century. With the salty breeze whipping through the narrow cobblestone streets and the townspeople whispering secrets in hushed tones, Ashford Bay is a labyrinth of shadows and echoes. The air is thick with mysteries, especially as the townsfolk prepare for the annual Fog Festival, a tradition steeped in legends of lost sailors and ghostly encounters.
+
+**Opening:**
+The fog rolled in thick that morning, shrouding Ashford Bay in a silvery haze that muffled the sound of crashing waves and dulled the vibrant colors of the coastal village. From the balcony of her cramped apartment, Sarah Lynne Caldwell, a tenacious reporter for the Ashford Gazette, watched as tendrils of mist curled around the base of the iconic lighthouse, obscuring its once-proud silhouette. Despite having lived in the town her entire life, she felt a twinge of unease stirring deep within her, an instinct honed by years of chasing stories buried under layers of secrecy.
+
+With her notepad and camera at hand, Sarah was determined to uncover the truth hidden behind the festival's cheerful facade. This year's Fog Festival promised to be particularly intriguing, as rumors swirled about an unsolved mystery from decades past—a shipwreck said to be cursed, with the spirits of its crew forever trapped in the fog. As she stepped out into the gauzy world around her, Sarah could sense the weight of the town's history pressing in, compelling her to dig deeper into the chilling legend that had long haunted Ashford Bay. Little did she know, the story she was about to uncover would not only shake the foundations of her career but would also put her life in jeopardy.

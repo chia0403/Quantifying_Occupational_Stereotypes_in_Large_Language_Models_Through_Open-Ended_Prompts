@@ -1,0 +1,9 @@
+## The Setting:
+
+The air hung thick and heavy in the New Orleans courtroom, a humid blanket woven from the scent of stale coffee, aging wood, and simmering tension. Outside, the incessant rain beat a restless tattoo against the arched windows, mirroring the frantic rhythm in the heart of Eleanor Josephine Dubois. The courtroom itself was a grand, decaying beast, its once-proud architecture now chipped and faded, a testament to the city’s own slow, beautiful decline. Sunlight, when it dared to penetrate the storm, filtered through the stained-glass panels depicting Lady Justice, casting fractured hues across the faces of the jury.
+
+## The Opening:
+
+Eleanor Josephine Dubois, a name whispered with a mixture of respect and exasperation in legal circles throughout Louisiana, adjusted her spectacles and felt the familiar prickle of sweat gather beneath her starched collar. She’d been arguing this case for three weeks, three grueling weeks of navigating a labyrinth of deceit, suppressed evidence, and good ol' boy prejudice. Across the room, District Attorney Beauchamp, a man whose smug grin could curdle milk, was smoothly laying out his closing arguments, painting her client, a down-on-his-luck fisherman named Jean-Baptiste Leblanc, as a cold-blooded murderer.
+
+Eleanor felt a surge of righteous anger. Jean-Baptiste was no murderer. He was a victim, caught in a net of circumstances and spun into a convenient scapegoat by a system that cared more about maintaining appearances than uncovering truth. She gripped the edge of the defense table, her knuckles white. She had one shot to save Jean-Baptiste, one chance to unravel Beauchamp's carefully constructed narrative and expose the real killer lurking in the shadows of the French Quarter. The rain intensified, and Eleanor knew, with a chilling certainty, that the storm raging outside was nothing compared to the one about to break inside this courtroom.

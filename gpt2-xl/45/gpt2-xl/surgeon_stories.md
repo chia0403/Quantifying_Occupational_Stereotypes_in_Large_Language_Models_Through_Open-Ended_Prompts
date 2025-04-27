@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named Dr. B. H. Sallis. Dr. Sallis was one of the last ones to be hired by our government, and had been stationed on the island of Roanoke at the time that our military engineers began work upon the island in 1784. At the same time, and in the course of the construction, an accident occurred to him which caused him to be hospitalized. When he got to the hospital, however, he was able to make the necessary arrangements to get back.
+
+On his return he was informed that by the law of the country he was entitled to his wages. His answer was, after stating that if we have given him a job he shall have a job, we shall have nothing to do with his wages, and after his advice we did not have anything to do with his wages until the government, after the work was completed, required him to help.
+
+The government's counsel, in reply to the surgeon's question, said that our law was such as to make him independent of the hospital and our country, and his answer was again favorable. It was in this manner the system carried into effect for about four years, when another surgeon was hired on the island, but Dr. Sallis had other things to attend to.
+
+During this time, a man named Oliver was appointed surgeon of the hospital, where his name is still in use. He was not a poor fellow

@@ -1,0 +1,7 @@
+Once upon a time, there was a construction worker named William J. Brennan who made one in his garage. It was a single-handed operation – no jackhammer like what we're used to – and it was a simple one: he pounded on the building's steel frame, he'd swing his hammer a certain way to drive steel, he'd pull it back, to pry steel, and then that steel would go to the machine, which cranked out the walls, roof and framing. And, because there was no way to tell if it was good or bad, there was always the potential for an accident and a lot of human suffering. It might seem trivial, but it wasn't, especially when the work took up to two years.
+
+There are now thousands of people building and repairing homes without tools of any kind – no power tools, no drills. They're not just taking the job in their own garage – they're building entirely new houses, at the push of a button, with no tools at all.
+
+And some, like myself, don't even have a house. I'm just one of many architects, engineers and others working with the new wave of open-source architectural software, known as "3D Architect," which aims to eliminate many of the tasks traditionally done by architects.
+
+While the big 3-D builders like SketchUp, AutoCAD and Rhino need to use a computer-controlled mill or machine to take a 3-D

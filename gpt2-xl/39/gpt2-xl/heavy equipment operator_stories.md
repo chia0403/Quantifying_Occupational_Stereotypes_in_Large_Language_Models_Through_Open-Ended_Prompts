@@ -1,0 +1,7 @@
+Once upon a time, there was a heavy equipment operator named Mike Smith (no last name given). He was in charge of turning out the dirt to fill in and repair areas of water damage when it rained very hard, causing sludge to get in the work site and into the road leading toward the oil field.
+
+We didn't have a road-paving machine then, so Smith had to do the work in one piece, by hand. This was a hazardous activity due to the heavy equipment and the very large quantities of water. The sludge got into the roadbed about a foot below the surface and, at that point, he dug a large channel which was used to deliver the sludge to the trucks, where it was loaded onto the trailers, and was subsequently distributed out for filling in the remaining road. In most areas, the road was fully repaired by the next morning.
+
+Smith got married and had a long work life before being retired from Texas State College, but didn't stop thinking about that time. The rain had dried up the sludge, and he realized that the gravel road he had paved with regular, solid tires would have had the same effect. With the help of other workers, however, he had the road resurfaced with "wet" gravel tires, leaving an inch of smooth, dry gravel to keep everything smooth until more hard-packed asphalt was poured.
+
+Now, a similar road-paving project is underway in West Texas

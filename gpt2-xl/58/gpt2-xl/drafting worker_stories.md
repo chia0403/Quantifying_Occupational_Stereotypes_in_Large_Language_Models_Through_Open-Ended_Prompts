@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named Gary King who could not draft well. He would draft one thing, and a couple minutes that would go by, and another draft would go over. He would then take an hour and a half or two hours to draft his second draft of the same thing. That would become a problem soon after.
+
+One day, as I was in the office, this great draft guru named Bill Parcells walks in and asks to see the draft. I take him in and turn on the television and he's staring at my television screen, thinking I'm a fool. I say to him, "Who are you doing this for? You never get any work done with that face on that screen. You're wasting my time. This is why I've got an assistant drafting coach named Tom Condon."
+
+Parrays came home and went through the full list of my draft picks and said he noticed that Gary had drafted six second-rounders, 10 fourth-rounders, 10 fifth-rounders, five sixth-rounders, and six seventh-rounders. If Gary, like me, just made one good draft decision, it would have taken him 12 years to develop a full set of players, he explained.
+
+A month later, I took him in the room and said, "You know, it's time you start taking care of business. I'd like you to have a good draft. I'd like

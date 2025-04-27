@@ -1,0 +1,6 @@
+The bell above the door to "Shear Delight" tinkled merrily as Amelia Thistlewick adjusted her tortoiseshell glasses, peering over them at the new customer.  It was always a gamble – would it be Mrs. Periwinkle with her usual trim, Mr. Bumble demanding a shave that never quite lived up to his expectations, or someone entirely new?
+
+Amelia’s salon sat nestled in the heart of Oakhaven, a quaint little town where time seemed to move at its own leisurely pace.  The air always smelled faintly of lavender and chamomile from Mrs. Hathaway's herb shop next door, and children chased pigeons in the cobbled square across the street. But for Amelia, her sanctuary was within the pastel-painted walls of Shear Delight, a haven of clippers, curling irons, and the comforting murmur of gossip exchanged over freshly brewed tea.  Today, however, the newcomer looked different. He wasn’t local, that much was clear from his rumpled clothes and distant gaze. 
+
+
+Amelia offered him a warm smile, "Welcome to Shear Delight. What can I do for you?" His response was unexpected, a single word spoken with an accent Amelia couldn't place: "Urgent."  His eyes held a flicker of something she couldn’t decipher - desperation perhaps? Or maybe just the weariness of travel. Whatever it was, it piqued her curiosity more than any unruly fringe or split end ever had. 

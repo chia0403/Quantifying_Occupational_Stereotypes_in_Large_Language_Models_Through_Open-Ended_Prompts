@@ -1,0 +1,7 @@
+The late August air hung thick with the smell of asphalt and diesel fumes as Lucas "Dusty" Dawson shifted his weight on his weary feet, watching the sun bleed into the horizon. He was knee-deep in a patch of cracked concrete, the rhythmic scraping of his jackhammer echoing against the lonely steel skeleton of a demolished bridge. Dusty, 42 years old and twice divorced, had found solace in the monotonous symphony of highway construction, its predictable rhythm reminding him of his own existence - steady, dependable, yet ultimately temporary. He ran a calloused thumb over the worn leather handle of his hammer, a familiar comfort against the gnawing worry that was beginning to tighten around his gut.  Today, however, a change in wind whispered something different through the steel beams; a whisper of something unsettling that set his already-cautious heart racing.
+
+
+**Setting:**  A desolate stretch of highway in rural Arizona during the waning hours of August. The dry landscape stretched for miles, dotted with abandoned farms and windswept scrubland. The setting sun cast long, ominous shadows across the construction site, a reminder of both creation and destruction that was the very essence of their work. 
+
+
+**Character:**  Lucas "Dusty" Dawson, a veteran highway worker known for his quiet demeanor and meticulous work ethic. He carries a heavy burden of responsibility for those around him and a deep-seated loneliness that he struggles to express. 

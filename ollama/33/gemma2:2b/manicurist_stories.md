@@ -1,0 +1,5 @@
+The rhythmic scrape of the nail file against Isabella's fingertips was almost hypnotic as she meticulously shaped Mrs. Henderson's almond-shaped nails. The salon, "A Touch of Elegance," hummed with a quiet energy that only came with twilight. Soft jazz played in the background, and the scent of lavender hand cream hung heavy in the air.  Isabella, known by everyone as Izzy to her clients, was lost in the gentle artistry, each stroke adding life and form to Mrs. Henderson's delicate fingers. 
+
+The salon was a sanctuary for broken souls who sought solace in polished edges and meticulous attention. The setting sun cast long shadows across the room, painting the antique mirrors with warm hues of orange and pink. Outside, the city throbbed with its usual chaotic energy, but inside "A Touch of Elegance," time seemed to flow at its own pace.   Izzy sighed contentedly as she finished the last detail on Mrs. Henderson's nails, the woman smiling back at her.  "You know how to make a tired soul feel alive, Izzy," Mrs. Henderson said with a chuckle. 
+
+"Sometimes," Izzy replied, tucking a stray strand of auburn hair behind her ear, "a little beauty is all it takes."   

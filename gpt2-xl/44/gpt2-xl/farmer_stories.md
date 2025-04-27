@@ -1,0 +1,7 @@
+Once upon a time, there was a farmer named Bill who owned the "Wine of Wines", and whose sons and daughter-in-law worked at the winery. Many years ago, Bill died. But before then, he had given some of the wines to his son Ray, and Ray passed them on to his daughter Alice. And Alice took them to her grandchildren, and passed them on to their children, and so on, through the generations. But one of the descendants had a secret: that he was gay. So he went to the press, and made a statement in the newspapers.
+
+"As a result of my feelings about my sexuality, I wish to pass on all the wine to another fellow."
+
+Now the wines had become much sought after, and the family farm was being sold. But Bill didn't want to lose the wine, so he decided to do something more, and asked for a donation from the family of the next oldest son, Robert.
+
+The next day the family woke up, expecting, like any other day, to get a regular paycheck for their hard work, but instead, they were surprised to receive a letter that said, "We regret to inform you of the death of your sister, Ruth." As Ruth would have to go to the hospital for a checkup, the next day, the family came into work only to find out that they were now the owners of the "Wine of Wines" - the family

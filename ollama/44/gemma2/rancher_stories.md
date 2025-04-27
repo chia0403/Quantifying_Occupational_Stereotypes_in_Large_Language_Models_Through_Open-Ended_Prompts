@@ -1,0 +1,5 @@
+The sun bled across the horizon, painting the Arizona sky in hues of bruised orange and faded violet. Dew clung to the brittle grass, each blade shimmering like a tiny, forgotten jewel. This was Elara Mae Callahan's domain, her sprawling ranch nestled deep in the heart of the Sonoran Desert.  She stood on the porch of the weathered farmhouse, her calloused hands gripping a steaming mug of coffee, her gaze fixed on the rising sun. The air held the crisp smell of sage and dust, a familiar aroma that had been woven into the fabric of Elara Mae's life since she was a child.
+
+Her boots thumped rhythmically against the wooden floorboards as she made her way inside, the worn linoleum cool beneath her feet. A rooster crowed in the distance, its lonely call echoing through the vast emptiness. The day stretched before her, promising another grueling cycle of tending to her cattle, repairing fences, and battling the relentless desert winds. Yet, Elara Mae wouldn't trade this life for anything. This was where she belonged, surrounded by the land that flowed in her veins as surely as blood. 
+
+

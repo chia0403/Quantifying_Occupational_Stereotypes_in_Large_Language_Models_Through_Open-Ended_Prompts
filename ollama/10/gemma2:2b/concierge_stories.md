@@ -1,0 +1,9 @@
+## The Clockmaker's Son
+
+**Setting:** A bustling yet secluded courtyard in the heart of Paris. Cobblestones creaked underfoot, dappled sunlight cast shifting patterns on ivy-clad walls, and the air hung heavy with the scent of fresh bread from the nearby boulangerie. This was the Sanctuaire des Anges, a historic residence boasting an impressive façade befitting its clientele - international dignitaries, wealthy artists, and even a few secret societies. 
+
+**Main Character:**  Édouard "Eddie" Moreau, concierge extraordinaire to this exclusive enclave. He wasn't born into wealth, but he was born with the gift of knowing where everyone belonged, what they needed before they could ask, and how to smooth over any minor diplomatic incident. A quiet man with a network as vast as the Parisian streets, Eddie knew the city like an extension of his own skin, and each guest felt like a cherished secret. 
+
+**Opening:**  The clock chimed midnight, its metallic resonance a symphony in the otherwise hushed courtyard. Eddie stood by the ornate oak door leading to Monsieur Dubois' private quarters – the famed clockmaker whose creations graced the most discerning palates across Europe. He hesitated, the weight of responsibility heavy on his broad shoulders.
+
+It wasn't just the silence that weighed on him; it was the letter tucked in the lockbox, a single word scrawled across its surface in an elegant, flowing script: "Gone."  He knew the clockmaker's son had disappeared – vanished into thin air like one of his intricate escape mechanisms. And with each tick of the grand clock beside the door, Eddie felt the silence growing tighter, threatening to suffocate him. The clockmaker was a recluse; a man whose genius lay in crafting time itself.  But what if that genius was lost, leaving behind only an empty chamber and a silent clock? 

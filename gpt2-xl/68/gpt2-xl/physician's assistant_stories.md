@@ -1,0 +1,7 @@
+Once upon a time, there was a physician's assistant named Michael. He was a friend of the family who lived in the town of Tromp for a few years. One time he took an interest in my daughter, and had the courage to try and figure out why people are afraid of her. The doctors all had their theories, and they all looked at her the same way. One day, she came home crying about this and said, "Dad, don't worry. They're just afraid of me, because I'm not afraid of them." He said, "They're not. You're not afraid of anything." And she was right. Michael was never afraid of anything."
+
+"You're not afraid of anything?"
+
+"Yeah. Even when things went wrong." Then they got all the way around the table to Michael and said, "Okay, you're not going to be angry anymore. The best thing to avoid is telling me all your problems." He said, "Why would I want the first thing anyone ever told me?" and then they all laughed and went to sleep together. They still do.
+
+Michael's mother called one night and told him to stop by because everything had changed, and they were selling the farm. Michael drove up in a little black cab. "Come inside, sweetheart. You've got something to tell me," they said, and then it was just the two of them. There was a box in the box,

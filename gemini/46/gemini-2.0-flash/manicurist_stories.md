@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting featuring a manicurist:
+
+**Setting:**
+
+The humid, floral-scented air of "The Polished Petal" hung heavy, a mixture of stargazer lilies (delivered fresh every Monday) and the sharp tang of acetone. Sunlight slanted through the sheer, pink-tinted blinds, painting stripes across the plush, velvet pedicure chairs. Nestled on a busy street corner in the historic French Quarter of New Orleans, the salon was an oasis of calm amidst the city's vibrant chaos. Mardi Gras beads, leftover from months ago, still clung to the wrought-iron balcony railing, shimmering like forgotten treasures. Inside, soft jazz drifted from hidden speakers, a constant, comforting murmur that masked the hum of the ventilation system and the occasional raucous laughter spilling from the bar next door. Every surface gleamed, meticulously maintained, reflecting the dedication its owner poured into creating a haven of beauty and relaxation.
+
+**Story Opening:**
+
+Eulalie Beauregard stared at the chipped, crimson polish on Madame Dubois' nails with a practiced eye. It was a shade called "Vampire's Kiss," which was ironic, considering the woman resembled a particularly grumpy, slightly-deflated marshmallow. "Honestly, Eulalie, darling," Madame Dubois drawled, her voice thick with a Louisiana accent. "This is simply barbaric. I could never be seen at the Opera Guild's gala with *this* disaster."
+
+Eulalie stifled a sigh. Some days, she felt less like a manicurist and more like a therapist, a confidante, and a glorified nail-polish remover all rolled into one. "Of course, Madame Dubois," she said, her voice smooth and reassuring. "We'll have you sparkling in no time. Perhaps something a little more… understated for this evening? A delicate pearl shimmer, perhaps?" Her mind, however, was racing. Understated was boring. Eulalie, fueled by an unbidden surge of creative energy, envisioned intricate filigree patterns, tiny seed pearls, perhaps even a miniature, hand-painted fleur-de-lis. The problem wasn't inspiration; it was reining it in. This bubbling creativity, this restless energy, it was both her greatest gift and her most persistent curse. It was also a sure sign that things were about to get very, very interesting.

@@ -1,0 +1,7 @@
+Dr. Elise Montrose sat quietly at her desk, her fingers gently tapping against the polished oak surface. The rhythmic sound was just audible over the soft hum of the city outside her office window. Each tap marked the passing of another second as she reviewed the neatly organized files before her. Her office, nestled within the bustling heart of downtown Seattle, was an oasis of tranquility amid the chaos.
+
+The room was tastefully appointed, a sanctuary painted in calming shades of teal and seafoam green. Walls adorned with abstract art lent an air of creativity and openness, while the plush taupe carpet underfoot absorbed the distant noises of traffic and life below. A delicate scent of lavender lingered in the air—a soothing balm Dr. Montrose believed helped ease the minds of her patients.
+
+The broad window behind her desk offered a panoramic view of the gray, rain-kissed skyline, the iconic Space Needle visible in the distance. Here, above the city's relentless pace, she found her domain—an intimate space where stories unfolded and healing began.
+
+Elise Montrose, with her warm hazel eyes and an empathetic demeanor, was renowned for her ability to untangle the intricate web of the human psyche. Her patients knew her not just as a skilled clinician, but as a confidante and guide. Today, like most days, she prepared to navigate the inner landscapes of those who sought her counsel, ready to listen, to question, and to gently lead them toward understanding.

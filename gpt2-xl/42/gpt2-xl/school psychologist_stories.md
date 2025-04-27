@@ -1,0 +1,7 @@
+Once upon a time, there was a school psychologist named Dr. William Biale, who, in his study of how kids made bad friends, observed that the key to creating these bad friendships was in the quality of their sex lives and not the presence or absence of extracurricular activities. These activities were "not to protect the friendship, but simply to strengthen it."
+
+How would you describe the sex life of a college undergraduate? That's the kind of question that should move the conversation from one of academics to a larger and more personal level. I don't doubt that for most people, a two-hour conversation with their mother is about the sex life they should be having and not one of the many other things they ought to be doing to improve their life satisfaction and happiness.
+
+A couple people have asked about the relationship between sex and social class, and that kind of discussion is an important one. But it should never be our primary objective when we're trying to understand college students and their sex lives.
+
+I've heard some people argue that the higher their educational level, the less sex. This seems to be, at least anecdotally, not true but even assuming it was true, it would be one thing. The higher a person's level of education is, the greater the scope of their knowledge. The greater the scope, the greater the variety of experiences they can have that challenge them. They're learning to be responsible for themselves and their lives and,

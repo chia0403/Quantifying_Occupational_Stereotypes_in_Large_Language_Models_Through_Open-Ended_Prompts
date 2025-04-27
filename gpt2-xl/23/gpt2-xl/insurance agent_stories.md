@@ -1,0 +1,7 @@
+Once upon a time, there was a insurance agent named Dickie Moore, whom the writer Harry Shearer called ''the scion of a wealthy family'' and ''the most sophisticated scions around.'' She went out with a girl whose father owned the longest line of chain restaurants imaginable, to the point where each one of them might as well have been one of the chain's three competitors, and, though this was a rare event in the days before the franchising system, it did happen at a certain point: ''The line extended past a five-thirty store. If the customer was too much of a surly person, the chain restaurant would go in an emergency closure, and it would come back again as soon as customers were nicer.''
+
+Advertisement Continue reading the main story
+
+At some point in this unappetizing chain, Dickie had an argument with a young lawyer who happened to be sitting at her table and started calling her a ''damn prude.'' (Moore herself has said that while this was not intentional, it was the most unfortunate thing that could ever have happened to her.) ''I thought we were friends,'' Shearer told me. ''She was wearing a white dress, white gloves, a white chiffon handkerchief, and this man was wearing a gray coat, gray cap, and gray slacks with white socks. You could tell the difference.''
+
+The guy went off angrily, and Moore said, ''O.K.,

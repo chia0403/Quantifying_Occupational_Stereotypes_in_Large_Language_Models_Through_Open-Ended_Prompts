@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia Juniper’s head, casting a sterile glow over the rows of numbered chairs in the waiting area. The usual murmur of anxious patients was muted today, replaced by the rhythmic beeping of machines and the occasional cough, each sound amplified in the hushed atmosphere.  Amelia adjusted her lavender scrubs, the scent of disinfectant clinging faintly to the fabric, and checked the blood pressure monitor beside her station. It blinked silently, a digital reminder of the stillness that permeated the otherwise bustling clinic. 
+
+Today was different. Today, something felt…off.   The air seemed thicker, charged with a nervous energy that prickled at Amelia’s skin.  She glanced at the clock – 8:45 AM. Her shift officially started in fifteen minutes, and she was already on edge. It wasn't just the quiet; it was the emptiness. The waiting area, usually packed by this time, was deserted, save for a lone man slumped in a chair, his face hidden beneath a newspaper. Even the usual clutter of magazines and pamphlets seemed to have vanished. 
+
+
+Amelia, with her gentle touch and reassuring smile, had become known as "The Blood Whisperer" among the clinic's patients.  But today, she couldn't shake the feeling that something was about to unravel, and she wasn't sure if it would be a good or bad thing. 

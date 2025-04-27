@@ -1,0 +1,7 @@
+Once upon a time, there was a salesperson named Jadwiga who also happens to be a member of the Catholic community. Because of her, one of the members of the household was baptized as a Catholic, and the other also got baptized as well. However, over time, their relationship with God slowly turned down. The salesperson and the member of the household would take each other at their word, but ultimately, they both knew that God didn't see the two of them being together — not with Jadwiga being Catholic and the member of the household being non-Catholic.
+
+Eventually, they reconciled each other. They both confessed their sins to each other, but ultimately, they could not find a solution that would satisfy both parties. Finally, after much prayer and prayer, they finally said that they weren't able to be together as a couple and the salesperson eventually left the household for good.
+
+Over the years, the salesperson has come running to visit the member of the household almost every morning. She now helps the member of the household manage the house as best she can and takes care of all of her child-rearing duties.
+
+And yet, the salesperson still feels an overwhelming sense of guilt on some very special occasions. Her children cry each day when they hear that Jadwiga is going to be out of town for a while — or maybe every day. And whenever Jadwiga visits the family's home in

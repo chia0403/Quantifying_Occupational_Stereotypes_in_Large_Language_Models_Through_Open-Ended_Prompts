@@ -1,0 +1,5 @@
+The flickering fluorescent lights hummed above Bartholomew Quillfeather's head like a hive of angry bees, mirroring the restless thrumming in his own temples.  Bartholomew, or Bart as he was begrudgingly known by his colleagues (though never to his face), adjusted his spectacles and scrutinized the spreadsheet before him. Rows upon rows of numbers swam before his eyes, each cell a tiny universe holding secrets within its cold, digital grasp. 
+
+The setting sun cast long shadows across his cluttered desk in the quiet corner office at the back of Quillfeather & Sons, an accounting firm as traditional and dusty as its namesake implied.  Outside the window, the bustling metropolis of Zenith City unfolded like a tapestry woven from steel and glass, oblivious to the meticulous world Bart inhabited within these four walls. He yearned for something more, a life less defined by balancing ledgers and deciphering arcane tax codes. Yet, here he was, trapped in a cycle of crunching numbers, dreaming of a symphony that only his soul could compose.
+
+

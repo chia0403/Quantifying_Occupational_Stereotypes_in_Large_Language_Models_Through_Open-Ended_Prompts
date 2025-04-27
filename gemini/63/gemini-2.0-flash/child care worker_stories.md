@@ -1,0 +1,9 @@
+Okay, here's a story opening with a child care worker named Amelia Rose Carter:
+
+**Opening:**
+
+The air in the 'Busy Bees' room hung thick with the scent of dried Play-Doh and disinfectant. Amelia Rose Carter sighed, pushing a stray strand of auburn hair behind her ear. It was the peculiar scent of victory, she thought, the aroma of another day survived. Three o'clock, pickup time, and the tail end of the afternoon madness was finally receding like a tide. Little Lucy was still attempting to fashion a dinosaur out of green clay (more of a blob, really), and two of the four-year-olds, Leo and Maya, were locked in a silent, ferocious battle over the last blue crayon, their faces screwed up in concentration. Amelia just hoped the crayon didn't break. Again.
+
+**Setting:**
+
+The "Busy Bees" room is the brightly colored preschool room in a larger daycare center called "Little Sprouts Early Learning Center," located in a suburban neighborhood in Boise, Idaho. The room itself is designed for 3-5 year olds and is meticulously arranged (usually, anyway). One wall is dedicated to art projects - currently a chaotic explosion of finger paint interpretations of sunflowers. Another wall features low shelves packed with toys: building blocks, dolls, trucks, puzzles, and enough stuffed animals to rival a small zoo. A small, child-sized table sits in the center of the room, surrounded by mismatched plastic chairs. The room also features a small, carpeted "reading nook" in the corner with beanbag chairs and a overflowing bookshelf of picture books. The entire space is bathed in warm, late-afternoon sunlight filtering through large, child-safe windows. Outside, the sounds of children playing on the swings and slides drift in, a cheerful counterpoint to the controlled chaos inside. Little Sprouts, though aesthetically pleasant, is underfunded, which always makes it difficult for Amelia to provide the best possible environment for her kids.

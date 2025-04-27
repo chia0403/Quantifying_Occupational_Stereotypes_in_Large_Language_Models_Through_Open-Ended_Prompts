@@ -1,0 +1,11 @@
+In the heart of downtown New Haven, where the bustling streets intertwined like veins bringing life to the city, stood the venerable Allendale Tower. Its facade, a mix of glass and steel, mirrored the vibrant sky, constantly shifting with the whims of the weather. On the ground floor of this imposing structure, nestled between a chic café and a florists whose fragrant tendrils of roses and lilies wafted through the air, was the bright and welcoming lobby of Cranston & Co., an esteemed consulting firm.
+
+The lobby was sleek, designed with minimalist aesthetics in mind. A polished marble floor reflected the soft, ambient light from a series of carefully placed fixtures. The walls were a gentle shade of eggshell, adorned with abstract paintings that hinted at the whispers of creativity brewing within the minds of those who worked above.
+
+Behind a walnut counter, smooth as silk and flawlessly maintained, sat Beatrice "Bea" Harrington, the firm's stalwart receptionist. Bea was a woman in her early thirties, possessing an aura of effortless grace and efficiency. Her emerald green eyes, framed by wavy chestnut hair, held an inviting warmth that seemed to put everyone instantly at ease.
+
+Bea’s day commenced with the crisp rustle of the morning paper as she unfurled it over the counter accompanied by a steaming mug of earl grey tea. Her desk, always tidy, bore a small array of succulents, each with a personality as distinct as the people who passed by her station. The tap-tap of keyboards and muted footsteps echoed through the lobby as the building began to thrum with the energy of the coming day.
+
+While the din of the office rose and fell like the gentle sway of the tides, Bea remained a constant presence, orchestrating the ebb and flow of visitors with the precision of a seasoned conductor. To many, she was the first impression of Cranston & Co., a role she embraced with poise and a genuine smile.
+
+As the doors slid open to welcome the first wave of employees and clients, Bea prepared herself, as she always did, not just as a guardian of the threshold, but as the heart of the firm, knitting together the tapestry of countless stories that unfolded within the halls of Allendale Tower.

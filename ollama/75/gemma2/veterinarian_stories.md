@@ -1,0 +1,6 @@
+The rusty swing set creaked rhythmically in the humid Georgia air, its faded blue paint peeling like sunburned skin.  A symphony of cicadas buzzed in the oak trees that lined Dr. Elizabeth "Ellie" Hawthorne's long driveway. Ellie leaned against her porch railing, a mug of lukewarm coffee cradled in her hand, and surveyed the sprawling expanse of her family's veterinary clinic. It wasn't much to look at, a rambling brick building with mismatched windows and a perpetually leaky roof, but it held decades of memories, laughter, tears, and the unwavering rhythm of healing.  
+
+Ellie inhaled the familiar scent of disinfectant and hay, tinged with the sweet, cloying perfume of honeysuckle blooming across the road. She was about to head inside for her first patient of the day – a frantic farmer calling about his prize-winning rooster who'd developed a peculiar limp – when a flash of silver caught her eye. A lone hummingbird hovered by the old birdbath, its iridescent wings blurring like miniature jewels. 
+
+
+This wasn't unusual; Ellie had always been surrounded by creatures great and small, finding solace in their silent companionship. But this bird seemed different. It landed on the rim of the birdbath, its tiny head cocked, as if scrutinizing her with an unnerving intelligence.  Ellie held her breath, captivated by the creature's intensity. 

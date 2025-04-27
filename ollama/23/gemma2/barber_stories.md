@@ -1,0 +1,5 @@
+The aroma of bay rum and talcum powder hung thick in the air, a comforting blanket over Arthur Bartholomew "Barty" Finnegan's cluttered barbershop. Sunlight streamed through the dusty windowpanes, illuminating motes dancing in the warm haze. Barty stood behind his polished oak counter, meticulously sharpening his straight razor, the glint of the steel reflecting in his tired blue eyes. The bell above the door tinkled faintly as a customer entered – a burly man with a face weathered like an old leather saddle and a thick mustache that seemed to quiver with every word he spoke.  
+
+Barty’s small shop, nestled on the corner of Elm and Maple Streets in the heart of Hawthorne, had been his sanctuary for over thirty years. Generations of men had walked through its doors, seeking not just a trim but a moment of respite from the world outside. Barty knew their stories, their joys and sorrows, whispered in the low hum of conversation that filled the shop each day. But lately, the familiar rhythm felt off. The laughter seemed quieter, the conversations shorter. A shadow had fallen over Hawthorne, a creeping unease that Barty couldn't quite place. 
+
+

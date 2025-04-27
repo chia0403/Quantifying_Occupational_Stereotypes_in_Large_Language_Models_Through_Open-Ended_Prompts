@@ -1,0 +1,5 @@
+The aroma of lavender and eucalyptus hung heavy in the air, a gentle haze that clung to Eleanor "Ellie" Thorne as she kneaded her client's tense shoulders. The room was bathed in the soft glow of Himalayan salt lamps, casting a warm orange light on the worn wooden floorboards. Rain lashed against the windows, creating a rhythmic drumming that masked the city sounds beyond. Ellie worked rhythmically, her hands gliding over taut muscles with practiced ease.
+
+Her studio, nestled in a quiet backstreet of Brooklyn, was a haven from the chaos that often consumed her neighborhood. She had poured her heart into every detail – the hand-stitched cushions, the calming music playlist she curated, even the chipped ceramic mug filled with peppermint tea that sat patiently on a small side table.  Ellie loved this space. It was where she helped people release their burdens, one knot at a time. But tonight, a prickle of unease ran beneath the familiar comfort. The storm seemed to mirror the storm brewing inside her own heart.   
+
+

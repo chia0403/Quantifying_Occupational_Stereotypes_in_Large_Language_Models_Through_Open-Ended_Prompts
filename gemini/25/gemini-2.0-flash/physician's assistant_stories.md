@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, featuring a physician's assistant named Eleanor Hayes:
+
+**Setting:** The small, perpetually-overcrowded waiting room of “Riverbend Family Clinic” in the rural, Appalachian town of Harmony Creek, West Virginia. The walls are painted a cheerful, but faded, shade of sunflower yellow. A worn-out copy of "National Geographic" from 2018 lies abandoned on a side table littered with well-worn toys. The air is thick with the scent of disinfectant, stale coffee, and a faint undercurrent of apprehension. Outside, the rain is coming down in sheets, turning the gravel parking lot into a muddy soup.
+
+**Opening:**
+
+The insistent buzzing of the exam room pager ripped Eleanor Hayes from the depths of yet another insurance denial form. "Hayes, Exam 3," it blared, the sound amplified by the close confines of her tiny office. Dr. Abernathy was clearly running late, again. Eleanor, her auburn hair escaping its loose bun in rebellious strands, sighed. She rubbed the bridge of her nose, the ghost of a headache already beginning to throb. She glanced at her reflection in the computer screen: tired eyes, smattering of freckles across her nose, the faint hint of worry etched around her mouth. "Another day, another denial," she muttered under her breath.
+
+She straightened her crisp, white coat, the Riverbend Family Clinic logo stitched crookedly on the pocket, and pushed herself up from her desk. Outside, the waiting room was a symphony of coughs, whimpers, and the low hum of nervous conversation. Little Timmy Henderson was currently engaged in a wrestling match with a stuffed giraffe, and Mrs. Gable was clearly not happy about it. Eleanor gave them both a weary smile and headed for Exam Room 3, bracing herself for whatever the day would bring. In Harmony Creek, it was always something.

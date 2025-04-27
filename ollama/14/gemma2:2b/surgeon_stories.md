@@ -1,0 +1,8 @@
+The sterile white ceiling hummed above Dr. Alistair Thorne's head, its faint flicker mirroring the flickering flame in his cigarette as he stared out the window. Rain lashed against the pane, blurring the city skyline into streaks of grey and black. He was perched on the balcony of his Chicago apartment, an uncharacteristic escape from the controlled chaos inside the operating room.  His phone vibrated with another urgent request: "Urgent case - ER." 
+
+Alistair Thorne, world-renowned cardiac surgeon, hadn't seen rain like this since he was a boy in rural Wales, huddled under a thin sheet while storms raged outside. He remembered his grandfather telling him stories of the Welsh "dragon-storms," their power so vast it seemed to claw at the sky itself.  
+
+He flicked ash into the drain, the familiar sting of nicotine reminding him that life outside the operating theatre was a battlefield he rarely fought. A lone figure in a world filled with fragile, ticking timebombs. Tonight, though, Alistair felt strangely out of sync. The rhythm of his heartbeat echoed the tempest outside - chaotic, urgent, yet strangely hypnotic. He knew this case would demand everything he had; just like life itself, sometimes you couldn't control the storm, only learn to dance within it. 
+
+
+**Setting:** Chicago, a city known for its relentless pace and towering architecture, hiding a quiet underbelly of urban grit and hidden storms. The vibrant energy is offset by the shadows of human vulnerability and suffering, all within the confines of his city-locked apartment overlooking the ever-changing cityscape.  

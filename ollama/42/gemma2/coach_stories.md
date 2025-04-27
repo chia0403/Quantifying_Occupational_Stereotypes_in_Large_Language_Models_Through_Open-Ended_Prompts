@@ -1,0 +1,5 @@
+The humid Georgia air clung to Coach Amelia "Amy" Rose like a second skin as she surveyed her team huddled on the gridiron. The smell of freshly cut grass mingled with sweat and nervous energy, a familiar aroma that always fueled her competitive spirit.  
+
+Golden afternoon sunlight cast long shadows across the worn field at Willow Creek High School. The once vibrant green was now speckled with patches of brown, testament to the relentless August heat and the countless hours spent practicing under it. Sweat dripped from Amy's forehead as she adjusted her visor, her gaze sweeping over each player. There were hopeful smiles, anxious glances, and a few faces etched with fatigue - all the familiar signs of a team on the cusp of something big. 
+
+Willow Creek hadn't won a championship in nearly two decades, but this year felt different.  Amy could see it in their eyes, that spark of determination fueled by hard work and a shared dream. The underdog spirit simmered beneath the surface, ready to ignite when the season kicked off.   

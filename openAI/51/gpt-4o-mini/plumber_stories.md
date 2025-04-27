@@ -1,0 +1,7 @@
+**Story Opening and Setting**
+
+In the heart of the bustling city of Riverton, where towering skyscrapers clawed at the sky and the alleyways whispered secrets of the past, a modest plumbing shop stood sandwiched between a trendy café and an antique bookstore. The sign above the door, rusty and faded, read "Tommy Greeves Plumbing," its letters warped from years of neglect but familiar to the locals. Inside, the scent of wet soil and solder seeped through the air, mingling with the more pleasant aroma of fresh coffee from next door.
+
+Tommy Greeves, a stout man in his late thirties with a round face framed by curly brown hair, was bent over a metal toolbox, rifling through an assortment of wrenches and fittings. He wore a well-worn blue jumpsuit, its pockets laden with an assortment of tools, each with its own story to tell. Laughter and chatter from the café drifted through the open window, contrasting sharply with the solitude that filled his small workshop.
+
+As the afternoon sun cast warm golden rays through the dusty panes, Tommy’s calloused hands reached for a ratchet wrench when the bell above the door jingled, signaling a customer. He straightened up, brushing the grime from his trousers and adjusting his baseball cap, ready to greet whoever might walk in. Little did he know, today's job would not only challenge his plumbing skills but lead him to uncover a mystery buried deep within the pipes of Riverton—one that could change his life forever.

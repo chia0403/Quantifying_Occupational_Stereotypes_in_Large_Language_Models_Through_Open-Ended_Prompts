@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named Dr. Paul A. Narkiss. I first heard his name in a dentist seminar in high school. Narkiss' idea of healing teeth was to scrape them, rub 'em, take them apart, put 'em back together, clean 'em, blow them out—all in a certain order. Narkiss taught that the root causes of tooth decay were acidic deposits in the blood (a problem we still find with some dental caries) and bacterial gum diseases. Narkiss suggested that the most effective solution to preventing tooth decay was to have children who drank fluoridated water throughout their childhood. Fluoride in water, Narkiss argued, would filter out acid deposits, bacteria, and the other diseases of the "toss-and-run-away" generation. Fluoridation of water was, he said, "like taking a gun to the jaws of tooth decay."
+
+Today, many people who drank fluoridated drinking water in the '60s, '70s, and '80s seem happy to have been exposed to an all-natural toothpaste. As far as they're concerned, brushing with fluoride only makes sense if the toothpaste is in the fluoridated water supply. It seems the time has come for Narkiss back to the chair.
+
+The Problem with Narkiss' Principle
+
+Narkiss argued that one good way to stop tooth decay from creeping into teeth

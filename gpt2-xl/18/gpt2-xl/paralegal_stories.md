@@ -1,0 +1,7 @@
+Once upon a time, there was a paralegal named Chris Hansen, who made his way from Seattle to L.A. in search of answers. He got them. And now, a decade later, he's trying to do the same thing for his first sports book. "I have a new title," says the 41-year-old filmmaker whose production company, The Sports Doc Report, recently completed its first season. "Let's make This Week in Hell Sports."
+
+Hansen will tell the story of what he calls "the week of insanity" that unfolded last season at the University of Phoenix Stadium in Glendale, Colorado, during a game between the Denver Broncos and the Arizona Cardinals (a game that the Broncos won 38-17). The Arizona hosts of the San Francisco 49ers were coming to town and needed a big win. Hansen decided to make his own. And he had all of the best reporters on the planet to break the story. "I needed to get it as raw, personal and unedited as possible, just like I would in my reporting work," Hansen says.
+
+PHOTOS: New York, L.A. Top Sports Filmmakers: Where Is The Next Chris Hansen?
+
+It's a book for athletes, not writers. In his "The Story," a chapter that deals with Peyton Manning's Super Bowl XXXVIII MVP acceptance speech, Hansen wrote that the Colts quarterback was "so mad at his own team" that he would have

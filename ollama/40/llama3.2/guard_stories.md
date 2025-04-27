@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun had long since set on the sprawling metropolis of New Eden, casting a dark and foreboding shadow over the towering skyscrapers that seemed to touch the sky. The streets were empty, save for the occasional passerby hurrying to find shelter from the coming night. In the midst of this desolate landscape stood the imposing walls of the New Eden Correctional Facility, its granite façade glowing with a faint blue light that seemed to pulse in time with the heartbeats of those trapped within.
+
+Within the facility's cold, grey halls, 32-year-old Guard Elara Vexen patrolled her designated sector, her eyes scanning the rows of cellblocks for any sign of disturbance. A seasoned veteran of the correctional force, Elara had seen it all - from the worst of humanity's crimes to the quietest of introspective inmates trying to make amends. She knew every inch of this place, every quirk and nuance that made New Eden Correctional Facility tick.
+
+As she walked, her footsteps echoed off the walls, a steady beat that seemed to match the rhythm of her own thoughts. Elara's mind was on the upcoming transfer of an especially volatile prisoner, one whose presence had already caused whispers among the guards. She knew that this transfer would be anything but routine...

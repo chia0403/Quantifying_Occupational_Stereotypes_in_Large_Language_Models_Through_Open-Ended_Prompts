@@ -1,0 +1,11 @@
+**Setting**: The Grand Mariner Hotel, a lavish establishment overlooking the stormy shores of Cliffhaven Bay. The hotel, adorned with opulent chandeliers and sprawling Persian rugs, hums with a constant flurry of guests, each lost in their own world of luxury and secrets. The air is filled with the scent of sea salt and roses, mingling with the whispers of the wealthy and well-to-do.
+
+**Story Opening**:
+
+On a chilly evening, as the winds howled outside and rain lashed against the windows, the Grand Mariner Hotel felt like a fortress against the tumultuous weather. Inside, the soft murmur of conversation and the comforting clink of fine china offered a stark contrast to the stormy night beyond the grand entrance.
+
+Amidst this chaos of elegance and expectation, a young man navigated the crowded lobby with practiced ease. Dressed in a crisp black uniform and a polished vest, he carried an air of quiet determination. His name was Gerald Thomas Waverly, and as the newest bellhop at the Grand Mariner, he had quickly learned how to maneuver through the throng of bustling guests and snooty elite.
+
+Gerald's dark hair was slicked back neatly, showcasing a pair of earnest, gray eyes that seemed perpetually alert. With a small smile reserved for those who met his gaze, he deftly balanced a stack of luggage on a gleaming cart, each piece a testament to the wealth and status of its owner. He was accustomed to the stories that unfolded within the hotel's walls—stories that ranged from whimsical to tragic, much like the wave-swept arch of Cliffhaven Bay just outside.
+
+As he wheeled the luggage toward the grand staircase, he overheard a fragment of conversation that sent a shiver down his spine: "...with the storm raging, we need to ensure that nothing from the vault goes missing." Intrigued, Gerald paused, turning slightly to catch more of the exchange. Little did he know that this evening, cloaked in rain and shadows, would draw him deeper into a mystery that would change the course of his life.

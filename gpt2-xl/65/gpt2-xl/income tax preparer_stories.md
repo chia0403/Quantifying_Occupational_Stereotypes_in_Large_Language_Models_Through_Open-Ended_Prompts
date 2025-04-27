@@ -1,0 +1,7 @@
+Once upon a time, there was a income tax preparer named J.J. Gibson, according to the book "J.J. Gibson and the Making of America"; his father, J.B. Gibson III, was a real-estate lawyer, the book says. He became an accountant for his own firm but was dissatisfied at the job. In his office he kept a copy of "A Tax Guide for Small Business," written in 1910, when many self-employed individuals were still paying small-scale estate tax. Gibson had trouble reconciling how such people's returns showed taxable income and allowed them more deductions than people who worked for a big corporation.
+
+Gibson's idea was for everybody who earned income to file a single returns. Then the government would compare those returns with those of people who worked for huge corporations instead of in small families. "Let's see if corporations pay more, and let's see if the deductions and special tax rate are lower," he said.
+
+Gibson's idea eventually morphed into the Internal Revenue Service's Revenue Procedure, or the "standard." His principle was that deductions should be limited to the highest amount on the highest form of income for the person. (See "What You Can and Can't Deduct.")
+
+Some people objected to Gibson's concept. One was Abraham Lincoln, who wanted government to tax corporations at the rate that people paid in income taxes and not the rate of the highest dollar, since that could discourage

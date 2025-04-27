@@ -1,0 +1,9 @@
+Title: **Beneath the Willow**
+
+Setting: The story opens in a small, picturesque town nestled in a valley surrounded by rolling hills and ancient forests. The sun hangs low in the sky, casting a warm golden glow over the grounds of Greywood Manor, a grand estate dating back to the late 1800s. The sprawling gardens are in a state of quiet decay, with flowering vines climbing up crumbling stone walls and wildflowers overtaking manicured hedges. At the heart of the garden stands a solitary willow tree, its long, sweeping branches creating a gentle curtain of green that sways in the warm breeze, whispering secrets of the past to those who bother to listen.
+
+Main Character: **Elias Montgomery**
+
+Elias Montgomery, the dedicated groundskeeper of Greywood Manor, is a man of few words but profound wisdom. Clad in faded overalls and a well-worn straw hat, he embodies the spirit of the estate he tends to, his hands calloused from years of labor yet surprisingly gentle as he nurtures the land. With tousled brown hair peppered with gray, and deep-set hazel eyes that seem to hold countless stories, he can often be found kneeling in the flower beds or trimming the edges of the cobblestone paths, lost in thought as nature unfolds around him.
+
+As the sun sets behind the hills, painting the sky in hues of orange and purple, Elias feels a familiar stirring within his heart—a mix of longing and melancholy. This evening, as he tends to the withering petals of a once-vibrant rosebush, he senses that something has shifted in the air, as if the very estate itself is trying to communicate with him. Little does he know, this ordinary evening in the garden will lead him to uncover the untold history of Greywood Manor, one that intertwines with his own in ways he never could have imagined.

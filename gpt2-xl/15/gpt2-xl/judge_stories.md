@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named Robert Wistrich, who worked at the Eastern District Court of Alabama. (He retired in 2009.) In December 2009, Wistrich was assigned to the fraud trial of Russell Taylor, who, the press was reporting to be "the man behind some of the most notorious frauds in history."
+
+For the next three years, the record of events in this case would go unseen, with only his own testimony and those of some people involved in the case being reported in the local and national media. Then, in January 2011, a federal court judge ordered Taylor charged and prosecuted under that infamous 1917 law, known as the RICO Act, after receiving a "detailed report" by a federal prosecutor at the U.S. Department of Justice, Assistant U.S. Attorney Elizabeth A. Paltrow.
+
+Taylor has been held in solitary confinement at the Menard Correctional Center in Jessup, Md., for the past four years for alleged bank fraud in the sale of his company, Taylor Construction Inc., to a Canadian company that promptly ran off with approximately $3 billion of its ill-gotten gains while Taylor's company was still alive. (By law, banks cannot keep such missing funds for more than three years.)
+
+This month, as part of the court case in the Eastern District of Alabama, the news media began reporting about, among other things, a telephone chat Taylor had with attorney and former client Alan D

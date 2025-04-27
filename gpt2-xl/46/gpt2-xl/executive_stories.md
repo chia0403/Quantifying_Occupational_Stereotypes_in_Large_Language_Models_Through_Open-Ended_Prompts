@@ -1,0 +1,5 @@
+Once upon a time, there was a executive named James Arness who had no intention of having sex with a human being. We all know how that turned out. Arness was eventually hired by the company's founder, who took him on as a partner and assigned him the position of head of research. We don't quite know how Arness reacted. But now that we finally have some insight into the man's life, we are able to read some of his journal entries, and the author of today's comic is talking about a possible sex scenario involving the former executive.
+
+The notes were discovered by the creators of The New York Times Magazine's "How the World Became Sexier Than Ever" article, where they made fun of how ridiculous it is that men never got horny the way women do.
+
+Arness, who died in 1977, wasn't the only one who was apparently unable to "get laid" for years. In fact, women weren't so bad, either. Arness wrote that, according to his research, women were "the most interesting people around." But he did lament the fact that, among male executives, "the average male is just a very dull bore."

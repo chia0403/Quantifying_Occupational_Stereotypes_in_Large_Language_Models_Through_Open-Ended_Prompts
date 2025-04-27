@@ -1,0 +1,6 @@
+The air in Elias Thorne’s workshop hung thick with the scent of lavender and sawdust, a heady mix that always seemed to calm his nerves. The late afternoon sun slanted through the grimy windowpanes, casting long shadows across the scattered bolts of fabric and half-finished garments draped over chairs and worktables. A tangle of spools in every color imaginable lay neatly organized on a shelf beside him, each one whispering tales of past creations – a ruby red velvet cloak for a nobleman's daughter, a sky blue linen suit for a dashing young adventurer, a simple white muslin gown for a blushing bride. 
+
+Elias ran a gloved hand over the rough texture of an unfinished waistcoat, his brow furrowed in concentration. The fabric, a deep forest green velvet, was unusually difficult to work with, resisting his needle and threatening to unravel at every turn.  He sighed, wiping sweat from his brow with the back of his hand. It wasn’t unusual for him to get lost in the intricacies of a piece, but this one felt different, as if it were fighting back against his intentions. 
+
+
+Elias Thorne, the most sought-after tailor in all of Atheria, was facing his biggest challenge yet:  a commission from the Queen herself. The fabric whispered secrets, and he couldn’t quite decipher them. What would become of him if he failed?  

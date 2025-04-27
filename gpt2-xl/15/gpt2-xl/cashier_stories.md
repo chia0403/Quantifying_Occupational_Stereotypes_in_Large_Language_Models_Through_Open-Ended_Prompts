@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named John. Every day when John walked into work, the whole place buzzed with excitement. At noon he would put on his white uniform jacket from his previous job, and his big round, gold-rimmed spectacles, leaving them in the corner of his sunglasses as a reminder of another place, another life, a place which he had left and which didn't deserve him.
+
+John's life was a very long time ago; he would like to tell you about it. To show you that everything you have lost in the past is still there. He would invite you close to the table where he used to sit, place your order, give his smile which always took you by surprise, his friendly hand, and go back into another world. But then, if you were persistent, he would tell you something that just wasn't right now. He would remind you that he was gone, like he always should have been.
+
+Today, when John walked into the shop, his past was still there, just as it always was — just like the food he served up, his customer, and the smile he used to give his customers. But it was a different John now, without the old John. He was the one who served you the food. He was the one who looked after you. He wasn't John anymore. Today John served you the food.
+
+And when he was no longer needed, he left you

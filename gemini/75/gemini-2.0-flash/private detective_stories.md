@@ -1,0 +1,13 @@
+## Story Opening:
+
+The rain was a persistent, greasy smear on the neon-slicked streets of Neo-Kyoto, mirroring the feeling in Jack Rourke's gut. It had been a slow week, the kind where dust bunnies outnumbered paying clients in his ramshackle office above the noodle shop. He hadn't even had a decent cup of real coffee in three days, forced to choke down the synthetic swill they sold at the corner vending machine. The only sound louder than the rhythmic drumming on the corrugated iron roof was the insistent buzzing of his holo-terminal, begging him to check the mountain of unpaid bills piling up in its digital inbox.
+
+Rourke sighed, pushing away the half-eaten synthetic ramen that comprised his lunch. He needed a case. He needed a distraction. He needed something, anything, to pull him out of this spiraling descent into financial oblivion and existential dread.
+
+As if on cue, the antiquated door to his office creaked open, revealing a figure silhouetted against the flickering neon glow of the alley outside.
+
+## Setting:
+
+**Neo-Kyoto, 2147:** A sprawling megalopolis built upon the ruins of the old Kyoto. Technology and tradition clash violently in this futuristic city. Sleek, chrome skyscrapers pierce the perpetually smog-choked sky, while ancient temples and meticulously manicured gardens stubbornly cling to life amidst the urban sprawl. Holographic geishas advertise cybernetic enhancements while street vendors hawk traditional crafts beside stalls selling illegal bio-mods. The city is divided into distinct districts, from the opulent Sky Gardens reserved for the elite to the grimy, neon-drenched Underbelly, a haven for criminals and the desperate. The omnipresent surveillance drones of the corporate overlords, the Kaisha, cast long, watchful shadows, ensuring order – or at least the illusion of it.
+
+**Jack Rourke's Office:** Located in the heart of the Underbelly, above a popular, albeit slightly questionable, noodle shop. The office is cramped and cluttered, a testament to Rourke's disorganised life and chronic lack of funds. The walls are peeling, revealing layers of faded posters from a bygone era. A single flickering neon sign, proclaiming "Rourke Investigations" in kanji and broken English, is the only indication that this dingy room is a place of business. The furniture is a mismatched collection of salvaged pieces, dominated by a battered desk overflowing with paperwork, cigarette butts, and empty coffee cups. A single, ancient computer terminal sits precariously balanced on a stack of dusty datachips, its screen displaying a chaotic mess of code and overdue invoices. The air hangs heavy with the smells of stale ramen, cheap cigarettes, and a lingering hint of desperation.

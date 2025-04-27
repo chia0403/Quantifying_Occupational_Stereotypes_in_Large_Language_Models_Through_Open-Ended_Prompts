@@ -1,0 +1,7 @@
+The rain hammered against the window of Elias Thorne's cramped office, mimicking the insistent drumming in his head. The air hung thick with the scent of stale coffee and desperation, a familiar cocktail for a man like him. He leaned back in his threadbare leather chair, his eyes fixed on the flickering neon sign outside that cast an unsteady glow on the rain-slicked street below. "Thorne Investigations - Your Troubles End Here." It was a bold claim, even he'd admit, but then again, what private detective wasn't living on a thread of audacity and cheap bourbon? 
+
+Elias Thorne, his name sounded more like a Shakespearean hero than a man who spent most of his days chasing down stray cats and alimony cheats. He ran a hand through his unruly auburn hair, trying to ignore the insistent buzzing of his phone. Another case he couldn't afford to turn down.  He knew this particular call would be different though, something in the woman's voice as she whispered "Mr. Thorne, I need your help," sent a chill down his spine.  
+
+His office was located above a greasy spoon diner in the seedy underbelly of New Haven, Connecticut. A place where secrets festered like mold and neon signs promised more than they delivered. The city itself was a labyrinth of cobblestone streets and towering brick buildings, draped in perpetual twilight by the looming factories that choked the sky with smoke. It was a world where danger lurked around every corner, a world Elias Thorne knew better than anyone. 
+
+

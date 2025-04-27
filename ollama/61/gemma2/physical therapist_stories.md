@@ -1,0 +1,6 @@
+The insistent chirping of his phone dragged Elias Thorne from a light doze. He swatted at it blindly, silencing the insistent calls before catching sight of the screen. It was Mrs. Petrov, his most demanding (and frankly, most dramatic) client. She’d be awake and ready for her morning session by now, likely already muttering about the “atrocious” stiffness in her hip. Elias sighed, stretching his own limbs with a groan. He'd been up late re-reading case studies – a constant battle against complacency in his profession. 
+
+He worked at The Haven, a sprawling rehabilitation center nestled amongst rolling hills just outside the sleepy town of Oakhaven. Sunlight streamed through the large windows of his office, illuminating dust motes dancing in the air. A gentle breeze carried the scent of pine and damp earth from the surrounding woods, a stark contrast to the sterile smell of antiseptic that permeated most of The Haven. 
+
+
+Elias glanced at the clock – 7:05 am. Mrs. Petrov was expecting him precisely at 7:30, and punctuality was sacred in her world.  He donned his scrubs, grabbed his trusty black toolkit, and headed down the corridor towards his first appointment, ready for another day navigating the intricate web of human pain and resilience.  

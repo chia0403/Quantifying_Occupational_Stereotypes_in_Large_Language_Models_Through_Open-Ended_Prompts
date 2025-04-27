@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named Marni Panas, who has devoted her life to making sure the healthiest foods are widely available to people everywhere. But with a busy schedule, she couldn't keep in regular contact with her clients, so last year Panas, 50, switched professions to become an award-winning celebrity chef and cookbook author who has written a new cookbook called "Healthy Choices: A New Look at Eating for Optimism."
+
+"If it doesn't make sense, I don't feel like it matters," Panas said of her philosophy for eating well. "If a story comes to me in my mind that I want to tell, I'll do my best to make it relevant to everybody."
+
+So Panas came up with a "Diet Bible" of recipes designed to provide easy access to healthy foods that you can include into a week's worth of meals. They are simple and tasty -- just about anything will do them to suit your taste buds.
+
+Among the book's more popular items are the cauliflower burrito and the broccoli and cauliflower "crustless" cakes -- a recipe for which Panas was awarded the 2014 James Beard Foundation Award. Panas said that she's trying to do something different with her new line of recipes from the cookbook, including a recipe for the "Chicory-Shaped" Cheesecake with Mango Salsa or Strawberry Lime Coulis for

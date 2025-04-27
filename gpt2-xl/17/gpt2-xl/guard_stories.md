@@ -1,0 +1,7 @@
+Once upon a time, there was a guard named Bob in the guardhouse of the King's Tower.
+
+She always called him Bob, she kept it that way in case any of the boys ever spoke bad of it. Then one day she got a strange feeling in the dark and found Bob laying in the middle of the floor with his head above the window. She said the King's Tower was empty, and looked in the window, but the room had no furniture except an ink-well and a bookcase on the floor. Bob's head was high above the window, and she thought maybe he was coming back to tell someone of his adventures, so she came out to see if he was going to get up.
+
+"Hello, Bob!" came her shout from the other room. "Weren't you asleep, you were just peeping into your inkwell?" she told the girls. "Well, what the hell are you doing here, anyway?" one of the girls retorted. "You're sleeping on my bed and I'm going to wake you up," the others laughed. "Did you have a good nap last night? The book can't stop me now," Bob pleaded.
+
+"You were looking into my ink-well again, weren't you," Jane said. They laughed some more, but Jane wasn't amused. The girls looked like a rowdy crowd as she came in. The youngest of them even held a book over her head.

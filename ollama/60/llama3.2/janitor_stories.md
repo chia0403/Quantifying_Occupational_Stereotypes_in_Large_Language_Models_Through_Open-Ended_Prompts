@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+It was a drizzly autumn evening in the small town of Willow Creek, where the misty rain seeped into every alleyway and sidewalk like a damp sigh. The streets were empty, save for a lone figure pushing a cart filled with trash cans down Main Street. This was Emmet "Mick" Thompson, a quiet and unassuming janitor who had worked at the local high school for over a decade.
+
+The fluorescent lights of the school's maintenance room cast an eerie glow on Mick's weathered face as he navigated through the dimly lit corridors, his worn sneakers squeaking with each step. The sound echoed off the lockers, where students' names and faces stared back at him from faded photographs and forgotten lockers. Mick knew every nook and cranny of this place, from the dusty corners of the gymnasium to the secret passageways behind the classrooms.
+
+As he emptied a trash can in the cafeteria, Mick caught a glimpse of something out of place - a piece of paper stuck between the chair legs, with a single sentence scrawled on it: "They're not who you think they are." The words sent a shiver down Mick's spine, and for a moment, he forgot about the rain and the drudgery of his job. Something was off in Willow Creek, something that had been lurking just beneath the surface, waiting to be uncovered.
+
+Mick crumpled the paper into a ball and shoved it into his pocket, his mind racing with possibilities. He had always thought of himself as a simple guy, content with his routine and his small circle of friends. But now, he couldn't shake the feeling that there was more to life than just sweeping floors and collecting trash. Little did he know, this ordinary janitor was about to stumble into an extraordinary world.

@@ -1,0 +1,7 @@
+**Opening:**
+
+The acrid scent of hairspray hung heavy in the air, a familiar comfort to Esmeralda Beatrice Dubois. It clung to her clothes, her skin, even seemed to flavor her coffee in the mornings. Today, however, the usual olfactory blanket felt more like a shroud. Esmeralda stared at her reflection in the salon mirror, her own fiery red curls pulled back in a severe bun, a stark contrast to the vibrant colours she usually coaxed out of her clients' manes. Her usually sparkling green eyes were dull, clouded with the worry that had been gnawing at her for weeks. Business was bad. Terribly, catastrophically bad.
+
+**Setting:**
+
+Esmeralda's salon, "The Scarlet Snippet," occupied a small, slightly crumbling, building on the outskirts of Havenwood, a town known more for its antique shops and craft breweries than its cutting-edge style. The interior was a riot of vintage charm, a deliberate antidote to the sterile, minimalist salons that were popping up in the bigger cities. Think mismatched velvet chairs, framed vintage hair posters, and a perpetually playing Billie Holiday on the record player tucked behind the reception desk. Jars of homemade sugar scrubs and organic hair masks lined the shelves, adding to the rustic, slightly eccentric, atmosphere. Sunlight streamed in through the large bay window, illuminating dust motes dancing in the air and highlighting the chipped paint on the floral wallpaper. Despite the charm, a distinct air of quiet desperation hung in the air, a stark contrast to the vibrant, bustling energy it once held.

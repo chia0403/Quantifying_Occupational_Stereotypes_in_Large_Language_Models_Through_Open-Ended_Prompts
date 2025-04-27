@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named Mary Beth. And she never did get to do the doctor thing at last.
+
+
+Mary Beth left for the Army a couple of weeks after the last day of summer, and before she took leave she got a note from her boss saying "I'm not looking to hire another one of you in the next year. You're just going to have to work longer hours." Mary Beth was in her mid-forties, had worked at VA for a few years, loved it, and loved her husband. She hadn't even mentioned it to her boss, and she didn't care. She wanted to stay, and she'd take whatever it took.
+
+
+On a cool, sunny early summer day, Mary Beth pulled up in front of the emergency room. The hospital's waiting room was empty, only the few nurses and patients left. The nurse told Mary Beth to go in and wait--and not in the hallway, as she would have to sit in a chair to get to the emergency room. No, this room was for people that needed to be treated faster because somebody got hurt. It's not every day you get to have your back turned to an emergency room, and that's exactly what happened to Mary Beth the first time she entered. There was no one in the emergency room waiting room either. It was the only one. All of them had left to go back to work--and Mary Beth went to the very hospital

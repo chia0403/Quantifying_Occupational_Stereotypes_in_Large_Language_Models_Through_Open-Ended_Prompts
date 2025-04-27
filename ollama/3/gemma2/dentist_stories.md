@@ -1,0 +1,4 @@
+The insistent whine of the drill reverberated through Dr. Amelia Brighton's office, echoing off the sterile white walls. A symphony of clinking instruments and murmured apologies filled the air as Amelia meticulously worked on Mr. Henderson's chipped molar. Outside, the summer sun blazed down on the sleepy town of Willow Creek, casting long shadows across Main Street.  Amelia, however, was oblivious to the idyllic weather. She focused solely on the intricacies of Mr. Henderson's tooth, her brow furrowed in concentration as she applied a final layer of resin. 
+
+
+Willow Creek wasn't exactly bustling with excitement. It was a place where everyone knew their neighbour's business and gossip travelled faster than the town sheriff's horse. But within the neat confines of Amelia's dental practice,  a different kind of drama unfolded – the drama of anxieties and pearly whites.   

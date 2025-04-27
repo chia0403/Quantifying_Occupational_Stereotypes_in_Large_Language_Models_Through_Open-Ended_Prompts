@@ -1,0 +1,7 @@
+Once upon a time, there was a artist named Jeff Koons who made things for fun. Some of them he did for the art school that he'd attended, some for the hospital in which he was a patient, and some for friends with whom he made fun of the old fashioned art scene in Detroit, Michigan. In the mid-nineties, he began using the phrase "I am the artist," which he was very proud of for a very good reason.
+
+Since then, many other artists have been "the artist," but Jeff Koons is the only one who has put it into a commercial product. Today, Koons is a household name.
+
+Today, the new version of the Koonsian object called "Life is Beautiful" features a life-size male genitalia in a jar of orange juice—it's quite literally a Koonsian piece of shit. It's an expensive and tasteless "art," and in fact, just about any "art piece" is a piece of crap—the difference is that Koons's latest product is the most offensive and expensive of the bunch.
+
+Life is Beautiful, which Koons produced for Louis Vuitton in 2007 as a collaboration with the perfume brand, depicts an orange-juice signifying the life of an elderly woman and a penis with two testicles. The life is beautiful sign is actually quite useful in marketing and advertising: I've learned not to buy clothes, haircuts, or other items

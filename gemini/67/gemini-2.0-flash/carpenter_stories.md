@@ -1,0 +1,7 @@
+## Story Opening:
+
+The scent of cedar and sawdust, a comforting aroma that usually calmed the storm in Elias Thorne's soul, did little to soothe him this morning. Sunlight, fractured by the dusty panes of his workshop window, painted golden stripes across the floor, illuminating motes dancing in the air. He ignored the rhythmic thump of Mrs. Higgins’s laundry from next door and the distant bleating of sheep from Farmer Davies’s pasture. His hammer lay heavy in his calloused hand, untouched. Elias stared at the half-finished rocking horse, its smooth, maple body gleaming, and a wave of frustration washed over him. He couldn't bring himself to finish the gentle curve of its mane, the detail that would bring it to life. Not today.
+
+## Setting:
+
+The village of Oakhaven nestled in the gentle folds of the Cotswolds hills. Built of honey-colored stone that seemed to glow in the afternoon sun, it was a place where time moved with a deliberate slowness, punctuated by the chiming of the church bells and the gossip exchanged over steaming mugs of tea at the "The Golden Fleece" pub. Elias Thorne's workshop, "Thorne's Timber & Treasures," sat just off the main square, its weathered wooden sign hanging crookedly from the eaves. The building itself was a converted barn, dating back centuries, and the interior was a chaotic symphony of wood shavings, antique tools, and half-finished projects. The air was perpetually thick with the smell of wood, a testament to the generations of carpenters who had shaped their lives within its sturdy walls.

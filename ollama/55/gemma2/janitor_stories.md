@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Thaddeus "Teddy" Bartholomew's head like a chorus of restless bees. Their pale, sterile glow cast long shadows across the polished linoleum floor of the Grandview Auditorium, revealing a scattering of abandoned confetti and forgotten programs like autumn leaves after a storm. Teddy pushed his mop across the stage, its damp scent blending with the lingering aroma of cheap perfume and stale popcorn. He was alone in the vast emptiness, save for the echoing silence and the occasional squeak of a chair leg against the hardwood floor. 
+
+The Grandview was usually a hive of activity: buzzing with rehearsals, concerts, political rallies, and even the occasional film premiere. But tonight, it lay dormant, a silent monument to the fleeting nature of entertainment. 
+
+
+Teddy sighed, his breath fogging in the cool night air that seeped through the cracked window at the back of the stage. It was nights like these, after everyone had gone home and the spotlight faded, that he felt the weight of the silence most keenly. The building held stories within its walls, whispers of laughter and applause, cries of joy and sorrow. Teddy, a silent observer, collected those fragments in his own heart, weaving them into a tapestry of memories as he scrubbed and swept, a solitary custodian of forgotten dreams. 

@@ -1,0 +1,5 @@
+Rain lashed against the garage windows, each drop a tiny hammer blow on the already tense atmosphere inside.  The air hung thick with the smell of burnt oil and cheap cologne - an unholy mix that was somehow comforting to Lucas “Luke” Carter, owner and sole operator of "Carter's Car Clinic." He hunched over his workbench, fiddling with a cracked spark plug from an old Ford Fiesta that had been brought in for its third (and possibly last) attempt at passing emissions.  
+
+Luke didn't care much about the cars themselves anymore. The thrill was gone, replaced by a dull ache of routine and a gnawing sense of isolation that felt more permanent than the worn-out leather seats in his little garage. He’d seen it all: busted transmissions, stolen hubcaps, and families crying on their knees while they tried to figure out how to pay for repairs that felt like an impossible task. 
+
+The storm raged outside, but inside Carter's Car Clinic, everything was still as the old man who had once owned it before Luke - quiet, predictable, and tinged with a stubborn refusal to acknowledge the changing world beyond the steel beams of his garage door.  

@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named Jack who had a pretty good ranch. He was the proud owner of the only legal cattle ranch in the whole of California. He had all kinds of cattle and he kept them in perfect condition. His only problem was that he knew all the ranch hands were up to no good. He knew because of the constant rumors flying around the ranch. He'd heard stories that there'd been at least two murders in the last year. Jack knew he wasn't the only ranch hand who'd heard something. He knew that there was some evil lurking around.
+
+For years, Jack had tried to solve the problem of the murders with little luck. He found nothing but trouble. Finally, he went to the police. The police didn't know what they were looking for and they didn't seem interested.
+
+This is where the story takes a turn. The local sheriff is an old friend of Jack's and he's finally convinced Jack to hire a professional. He wants Jack to hire him so he can go on a special investigation of sorts. Jack doesn't want them to do anything else because the people who he knows are involved have made threats against him.
+
+Now we find ourselves in the first half of the adventure. The sheriff is leading Jack on a big adventure into the wild west, and it's the perfect excuse to tell Jack's story. We're not at a place where this story can go any further without having a whole lot

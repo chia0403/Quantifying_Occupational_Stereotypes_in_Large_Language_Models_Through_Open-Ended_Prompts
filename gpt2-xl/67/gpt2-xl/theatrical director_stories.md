@@ -1,0 +1,5 @@
+Once upon a time, there was a theatrical director named David L. Wilson. His stage name was Dr. Feelgood, and he loved to get the audience high. He gave his audiences what they wanted. He would dress kids up in costume, get them in a circle, then tell them to "Feel good!" Over and over, Dr. Feelgood would get the kids high with his antics — throwing up in the air, dancing, and making the audience laugh with his antics. A great way to raise the fun quotient!
+
+So, in order to raise as much fun factor as possible, Wilson would encourage people to make themselves feel good by performing in the most ridiculous costumes they could think of. This included people in animal costumes, people dressed as cowboys, and people in space suits. In order to truly be good to yourself, you should use your life to have a great time.
+
+With that in mind, these are the 10 coolest things this man ever did in his life. And don't forget to share with a friend!

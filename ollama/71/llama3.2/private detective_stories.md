@@ -1,0 +1,7 @@
+It was a drizzly autumn evening in Seattle's historic Pioneer Square neighborhood, the kind of night that made you want to curl up with a good book and a warm cup of coffee. But for Jack "Hawk" Hawkins, private detective, there were no such comforts on the horizon.
+
+As he stood outside his office, a small, unassuming building on the corner of First Avenue and Yesler Way, Hawk gazed out at the rain-soaked streets, his eyes squinting against the gloom. His office was a dingy but reliable haven, cluttered with files, photos, and the occasional broken chair, all testaments to the countless cases that had crossed through its door over the years.
+
+Hawk himself was no stranger to the rain, his dark hair slick with it, his eyes a piercing blue that seemed to bore into those he met. A former cop turned private eye, he'd built a reputation for being one of the best in the business – if not the best. He had a keen mind, a quick wit, and a sixth sense for sniffing out trouble.
+
+As he pushed open the door to his office, a bell above it let out a tired clang, announcing Hawk's arrival to the handful of regulars who filled the waiting room with their various ailments: a flustered businesswoman with a missing briefcase, a desperate husband searching for a cheating wife, and a pair of giggling teenagers trying to find their lost phone. It was just another night in the life of Jack "Hawk" Hawkins, private detective – where the rain poured down, but the stories never dried up.

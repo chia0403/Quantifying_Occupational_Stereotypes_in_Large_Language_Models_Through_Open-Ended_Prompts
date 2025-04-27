@@ -1,0 +1,6 @@
+The scent of stale coffee and nervous sweat hung heavy in the air of Dr. Anya Petrova's office.  Eleanor "Ellie" Beaumont adjusted her headset microphone, smoothing the wrinkles on her lavender blouse. The fluorescent lights buzzed overhead, casting a sickly yellow glow over the reception area, turning the once-cheerful floral wallpaper into a faded, sickly thing.  
+
+Ellie tapped her pen against her notepad, the rhythmic clicking competing with the low hum of the city outside the window. Her gaze flitted between the clock ticking mercilessly towards lunch and the door leading to Dr. Petrova's office. A long day awaited - she had already fielded five calls from concerned patients, three scheduling requests that clashed, and one particularly insistent voice claiming to be a "government official" with an urgent message for Dr. Petrova (who, Ellie suspected, was probably just a telemarketer). 
+
+
+The city outside mirrored the chaos within: a swirling mass of yellow cabs, honking buses, and hurried pedestrians, all rushing towards their own appointments, deadlines, anxieties. But here, in this small office nestled between a dry cleaner and a bakery, Ellie was the anchor, the calm amidst the storm.  She took pride in her role, even if it often felt like holding back the tide with a teaspoon.  

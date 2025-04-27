@@ -1,0 +1,7 @@
+Amelia Grant stood at the edge of the harbor, the salty breeze ruffling her chestnut hair as she gazed out over the water. The sun was beginning its descent, casting a golden glow over Portsmouth, a quaint coastal town known for its rich maritime history and lobster catches. It was one of those rare off days for Amelia, who had spent the better part of her year working tirelessly at St. Anne’s Hospital, just a few blocks from the shoreline.
+
+As a registered nurse, Amelia was used to the hustle and bustle of the bustling emergency room, where life moved at a breakneck pace and decisions were measured in seconds. But here, with the gentle sound of waves lapping against the wooden pilings and the distant call of a lone seagull, time seemed to gracefully suspend itself, allowing her a moment of reflection.
+
+The air was tinged with the scent of salt and seaweed, a familiar aroma that reminded her of her childhood summers spent at this very harbor with her grandfather, learning to sail on the open sea. It was a stark contrast to the sterile, antiseptic smell of the hospital corridors that she knew all too well.
+
+In her pocket was a letter from the hospital director, but Amelia hadn't had the heart to open it yet. She knew the contents would determine much about her future either way, and for now, she decided, she preferred the present - the sound of the ocean, the feel of the brisk air, and the peace that came with not knowing. For the moment, she was simply Amelia Grant, resident of Portsmouth, standing on the cusp of something unknown.

@@ -1,0 +1,8 @@
+The rain hammered against the shop window like a thousand tiny fists, each one pummeling the glass until it almost cracked. Inside, the air hung thick with the scent of pine needles, hairspray, and old man's cologne. This was "Arthur’s Haven," a small barbershop tucked away on a forgotten corner of Elm Street, owned and operated by Arthur Featherstone, a man who could shave whiskers off a bulldog’s face and mend a broken heart in equal measure.  
+
+He sat at his worn-out stool behind the cluttered counter, humming a melancholic tune to himself as he carefully crafted a fade into the back of a man's head – a young fellow named Thomas, fresh from a semester abroad with more stories than he could remember and a soul that looked ready for a good shave. The sound of his clipper was a familiar melody in Arthur’s ears, soothing the storm outside like a warm blanket on a cold night. 
+
+
+Arthur had lived a long life – his hair as white as a winter moon and his wrinkles more stories than he could count. Years ago, when he was just a young man, he had vowed to create a haven for men who needed a bit of solace in their lives, a place where they could escape the world's pressures and find themselves again – one shave at a time.
+ 
+But as Thomas sat there getting his face cleaned and trimmed, Arthur couldn’t help but wonder if that haven was anything more than a dream, a quiet whisper against the roar of the city.  For in these last few years, he had seen men leave his shop with their hair tamed and hearts still wild – leaving him to ponder whether true solace could ever be found without some kind of storm-tossed sea in your soul. 

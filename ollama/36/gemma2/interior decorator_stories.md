@@ -1,0 +1,5 @@
+The air hung thick with the scent of jasmine and impending disaster. Amelia Beatrice Hawthorne adjusted her spectacles, surveying the living room with the practiced eye of an interior decorator who'd seen more renovation nightmares than she cared to remember.  
+
+This particular nightmare was nestled in a rambling Victorian mansion on the outskirts of Savannah, Georgia. Sunlight streamed through dusty windows, illuminating faded floral wallpaper and a collection of antique furniture that looked like it had been rescued from a shipwreck. Cobwebs draped the once-elegant chandeliers like macabre decorations, and a family portrait hung askew above a fireplace choked with ash. 
+
+Amelia sighed. This wasn't just another renovation project; this was a rescue mission.  The client, a widowed socialite named Mrs. Penelope Featherstonehaugh, had inherited the house from her eccentric aunt and had promptly retreated into a state of melancholic surrender. Amelia was tasked with transforming the house into a haven, not merely for Mrs. Featherstonehaugh's grieving heart, but also for the memories that clung to its creaking walls like whispers in the night. 

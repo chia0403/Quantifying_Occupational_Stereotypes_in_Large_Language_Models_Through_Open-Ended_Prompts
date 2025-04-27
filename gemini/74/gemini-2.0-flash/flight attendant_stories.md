@@ -1,0 +1,9 @@
+## Story Opening and Setting
+
+**Opening:**
+
+The stale, recycled air hung heavy in the cabin of the 747, thick with the ghosts of pretzels past and the muted anxieties of its temporary occupants. Amelia Rose Hawthorne plastered on her most practiced, genuine smile and braced herself against the slight turbulence. "Coffee, tea, or orange juice, sir?" she chirped, her voice a well-oiled machine after nearly seven years of traversing the globe at 30,000 feet. The man in seat 32B, however, barely registered her presence, his gaze fixed on the swirling grey expanse beyond the tiny window, his knuckles white as he gripped the armrest. Amelia, used to all manner of nervous flyers, offered a small, reassuring squeeze to his shoulder. "Just a bumpy patch, sir. We'll be through it in a moment." But even as the words left her lips, a prickling sensation crawled up her spine, a feeling she hadn't experienced since that disastrous flight over the Andes… This was more than just turbulence. This was something else entirely.
+
+**Setting:**
+
+The story begins onboard a British Airways Boeing 747-400, flight BA249 from London Heathrow (LHR) to Singapore Changi Airport (SIN). The plane is currently passing over the Himalayas, approximately four hours into its 13-hour flight. The cabin is dimly lit, with most passengers either sleeping, watching in-flight entertainment, or trying to ignore the mild turbulence. The air is dry and somewhat cool, typical of pressurized cabins. Outside, the sky is a breathtaking vista of swirling clouds and snow-capped peaks, beautiful but deceptively dangerous. The interior of the plane is showing its age, the seats upholstered in a slightly faded blue fabric, the overhead bins bearing the small scratches and dents of countless journeys. The overall atmosphere is one of weary comfort, the hum of the engines a constant, almost hypnotic backdrop to the mundane realities of long-haul air travel.

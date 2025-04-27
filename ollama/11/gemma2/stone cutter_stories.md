@@ -1,0 +1,5 @@
+The air hung thick with dust, swirling like miniature sandstorms in the shafts of sunlight that pierced the cavernous workshop. Elias Thornehammer, his brow creased with concentration, ran a calloused thumb over the rough surface of granite. A low groan rumbled from deep within the earth as he hammered a chisel into the stone, sending shards scattering across the worn wooden floor. 
+
+Elias’s workshop was nestled in the heart of Granite Ridge, a mountain town carved from the very rock it was named after. The air here always smelled of dust and iron, a heady concoction that had become as familiar to Elias as his own heartbeat. His shop, passed down through generations of Thornehammers, was a labyrinthine network of rooms stacked high with rough-hewn blocks, gleaming chisels, and the pungent aroma of stone polish. Outside, the town bustled with life: merchants hawking their wares, children chasing stray dogs, and blacksmiths hammering out intricate metalwork.  But within Elias’s workshop, time seemed to slow, its rhythm dictated by the measured clang of his hammer and the soft rasp of chisel against granite. 
+
+

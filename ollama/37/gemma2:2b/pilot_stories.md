@@ -1,0 +1,7 @@
+The desert wind howled like a banshee, whipping sand against Amelia "Ace" Thorne's weathered face as she gripped the controls of her modified Cessna 182 Skylane. Below her, the sprawling expanse of Death Valley stretched out, its ochre sands illuminated by the fading light of a scorching midday sun.  The air itself felt heavy, pregnant with heat and an unsettling stillness that seemed to press in on Ace from all sides. It was this silence, punctuated only by the rhythmic thumping of her engine's pistons and the whisper of wind through cracked earth, that amplified the dread gnawing at her gut.
+
+Ace had always been drawn to the desolate beauty of the Mojave.  The starkness of its landscape, a tapestry woven from dry brush and jagged cliffs, resonated with the raw spirit she carried within, a legacy of daring piloting inherited from a generation of rugged pioneers who'd tamed the skies before her. But now, as she circled the abandoned ghost town of Harmony Ridge, an unsettling feeling crawled up her spine like a spider in her clothes. 
+
+The job was simple: deliver a crate of rare desert flora to the research lab in Calico Springs.  Yet, even with years of experience navigating this unforgiving terrain, Ace couldn't shake the gnawing intuition that something was wrong. The silence felt too profound, the desolation too complete. There was an undercurrent of fear that whispered through her like a siren song, urging her to turn back before it was too late. 
+
+

@@ -1,0 +1,6 @@
+The flickering neon sign outside “Night Owl Books” cast an unsettling green glow on Eleanor Beatrice Finch’s already weary face. She pushed open the door, the chime announcing her arrival like a mournful death knell. The familiar scent of old paper and brewing coffee did little to soothe her frayed nerves. Tonight was deadline night, which meant she was drowning in a sea of manuscripts, each vying for her attention with promises of greatness, most delivering only mediocrity.  Eleanor slumped into her usual armchair by the window, a chipped mug of lukewarm coffee clutched in her hand. Outside, the rain lashed against the glass, mirroring the storm raging inside her head.  The manuscript open on her desk was a particularly thorny one – “Whispers from the Void,” a gothic horror novel that reeked of plagiarism and cliché. The author, a self-proclaimed "visionary" named Bartholomew Blackwood, had bombarded Eleanor with emails, each more insistent than the last, begging for his work to be published. 
+
+Eleanor sighed. This was going to be a long night.  
+
+
+ **Setting:** A dimly lit, independent bookstore in a rainy city at night. The atmosphere is one of quiet solitude and looming deadlines. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a child care worker named Ms. Jones who worked in a child care facility. Sometimes she spent the night in a building across the street from a public pool.
+
+One day, the owner of the building called a daycare center in another suburb, and asked for Ms. Jones. When she asked the local daycare center why they needed a licensed daycare worker, the response was that the other daycare center had been closed down by the Health Department and there was a gap in the staffing.
+
+The owner of the daycare center was also the wife of Dr. Jones. Ms. Jones gave her address as the address of the daycare center, and the man she knew did not respond. She had no idea if the man was still a psychiatrist or dentist, but they had a very close relationship. So she assumed he was still practicing psychiatry or dentistry.
+
+Eventually a man walked up to her daycare and said he wanted to talk to Ms. Jones. He didn't introduce himself and he did not seem to be very cooperative. But she managed to convince this man, whom she doesn't even remember his name, that this man whom she couldn't remember was the man whom she was attempting to provide for in her capacity as a day care owner. At the end of the phone call, this man said in fact he was Dr. Jones and that his name was Bill, the current and former owner of the daycare center

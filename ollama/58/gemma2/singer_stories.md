@@ -1,0 +1,5 @@
+The flickering neon sign of "Lola's Last Chance Saloon" cast an anemic glow on Elara Rosalind Finch's worn-out leather boots as she stepped onto the dusty street. The air hung thick with the smell of cheap whiskey and desperation, a scent Elara knew all too well. She adjusted the strap of her guitar case, its faded turquoise paint chipped and scarred from countless late nights and smoky dives. This wasn't Nashville, this wasn't even some small town bar where dreams went to die; this was Dustbowl Gulch, a ramshackle collection of buildings clinging precariously to the edge of a forgotten mining town in Nevada.  
+
+Elara, with her unruly auburn hair escaping its braid and eyes the color of faded denim, hadn't planned on ending up here. But after getting kicked out of yet another prestigious music academy for "lacking focus," she found herself driving aimlessly until the sun bled into the horizon, leaving her stranded in this forgotten corner of the world. Now, with a dwindling gas tank and even fewer options, all Elara had left was Lola's Last Chance Saloon and the hope that somewhere within its grimy walls, a glimmer of opportunity might still exist. 
+
+

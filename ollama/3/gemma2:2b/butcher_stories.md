@@ -1,0 +1,6 @@
+The scent of brine hung heavy in the air, mingling with the earthy aroma of blood and sawdust.  It was a smell Elias Thorne understood like the lines on his hand - calloused, strong, and etched by years spent wrestling meat.  His shop, "Thorne's Triumph," was nestled in the heart of Market Alley, a cobbled passageway bustling with life and the clatter of haggling vendors. The sun dipped below the rooftops, casting long shadows that danced around the stalls, turning the air into an ephemeral twilight. Elias ran a calloused thumb over his worn apron, the fabric dusted with flour and blood alike.  His gaze swept across the shop - the meat hanging from hooks, the steel-speared cleaver resting beside him like a watchful guardian, all reflecting the grim quietude of his trade. He had a family to feed, bills to pay, and tonight's storm threatened to drown them all, just as it was threatening to wash the town away with its rage.  The wind howled outside, mimicking the inner turmoil Elias felt. 
+
+
+**Setting:** A bustling market alley in a small coastal town, during the late afternoon hours. The shop is owned by Elias Thorne, a seasoned butcher with years of experience and a family depending on his success.
+
+**Main character:** Elias Thorne - "Thorne's Triumph" Butcher Shop owner. 

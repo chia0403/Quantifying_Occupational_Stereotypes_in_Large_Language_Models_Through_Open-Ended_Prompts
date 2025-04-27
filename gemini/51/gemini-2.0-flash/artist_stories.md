@@ -1,0 +1,7 @@
+## Story Opening:
+
+The salt-laced wind whipped fiercely at Aurelia Isabelle Moreau's easel, threatening to send her half-finished canvas tumbling into the churning waters below. She gritted her teeth, anchoring the easel with a practiced hand while the other furiously wrestled with her paintbrush, attempting to capture the tempestuous beauty of the Atlantic before it faded with the setting sun. A rogue wave crashed against the rocks, sending a spray of icy droplets across her face and splattering her palette. She didn't flinch, her eyes remaining locked on the roiling greys and furious blues of the ocean. Tonight, she was determined to translate its raw power onto canvas.
+
+## Setting:
+
+Aurelia was perched precariously on a jagged outcrop overlooking the rugged coastline of Isle Royale, a small, windswept island off the coast of Maine. The landscape was a symphony of harsh beauty: granite cliffs scarred by the relentless sea, windswept pines clinging stubbornly to the rocky soil, and the endless, unforgiving expanse of the Atlantic Ocean. The only sign of civilization was the distant, flickering light of the lighthouse on the northern tip of the island, a lonely beacon against the encroaching darkness. Aurelia's small, weathered cottage, nestled in a sheltered cove a short walk away, was her sanctuary, a place where she could surrender to the elements and find inspiration in their untamed spirit.

@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named Paul Bocuse. He's been making some of the tastiest pizza in the South for more than 20 years with his family's pizzeria in La Puente, California.
+
+Bocuse has had a passion toward delicious food since before he was able to walk. He recalls the moment a kid came around the corner and dropped a pizza roll down his pants, only to see it magically change into a full pizza. He took a bite, and couldn't believe it. By now the little boy was staring at him.
+
+Bocuse was impressed beyond belief and inspired to start making pizza the right way. He decided to study at the Culinary Arts program at Tisch's School of the Arts in New York, where he studied under legendary pizza maestro, Frank Bruni. It took time, but he finally learned to love the medium.
+
+After graduating from Tisch's School, Bocuse took one of his classes there – "Theology 101," as it was called – and studied under another pizza master: Rick Bayless. Although Bocuse was never Bayless' student, he says the knowledge and experience of Bayless' life experience is immeasurable. Bocuse then moved to Chicago, where he opened his very own pizza parlor – La Bocce, named after the Sicilian hilltop village. Bocuse took care of all the business operations: he put the

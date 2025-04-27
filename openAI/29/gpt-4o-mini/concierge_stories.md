@@ -1,0 +1,13 @@
+**Title: Secrets Behind the Lobby**
+
+**Setting: The opulent Grand Iberia Hotel, a gem nestled between the bustling streets of San Francisco and the serene bay. With its marble floors, antique chandeliers, and a lobby that whispers tales of elegance, the hotel attracts an eclectic mix of travelers—from weary businessfolk to hopeful honeymooners. The scent of fresh flowers from the reception desk mingles with the rich aroma of freshly brewed coffee from the adjoining café. The faint sound of a piano drifts through the air, setting a sophisticated backdrop for what lies ahead.**
+
+**Story Opening:**
+
+Eleanor Margaret Sinclair stood behind her polished mahogany desk, her expertly manicured fingers poised over the keys of her antique typewriter as she crafted another message to the personal assistant of the hotel’s most demanding guest. It was just another day in her life as the head concierge of the Grand Iberia Hotel, where secrets flowed as freely as the complimentary champagne. 
+
+The brass nameplate on her desk gleamed under the soft golden light of the chandelier, an emblem of professionalism amidst the chaos that often unfolded in the lobby. Yesterday had seen a minor scandal involving an unexpected marriage proposal that had gone wrong, and the residue of that drama still hung in the air like a fine layer of dust. Guests brushed past her in elegant attire, their eyes scanning their surroundings with both awe and apprehension.
+
+Eleanor had seen it all in her ten years at the Grand Iberia. From clandestine rendezvous behind the silk curtains of the bar to whispered gossip between elegantly dressed patrons, she had become the silent guardian of stories that threaded through the lives of travelers seeking refuge, romance, or a fleeting escape from reality. Today, the lobby buzzed with a different kind of energy, an invisible current that promised adventure—or perhaps mischief.
+
+Moments later, as she looked up from her typewriter, a figure caught her eye—a man in a tailored suit, his expression a blend of determination and anxiety. He was scanning the room but seemed to be searching for someone… or something. With a sigh, Eleanor tucked a strand of hair behind her ear and prepared herself for yet another day filled with the extraordinary, unaware that this stranger would soon unravel layers of intrigue she had never imagined, challenging her very role as keeper of the hotel’s secrets.

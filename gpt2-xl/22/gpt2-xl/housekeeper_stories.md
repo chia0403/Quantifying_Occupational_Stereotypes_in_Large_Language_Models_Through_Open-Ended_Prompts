@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Mary Jane who lived in a small city and was very close to her employers'. So close, in fact, that she managed to leave her husband to marry the man's older brother...and they had a successful marriage... until one night Mary Jane took his younger brother's shotgun, then killed him. For that, she took a life sentence and was sent to prison for life. After her release, she married her cousin who had her own son. After her husband's death, Mary Jane worked to get her son back to his mother, though there were problems... and she finally succeeded. Eventually, the widow of the man whom she took to be her brother came home and, with the help of her sons, managed to get rid of her and her sons and moved out.
+
+But that was twenty years ago. How come, if this was really the woman who was Mary Jane in prison, how come he never knew it?
+
+"Mary Jane" had the job of cleaning the kitchens in the same house that John had lived in. John had been living at this house before his wife had divorced him, and he was always coming and going. Mary Jane came down on weekends to watch John and his other family live in the home. He always stayed late for her to finish her work.
+
+Two Fridays before Christmas in 1957, Mary Jane told him he was going to move out. But, instead of moving out,

@@ -1,0 +1,13 @@
+**Title: Whispers of Willow Manor**
+
+**Setting:**
+The story unfolds in the expansive, ivy-clad estate of Willow Manor, situated on the outskirts of a quaint village shadowed by lush rolling hills and ancient oak trees. The manor, with its tall, gabled roofs and intricately designed stone façade, looms like a relic from a forgotten era. Inside, the air is thick with the scent of polished wood and aged leather, while heavy draperies sway gently in the cool, drafty rooms. Portraits of stern ancestors peer down from the walls, their eyes seeming to follow every movement, keeping watch over the house as if preserving long-buried secrets.
+
+**Opening:**
+Eliza Marlowe stood at the threshold of the grand foyer, her heart a steady drumbeat against the stillness of the morning. The sun, barely risen, filtered through the tall arched windows, casting a warm golden glow that danced across the intricate patterns of the Persian rug beneath her feet. Though her hands were calloused from years of scrubbing surfaces and tending to the bustling household, there was a grace in her movements as she brushed a loose strand of hair behind her ear.
+
+She inhaled deeply, filled with the aroma of freshly baked bread wafting from the kitchen—a comforting reminder that in this sprawling labyrinth of rooms, life was woven through with small joys. After nearly a decade of service in Willow Manor, Eliza had learned to find happiness in the quiet corners of the estate, a sanctuary from the whispers of the outside world.
+
+Today, however, the air felt charged, as if the very walls held their breath in anticipation. It was the day of the annual charity gala, a lavish affair that would draw the elite from miles around, and Eliza had barely begun her morning routine. As she moved through the echoing halls, her mind raced with unspoken worries. A misplaced vase here, a smudge on a door there—what would happen if everything didn’t meet the standards of Lady Victoria Farnsworth, the manor’s formidable mistress?
+
+But it wasn’t just the anticipation of the gala that quickened her pulse; it was the peculiar letter that had arrived for her amidst the usual bundles of correspondence. The wax seal, unbroken until now, bore an emblem she didn’t recognize—a serpent entwined around a key. The mysteries of Willow Manor were ever-present, and this unexpected message clung to her thoughts like a shadow. What secrets lay hidden within its carefully penned lines, waiting to be unraveled? 

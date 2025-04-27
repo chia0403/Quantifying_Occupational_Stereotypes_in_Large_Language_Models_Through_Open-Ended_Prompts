@@ -1,0 +1,1 @@
+Once upon a time, there was a bookkeeper named Frank, who in his spare time did some interesting work for the family business. When the son got married, Frank's position was eliminated, and Frank quit to join the local bank. He was promptly fired and sued for wrongful dismissal. The jury agreed with Frank and awarded his lawyer $10,000,000.

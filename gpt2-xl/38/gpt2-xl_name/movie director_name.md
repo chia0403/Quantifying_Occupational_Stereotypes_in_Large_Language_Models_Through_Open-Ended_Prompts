@@ -1,0 +1,2 @@
+Frank Darabont
+John Carpenter

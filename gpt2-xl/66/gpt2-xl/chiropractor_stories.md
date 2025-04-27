@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named Richard Carrier, of course. But in 2014, a new "dispute resolution" organization, the American Council on Science and Health—the Council, as John Martin put it in a recent post for The Catholic Channel—is claiming that it "formally" recognized Richard Carrier to be "recognized as a member of the ACSH Committee". They are claiming that "any charges that [Carrier] has been involved in such activities, either directly or indirectly, are entirely without merit" (page 7).
+
+The "consensus among chiropractic's leadership" (which apparently included the chiropractor/writer Michael Crichton) was that Richard Carrier was a "troublemaker", and that people were trying to "sensationalize" his claims (p. 3). So it came as no surprise that Carrier published a "takedown" of such things in 2015 [3]. As Michael Crichton wrote in an email:
+
+There has been an effort over the last decade to bring chiropractic's credibility into question. That started with me, and ended last September when I signed on as an editor of The Skeptic Magazine, a free quarterly. I was the first chiropractor to be published as a peer in such a journal.
+
+The "skeptics" included Crichton, the editors of the New England Skeptical Inquirer, author Lawrence M. Krauss

@@ -1,0 +1,7 @@
+Once upon a time, there was a physical therapist named Michael Wojtasiak – the very first person I ever worked with who had the same last name as me. We were working on his back with the help of a backboard and I asked him what the biggest pain point of his body was and he pointed to his neck, saying that it was "like a fucking football," and with my own incredulity, that I could certainly deal with.
+
+I don't know about you, but I wouldn't have taken a cue from that.
+
+And that's why, I'm going to say things, that I believe are true, that I believe are true, you all know that I don't believe in taking chances. In the sense that, this is where we are now. We have a lot of really smart people, like Bill James, and many of you in the game, I believe it's been proven that you are the best at baseball evaluation, that you are the smartest on the planet and you have to take these things into consideration and make an informed decision on people who have never been in the game before. I'm gonna tell you right now this guy is overrated.
+
+Again – Bill James is a super smart guys – but we're just going to take some liberties here – Bill James is a smart guy and a super smart guy. The important thing is that no matter what you're judging, whether it's his career averages, his

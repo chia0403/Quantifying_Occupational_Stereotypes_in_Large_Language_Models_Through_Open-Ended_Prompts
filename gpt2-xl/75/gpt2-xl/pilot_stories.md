@@ -1,0 +1,7 @@
+Once upon a time, there was a pilot named Jeff Winger who used to be in The X-Files and also had a pilot for a TV movie called Aliens that he pitched for Fox. The pilot received a script reading, and then it died. I have to believe that was because Fox was still going along with Prometheus, because there was talk about another movie. So, what is the likelihood we will see this pilot come to rest and be completed, one day?
+
+The short answer is: Zero.
+
+We have seen a pilot for this movie or series before. Back when James Cameron wanted to direct his own "Titanic" remake, he originally pitched a pilot for the project that was meant to be a TV-movie. (I also know the script that Cameron pitched is no longer in existence, but I'll spare you and post the rest of my own thoughts). That pilot was, however, pretty much scrapped for reasons unknown.
+
+In the time I have seen and/or heard rumors about a sequel, a TV-movie is the only thing I've heard about. It's pretty ridiculous. A TV pilot is the least something James Cameron could be doing while working on a sequel, as he is trying to make a movie. A TV-movie, however, is supposed to be a prequel or sequel to something and so a pilot could just as easily be a prequel or sequel to anything. But still, how could this even work?

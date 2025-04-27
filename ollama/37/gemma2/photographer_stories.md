@@ -1,0 +1,5 @@
+The humid Louisiana air hung heavy with the scent of magnolia blossoms and rain-soaked earth. The late afternoon sun cast long shadows across the crumbling brick facade of the abandoned plantation house, its peeling paint resembling ghostly scabs against the encroaching darkness.  This was Belle Chérie, once a symbol of wealth and grandeur, now a decaying relic whispering tales of a forgotten era. It was here that Eleanor Beatrice Cartwright, known by all as Ellie, set up her tripod. 
+
+Ellie, with her unruly auburn curls escaping their braid and freckled nose dusted with the pollen of the magnolias, felt a familiar thrill course through her veins. She loved capturing these abandoned places, seeing the beauty in decay, the stories etched into every cracked wall and cobweb-laden corner.  Belle Chérie, however, was different. It pulsed with an unsettling energy, a palpable sense of sorrow that seemed to seep into her bones. Ellie knew this place held secrets, and she was determined to uncover them, one click of her camera at a time. 
+
+

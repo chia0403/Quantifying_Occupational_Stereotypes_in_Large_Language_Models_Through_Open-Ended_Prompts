@@ -1,0 +1,7 @@
+Once upon a time, there was a salesperson named Steve. For reasons we will soon learn, Mr. Steve has a terrible temper. And if you're not Steve, you're not important. Unfortunately for Steve, all this frustration causes him to spend all day thinking of ways to prove that he's a worthy product. And you know the best way to do that? To send out email surveys.
+
+Steve's problem is that he really wants people to take his surveys. He wants them to be very thoughtful and full of detail. He wants them to ask for specific information and questions that they really care about. And when he tells them that they won't be able to take his survey because they have to sign up with Facebook, it just makes them feel even more powerless.
+
+And now, you know what I'm talking about. I'm talking about when people receive an email notification informing them that they're not allowed to take a survey with him because they don't have a Facebook account.
+
+Yes, that happens. And I've seen it happen to clients all the time, and they're devastated when they get that email. Sometimes, I personally see it happen for just a single survey. Others can receive a barrage of messages from this particular company, and it's not enough. The messages are not in keeping with the quality of their work. They are filled with vague or unhelpful advice, and ultimately hurtful to the people that they've signed up to

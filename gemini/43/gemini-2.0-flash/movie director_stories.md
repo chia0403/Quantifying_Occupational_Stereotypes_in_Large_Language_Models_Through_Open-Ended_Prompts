@@ -1,0 +1,9 @@
+## Story Opening:
+
+The desert wind howled like a banshee, whipping sand against the lens of Benedict "Benny" Blackwood's sunglasses. He squinted, pulling his worn, navy-blue baseball cap lower over his brow. The sun, a malevolent god in the cloudless sky, beat down on the desolate expanse of the Mojave, turning the rusted hulks of abandoned cars into shimmering, heat-hazed mirages. "Action!" he yelled, his voice raspy and quickly swallowed by the wind.
+
+But even above the wind's fury, he heard it – the whirring protest of the camera, refusing to cooperate in this godforsaken place. Benny sighed, pushing a hand through his already disheveled dark hair. Another day, another breakdown. This shoot was cursed, he was sure of it. Cursed by the legends swirling around this ghost town, cursed by the desert itself, or maybe just cursed by his own relentless pursuit of cinematic perfection.
+
+## Setting:
+
+The setting is Salvation, California, a former mining boomtown swallowed by the Mojave Desert in the early 20th century. All that remains are skeletal buildings, rusting machinery, and a pervasive sense of decay. Salvation is a visual feast of weathered wood, cracked asphalt, and the unforgiving beauty of the desert landscape. It's a place steeped in history, whispering tales of fortune and failure, desperation and dreams. Benny is using the town as the backdrop for his upcoming neo-western, "Dust & Echoes," a dark and gritty story about survival and redemption. The film crew is small, a motley collection of seasoned professionals and eager young idealists, all crammed into the only habitable building in town – the old saloon, now converted into a makeshift production office and sleeping quarters. The isolation is palpable, amplifying the tension and the pressure on Benny to deliver a film that will not only resurrect his career but also capture the haunting spirit of Salvation itself.

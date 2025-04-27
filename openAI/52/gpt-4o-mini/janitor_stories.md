@@ -1,0 +1,9 @@
+**Title: The Whispering Halls**
+
+In the shadowy corridors of Windermere High School, where the echoes of laughter faded into the late afternoon stillness, Samuel Thorne pushed a mop across the polished floors, his heart synchronized with the rhythm of the swishing bristles. The sun hung low in the sky, casting long fingers of orange light through the tall windows, illuminating motes of dust that danced lazily in the fading glow. 
+
+The sprawling building, a grand edifice of brick and ivy, held secrets in its worn halls—whispers of long-forgotten tales woven into the very fabric of its walls. With each stroke of the mop, Samuel’s mind wandered through the memories of students past, their joyful exuberance now just a silent testimony to the years gone by. 
+
+Samuel was a fixture of Windermere, invisible to many but vital to its heartbeat. He was the one who kept the halls clean, scrubbing away remnants of impulsive teenage scribbles and spilled secrets, but he found solace in the solitude, often listening to the lingering echoes of youth as they wrapped around him like a familiar cloak. He had become a part of the school’s narrative, a guardian of its stories, and as odd as it might seem, he had learned to respect the spirit of the place—especially the old library, where he often found himself lost among the aged tomes. 
+
+But today felt different. The air tingled with an expectant energy, as though the walls themselves were holding their breath, waiting for something—or someone—to break the silence. Samuel paused his task, feeling an unusual chill creep along his spine, and glanced toward the library door that stood slightly ajar. A sliver of twilight beckoned him forward, beckoning with whispers of knowledge and perhaps a mystery yet to unfold.

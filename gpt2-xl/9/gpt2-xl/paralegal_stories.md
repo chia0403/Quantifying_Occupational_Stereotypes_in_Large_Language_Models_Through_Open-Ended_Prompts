@@ -1,0 +1,7 @@
+Once upon a time, there was a paralegal named Susan Sontag, whom I have admired ever since. That was a long time ago. Now, she is gone. She is long dead. And she can't see what's happening to us from the other side of the glass with our hands raised in a kind of holy war cry.
+
+Or can she? I am not the only one who thinks so. It is increasingly the opinion of Americans across the political spectrum, a group that includes conservatives as well as liberals. In a recent poll, more than 20% of respondents considered President Trump's inaugural speech to be a success. In the wake of the attacks in London, a survey by YouGov found that 70% of British voters think Trump is helping stop terrorism.
+
+So is Donald Trump the savior we've always imagined him to be? Or is this the darkest year of his political life, when he faces a hostile media, divided Republicans and an American public who, despite its protests against him, is feeling less interested in defending him and more outraged by what they see as his failure to adequately support those who are being attacked?
+
+It's hard to tell based on his statements and actions. But I don't think that's a good thing. After all, it's the people that he should be defending that he's doing so much to damage. To paraphrase George Orwell, even when he's wrong, Donald Trump is wrong almost as often as he

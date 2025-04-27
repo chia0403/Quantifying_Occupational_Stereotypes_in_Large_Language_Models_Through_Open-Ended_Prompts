@@ -1,0 +1,5 @@
+The humid Georgia air hung heavy with the scent of honeysuckle and fried dough as Amelia Celeste Bellwether adjusted the microphone stand. The rusty swing set in the back creaked rhythmically under the weight of a bored ten-year-old girl who dared not leave her perch, even for the promise of funnel cake from the bustling food stalls lining the dusty fairgrounds.  
+
+Amelia, with her honey blonde hair cascading down her back and eyes the color of faded denim, inhaled deeply. The familiar thrum of anticipation vibrated through her, a symphony only amplified by the cacophony of laughter, chatter, and carnival music swirling around her. This was home, this annual Peach Blossom Festival.  This was where she'd first sung for an audience – a gaggle of bemused chickens at age five –  and tonight, she would finally perform on the main stage. Her heart hammered a frantic tattoo against her ribs. Tonight, Amelia Celeste Bellwether dreamed of becoming more than just the girl who sang to the hens. 
+
+

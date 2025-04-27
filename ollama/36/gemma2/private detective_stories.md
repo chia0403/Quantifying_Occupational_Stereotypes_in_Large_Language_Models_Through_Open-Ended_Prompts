@@ -1,0 +1,8 @@
+The rain hammered against the corrugated iron roof of Detective Mallory "Mal" Hawthorne's office, mimicking the relentless drumbeat in his own head.  It wasn't the storm that rattled him, though; it was the manila envelope sitting on his battered desk. It was thick with the weight of someone else’s secrets, and Mal knew those secrets often came at a price. 
+
+The air in the office was thick with cigarette smoke and the scent of stale coffee, a familiar aroma that did little to mask the damp chill seeping through the cracks in the windows. The flickering neon sign outside proclaiming "Hawthorne Investigations: Solving Your Mysteries" buzzed erratically, casting dancing shadows across the cluttered space.  Mal hunched over his desk, his face half-hidden by a fedora pulled low over his brow. He took a swig from a lukewarm mug, the bitter taste doing little to soothe his nerves. 
+
+His office wasn't in the glamorous part of town; it was nestled between a pawn shop and a laundromat on a street that saw more rain than sunshine. But for Mal, this rundown building with its peeling paint and creaking floorboards was home. It was where he dealt with the grime beneath the city’s glittering facade, where truth often hid in the shadows. 
+
+
+The envelope sat there, a silent challenge. He knew who it was from -  a woman named Evelyn Pierce, her name scrawled across the front in shaky handwriting. She had called him earlier, her voice trembling with fear and desperation. Something was wrong, she said, something terrible. Now, he held the key to unlocking her secrets, a responsibility that weighed heavy on his shoulders. 

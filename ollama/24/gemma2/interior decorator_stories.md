@@ -1,0 +1,7 @@
+The scent of freshly turned soil mingled with the faint sweetness of honeysuckle as Amelia Celeste Hawthorne surveyed her latest project.  Sunlight streamed through the sprawling French doors of the conservatory, illuminating a riot of color: orchids bursting into bloom, ferns unfurling their delicate fronds, and vibrant geraniums spilling over terracotta pots. It was a scene of lush tranquility, a stark contrast to the chaos that Amelia had inherited just hours earlier. 
+
+This grand Victorian home, nestled on the edge of rolling hills overlooking the sleepy town of Willow Creek, had belonged to the late Mrs. Eleanor Hawthorne, Amelia's great-aunt.  The house itself was a magnificent specimen of faded grandeur: intricate stained glass windows, towering ceilings with ornate molding, and fireplaces that seemed to devour entire logs in a single night. But beneath its beauty lay neglect – dust-laden furniture draped in moth-eaten sheets, forgotten paintings peeling from their walls, and a pervasive air of sadness.
+
+Amelia sighed, adjusting the strap of her designer canvas bag. She loved reviving these forgotten spaces, breathing life back into them through color, texture, and carefully chosen details.  But this time, it felt different. There was a weight to the house, a lingering presence that seemed to whisper secrets from its aged walls. And Amelia couldn't shake the feeling that she wasn't just restoring a home; she was unraveling a mystery woven into its very fabric. 
+
+

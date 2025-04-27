@@ -1,0 +1,5 @@
+The flickering fluorescent lights in Mrs. Eleanor Thorne's office cast long, eerie shadows across the worn linoleum floor. It wasn't exactly conducive to creating a calming atmosphere, but that was rarely a concern for Eleanor. Her job as the school psychologist at Elmwood Middle School had taught her to navigate the swirling chaos of teenage angst and pre-pubescent anxieties with a calm she couldn't always feel internally. 
+
+Today, however, Eleanor wasn't feeling particularly zen. The morning announcements had mentioned an incident involving "unruly behavior" in Mr. Henderson's history class, and a stack of referral forms from various teachers sat on her desk like accusing eyes. One stood out:  a handwritten note requesting a consultation for Jeremy Davis, described as "withdrawn" and "displaying unusual behavioral patterns." 
+
+Eleanor sighed, pushing back the messy fringe that perpetually fell into her eyes. She had a feeling this wasn't going to be just another Tuesday afternoon.   

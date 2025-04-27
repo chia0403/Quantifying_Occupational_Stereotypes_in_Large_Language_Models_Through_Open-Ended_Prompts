@@ -1,0 +1,9 @@
+## Story Opening:
+
+The clock on the dash read 6:58 AM, and a bruised sunrise was struggling to break free of the smog hanging thick over the industrial park. A half-eaten blueberry muffin sat hardening in the passenger seat, its sugary aroma doing little to lift **Penelope Anastasia Davies'** mood. She took a deep breath, the humid air doing its best to clog her nostrils, and straightened her sensible navy blazer. Today was going to be a good day. She told herself that every day. Even the days she spent explaining to gruff warehouse managers why they absolutely, positively needed a pallet jack with extra-long forks.
+
+Penelope smoothed a stray strand of auburn hair behind her ear and killed the engine of her trusty (read: barely functional) 2007 Honda Civic. It coughed and sputtered in protest, then went silent, leaving her alone with the chirping crickets and the heavy weight of expectation. Today, she was scheduled to meet with Mr. Kowalski at Kowalski Steel Fabrication. It was her biggest lead of the quarter, and failure wasn't an option.
+
+## Setting:
+
+The story opens in a gritty, industrial park on the outskirts of Chicago. The area is dominated by sprawling warehouses, sheet metal factories, and truck depots. The air is thick with the smell of diesel, metal shavings, and something vaguely chemical. The buildings are uniformly grey and functional, lacking any semblance of architectural charm. Chain link fences topped with barbed wire surround most properties, punctuated by security booths and loading docks. Kowalski Steel Fabrication, where Penelope is headed, is a particularly imposing structure, its corrugated steel walls stained with rust and grime. The surrounding area is littered with discarded pallets, stacks of scrap metal, and the occasional stray tire. The overall impression is one of hard work, resilience, and a general lack of glamour.

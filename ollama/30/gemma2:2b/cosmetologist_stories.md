@@ -1,0 +1,5 @@
+The flickering neon sign outside 'Hairitage', the only salon in this forgotten corner of New Salem, cast an uneven glow over Amelia Blackwood's face as she stared into the mirror.  Her reflection wasn't her usual polished self. The wisps of hair framing her freckled face were a mess from yesterday's all-nighter prepping for the 'Big Day'. Today was the day the state-of-the-art hair technology museum opened in New Salem, and Amelia had been chosen to style one of its most important clients: the renowned sculptor, Ezra Thorne. 
+
+Amelia, with her sharp hazel eyes and a smile that could put a sunbeam to shame, was everything you'd expect from a master cosmetologist. But tonight, even the usual calm in her demeanor seemed strained. Every brushstroke on Ezra's head felt heavy with unspoken anxieties. The pressure was suffocating; not just from Ezra’s notoriously demanding nature, but also from New Salem itself - a town clinging desperately to its past, resisting any progress, let alone the bold future that Ezra represented with his revolutionary hair technology. 
+
+

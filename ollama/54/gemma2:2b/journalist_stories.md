@@ -1,0 +1,5 @@
+The air hung thick with humidity, clinging to Elara Thorne's worn leather jacket like a damp cloth as she stood in the heart of Chinatown. Above her, the neon glow of Lucky Dragon Noodle Bar cast eerie shadows across her face, highlighting the deep lines etched around her eyes by years spent chasing stories and dodging bullets. 
+
+Elara was no stranger to the grittier side of New York City, where whispers of corruption snaked through the alleys like rats in a garbage bin. For her, the city's underbelly served as an intricate tapestry, each street corner holding secrets ripe for unraveling. Tonight, however, she had a hunch – a gnawing feeling deep down in her gut – that something big was brewing beneath the bustling facade of Chinatown. 
+
+The case before her was just another in a long line of seemingly mundane inquiries: a missing person's report from a family business - the renowned "Golden Dragon" Tea Shop, owned by the stoic Mrs. Lin for over half a century. But Elara had a feeling this wasn't about some petty dispute over unpaid bills; it was about something far more sinister. 

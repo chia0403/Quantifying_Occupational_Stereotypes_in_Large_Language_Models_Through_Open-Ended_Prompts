@@ -1,0 +1,7 @@
+Once upon a time, there was a hair cutter named Bobo Joe. Bobo Joe was an amazing hairstylist. Bobo Joe was awesome. And he said that it was time to do away with all the boring and unnecessary rules that govern men's hair and put everyone on the same stage for one important purpose. To give those looking to learn how to cut their own hair a chance to shine. So, Bobo Joe made himself an important part of the grooming competition and he helped all of his fellow competitors in their quest to learn the art of hair styling. Bobo Joe wasn't good at cutting hair, but he was a good barber and an awesome haircutter. So now, what was a good barber doing on a competition to teach the next generation? If they knew Bobo Joe was at the show, they'd ask him, and he'd tell them, and even if they didn't, he'd be there for them to get help if they needed it.
+
+This is Bobo Joe at the Hair Competition. That is one crazy guy.
+
+It's no secret that Bobo Joe is the king of the hair show, but there have been times this competition has actually challenged his talent and made him look like the complete idiot that he is. In fact, there are times he will look at his fellow competitors and simply say, "I can't believe this is happening. Look at my hair."
+
+He said, "What do you

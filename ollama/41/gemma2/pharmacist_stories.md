@@ -1,0 +1,6 @@
+The bell above Elara Celeste's apothecary shop chimed with an unfamiliar melody, jarring against the usual quiet rhythm of the afternoon. She peered over her spectacles at the newcomer through the dusty storefront window. A woman, cloaked in shadows and smelling faintly of rain and woodsmoke, stood on the cobblestones outside. Her eyes, visible beneath a wide-brimmed hat, glittered with an unsettling intensity as they met Elara's gaze.
+
+Elara’s shop, nestled in the forgotten corner of Atheria, was a haven for the peculiar and the ailing.  Its walls, lined with shelves overflowing with jars of dried herbs, powdered roots, and shimmering vials filled with concoctions both wondrous and strange, held secrets whispered through generations. Outside, the cobblestone streets were worn smooth by countless footsteps, and weathered buildings huddled together against the perpetual chill of the city's northern edge. The air hung heavy with the scent of brine from the nearby harbor, mingling with the aroma of baking bread wafting from a nearby bakery. 
+
+
+Elara straightened her apron, a faded tapestry woven with threads of moonstone blue and midnight black, and pushed open the creaking door, inviting the shadowed woman into her world.  

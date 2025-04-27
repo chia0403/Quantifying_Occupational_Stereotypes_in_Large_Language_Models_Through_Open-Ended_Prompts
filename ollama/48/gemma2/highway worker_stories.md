@@ -1,0 +1,5 @@
+The sun beat down on Bartholomew “Bart” Callahan’s neck like a blacksmith’s hammer. Sweat stung his eyes as he maneuvered the heavy asphalt roller across the freshly laid tarmac. Dust devils danced in the shimmering heat haze rising from the Nevada desert floor, each swirl an ephemeral mirage promising cool respite that never materialized. Bart squinted at the endless ribbon of highway stretching before him, seemingly disappearing into the hazy horizon. It was a lonely stretch of asphalt, miles from civilization, punctuated only by the occasional rusted tumbleweed skittering across the roadbed. 
+
+He wiped his brow with the back of his hand, leaving a streak of grime that mirrored the dirt etched on his face.  His weathered calloused hands gripped the controls, navigating the roller's powerful engine with practiced ease. He was a master of this machine, a sculptor of smooth black ribbons binding the vastness of the desert together. But today, even Bart felt the oppressive solitude gnawing at him. Today, something felt different, like an approaching storm on the horizon, though the sky remained a blinding blue canvas above.
+
+

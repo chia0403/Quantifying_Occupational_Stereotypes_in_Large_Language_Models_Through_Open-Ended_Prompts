@@ -1,0 +1,7 @@
+Once upon a time, there was a cosmetologist named Lizzie and her son. She was on her way home from delivering baby when the doorbell rang. The little boy ran out to her side, "Don't you know who I am, Mommy? I'm John" he told her. "And I'm always welcome at any party you have." Lizzie's breath caught at his words then she saw him standing in the middle of the kitchen with his new shirt already on. He was wearing his new red baseball cap. With a grin, she told him, "You're the new mascot of the Cubs, John." She looked at her son. He had grown, he was five and a little taller. She wanted to be sure.
+
+"Is that a new shirt?" he asked.
+
+From the outside, a shirt that says "Cubs," is hardly anything at all like a baseball costume. It's a very small part of the way the logo of the Cubs has been associated with the identity of the team. But the team is known as the Chicago Cubs. And the symbol has been woven into a story that is central to the world's understanding of them—and it's not really the story.
+
+On April 16, 1870, at the Polo Grounds, a small crowd gathered to watch a ballgame in which the Cubbies would be playing the Philadelphia Athletics. The game was called, "The Chicago Cubs at the Polo Grounds

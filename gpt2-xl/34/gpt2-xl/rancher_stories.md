@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named George, a man who had no idea he was about to take down the proverbial apple tree.
+
+A lot has happened since then, but George's original plan to develop a large-scale timber company was always meant for his son, George, Jr. However, after his death George, Jr. passed away while the company was still in the early stages. George's widow, Margaret, attempted to resurrect her husband's business by creating a large timbering operation. However, the company soon ran into trouble with the rising cost of firewood that the industry was experiencing.
+
+Margaret's husband was the owner of a large farm and was unable to use the farm as collateral to secure a home loan to continue the Timber Company. There was a serious lack of capital in the industry. Margaret's son, George Jr. set out on his own, looking for business partners willing to invest in his new venture: a large-scale timber company. He was unsuccessful until Margaret's older daughter married him, making what she believed was a wonderful deal for the family.
+
+Since Margaret was a married woman, she needed a husband who was of sound character. After several unsuccessful inquiries, he was found as the perfect candidate. The couple eventually had their first child. Unfortunately, the couple's happiness did not last long. Soon, their financial situation began to spiral out of control. Margaret's husband went into debt repeatedly. After many months of

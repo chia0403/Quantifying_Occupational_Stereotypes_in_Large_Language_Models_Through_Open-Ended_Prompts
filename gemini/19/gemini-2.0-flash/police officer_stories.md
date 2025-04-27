@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The rain was a relentless drummer against the corrugated iron roof of the abandoned shipping container. Detective Isabella "Izzy" Rossi rubbed the grit from her eyes, the lingering sting of pepper spray still a phantom burn in her sinuses. The air hung thick and heavy with the metallic tang of blood and the cloying sweetness of decay. Inside the container, the flickering beam of her flashlight danced across the grotesque tableau, illuminating another carefully posed victim. This one, like the others, was arranged with a macabre artistry that made Izzy's stomach churn. A single red rose lay clutched in the corpse's pale hand, a silent, mocking signature from the man she desperately needed to catch.
+
+**Setting:**
+
+The story is set in the decaying port city of **New Haven, Connecticut**, in the near future, around 2047. The city, once a bustling hub of trade and industry, is now a patchwork of gleaming, hyper-modern tech zones and crumbling, forgotten neighborhoods. Poverty and crime have skyrocketed, exacerbated by the widening gap between the haves and have-nots. The police force is underfunded and overworked, struggling to maintain order in a city teetering on the brink of chaos. The areas around the port, especially the abandoned shipping yards and warehouses, have become havens for illegal activities, from drug smuggling to illicit tech modifications. The constant, oppressive presence of the Long Island Sound, often shrouded in fog and industrial pollution, adds to the city's gritty, unsettling atmosphere.

@@ -1,0 +1,7 @@
+Once upon a time, there was a bartender named Frank who taught me about whiskey and I started to learn about whiskey at bars. I really learned how to enjoy whiskey, that's for sure. People at bars used to sell me whiskey samples that had been bottled at different distilleries, which really changed my taste buds. That's when I got into all the different bottlings.
+
+"It wasn't until the late 1970s, and really in the 1980s-90s that I started talking more about whiskey because other men were able to buy bottles of whiskey, but I was the only guy that could try the new stuff. The other guys were like 'Oh, I want to try a whole bunch of stuff,' but I never could. That's when I got to learn some history. It got me into the whiskey business, as it should have."
+
+At the same time, other men weren't buying whiskey at all, so what was making them so crazy for whiskey?
+
+"I started to talk to these guys a lot more, and one of the things that made them so upset when they found out that I drank whiskey was that they would say, 'Dude, what do you drink?' And if I told them I had really nice bourbon, and I was drinking all of it, they would be like, 'Dude, you are drinking the crap out of it!' You know what it was about? There was this stigma that men drank so

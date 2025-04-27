@@ -1,0 +1,5 @@
+Once upon a time, there was a elementary school teacher named Mrs. K.M.W.L.B.E. who liked to make things. She always knew how much her students would love to learn a new skill, even if it was completely useless to them. One of the things that Mrs. K.M.W.L.B.E. did, very often, was practice her own experiments.
+
+Mrs. K.M.W.L.B.E. did this so much that her class began talking about her in the third, third, third grade, when it really wasn't her fault, you understand? But the people of the village didn't quite get it. After all, there were more important things to worry about than teachers who made things.
+
+So as Mrs. K.M.W.L.B.E.'s students grew to be small children, and the village still had no idea who this mad mad woman was, they became more and more skeptical. And then one day her students' suspicions finally started to hurt her feelings, causing her to take them to the forest of the forest king. And then she told them what the forest king's wife said. The people of the village still didn't believe her because they couldn't see how she could make things. Finally, they became so certain about Mrs. K.M.W.L.B.E.'s true nature that they asked her to

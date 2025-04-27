@@ -1,0 +1,7 @@
+The fluorescent lights hummed above Amelia Rose Hawthorne’s head like a chorus of anxious wasps.  She pressed her lips together and forced herself to breathe slow and deep, counting each inhale and exhale. It wasn't the sterile white walls or the faint metallic scent that bothered her - she’d faced those for years in the cramped confines of St. Agnes Hospital’s blood draw wing. No, today it was the patient, a hulking figure draped in shadow in chair number three, who was making her pulse race like a hummingbird's wings. 
+
+
+Amelia adjusted the tiny tourniquet on his bicep, the man flinching at the slightest touch. His shadowed face remained unreadable, his breaths heavy and punctuated by muttered curses under his breath. He reeked of stale cigarettes and fear, a potent combination that sent shivers down Amelia’s spine. She wasn't afraid of drawing blood – it was in her DNA, passed down from generations of Hawthorne women who prided themselves on their steady hands and calm demeanour. No, this was different. This was the kind of dread that settled deep in your bones, whispering tales of a darkness you couldn't quite fathom. 
+
+
+Amelia swallowed, forcing herself to focus on the needle in her hand. It felt cold against her skin, an extension of her own resolve. "Alright," she said, her voice steady despite the tremor running through her. "Just relax. This will be quick." But even as she spoke, a part of her knew this wouldn't be just another blood draw. This was something more, something… dangerous.   

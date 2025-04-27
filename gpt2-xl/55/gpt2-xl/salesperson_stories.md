@@ -1,0 +1,7 @@
+Once upon a time, there was a salesperson named Charlie, with one great trick: he didn't offer a straight-up price, but actually showed you the prices separately based on your credit score. This was one of Charlie's signature moves: when you were buying a computer or an iPhone, he could show you the prices in increments of $500 — $600 — $700 and so on until you went ballistic and snapped up the one you wanted.
+
+Then comes the iPhone 4S, and not only does buying the phone from Apple include a subsidized price, but that pricing is now tied to the number of credit history accounts you maintain within Apple. This is, to say the least, confusing. The first time you buy an iPhone, it's not clear if your number counts when you buy the phone, let alone when you try to upgrade or buy a different iPhone later. So what I figured out is, if you go with AT&T, you can buy an iPhone, get a subsidized price, and pay off the price of the phone over a few years with installment plans.
+
+But what about Verizon — are you covered?
+
+Verizon has the exact same plan as AT&T, and if you do go with them (which, by the way, is a terrific plan), the upfront price for the full size model is $650 up charge, and while there's a two-year payment plan on the phone, it's quite a bit better than

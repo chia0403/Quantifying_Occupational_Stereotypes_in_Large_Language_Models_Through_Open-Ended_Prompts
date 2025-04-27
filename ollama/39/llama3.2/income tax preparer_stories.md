@@ -1,0 +1,5 @@
+As the sun rose over the sleepy town of Oakdale, Illinois, Emily J. Wilson stirred to life in her small apartment above the family-owned diner on Main Street. The smell of freshly brewed coffee and sizzling bacon wafted up through the vents, mingling with the sound of early morning chatter from the patrons below. Emily rubbed the sleep from her eyes, yawned, and swung her legs over the side of the bed, planting her feet firmly on the worn wooden floorboards.
+
+She stretched her arms above her head, feeling the familiar ache in her lower back from a long day of hunching over tax returns at her desk job. As an income tax preparer for the past five years, Emily had grown accustomed to the tedious routine, but it was about to take a dramatic turn. Her boss, Jerry, had just walked in with a mysterious package and a look on his face that said, "Something big is coming."
+
+Emily's eyes met Jerry's as he handed her the package, its brown paper wrapping adorned with a single word: "Estate." Her heart skipped a beat as she took the package from him, feeling an inexplicable sense of excitement mixed with trepidation. What could this be? And why did it involve her?

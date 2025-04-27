@@ -1,0 +1,9 @@
+Title: "Whispers of Ashwood Manor"
+
+Setting: Ashwood Manor, a sprawling Victorian estate nestled in the heart of a misty English countryside. The manor stands tall against a backdrop of slowly rolling hills, its turrets and gables piercing the clouds. Lush gardens, tangled with ivy and overgrown roses, wrap around the stone façade, while the scent of damp earth mingles with the sweet aroma of wildflowers. Inside, polished wooden floors creak beneath the weight of history, and tall, ornate windows cast long shadows that dance across the richly decorated rooms.
+
+Opening: 
+
+Edith Margery Beckett, a housekeeper of quiet strength and unparalleled dedication, stood at the threshold of Ashwood Manor, her breath catching for a moment in her throat as she gazed at the grand entrance. The morning sun broke through the fog, illuminating the intricate carvings on the door and glinting off the brass knocker—an eagle poised in flight, its wings spread wide. Edith had taken pride in her role within these walls for over a decade, yet today felt different. A heaviness hung in the air, as if the manor itself was holding its breath, waiting for something—an unraveling of long-buried secrets, or perhaps the return of a long-absent heir.
+
+Adjusting her apron, a faded blue that matched the willow-patterned wallpaper in the parlor, Edith took a steadying breath before stepping inside. The scent of polished wood and dust motes dancing in sunbeams enveloped her like an old friend. As she moved through the echoing halls, she could almost hear the whispers of those who had tread the floor before her, their laughter and sorrows woven into the very fabric of the manor. Edith had a keen sense for the stories hidden within these walls, and today, she felt the weight of their anticipation pressing against her, urging her to uncover what lay beyond the polished veneer of her beloved home.

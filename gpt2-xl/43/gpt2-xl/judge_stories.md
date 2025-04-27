@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named Eric Smith. We all know that case, right? His judgment stood, and he was duly confirmed by the Senate. Of course, that was before the court learned about the "Gore v. Gore" decision. And now, he's back on the bench in Virginia, where he sits in the U.S. Court for the Eastern District.
+
+Now it's the Republicans who want to kill him. Yes folks, it is the Republicans, those awful conservatives. They are determined to put the seal of their approval on Eric Smith. They are eager to take his time when he comes before the court every month to hear oral arguments from lawyers representing Virginia, the state of Virginia, and the American people.
+
+But here's the secret. There actually are some pretty decent legal briefs here. They're arguments before Eric Smith, and they are pretty darn good. The case to be argued before Smith is called The State of Virginia v. John Edwards, et al., and they are arguing that, no, Virginia, you cannot force the state to recognize another man as the next president of the United States. To put it simply, under the U.S. Constitution, a state cannot pass a constitutional amendment that forces another state to recognize a different, higher office.
+
+That is, the Founders didn't say you have to do something to get in the presidential line of succession. They said you're entitled to a higher office

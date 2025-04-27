@@ -1,0 +1,7 @@
+The sun had just begun to set over the small town of Willow Creek, casting a warm orange glow over the dusty main street. The air was thick with the smell of freshly cut wood and the sound of chainsaws echoed through the valley, a familiar rhythm that signaled the end of another long day's work for Jack Alexander "Alex" Thompson.
+
+As a logger, Alex had spent his entire life surrounded by the rugged beauty of the forest, and he knew every inch of the land like the back of his hand. He had grown up in this town, the son of a logging family that had been cut off from their ancestral lands due to debt and tragedy. But Alex had always dreamed of owning his own sawmill and bringing prosperity back to Willow Creek.
+
+Now, at 35 years old, Alex was finally taking the reins, with a loan from the local bank and a small but determined workforce behind him. He stood outside the entrance of the mill, wiping the sweat from his forehead as he watched the stars begin to twinkle overhead. The forest stretched out before him like an endless sea, its ancient trees whispering secrets in the wind.
+
+As Alex took a deep breath, he felt a sense of pride and purpose wash over him. This was it – this was his moment. But little did he know, the darkness that had been lurking beneath the surface of Willow Creek for years was about to come roaring back to life...

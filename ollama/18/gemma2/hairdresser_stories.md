@@ -1,0 +1,5 @@
+The air in "Shear Delight" hummed with a symphony of chattering clippers, whirring dryers, and the occasional snip-snap of shears.  Lavender and vanilla mingled in the scent that clung to every strand of hair, every towel, every inch of the salon. Sunlight streamed through the large storefront window, illuminating dust motes dancing in the warm air. Behind the counter sat Amelia Beauregard, her chestnut braid swinging as she expertly filed a client's nails. 
+
+Amelia was known for two things: her uncanny ability to decipher someone's personality through their hair (and then perfectly craft a style that reflected it) and her unwavering empathy. Her salon wasn't just a place for haircuts; it was a haven, a space where people came to confide secrets, share dreams, and find solace in the gentle hum of human connection. But today, Amelia felt a prickle of unease beneath her usual calm. A new client had arrived, his face obscured by the shadows of a wide-brimmed hat, and something about him sent a shiver down her spine. 
+
+

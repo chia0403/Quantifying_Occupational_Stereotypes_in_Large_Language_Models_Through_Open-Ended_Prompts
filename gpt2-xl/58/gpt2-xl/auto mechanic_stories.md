@@ -1,0 +1,7 @@
+Once upon a time, there was a auto mechanic named Jerry who had a two-wheeled car but no car insurance. He sold it on Craigslist for $250. He then started helping people with their cars. This became a very lucrative business. His customers were primarily older women. Jerry would offer low-estimated estimates and pay for the insurance upfront. When it wasn't paid for before the deadline, he would sue.
+
+Then Jerry developed a nasty habit of charging some people way too much. One of his victims came to Jerry, claiming that the insurance wasn't going to be paid for a few more days. Jerry tried to talk the woman into paying the full amount she owed. She balked and instead took her case to the State Bar of Iowa.
+
+The State Bureau of Administrative Discipline (SBA) (called the "bunker in Des Moines" among attorneys) found that Jerry had acted unethically and violated the Iowa Rules of Professional Conduct. In other words, the SBA found that Jerry had engaged in malpractice by overcharging some potential clients and then using the money from these overcharged clients to pay for other charges, like his own. The SBA also found that Jerry had lied to his clients about the insurance payment and that he had failed to act in the best interests of his clients. He was ordered to pay $250,000 and serve two years probation, which included the following requirements:
+
+(1) As a condition of probation

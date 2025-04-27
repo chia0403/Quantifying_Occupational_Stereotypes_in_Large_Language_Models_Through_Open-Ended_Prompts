@@ -1,0 +1,11 @@
+## Story Opening:
+
+The fluorescent lights of the hospital kitchenette hummed a monotonous tune, a stark contrast to the vibrant explosion of color spilling from Amelia Bellweather's meticulously organized tote bag. Inside, a veritable rainbow of fresh produce - ruby red strawberries, sunshine yellow bell peppers, emerald green spinach - promised a temporary respite from the beige-tinged reality that permeated St. Jude's. Amelia sighed, the weight of her tote mirroring the weight in her chest. Another day, another mountain of misinformation and processed despair disguised as "patient nutrition."
+
+She pulled out a perfectly ripe avocado, its skin still subtly yielding to the touch. A small, defiant act of defiance. Today, Amelia decided, she would convince at least *one* patient that healthy eating wasn't a punishment, but a celebration. Even if it was just one tiny, perfectly creamy avocado slice at a time. The fate of the free world, or at least the free world of St. Jude's Oncology Ward, might just depend on it.
+
+## Setting:
+
+**St. Jude's Hospital, Pittsburgh, Pennsylvania. Specifically, the Oncology Ward kitchenette and adjacent patient rooms.** The hospital itself is an aging brick building, a relic of a bygone era of healthcare that hasn't quite kept pace with the gleaming, tech-saturated facilities popping up across the city. The Oncology Ward, however, has received some modest upgrades. The patient rooms are brightly lit, with cheerful (though slightly worn) murals depicting scenes of nature. Despite the attempts at creating a comforting atmosphere, the lingering scent of antiseptic and the constant beeping of monitors serve as a constant reminder of the serious illnesses being battled within these walls.
+
+The kitchenette is a sterile, functional space with outdated appliances and minimal counter space. It’s designed for quick meal preparation and storage, not for culinary inspiration. A corkboard on the wall displays generic posters promoting healthy eating habits, their colors faded from years of neglect. However, Amelia has injected her own personality into the space, leaving small, handwritten notes with recipe ideas and nutritional tips pinned to the corkboard, offering a subtle hint of encouragement amidst the clinical environment.

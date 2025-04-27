@@ -1,0 +1,6 @@
+The smell of crayons and disinfectant hung heavy in the air, mingling with the faint scent of spilled juice boxes. Sunlight streamed through the dusty windows of Ms. Eleanor Penelope Thistlewick's third-grade classroom, illuminating the colorful alphabet posters peeling at the edges.  Eleanor, perched on a stool behind her cluttered desk, surveyed the scene with a sigh. The room was in its usual state of organized chaos: desks haphazardly arranged, art projects drying on makeshift easels, and a stray stuffed dragon peering out from under a pile of books. 
+
+It was the first day back after summer break, and Eleanor's usually cheerful heart felt heavier than the stack of ungraded papers threatening to engulf her desk.  The past few months had been difficult – her grandmother, her rock, had passed away, leaving a gaping hole in her life. The familiar comfort of teaching these bright-eyed little ones was supposed to be her solace, but this year, even their infectious enthusiasm felt muted, as if the world itself had dimmed.
+
+
+ Eleanor straightened her glasses and took a deep breath, steeling herself for the inevitable chaos that came with thirty rambunctious eight-year-olds.  It was time to start the year anew, one crayon scribble, one wobbly sentence, one clumsy attempt at friendship at a time. 

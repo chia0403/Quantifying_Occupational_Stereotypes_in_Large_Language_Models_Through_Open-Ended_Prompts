@@ -1,0 +1,7 @@
+Once upon a time, there was a child care worker named Alice Smith. Alice's career followed a straight line – she went through nursery, primary, childcare and schools; she got her degree in childcare (she was on her own as a working mother) and began working in hospitals and schools. In 2007 she started a consultancy specialising in the care of young toddlers, helping parents to create the best possible environment. It seemed she was on the path to becoming a teacher again – but at a much older age too.
+
+After two years of research on the psychological and emotional needs of care leavers, Alice decided to do something about it. It had grown a long way from her first inquiry. Since 2005, she had spent a few months each year with around 100 care leavers, observing their needs – their mood, feelings and behaviour in the care of others.
+
+Facebook Twitter Pinterest 'They had to make decisions at a critical stage in their development' … Alice Smith with young carers in her home at Blackpool in 2010. Photograph: Chris Arnade/Rex Shutterstock
+
+With her research, Alice had started to come to know their stories. She realised that not every young care leaver seemed to enjoy being with their caregivers. "I realised there was a big difference between enjoyment and competence. When they're happy in terms of their social skills and interaction skills, and how they're interacting with the rest of the world, they are just as capable of doing work as any

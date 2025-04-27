@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The fluorescent lights overhead cast an unforgiving glare over the rows of hospital beds, making Dr. Ava Maria Rodriguez's eyes squint as she expertly pricked the arm of her next patient for blood work. A fifth-year phlebotomy student at City Community College, Ava had always found comfort in the sterile routine of collecting samples, the satisfying "glug-glug-glug" of blood entering the tubes a soothing soundtrack to her busy days.
+
+It was 7:30 AM on a typical Monday morning at Mercy Hospital, the city's oldest and largest healthcare provider. The air was heavy with the scent of disinfectant and fresh coffee wafting from the cafeteria downstairs. Ava had always loved this time of day, when the hospital still felt like a place where people came to get better, rather than just a hub for endless tests and treatments.
+
+As she worked her way down the floor, Ava's mind began to wander to the lecture she would give later that day on advanced phlebotomy techniques. She had always been passionate about educating others in her field, and was known among her peers for her patience and attention to detail. Little did she know, this Monday morning would turn out to be anything but ordinary...

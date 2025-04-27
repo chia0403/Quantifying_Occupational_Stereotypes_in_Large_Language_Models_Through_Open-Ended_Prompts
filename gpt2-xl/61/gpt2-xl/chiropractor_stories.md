@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named Dr. Peter Smith who was convinced that he could restore the perfect back. The thing that turned his ideas around was a book called "The Cure for Your Shoulders, The Secrets of the Surgical Chiropractor," by a man named Dr. C.C. Roloff, who died three years ago.
+
+"I was in my early 20s, and the chiropractic profession seemed so well-established that it seemed logical to apply myself in the belief that it had a cure for everything and that I was the one who was going to find it," Dr. Smith said.
+
+Roloff, who died in 1999, was probably the first chiropractor (although he was not a chiropractor) to develop a set of beliefs and practices based on spinal manipulation. Many chiropractors use Roloff's set of beliefs and practices today, including the idea that spinal manipulation has a profound effect on the body's ability to heal. However, after years of looking for this miracle cure, Dr. Smith eventually turned his attention back to his back, but he didn't stop there.
+
+From his work on back pain, Dr. Smith learned about the fact that there were very specific subluxations that were causing the pain and the various exercises that could help with them. As he thought about the muscles and how their tendons, ligaments and bones were holding them in place and moving them around,

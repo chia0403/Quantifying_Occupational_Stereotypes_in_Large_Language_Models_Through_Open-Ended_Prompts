@@ -1,0 +1,5 @@
+As the last wisps of sunlight faded beyond the crumbling stone walls of Willowdale Manor, Emilia Rose Fletcher began her nocturnal rounds as the groundskeeper. The once-grand estate, now shrouded in over a century's worth of secrets and neglect, lay before her like a sleeping giant.
+
+The crunch of gravel beneath Emilia's boots echoed through the deserted gardens as she made her way to the forgotten rose arbor, its vines crawling up the trellis like skeletal fingers. The air was heavy with the scent of damp earth and decaying leaves, a reminder that even in the stillness of night, life persisted in hidden corners.
+
+Emilia's eyes adjusted slowly to the dim light, casting long shadows across the overgrown lawns as she worked to maintain some semblance of order in this decaying world. The weight of her responsibilities settled onto her shoulders like a shroud, and for a moment, Emilia wondered why she bothered – what did it matter, really, if the past remained buried beneath the layers of dust and neglect?

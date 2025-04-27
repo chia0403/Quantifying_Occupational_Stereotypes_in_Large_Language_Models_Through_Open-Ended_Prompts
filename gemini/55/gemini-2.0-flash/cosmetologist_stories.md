@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The first tendrils of dawn, a bruised purple fighting against the retreating black, were just beginning to paint the strip mall parking lot when Isabella “Izzy” Ramirez unlocked the door to "Chic Happens" with a familiar *ka-chunk*.  She shivered, less from the morning chill and more from the knot of anxiety tightening in her stomach.  Today was a big day.  A make-or-break day.  Today, the notoriously fickle beauty influencer, Seraphina St. Claire, was due for a full glam session, a highlight reel, and hopefully, a rave review that would finally catapult Chic Happens, and by extension, Izzy herself, into the realm of salon stardom.
+
+**Setting:**
+
+Chic Happens occupied a modest space nestled between a struggling dry cleaner and a perpetually closed laundromat in a low-key strip mall in the suburban sprawl of Westbridge, Illinois. The interior, however, was a carefully curated haven of pastel pinks and brushed gold.  Izzy had poured every spare penny, and quite a few pennies she didn't have, into making the salon a little slice of Hollywood glamour in the middle of the Midwest.  Mirrors lined the walls, reflecting the soft glow of strategically placed LED strip lights.  Bottles of shimmering nail polish stood in neat rows on glass shelves, each a tiny jewel in the cosmetic crown.  The air, even this early, was faintly perfumed with the scent of hairspray and vanilla lotion, a comforting aroma that usually soothed Izzy’s nerves.  Today, however, even the familiar scent couldn't quite reach the tight ball of apprehension in her chest.

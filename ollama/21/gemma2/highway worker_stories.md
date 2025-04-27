@@ -1,0 +1,5 @@
+The rusted blade of Amelia "Millie" Rosethorn's shovel scraped against asphalt, spitting grit and loose gravel onto the dusty California roadbed. The sun beat down on her back, turning the sweat clinging to her threadbare work shirt into a sticky armor.  She squinted at the horizon, where the shimmering heat waves danced in the distance. Millie was alone out here, as usual, repairing a small crack near mile marker 378 on Highway 101, a lifeline through the heart of California's Central Valley. She hated being alone out here. The highway stretched forever in both directions, a concrete ribbon bisecting miles upon miles of parched farmland and scrubland, punctuated only by the occasional gas station or truck stop that looked like it hadn't seen a fresh coat of paint since the Eisenhower administration.  
+
+But Millie needed the solitude. In this vast emptiness, the world shrunk down to the rhythmic clang of her shovel, the buzzing of flies, and the distant rumble of trucks thundering past. It was out here, under this merciless sun, that she could silence the ghosts of her past and focus on the present, however dusty and unremarkable it might be.
+
+

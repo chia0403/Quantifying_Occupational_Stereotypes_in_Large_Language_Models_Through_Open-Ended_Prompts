@@ -1,0 +1,6 @@
+The humid Georgia air clung to Amelia Celeste Parker like a second skin as she trekked across the dusty parking lot of the Peach Blossom Flea Market.  Her floral sundress, usually a beacon of summer cheer, felt heavy and wilted in the oppressive heat. A bead of sweat trickled down her temple, leaving a salt trail on her cheek. The aroma of frying corn dogs and stale perfume hung thick in the air, a symphony of scents that Amelia had learned to navigate with practiced ease.  
+
+She adjusted the canvas bag slung over her shoulder, its weight reassuringly familiar. Inside lay a collection of vintage postcards, hand-painted bookmarks, and antique thimbles – treasures she hoped would catch the eye of a passerby today. After all, Amelia was a salesperson by heart, a weaver of stories, a purveyor of nostalgia.  Her success depended on her ability to connect with people, to see the spark in their eyes when they stumbled upon something that resonated with their soul. 
+
+
+Amelia paused before her stall, taking a deep breath and smoothing down her faded denim apron. It was another day at the market, another chance to spin tales and make a few dollars. But today, Amelia felt a peculiar restlessness.  A whisper of change hung in the air, like the rustle of leaves on a windy day. 

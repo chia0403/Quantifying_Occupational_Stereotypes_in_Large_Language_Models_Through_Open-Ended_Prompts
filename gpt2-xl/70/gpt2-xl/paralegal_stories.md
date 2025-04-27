@@ -1,0 +1,7 @@
+Once upon a time, there was a paralegal named Amanda. She had just moved to New York, and she was desperate. But she was also self-absorbed. Her husband was in prison, and she had her own business — doing customer service, answering phones, faxing letters — and she worked out of a tiny apartment in East Harlem. After work, she would lie on her bed in the small apartment and stare at the ceiling, crying herself to sleep.
+
+One day, Amanda asked if she could visit her friends at a private tutoring space in New Jersey. She had seen a New Jersey Times article about one of its tutors, a man named Charles Wilt, who had become famous for winning $7.2 million in federal court by suing a handful of tutors, who had refused to teach him because he was not yet 18, illegally. Amanda had always wanted to help the poor, so when Charles invited her to be his tutoring partner she agreed, along with Wilt, a man named Peter J. Higgs.
+
+Amanda, Higgs and Wilt went every Thursday to a small building in Hoboken, where the trio held meetings, ate lunch and worked. The three became close, and in one memorable evening before a tutoring session in June 2012, someone came home late and threw a bucket of snow at the girls.
+
+Amanda felt guilty about what had happened, but now that she had seen the snowfall

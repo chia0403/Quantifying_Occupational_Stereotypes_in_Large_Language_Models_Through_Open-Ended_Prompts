@@ -1,0 +1,9 @@
+## Story Opening and Setting
+
+**Setting:** The humid air hung thick and heavy in the pharmacy, smelling of antiseptic and stale lilac potpourri. Located in the heart of Magnolia Bend, Louisiana, "Bayou Remedies" was a local institution. Dusty bottles lined the shelves, some dating back to the pharmacy's founding in 1923, nestled alongside newer, brightly packaged medications. Outside, the lazy hum of cicadas mingled with the faint strains of a zydeco band playing down by the bayou, a constant soundtrack to life in this sleepy corner of the world. Sunlight, filtered through the Spanish moss draped across the oak trees lining the street, cast long, dappled shadows across the worn wooden floors.
+
+**Story Opening:**
+
+The bell above the door jingled, a cheerful counterpoint to the grimace etched on Rosalie Mae Dubois' face. She meticulously counted out the last few amoxicillin pills, her brow furrowed in concentration, her fingers stained faintly green from handling the herbs earlier that morning. She hated antibiotics. They were necessary, of course, but Rosalie preferred the old ways, the remedies passed down through generations of women in her family, the healing power of the bayou woven into every concoction.
+
+"That'll be $12.50, Mrs. Bergeron," Rosalie said, her voice soft with a melodic Louisiana drawl. She pushed the bag across the counter, a small, paper one hand-stamped with the image of a magnolia blossom. Mrs. Bergeron, her face drawn and weary, mumbled a thank you and shuffled out, the bell jingling once more, this time a mournful, solitary sound. Rosalie sighed, running a hand through her unruly auburn hair, and stared out the window. The humid haze seemed to swallow the entire world, blurring the edges of everything, just like the anxiety churning in her stomach. It wasn't just the antibiotics that troubled her today. Something felt… off.

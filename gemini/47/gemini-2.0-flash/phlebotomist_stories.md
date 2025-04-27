@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, featuring a phlebotomist named Amelia Rose Hawthorne:
+
+**Setting:** The dim, pre-dawn stillness of the Harmony Acres Assisted Living Facility, nestled in the rolling hills just outside of Asheville, North Carolina. The air smells faintly of lavender, geriatric medication, and the lingering scent of last night’s meatloaf. The fluorescent lights of the ground floor infirmary hum a monotonous tune against the backdrop of sleepy sighs and the rhythmic creak of a rocking chair from somewhere down the hall.
+
+**Story Opening:**
+
+Amelia Rose Hawthorne adjusted her mask, the elastic biting into the back of her ears, a familiar discomfort she barely registered anymore. The sun hadn’t even begun to think about peeking over the Blue Ridge Mountains, but here she was, already drawing blood. Mrs. Higgins, bless her heart, was always up before the chickens, muttering about rogue squirrels and demanding her prune juice. Tonight, though, she was thankfully asleep, her thin, papery skin illuminated by the small reading lamp Amelia had carefully positioned.
+
+Amelia gently palpated for a vein, her fingers knowing the terrain of Mrs. Higgins' arm as well as she knew her own. Years of practice, years of feeling for that subtle give, that promising pulse beneath the surface. She preferred the quiet of these early morning draws, before the residents fully woke and the staff descended with their bustling energy and cheerful (sometimes forced) banter. It was a time for calm, for quiet competence, for the simple act of connecting needle to vein, a momentary intimacy with a body nearing its end. Tonight, however, a prickle of unease ran down her spine, a feeling as sharp and unwelcome as the needle she was about to insert. She’d been working at Harmony Acres for three years, and this feeling was new. And Amelia Rose Hawthorne didn't trust new feelings, especially at 4:37 in the morning.

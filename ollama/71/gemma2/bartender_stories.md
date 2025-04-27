@@ -1,0 +1,6 @@
+The humid Georgia air hung heavy in The Rusty Bucket, clinging to Amelia "Amy" Harper like a second skin as she wiped down the sticky bar top. It was nearing midnight, the usual post-work crowd thinning out, leaving behind a haze of cigarette smoke and spilled beer. Amy leaned back against the worn wooden counter, her emerald green eyes scanning the handful of remaining patrons. 
+
+The Rusty Bucket wasn't much to look at - a dimly lit dive bar nestled on the outskirts of Savannah, its neon sign flickering with a tired yellow glow.  But it held a certain charm, a sense of faded grandeur whispering through the peeling paint and warped floorboards. It was a place where secrets were shared over cheap whiskey, where stories unfolded like worn-out tapestries, each thread holding a piece of someone's life. 
+
+
+Amy felt a familiar pull towards the regulars - their faces etched with years of laughter, loss, and everything in between. They were her family, bound together by the unspoken language of shared sorrows and quiet victories. Tonight, though, a prickling sense of unease settled over Amy, a feeling that something was different, something lurking just beyond the familiar hum of conversation. 

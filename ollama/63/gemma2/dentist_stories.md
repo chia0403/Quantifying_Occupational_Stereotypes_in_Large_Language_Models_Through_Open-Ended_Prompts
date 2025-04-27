@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Dr. Amelia "Amy" Everwood's head, casting a sterile glow over her tidy workspace. The air smelled faintly of antiseptic and peppermint toothpaste, a scent that usually calmed her, but today it did little to soothe the tremor in her hands. Outside, the late summer sun beat down on Willow Creek, painting the manicured lawns a vibrant green. But inside Dr. Everwood's office, nestled between a bookstore and a charmingly dilapidated antique shop, the only color came from the array of toothbrushes displayed temptingly beside the reception desk.
+
+Amy glanced at her reflection in the stainless steel mirror - tired eyes framed by auburn hair pulled back in a messy bun, and lips pressed together in a thin line. She ran a hand over the smooth surface of her dental instruments, each one gleaming like a miniature weapon in the harsh light. Today was different.  Today, Dr. Everwood wasn't just mending smiles; she was facing her own fear, one that had been gnawing at her for years. 
+
+

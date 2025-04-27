@@ -1,0 +1,7 @@
+Once upon a time, there was a forensic psychologist named Martin Seligman who worked on identifying which of us is psychopath, but when I ask him that, he makes me laugh — because he does know.
+
+"Psychopaths are rare," Seligman said in a BBC interview in 2010. "They do a lot of atrocious things, from physical violence to sex offences, but they are very rare. If you were to see a serial killer or hit man at work, you'd probably never guess the person was psychopathic. That's one of the things about being a psychopath, it's not just that you're evil but that your mind allows that to happen easily."
+
+If you find a psychopath in your environment, then what will happen to you?
+
+The psychological damage wrought by these "psychopaths" (some will argue all of us are inherently psychopathic) begins with subtle behaviors that aren't immediately obvious that start growing into the ultimate damage (or "disconnection"). For instance, they are often charming, well-spoken, kind and conscientious individuals who know the difference between right and wrong, but without that understanding, they can't be trusted to take care of another's children (or their own). On another note, these are the people who will steal from you with no remorse. You trust enough to give them your money, yet they don't care because all of it is their own money, they will take it on the pretense of

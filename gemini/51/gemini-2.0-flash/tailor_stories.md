@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Setting:** The late afternoon sun, a hazy apricot orb, dipped precariously behind the slate rooftops of Edinburgh's Old Town. Cobblestone streets, slick with a recent, brief shower, reflected the fading light in fractured, shimmering patches. The air, thick with the smells of brewing hops and damp wool, carried the faint, mournful cry of a lone bagpiper practicing somewhere near the castle ramparts.
+
+**Story Opening:**
+
+Percival Augustine Thistlewick, his silver hair pulled back into a neat, if somewhat crooked, tail, squinted at the fading light through the grime-streaked window of his small shop. *Thistlewick & Son, Tailors & Menders,* the faded gold lettering above the door declared, though Percival had been a 'son' for far longer than a son should be, and a son to no one at all for the past ten years. He sighed, the sound rustling amongst the half-finished tweeds and bolts of thread that cluttered his workbench. Another day almost gone, and another day with only a meager handful of customers. Times were hard, and the young lads these days seemed more interested in ready-made trousers from the factory than a meticulously tailored pair that would last them a lifetime.
+
+He pricked his finger on a misplaced pin, a tiny bead of blood blooming on his calloused thumb. "Blast and bother," he muttered, sucking on the wound. He should probably close up. The lamplighter would be making his rounds soon, casting long, dancing shadows that made the already cramped shop feel even smaller, even more… lonely. He ran a hand over the smooth, unfinished lapel of a gentleman's coat, the texture comforting beneath his fingertips. Perhaps just one more stitch. One more stitch, and then he'd lock up and brew himself a strong cup of tea. Maybe even splurge on a biscuit. It was, after all, almost Friday. And Friday, he always told himself, was a day for celebrating… something. Anything.

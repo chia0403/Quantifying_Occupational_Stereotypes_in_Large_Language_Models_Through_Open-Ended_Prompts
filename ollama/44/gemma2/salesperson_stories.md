@@ -1,0 +1,6 @@
+The air hung heavy with the scent of stale coffee and desperation in the cramped office.  Rain lashed against the windowpanes, mirroring the storm brewing inside Amelia "Amy" Harper's chest. Her sales quota had been missed again, and this time, the consequences were more severe than a stern talking-to from Mr. Henderson, her perpetually unimpressed manager. This time, it was about to cost her.  
+
+She chewed on the end of her pen, staring at the glowing numbers on her computer screen. Each one felt like a tiny hammer blow to her dwindling confidence. Amy had always considered herself a natural salesperson – charming, persuasive, able to sell ice to an Eskimo, as her mother used to say. But lately, it felt like she was wading through molasses, unable to make a single connection with the potential clients on her list. 
+
+
+The setting: A small, dingy office in a dilapidated building on the outskirts of a sprawling city. The city itself is grey and rain-soaked, mirroring Amy's mood. The year is 2023, technology is commonplace but the office feels stuck in a bygone era, with outdated computers and chipped paint peeling from the walls.  The only bright spot is a small potted plant on her desk, wilting sadly under the fluorescent lights.

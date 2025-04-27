@@ -1,0 +1,5 @@
+The humid air hung heavy in the hotel lobby like a damp sheet.  Rain lashed against the windows, mimicking the incessant hammering in Barnaby Thornton's chest. He smoothed his already pristine collar, hoping to smooth over the knot that threatened to undo him completely.  Tonight was the night - the night he would finally break free from this gilded cage and start anew.
+
+Barnaby's worn-leather shoes were the only sounds louder than the relentless downpour outside as he shuffled from room to room, his bellhop uniform a second skin. The luxurious marble floors gleamed under the harsh fluorescent lights, reflecting an unyielding emptiness that matched Barnaby's own.  He was just another cog in this vast machine, tending to the whims of wealthy transients and escaping their notice. 
+
+Each night he carried down forgotten dreams, each guest's whispered anxieties, and each silent tear shed into the velvet darkness of their rooms. Tonight, however, would be different. For tonight, Barnaby was finally breaking free - or so he hoped.  

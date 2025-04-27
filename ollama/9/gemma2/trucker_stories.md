@@ -1,0 +1,8 @@
+The air hung thick with the smell of diesel and burnt rubber as Elias Blackwood wrestled his rig into the deserted truck stop parking lot.  He squinted through the haze rising from the cracked asphalt, a familiar sting in his eyes from too many hours under the glare of highway lights. The neon sign above the entrance flickered erratically, casting long shadows that danced like phantoms across the dusty ground. 
+
+Elias's rig, affectionately nicknamed "Ol' Bessie," sputtered and coughed its way to a stop beside a lone Peterbilt, its chrome gleaming dully in the dying light. He climbed down from his perch, stretching his stiff limbs with a grunt. The joints ached from a week on the road, hauling precious cargo between California and Maine – a lonely life, but it was all he knew. 
+
+This particular truck stop, The Rusty Wheel, was a relic of a bygone era, its faded glory visible in the peeling paint and rusted railings. It promised "hot showers, greasy grub, and honest conversation," a tagline that had lured him in countless times before. But tonight, something felt different. A disquiet hung in the air, a silence broken only by the distant hum of engines and the creak of the wind whistling through the empty lot. 
+
+
+Elias straightened his trucker hat, its brim worn low over his brow, and headed towards the entrance. The Rusty Wheel was usually abuzz with life at this hour, but tonight, it felt eerily deserted. Maybe everyone had already eaten and moved on? He pushed open the heavy doors, a shiver running down his spine as the scent of stale coffee and disinfectant washed over him.

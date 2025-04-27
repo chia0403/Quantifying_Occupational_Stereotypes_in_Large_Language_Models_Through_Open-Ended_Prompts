@@ -1,0 +1,6 @@
+The air in the Grand Blackwood Library was thick with the scent of aged paper and dust motes danced in the weak beams of dawn filtering through the high arched windows.  Bartholomew Thaddeus Quill, known to most as Bart, pushed his mop across the polished floor, its rhythmic squelch a familiar lullaby in this cavernous hall. Outside, the city stirred with its usual chaotic symphony of car horns and distant sirens, but within these hallowed walls, time seemed to move at a different pace. 
+
+Bart, a man whose life was as unassuming as his job title, preferred it that way. He liked the quiet company of the books, their worn spines whispering stories of bygone eras. He knew them better than most patrons – where each hidden gem lay, which sections were frequented by scholars and tourists alike, and which forgotten corners held secrets waiting to be unearthed.  He was, in his own humble way, a guardian of these tales, keeping the library's heart beating with every swipe of his mop and gentle dustcloth. 
+
+
+But today, something felt different. A shiver danced down Bart’s spine, an unsettling prickle that made him glance nervously at the towering shelves. Perhaps it was just the early morning chill, or maybe...maybe it was the feeling that he wasn't alone in this silent world of stories after all. 

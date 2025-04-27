@@ -1,0 +1,7 @@
+The fluorescent lights hummed above Eleanor Ainsworth's head, casting a sterile glow over the rows of identical cubicles that comprised her world.  She tapped away at her keyboard, the rhythmic click-clack a familiar counterpoint to the hushed murmur of her colleagues grappling with spreadsheets and tax returns. Outside, the late afternoon sun painted streaks of orange across the glass facade of the towering office building, but inside, Eleanor was lost in the labyrinthine world of numbers. 
+
+Eleanor, with her neat bun and perpetually-rumpled cardigan, wasn't someone who dreamed of soaring skyscrapers or tropical beaches. Her ambition was measured in quarterly reports and balanced ledgers.  A quiet life, a predictable routine - that was her comfort zone. But lately, even the comforting familiarity felt strained. A gnawing sense of discontent had taken root, whispering that there must be more to life than just debiting and crediting.
+
+Her phone buzzed, breaking her concentration. It was her sister, reminding Eleanor about their weekly dinner.  A wave of weariness washed over her. Another predictable Tuesday night. But as she glanced at the clock, she noticed something unusual - it was already 5:30 pm. Surely she'd stayed later than usual. A shiver ran down her spine. It wasn't just the time; a subtle shift in the air had occurred, a prickling sensation that made the hairs on the back of her neck stand on end.  Eleanor couldn't explain it, but something was different. Something was about to change. 
+
+

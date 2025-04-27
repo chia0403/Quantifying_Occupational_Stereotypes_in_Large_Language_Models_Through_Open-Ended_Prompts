@@ -1,0 +1,8 @@
+The bell above the door tinkled its cheery welcome as Amelia "Amy" Beatrice Hawthorne expertly swiped another strand of bleach-blonde hair behind Hazel's ear. The salon, 'Blush & Brass', smelled like a sweet symphony of coconut shampoo and vanilla curling lotion, the perfect backdrop for Amy's calm, rhythmic movements.  
+
+Sunlight streamed through the tall windows, illuminating the rows of neatly arranged shelves stocked with every conceivable beauty product imaginable. Outside, the quaint town of Willow Creek bustled with life – tourists snapping photos of the vibrant flower boxes lining Main Street, children chasing pigeons in the park, and retirees gossiping over steaming cups of coffee at the corner cafe. But inside Blush & Brass, time seemed to slow down. 
+
+Amy, a woman whose own dark curls were always styled into intricate braids or playful buns, had built her salon into a haven of serenity amidst the chaos. It was her sanctuary, a place where she could use her magic touch not just to beautify, but to uplift and empower women with a simple trim, a bold new color, or a touch of glitter on their eyelids. 
+
+
+Today, though, a nervous energy crackled beneath the usual calm. Amy sensed it in Hazel's fidgeting fingers and the way her normally bright eyes seemed dulled with anxiety.  A feeling she knew all too well – the unsettling anticipation that came with a life-altering decision.  Amy wasn’t just a cosmetologist; she was a confidante, a therapist, and sometimes, the only shoulder to lean on in a small town where secrets whispered through cobblestone streets like autumn leaves. 

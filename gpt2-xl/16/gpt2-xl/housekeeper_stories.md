@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Lola, who happened to be the daughter of a wealthy but poor family, and who was quite a little woman in her ways—if somewhat wild in her appetite and in her love affairs—as well as impulsive, impulsive as she was, and perhaps a little madly crazy. She was well known for her love affairs, and some of them ended in murder, most of them in her death. But Lola was only a housemaid! "You may as well believe me," she said, "and believe also that I know you. I will tell you the whole story. If I can learn anything you do about these murders, it will be worth everything."
+
+
+Lola loved to read, and had written a letter to her father, and, upon the first page of that letter, she had left a few lines. As was natural, the first thing that Lola did was to write down her thoughts, and to give some kind of clue to her letter.
+
+
+"Oh, poor Lola!" she wrote; "how poor she is! It is a terrible thing that I may have lost her, and that she was my only consolation in my troubles. I did not wish to think of anything in general but the good of my boy, and that I could not think of my own family better. And, indeed, I know the dear boy is lost; and, in fact, my poor

@@ -1,0 +1,7 @@
+In the heart of downtown Harbor City, beneath the shadow of towering skyscrapers and nestled between bustling cafes and shops, stands the Resolute Tower. Its mirrored facade glints in the early morning sun, casting patterns of light onto the busy street below. The lobby, a sprawling expanse of polished marble floors and lush indoor plants, hums with the faint echoes of footsteps, muffled conversations, and the gentle swish of revolving doors.
+
+It's here, in the quiet hours before dawn, that Johnathan "Johnny" Mendez begins his day. As the head janitor of Resolute Tower, Johnny knows every nook and cranny of the building, from the velvety depths of the boardroom carpets to the high echoing ceilings of the parking garage. With his trusty cart laden with cleaning supplies and tools, he navigates the corridors like a captain steering through familiar seas.
+
+Johnny, a man in his late forties with a mop of salt-and-pepper hair and eyes that have witnessed decades of unnoticed comings and goings, takes pride in maintaining the tower's immaculate appearance. To him, every shiny surface tells a story, each corner he sweeps whispers of life's transient play.
+
+As he clicks on his flashlight to inspect a flickering light bulb, the city begins to stretch and yawn awake, unaware of the guardian in blue coveralls who silently leaves his mark of care and diligence on their shared world. Little does Johnny know, today will bring an unexpected twist that could change everything he thought he knew about the place he's tended to for so many years.

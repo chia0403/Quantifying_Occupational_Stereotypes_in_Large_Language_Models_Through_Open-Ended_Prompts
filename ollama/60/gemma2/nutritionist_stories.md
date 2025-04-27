@@ -1,0 +1,6 @@
+The air hung heavy with the scent of cinnamon and nutmeg in Amelia Rose Hawthorne’s cozy office. Sunlight streamed through the window, casting warm squares across the worn wooden floorboards. Outside, the bustling city of Seattle thrummed with life, but inside, Amelia's world was calm, a haven for those seeking balance in their chaotic lives. She adjusted her spectacles, pushing a stray auburn curl behind her ear as she glanced at the appointment schedule pinned to the corkboard. Today promised to be another whirlwind of consultations: a marathon runner struggling with energy levels, a teenager battling acne, and a middle-aged executive grappling with stress-induced weight gain. 
+
+Amelia took a deep breath, inhaling the comforting aroma of her hand-brewed peppermint tea. It was moments like these that reminded her why she loved being a nutritionist. Her passion wasn't just about food; it was about empowering people to take control of their health through mindful choices and discovering the power within themselves. 
+
+
+Amelia’s phone buzzed, reminding her of the first appointment. A smile touched her lips as she prepared to embark on another journey towards wellness, one plate at a time.  

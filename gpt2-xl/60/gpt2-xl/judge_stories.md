@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named James Oakes. He was a real ass, didn't get along with a lot of other judges, and, as luck would have it, one of his cases involved the infamous "black widow".
+
+The black widow is one of the deadliest snakes in North America and one of the hardest to kill. Oakes was trying to decide a fee for killing the snake, even though he didn't actually feel it was too great of a risk. His verdict led to a lawsuit that has, for decades now, been the subject of much legal speculation, but no definitive ruling.
+
+In an attempt to get past the snake's resistance, the trial judge first tried to force it to perform a little harmless dance called "the serpent dance." This meant the snake would attempt to leap through the air with its three heads, making a circle with its head every time it moved forward. During the dance, the snake would then release saliva from one of its jaws and roll sideways, making a little circle to the left and right as it did so. If it didn't like the judge's decision, the devil's mouth would then roll, making two circles with its head.
+
+Unfortunately, the snake never quite got into the dance and, in the end, only escaped with a fine of $20. The judge made a very clever joke at the end which the snake took. For some reason, he ended the trial by telling the snake,

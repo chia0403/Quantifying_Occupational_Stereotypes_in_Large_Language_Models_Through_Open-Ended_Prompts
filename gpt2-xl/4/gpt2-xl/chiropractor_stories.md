@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named "Dr. Phil" in Los Angeles. His show was called "Dr. Phil," he had tons of material about his life, and I was fascinated by the strange, odd things he had heard and seen. This included the story of a man named Mr. "Mike" who claimed to have seen the Loch Ness monster:
+
+In 1988, the TV channel Access TV produced a short documentary, "The Monster Within." That documentary included what appears to be a video from 1988 that featured Dr. Phil interviewing Mike and other eyewitnesses. The footage begins with a clip of Mike talking about his encounter with the monster.
+
+As you can see in the clip below, Dr. Phil describes his encounter with the monster and then has Mike explain what the creature looked like to him as far as his description goes. It's the perfect setup for a documentary, and the clip is a brilliant one for me to talk about here. As you'll see, in all my years, I've only heard one thing with this kind of documentation: the first day or two of watching "The Monster Within" when it was first shown on Access TV. I didn't even have to open the tape. It really is the perfect, eerie setup.
+
+Anyway, "The Monster Within" includes some fascinating things about Mike that have to do with the fact that his father had been shot and killed at about the same time Mike said the monster hit

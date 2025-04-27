@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting for a roofer named Arthur Reginald Finch:
+
+**Opening:**
+
+The hammer slipped in Arthur Reginald Finch's gloved hand, a sharp, sickening clang echoing off the corrugated iron of Mrs. Henderson's roof. He cursed, a quiet rumble lost in the August heat shimmering off the shingles. He was getting too old for this damn business. Sixty-two years old, and still clambering around like a monkey in a tin hat. It wasn't the climbing that bothered him, not really. It was the heat, the relentless, baking sun that turned the air thick and soupy, making each breath feel like inhaling molten sand. Arthur wiped the sweat from his brow with the back of his forearm, leaving a streak of tarry grime across his forehead. He hated tar. He hated heat. And lately, he hated the gnawing feeling in his gut that told him this wasn’t just a bad day, this was a sign. A sign that maybe, just maybe, it was time to hang up his hammer for good.
+
+**Setting:**
+
+The story opens in the small, sun-baked town of Harmony Creek, Oklahoma. It's late summer, nearing the end of August. Harmony Creek is the kind of place where everyone knows everyone else's business, where the annual "Watermelon Fest" is the highlight of the year, and where the houses, mostly modest bungalows and ranch-style homes, are showing their age under the harsh Oklahoma sun.
+
+Mrs. Henderson's house, currently Arthur's workspace, is a perfect example. It's a faded turquoise, with peeling paint and a yard full of knee-high weeds. A rusty swing set stands forlornly in the corner, a relic of a bygone era. The roof, however, is Arthur's immediate concern. Years of neglect and Oklahoma weather have taken their toll, leaving it riddled with leaks and loose shingles. From his vantage point on the roof, Arthur can see the town's dusty main street, lined with a few struggling businesses - a diner, a hardware store, and the perpetually empty Harmony Creek Bowling Alley. The air is thick with the scent of dry grass, motor oil, and the faint, sickly-sweet aroma of the rendering plant just outside of town, a smell that Arthur has grown accustomed to, but still secretly loathes. The sun beats down mercilessly, turning everything into a shimmering, hazy mirage.

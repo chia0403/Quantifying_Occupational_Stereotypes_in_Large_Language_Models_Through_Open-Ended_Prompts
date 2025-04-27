@@ -1,0 +1,1 @@
+Once upon a time, there was a electrician named "A.S." Who never took off his helmet. That was the start of an obsession that led him down a path of self-improvement, personal improvement and the quest for greater independence. What would happen if he just let the helmet come off? Would he change? Or would he stay the same?

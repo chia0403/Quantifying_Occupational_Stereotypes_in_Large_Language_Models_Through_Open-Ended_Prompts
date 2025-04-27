@@ -1,0 +1,4 @@
+The scent of cardamom and warm sugar hung heavy in the air, swirling around Eloise Amelia Buttercup like a comforting embrace. Outside, the Parisian morning was grey and drizzly, mirroring the churning anxieties in her stomach. Today was Bastille Day, the busiest day of the year for her little bakery, "Le Gâteau Douceur," nestled on a cobbled street just off the bustling Champs-Élysées. Eloise smoothed down her flour-dusted apron, the crisp white fabric a stark contrast to the deep brown of her unruly curls that escaped from their loose braid. 
+
+
+She peeked through the bakery's window, watching the steady trickle of customers, mostly tourists drawn in by the promise of croissants glistening with butter and pain au chocolat oozing with molten chocolate. But beneath the surface of this charming scene, a wave of fear crashed over Eloise. The rent had gone up again, and her dwindling savings wouldn't cover it for long.  Today's sales better be phenomenal. 

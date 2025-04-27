@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The flickering neon sign of the "Blue Moon Diner" cast a sickly blue glow across the rain-slicked street, painting Amelia Hayes's face in a fleeting, ethereal wash each time a car passed. Inside, the air hung thick with the aroma of stale coffee and simmering desperation, a familiar and oddly comforting scent to her. Amelia, a woman who spent her days navigating the labyrinthine complexities of the human mind, found a peculiar solace in the predictable grit of this late-night haven. Tonight, however, the usual hum of quiet solitude was replaced by a nervous energy that prickled her skin. A man sat hunched over in a booth by the window, his shoulders trembling, and Amelia, against her better judgment, couldn't shake the feeling that she was about to become unwillingly entangled in his story.
+
+**Setting:**
+
+The Blue Moon Diner is a classic, retro diner located in a run-down, industrial district of Pittsburgh, Pennsylvania. The diner is open 24/7, catering to truck drivers, insomniacs, and the occasional lost soul. The interior boasts cracked vinyl booths, a checkered tile floor worn smooth by years of use, and a long counter lined with swivel stools, each harboring its own history of spilled coffee and hushed confessions. The walls are adorned with faded posters of Elvis Presley and classic cars, adding to the diner's nostalgic, yet slightly melancholy, atmosphere. Outside, the perpetual gloom of the city sky is amplified by the surrounding warehouses and factories, their darkened windows like vacant eyes staring out at the world.

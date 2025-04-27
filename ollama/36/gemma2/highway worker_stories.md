@@ -1,0 +1,5 @@
+The sun beat down on Amelia "Amy" Rosewater's back like a blacksmith's hammer, turning her cotton work shirt into a sweat-soaked canvas. Dust devils pirouetted in the sweltering air, kicked up by the ceaseless hum of traffic rumbling past on Highway 101.  She squinted through the haze, watching a semi-trailer haul its load of oranges towards the setting sun. The scent of citrus hung heavy in the air, mingling with the acrid tang of asphalt and diesel. Amy gripped her rake tighter, pushing back against the urge to surrender to the relentless heat. This stretch of highway, snaking its way through the heart of California's Mojave Desert, was a relentless mistress. 
+
+She scanned the horizon, searching for any sign of movement beyond the orange glow reflected in the chrome bumpers of passing cars. The desert stretched out before her, an undulating expanse of sand and scrub punctuated by the occasional Joshua tree clinging to life. In this desolate landscape, where the only sounds were the thrumming engine of passing vehicles and the distant cawing of crows, Amy felt a profound sense of solitude. It was a kind of isolation she both craved and feared. 
+
+

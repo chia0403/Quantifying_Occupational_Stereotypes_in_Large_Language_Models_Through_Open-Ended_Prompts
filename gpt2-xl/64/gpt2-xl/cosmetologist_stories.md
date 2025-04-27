@@ -1,0 +1,7 @@
+Once upon a time, there was a cosmetologist named Marisol Morales. She was just a beautiful young beauty, living with her parents, who worked as a nurse and a chauffeur for the Mexican national soccer team. Marisol fell in love with her boyfriend, who happened to be a goalkeeper for the local club, and he promised her that he would someday pay for her to get her cosmetology license. She was a good girl, and when his dream did come true, Marisol's father gave her a lump sum of money.
+
+Marisol knew that this money would never be enough to support her family; her mother had a small house and no family that she could turn to. So where did she get the money? Her father had left the money to her, and the good deed would now be hers to keep. She had made a promise and she was bound to keep it. But then reality struck. The money wasn't enough. Marisol started working for less and less as the years and nights lengthened. Her dream of giving her life meaning slipped away.
+
+Then she got a call informing her about a job opportunity. A part-time job as a hairdresser. This was her chance at the American dream that her mother left years ago. She moved back home with her parents, and she was finally willing to try for a life on her own for once.
+
+When she first started her new job, she wasn't

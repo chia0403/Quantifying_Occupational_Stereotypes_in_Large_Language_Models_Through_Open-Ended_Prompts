@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting with the main character, an artist named Seraphina Lark:
+
+**Setting:** The story opens in the small, coastal town of Port Blossom, Maine, on a blustery late-October afternoon. Salt-laced air whips off the Atlantic, carrying the mournful cries of gulls and the rhythmic clang of lobster trap buoys. The town is a patchwork of weathered clapboard houses painted in faded nautical hues, huddled close against the wind. Fishing boats bob restlessly in the harbor, their masts like skeletal fingers against the grey sky. A palpable sense of the approaching winter hangs in the air, both in the chill that bites at exposed skin and in the quiet resignation that settles over the town after the summer tourists depart.
+
+**Opening:**
+
+The biting wind made Seraphina Lark hunch deeper into her thick, paint-splattered sweater as she wrestled with the easel. It had been a fool’s errand to set up on the rocky outcrop at Widow’s Point today, but the churning sea, the way the waves crashed against the jagged cliffs, was irresistible. The raw energy of it all, the untamed power of the ocean in its pre-winter fury, thrummed through her. She needed to capture it.
+
+A rogue gust ripped the canvas from her easel, sending it tumbling towards the churning waves. "Blast it!" Seraphina yelled, her voice barely audible above the wind. She lunged forward, snagging the canvas just as it teetered on the edge of the precipice. Her heart hammered against her ribs, not just from the near-miss, but from the fear that something, some vital spark, was dying within her, buried beneath the weight of the endless grey days. She clutched the blank canvas to her chest, the coarse linen rough against her skin, and wondered, not for the first time, if Port Blossom was slowly stealing her soul.

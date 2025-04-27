@@ -1,0 +1,7 @@
+Captain Amelia Vanderbilt had always found solace in the skies. The hum of the engines felt like a heartbeat, steady and reassuring as she guided her aircraft through the sea of clouds. Today, as the sun poured its amber light over the horizon, casting an ethereal glow on the tarmac of McCarran International Airport, Amelia prepared for a flight unlike any other.
+
+The desert city of Las Vegas buzzed with its usual fervor beneath her, a sprawling oasis where dreams were spun and shattered in equal measure. But Amelia's dreams had always soared higher than the neon lights and endless sound of slot machines. Her eyes, the color of a stormy sea, were fixed on the gradient skies that promised boundless adventure.
+
+As she strode towards her plane, a vintage Lockheed L-1049 Super Constellation, lovingly dubbed "The Star Voyager," the crisp morning air carried a hint of excitement mixed with a tinge of anticipation. This flight would take her across the Pacific to a destination steeped in mystery—a small, forgotten island rumored to hold secrets of the aviators who vanished into its mists decades ago.
+
+Proud in her pressed navy uniform, Amelia's thoughts drifted briefly to her grandfather, a pilot himself who regaled her with tales of daring escapades and whispered secrets of the sky. It was his legacy that had ignited the flame of wanderlust within her. Today, she flew not just for the thrill of adventure but to uncover a piece of history and perhaps, a piece of herself.

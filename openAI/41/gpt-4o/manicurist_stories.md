@@ -1,0 +1,5 @@
+In the heart of the bustling city of Serendale, where the cacophony of car horns mixed seamlessly with the chatter of hurried pedestrians, nestled a small oasis of calm—Luxe Nails and Spa. It was here that Eloise Hartley practiced her art, transforming weary hands into masterpieces. The salon, with its soft amber lighting and gentle aroma of lavender and eucalyptus, was a refuge from the outside world. 
+
+Eloise had been a manicurist for over a decade, her journey beginning in the cramped corner of a friend’s salon and evolving into this cozy space she fondly called her own. Her workstation, by the large front window, was perfectly arranged with an array of colored lacquers that spanned the spectrum of a sunset—warm oranges, deep reds, and shimmering purples. Each bottle promised a story, and it was Eloise’s delicate touch that brought them to life on the fingertips of Serendale’s diverse populace.
+
+As the morning sun cast its gentle light onto the busy street outside, Eloise prepared for another day, her heart beating in anticipation of the stories she would hear and the lives she would momentarily touch.

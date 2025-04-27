@@ -1,0 +1,7 @@
+Once upon a time, there was a tailor named D. R. Sargent. His name meant "a friend or acquaintance who is in the habit of doing something which he does better than others." The company was owned by the father of Mrs. Sargent who had lived some ten or fifteen years in the city.
+
+The company was engaged in manufacturing goods mainly for foreign markets, and D. R. Sargent had acquired the knack of "factory work," in which he was highly esteemed, and especially, of "hand work," in which he had an especially great reputation. This last and "last" meant his specialty; he was an excellent smith, and was in the habit of fixing the clothes of his customers by hand, "where the hand never got away with anything."
+
+When Mrs. Sargent was offered the position of shop-keeper, all but the most intimate friends knew that she would accept it. She had once been a merchant's wife, and thus had acquired a thorough knowledge of the workings of business.
+
+The shop was in the lower end of the building. It consisted of two long, long rooms which were separated by about half a dozen windows. The first, which was of the larger size, contained the upper portion of the dressmaking machine, the upper part of which was built up of pieces of boards covered with the raw material. The second room contained the lower portion of the machine, and served also as

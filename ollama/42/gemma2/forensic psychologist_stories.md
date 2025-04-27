@@ -1,0 +1,6 @@
+The stale scent of disinfectant hung heavy in Dr. Amelia Croft's nostrils as she stepped into interrogation room four. Fluorescent lights buzzed overhead, casting a sterile glow on the steel table and bolted chair. Outside, sirens wailed, a mournful symphony that echoed the unease gnawing at Amelia’s gut. She wasn’t used to working with murder cases; her expertise lay in the less brutal world of white-collar crime and corporate espionage. Yet, here she was, tasked with assessing the sanity of Thomas Blackwood, a man accused of brutally murdering his wife and her lover. 
+
+The air inside the room felt thick with unspoken words, charged with the residue of past traumas. The only sound besides the distant sirens was the rhythmic drip from a leaky faucet in the corner, each drop like a hammer blow against Amelia’s nerves.  Blackwood sat hunched in his chair, his face shrouded in shadow, eyes fixed on some unseen point beyond her. He looked defeated, a broken bird with clipped wings. But beneath that facade, Amelia sensed something else: an intelligence that was both unsettling and alluring. 
+
+
+This wasn't the typical case file she’d reviewed. This was a tangled web of deceit, violence, and unspoken desires, and she needed to unravel it before Blackwood became another statistic in the city's ever-growing list of unsolved homicides.  

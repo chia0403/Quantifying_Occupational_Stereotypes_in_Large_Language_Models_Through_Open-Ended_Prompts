@@ -1,0 +1,6 @@
+The stale scent of coffee hung heavy in the air, mingling with the metallic tang of sweat and fear that clung to Detective Amelia "Amy" Hawthorne's uniform. The flickering neon sign outside cast an unsettling purple glow on the rain-slicked asphalt, turning the already grim scene at the abandoned warehouse into something straight out of a nightmare. A body lay sprawled on the concrete floor, its white canvas bag - once presumably filled with stolen goods - ripped open and discarded like yesterday's news. The only sound besides Amy's ragged breathing was the steady drip-drip-drip of rainwater seeping through a hole in the corrugated roof. 
+
+Amy knelt beside the body, her gaze flitting over the pale face marred by bruises and a gaping wound in the chest. A single crimson rose lay clutched in the victim's hand, its petals already wilting under the harsh fluorescent light that illuminated the scene.  
+
+
+This wasn't just another robbery gone wrong. There was something about the meticulously placed rose, the unnatural stillness of the body, the way the shadows seemed to dance around the scene, that whispered of something darker, something more sinister at play. Amy knew, with a chilling certainty, that this case would consume her.

@@ -1,0 +1,7 @@
+Once upon a time, there was a coach named Charlie Casserly. He was a brilliant coach, but he couldn't control his players — they just didn't give up and fight back. They looked at him, looked at the media, and said, 'Let me fight. Let me get after it.' 'No, do something,' the media would say. 'Come on. You're a better coach, you know it. Come on, baby! Throw firecrackers! You can do it.' It's a culture. It's a culture. You're under this type of pressure."
+
+There's no doubt that Casserly, a four-time NBA champion and league Defensive Player of the Year, has done his fair share of pushing, pulling and shoving. However, the notion that he and the Knicks are "under" a culture of "pressure" is false.
+
+"This is a team that is under pressure, and you're under pressure for good reasons," said Casserly, who coached the Knicks in 2003-04 and played for them from 1979-91. "The reason you're under this pressure is to win championships. We never won before, now we do, and it's our responsibility to make sure they do. They should give us credit because we did. I think the criticism is unnecessary."
+
+The Knicks — and team ownership — are under no pressures at all. Ownership is in complete control. There is no pressure

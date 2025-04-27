@@ -1,0 +1,7 @@
+Once upon a time, there was a artist named Paul Beatty. According to a biographical piece on his website, Beatty was born in Philadelphia to Jewish immigrant parents. According to his biographers, Beatty was the first person ever to claim that he was born in Africa: a reference to an interview he gave for an Italian film called The King and I. His family, from which Beatty was divorced and who lived on Long Island, would not have been allowed to immigrate into the US at any stage in Beatty's childhood.
+
+After the US government made him a natural-born citizen during the civil rights era, Beatty's first marriage ended and his subsequent romances followed. He first met Rachel Kushner while she was filming The Talented Mr Ripley in 1972. They started their relationship in 1977, married in 1979, and had an eight-year relationship. They had two young children together.
+
+In his 1990 biography of Kushner, the biographer noted: "In March 1993, when he was just 24 and we were about to have our first child, he admitted that he was 'born in New York City to an extremely impoverished, Jewish family,' but that he did not identify as Jewish."
+
+The pair had four children together. They raised a daughter in 1997, after she was born to the former Beatty's then-wife in Jamaica. The couple divorced in 1996, reportedly after Beatty had an affair with the actress Pamela Anderson. After

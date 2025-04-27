@@ -1,0 +1,7 @@
+Amelia Thompson had always believed that the world was a collection of stories waiting to be told. As she sat in her quaint office in the heart of downtown Savannah, Georgia, the late afternoon sun cast a golden glow through the tall windows, illuminating the well-worn map that adorned the wall behind her desk. The map, dotted with colorful pins and yarn tracing routes across continents, was both a testament to her years as a travel agent and a reflection of her insatiable wanderlust.
+
+The office, tucked away in a historic brick building on Liberty Street, exuded an old-world charm that lured passersby with its wrought iron balcony and ivy-draped facade. Inside, the scent of polished wood and freshly brewed coffee greeted visitors, while vintage travel posters flanked the walls, whispering tales of distant lands and forgotten paths.
+
+As she sipped on her coffee, Amelia glanced at her calendar, each day neatly filled with appointments. Today promised an exciting new client—a young couple dreaming of an adventure across Europe. With a swift glance at the clock, she smiled, excitement sparking in her eyes. Helping others discover the joy of travel was, after all, not just her profession but her passion.
+
+Here, amidst the buzzing life of Savannah with its cobblestone streets and moss-laden oaks, Amelia Thompson wove dreams into plans, each itinerary a bridge to the stories waiting to come alive.

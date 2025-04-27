@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named Gloria. She was a nice soul, caring, smart, and a wonderful communicator. She helped us navigate a lot of the problems that come when someone is confused about who they are or needs help and it just doesn't have a good answer.
+
+So I am now the kind of pastor who doesn't give a shit about what his congregation thinks. I don't care to explain the details of what happened earlier in the week. I do care about what my congregation does with the information. I don't care about what my congregation thinks. If they have questions, they can ask me and I will give them the answer. If they're interested, they can join me in prayer. For the most part, they don't have to, as Gloria and I understand things.
+
+I do care about what my congregation thinks. And I try not to talk too much, much—or at all—about the sex scandal. It's an area we can discuss with you at your own pace, as well as you can discuss it with me. That's because when pastors in our churches do talk to the congregation on these topics, all sorts of questions get raised, and that's why I said I don't give a shit about it.
+
+For anyone who doesn't know, or can't tell, if they had a sexual orientation, it's as though they're both living and dying. Every man in every relationship comes

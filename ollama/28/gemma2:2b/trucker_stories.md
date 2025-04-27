@@ -1,0 +1,6 @@
+The neon "Truck Stop Inn" sign buzzed like a trapped hornet in the fading light, casting an oily sheen on Dusty Rhodes' already tired reflection in his grimy windshield.  It was 3:00 am, and the air thrummed with the low hum of diesel engines and restless laughter from the last few weary souls who had traded miles for sleep at the diner-turned-roadhouse. His name - like his rig, a beat-up Peterbilt named "Old Reliable" - was synonymous with steady hands and endless miles. Dusty was a man of routine; clocking out on the open road with the sunrise every day, a rhythm born from years spent hauling goods across the nation.  But today was different. Today, he wasn't just navigating another highway, he was navigating his soul, as a storm of doubt rolled through him like the truck stop winds. 
+
+**Setting:** The deserted landscape of Route 66, stretching on for miles in both directions, is bathed in the fading light of dusk.  A dusty diner sits nestled between two massive interstate bridges, its weathered facade promising warmth and respite but whispering secrets of forgotten journeys to anyone who paused long enough to listen. 
+
+
+**Character:** Dusty Rhodes - a seasoned trucker with calloused hands, a stoic face, and a heart burdened by secrets he's unwilling to share.

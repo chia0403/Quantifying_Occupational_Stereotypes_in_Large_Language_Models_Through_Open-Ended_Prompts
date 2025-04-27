@@ -1,0 +1,6 @@
+The air hung thick with the scent of linseed oil and turpentine in Amelia Claire Beaumont's studio. Sunlight slanted through the dusty skylights, illuminating motes of dust dancing in the golden rays. Outside, the familiar roar of traffic on Bleecker Street was muted by the layers of canvas stretched across the walls and the heavy velvet curtains that shielded Amelia from the world. She stood before her latest masterpiece, a swirling riot of crimson and gold titled "Autumn's Fury," a stark contrast to the pastel blue serenity of her previous work. 
+
+Amelia ran a gloved hand over the rough canvas, tracing the jagged edges of a crimson leaf. It wasn't what she had intended, not this chaotic explosion of colour.  She’d planned a gentler depiction, capturing the melancholic beauty of falling leaves. But something about the city - the relentless rush, the echoes of discontent - had seeped into her brushstrokes, transforming her vision into something raw and tempestuous. 
+
+
+The phone on her easel buzzed impatiently. It was probably another gallery owner, eager to snatch up her work before it even dried.  Amelia sighed, a wave of weariness washing over her. Fame wasn't what she had craved. She simply wanted to paint, to translate the emotions swirling within her onto canvas, free from the expectations and pressures of the art world. 

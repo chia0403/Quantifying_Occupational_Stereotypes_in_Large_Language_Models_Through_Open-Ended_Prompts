@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+It was a drizzly autumn evening in the city of Ashwood, the kind of night that made you want to curl up with a cup of coffee and forget about the world outside. But for Jack "Hawk" Hawkins, private investigator, there wouldn't be time for such comforts. Hawk sat at his desk, nursing a lukewarm cup of black coffee as he stared out the rain-soaked window of his office, located in a dingy corner of Ashwood's oldest neighborhood.
+
+The flickering fluorescent lights overhead seemed to hum in sync with the steady beat of the rain, casting an eerie glow over the cluttered room. Hawk's eyes scanned the familiar landscape of his office: stacks of dusty files, crumpled cigarette packs, and the occasional discarded cigar box. The walls were adorned with faded photographs of long-forgotten cases, each one a reminder of the city's darkest corners and the people who lived there.
+
+Hawk's phone rang, shrill in the silence. He sighed, answering on the first ring. "Hawkins Investigations," he said, his voice low and gravelly from years of chain-smoking and late nights. On the other end, a hesitant voice spoke up, sending a shiver down Hawk's spine: "Mr. Hawkins, I need to see you about something... important."

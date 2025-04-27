@@ -1,0 +1,6 @@
+The humid air hung heavy over Amelia "Amy" Evergreen's back as she wrestled a stubborn azalea bush into its designated spot. Sweat beaded on her brow, mingling with dirt already clinging to her neck and forearms. The July sun beat down mercilessly on Willow Creek Estates, turning the manicured lawns into shimmering mirages and baking the flowerbeds into dry, thirsty sponges.  Amy wiped her forehead with a grimy sleeve, squinting at the sprawling Victorian mansion she was currently beautifying. It was a beast of a house, its intricate gables and turrets casting long, gloomy shadows across the meticulously maintained grounds. 
+
+Willow Creek Estates wasn't Amy's usual stomping ground. She prided herself on her work in humble backyards and community gardens, crafting pockets of tranquility amidst the urban sprawl. But this project was a stepping stone, a chance to prove she could handle something grander, more challenging. A chance to leave her mark on the world beyond the familiar rows of petunias and tomato plants. 
+
+
+As Amy surveyed her work, a rustle in the overgrown bushes caught her attention.  She spun around, trowel clutched tight, ready for whatever lurked within the tangled foliage.   

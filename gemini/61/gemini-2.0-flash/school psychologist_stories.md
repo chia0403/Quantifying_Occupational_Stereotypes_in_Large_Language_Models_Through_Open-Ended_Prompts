@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a school psychologist:
+
+**Setting:**
+
+The setting is Northwood Elementary School in the quaint, perpetually autumnal town of Willow Creek, Pennsylvania. Northwood is a single-story brick building that's seen better days. The paint is chipping in places, and the linoleum floors gleam with a weary shine that suggests years of scrubbing. The classrooms are bright and filled with colorful student artwork, but a general air of budget constraints hangs heavy, like the scent of old textbooks. Outside, a sprawling playground is dominated by a towering oak tree, its leaves a vibrant tapestry of red and gold, that watches over the children like a benevolent sentinel. The air always smells faintly of damp leaves and woodsmoke, especially on a brisk October morning.
+
+**Opening:**
+
+The fluorescent lights hummed a relentless, monotonous tune as Dr. Eleanor Abigail Vance navigated the crowded hallway. She clutched a travel mug of lukewarm, overly-caffeinated coffee, its warmth barely registering against the chill creeping into her bones. It was Friday, and the end of the week had the distinct aroma of impending chaos hanging in the air, a potent mix of sugar-fueled anticipation for the weekend and the lingering anxieties of unfinished assignments. Eleanor squeezed past a group of fourth graders engaged in a heated discussion about whose superhero was better, offering them a small, tired smile. Her office, tucked away in a quiet corner of the building between the nurse's station and the supply closet, was her sanctuary, a small space filled with comfortable chairs, calming artwork, and the faint aroma of lavender essential oils. Today, however, even the familiar scent couldn't quite cut through the dense fog of dread that had settled over her since reading the email from Principal Thompson that morning.

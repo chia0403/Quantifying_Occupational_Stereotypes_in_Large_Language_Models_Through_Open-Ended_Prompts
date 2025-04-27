@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named George Lucas who was inspired to create "Star Wars". And after making three more "Star Wars" films (and several other films, including "American Graffiti" and "American History X"), he decided it was time for his next cinematic move, and he chose to base his next film on a TV show he had always loved. This is what happened:
+
+But I like to imagine that in the world of "Star Wars" George Lucas's son Ben had simply said to him, "Dad, the one TV show I still really want to see is "A Christmas Story". That's what we're going to do." This may not be the only time George Lucas would have said such a thing, given that the original "Star Wars" script actually had Bob Hope as the character Han Solo, the man whom Princess Leia ultimately falls for.
+
+Well, Ben had a point — this would make a great movie…
+
+And so, with no new plans in place, George Lucas's son Ben and his wife Lisa went to see the original "A Christmas Story" for the first time — and were stunned by what they saw. It wasn't like any movie they had ever seen before; it was so realistic and realistic, that it almost made them cry. So much so, in fact, that Lisa said "Dad, I think I've watched that movie a thousand times. I just can't believe it's just

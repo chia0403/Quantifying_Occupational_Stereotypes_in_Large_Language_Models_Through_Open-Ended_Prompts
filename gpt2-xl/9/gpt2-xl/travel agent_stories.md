@@ -1,0 +1,3 @@
+Once upon a time, there was a travel agent named Toni (you see her everywhere). One day, after Toni left on her roundtrip to New York, she checked into her New York room and saw the backside of the poster of "Fright Night" next to its door, which had appeared at 10:00. Toni couldn't wait to make the roundtrip to New York again. The next morning, she went to work wearing the top of the photo that day. She looked ridiculous but the sign was so perfect. It was like a real life piece of poster that said: "Come to New York!"
+
+For those looking for something on the Internet that they can put in their portfolio of things that they created, try finding "Fright Night" on Pinterest and post the picture your portfolio there.

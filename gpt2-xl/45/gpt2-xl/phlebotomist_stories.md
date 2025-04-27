@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named George Hersey. Hersey was a surgeon who came from the United Kingdom. He practiced in Baltimore, Maryland, where he lived until his death in 1825. His career as a physician spanned more than 200 years, during which time he saved numerous lives and improved medical care, in addition to developing new techniques in the treatment of maladies such as syphilis. Some of hersey's patients suffered from the crippling disease, for which hersey himself had been cursed by God. Hersey performed cures with his own hand, including one which caused an African child to recover completely.
+
+Unfortunately, this is the kind of story that's best told from memory, and so she didn't.
+
+"It was a cold, snowy November day in Baltimore and I was on the back porch of my apartment building, having a walk, talking to a friend about a book that I was reading, just thinking about all the experiences that it had been about and writing about over the years," recalled Laura Lee Huggins, who has been researching and producing a documentary about Hersey and his legacy for the last three years. "It snowed really hard. It made it really dangerous because I had a friend who was in his vehicle that worked for a snowplow company, but he was stuck. We didn't know what to do. I had to pull him out of the way of the hail."
+
+Despite

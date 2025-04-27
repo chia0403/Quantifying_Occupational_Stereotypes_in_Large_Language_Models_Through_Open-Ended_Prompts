@@ -1,0 +1,10 @@
+**Title: The Last Cut**
+
+**Setting:** The story unfolds in the bustling heart of Chicago, within the gleaming walls of St. Augustine Hospital—a prestigious medical center renowned for its cutting-edge technology and expert staff. Towering windows in the surgical wing provide a panoramic view of the city's skyline, where skyscrapers gleam like sentinels under the midday sun. The sterile scent of antiseptic mingles with the faint hum of machinery, creating a familiar yet daunting atmosphere for those who tread the operating rooms.
+
+**Opening:**
+Dr. Isabella Mae Graves stood poised in the glowing confines of the surgical theater, her focused gaze reflecting the harsh overhead lights that illuminated the table before her. Today was not just another day of routine surgeries; it was a high-stakes procedure that could reshape her career—or shatter it. The rhythmic beeping of monitors and the soft shuffle of nurses behind her provided a backdrop that was as familiar as the heartbeats she had learned to interpret like music. 
+
+With her gloved hands steady and her mind sharp, Isabella had already visualized each incision, each suture, mapping out the delicate dance of life and death that unfolded beneath her hands. As the anesthesiologist signaled to begin, she took a deep breath, drawing the crisp hospital air into her lungs. The gurney held a patient in distress, a young man whose life hung precariously in the balance. 
+
+But beyond the sterile environment and focused minds, a storm brewed within Isabella—a personal struggle that had been bubbling just below the surface of her unyielding professionalism. The choice she had made, to pour herself into her work and keep her emotions bound in a steel cage, now felt like a weight pressing down on her soul. As she picked up the scalpel, she glanced out the window briefly, catching a glimpse of the city thriving outside, unaware of the battles being fought within the walls of her sanctuary. Today, she had a job to do, but shadowed thoughts of her past decisions flickered in her mind like fireflies in the dusk—beautiful yet fleeting, and wholly unsettling.

@@ -1,0 +1,8 @@
+The smell of woodsmoke and sweat clung to Silas Hemlock like a second skin. He was known as "Silas the Skilled" in the cobbled streets of Dunhaven by his customers and "Slasher" amongst the younger, less appreciative lads.  It wasn't that he enjoyed scaring them – it was just the only way he could get people’s attention in this town. 
+
+His shop, Hemlock & Sons, stood proudly at the edge of the marketplace, a dark wooden structure with faded paint and a sign adorned with a grinning butcher's cleaver. The hammer-shaped door creaked open whenever someone approached, allowing a rush of fresh air tinged with the scent of charring meat and spices. 
+
+Inside, shelves groaned under the weight of neatly stacked cuts, from thin, glistening steaks to heavy slabs of pork belly, all bathed in an ethereal glow from the oil lamps that dotted the ceiling. Silas stood behind the counter, his weathered face etched with years spent wrestling with cattle and coaxing life out of even the most stubborn hams. The rhythmic thump-thump of his cleaver against a bone was almost hypnotically constant, as if the sound itself was beating in time to the pulse of Dunhaven's heartbeat. 
+  
+
+The morning light streamed through the window, painting long shadows across the butcher block where he was preparing for the day’s deliveries. The air buzzed with the anticipation of a new day, promising fresh starts and ripe opportunities for Silas, a man who took great pride in his craft - even if it meant wielding a cleaver as if it were an extension of himself, its sharp edge echoing the harsh realities of life itself. 

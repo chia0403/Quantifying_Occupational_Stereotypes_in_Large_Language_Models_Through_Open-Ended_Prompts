@@ -1,0 +1,7 @@
+The air hung thick with the scent of almond oil and lavender as Amelia "Amy" Rosewater meticulously filed down a chipped edge on Mrs. Periwinkle's thumbnail. Sunlight streamed through the dusty windows of Amy's Nails & More, casting long shadows across the vibrant rows of polishes lining the walls.  Outside, the bustling street of Maple Avenue in downtown Oakhaven hummed with its usual midday symphony – car horns, buskers tuning their instruments, and the chatter of a thousand conversations. But inside, it was a sanctuary of quiet, where Amy listened to the gentle click of her tools against nails and Mrs. Periwinkle's stories about her grandchildren. 
+
+
+Oakhaven, nestled in the heart of Ohio, was a town that held onto its traditions like a prized heirloom. Amy’s Nails & More had been a fixture on Maple Avenue for generations, once owned by her grandmother.  Now, Amy, with her gentle touch and quick wit, kept the tradition alive, tending to not just nails, but the stories and anxieties of the community, one carefully painted tip at a time.
+
+
+But today, something felt different. The usual buzz of customers was muted, replaced by an unsettling silence. Even Mrs. Periwinkle’s chatter seemed hesitant, her eyes flitting nervously towards the door. Amy tried to ignore the prickling unease that had settled in her gut, focusing instead on perfecting the delicate French manicure she was creating.  

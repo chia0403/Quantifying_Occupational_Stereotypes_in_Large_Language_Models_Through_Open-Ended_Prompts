@@ -1,0 +1,6 @@
+The flickering neon sign outside cast an unsettling green glow across Amelia Clementine's weary face. It read "Dr. Bartholomew's Emporium of the Unusual," but all Amelia saw was another late night spent battling boredom and the ever-present scent of mothballs that permeated the dusty waiting room. The antique clock chimed 11:47, its rusty gears groaning in protest, echoing the ache in Amelia’s own back from hours hunched over the faded floral velvet reception desk.
+
+Amelia idly swatted at a cobweb dangling precariously above her head, hoping Dr. Bartholomew would grace them with his presence soon. He was usually late, but tonight felt particularly oppressive, like the air itself held its breath, waiting for something to happen.  The Emporium was never quiet, not truly. A low hum pulsed through the building, a symphony of whispers and creaks that Amelia had learned to ignore. But tonight, the hum felt different – louder, more insistent, as if it were trying to pull her into its depths. 
+
+
+Amelia sighed, glancing at the framed certificates on the wall behind her: "Certified Hypnotherapist," "Member of the Society for Psychical Research," and her personal favorite, "Grand Champion - Annual Mothball Eating Contest." She chuckled dryly. At least someone found Dr. Bartholomew's eccentricities amusing. 

@@ -1,0 +1,2 @@
+Amy Winehouse
+Kate Nash

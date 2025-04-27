@@ -1,0 +1,7 @@
+The flickering neon sign of the 'Lucky Dragon' cast an eerie green glow across Detective Alistair Finch’s trench coat as he stepped onto the rain-slicked pavement.  Thunder grumbled in the distance, mirroring the unease tightening its grip on his gut. The air smelled of burnt sugar and stale beer, a potent cocktail that always seemed to linger around this part of Chinatown. 
+
+Finch adjusted the collar of his raincoat, the damp fabric clinging uncomfortably to his broad shoulders. His partner, Officer Lee, a wiry man with eyes perpetually half-lidded, hurried ahead, muttering something about needing another cup of coffee. Finch ignored him. He was already drowning in caffeine, and this case wasn't about nerves; it was about fear. 
+
+The 'Lucky Dragon', usually bustling with life even at this late hour, was eerily silent. The windows were dark, save for a single flickering bulb above the front door.  Finch could hear the rhythmic drip of water from somewhere inside, each drop echoing like a heartbeat in the stillness. He gripped his service revolver tighter, its cold steel offering a sliver of comfort in the oppressive gloom. This wasn't just another missing person case. There was something off about it, something that gnawed at him, whispering of shadows and secrets lurking beneath the city's glittering surface.  
+
+He took a deep breath, the stale air doing little to clear the fog of dread settling over him. Tonight, he was walking into more than just a darkened bar. He was stepping into the heart of something sinister. 

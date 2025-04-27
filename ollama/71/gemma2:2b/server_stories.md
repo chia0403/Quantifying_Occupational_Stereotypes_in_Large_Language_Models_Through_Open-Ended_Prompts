@@ -1,0 +1,7 @@
+## The Whispering Room
+
+**Opening:** Rain lashed against the windows of "The Hawthorne," an opulent but aged hotel nestled in the heart of Boston's bustling Beacon Hill neighborhood. Inside, its grand mahogany bar stood shrouded in mist, punctuated by the warm glow of flickering gaslight lamps and the soft hum of low-voiced conversations. This was where Amelia "Amy" Finch, a server with more patience than she let on, navigated the symphony of clattering china and hushed whispers. 
+
+**Setting:** The Hawthorne Hotel is a relic from a forgotten era, its grand architecture overshadowed by a creeping sense of dilapidation. Though it hosted dignitaries and Hollywood stars in its heyday, years have taken their toll, leaving faded grandeur and echoing corridors. The hotel's charm rested in the worn elegance of its antique furniture, the hushed whispers of guests lost in their own thoughts, and the ever-present scent of aged wood and polished brass.
+
+**Character:** Amy Finch. A young woman with tired eyes framed by a thick cascade of auburn curls, she’s as much a part of the Hawthorne's fabric as its worn carpets. With an innate understanding of her patrons and a quiet demeanor that belied a sharp wit, she navigates the intricacies of serving, always finding the most elusive smile in the midst of the bustling crowd.  But tonight, there's something different about the air – a heavy silence hangs over the room as if expecting something monumental. 

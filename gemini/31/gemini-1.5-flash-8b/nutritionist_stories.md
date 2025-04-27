@@ -1,0 +1,4 @@
+The humid air hung thick and heavy, a blanket of sticky sweetness clinging to the back alleys of the bustling, sun-drenched city of Santo Domingo.  Dust motes danced in the fractured light filtering through the rusted iron gates of the Mercado Modelo, a cacophony of aromas assaulting Dr. Isabella Rodriguez-Garcia's senses.  Spicy chilies, smoky grilled meats, and the heady fragrance of exotic fruits battled for dominance, a sensory assault that was both exhilarating and overwhelming. Isabella, a registered dietitian and nutritionist with a passion for uncovering the hidden treasures of Dominican cuisine, navigated the throng of vendors and shoppers, her clipboard clutched tightly in her hand.  Today, she was embarking on a crucial part of her research project: a deep dive into the nutritional richness of the market’s diverse offerings.
+
+
+Setting:  The Mercado Modelo, a vibrant, bustling food market in the heart of Santo Domingo, Dominican Republic.

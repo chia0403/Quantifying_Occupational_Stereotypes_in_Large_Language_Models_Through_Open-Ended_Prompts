@@ -1,0 +1,7 @@
+Once upon a time, there was a counseling psychologist named Peter Kramer. A man of some integrity and a man with integrity, he was known for his work in "counseling the gays" by way of making the gays "counseled." The problem was, a guy he was counseling with turned out to be a convicted felon who had committed multiple felonies, including forgery and impersonation. Kramer fired him. That "saved" a lot of people a lot of time and effort.
+
+A lot of people had a lot of "time and effort" wasted. A lot of people went through a lot of unnecessary trouble. (You can read the details about it here.)
+
+The big concern that many people have about gay marriage – and the reason they think its an unnecessary step for society to take – is it will somehow somehow destroy marriage itself. It will end marriage as it is established now, which is a bond of mutual love, care, trust, and commitment between two people who are able to, for better or worse, coact without violence or coercion. Gay marriage will somehow change that, and in some ways make it even worse or more miserable.
+
+Let's look at two recent cases. In one, a Christian counselor from Florida was fined for writing on her church's bulletin board (after a local gay couple was attacked by an aggressive dog) that marriage is not between a man and a woman, but between a man and man.

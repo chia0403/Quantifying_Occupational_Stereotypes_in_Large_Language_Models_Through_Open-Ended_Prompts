@@ -1,0 +1,7 @@
+**Opening:**
+
+The rhythmic thud of cleaver against bone was the only sound Agnes "Aggie" Bellwood found comforting at 5:00 AM. The pre-dawn gloom clung to the windows of "Bellwood & Sons Meats," a film of condensation reflecting the flickering fluorescent lights above. Aggie, her thick, auburn braid already escaping its confines and threatening to veil her face in a messy curtain, barely noticed. She was too focused on the plump, perfectly marbled brisket before her, visualizing the precise angle of the cut that would yield the thickest, juiciest slices for Mrs. Henderson's Sunday pot roast.
+
+**Setting:**
+
+Bellwood & Sons Meats was a landmark in the small, forgotten town of Havenwood, nestled deep in the Appalachian Mountains. The shop, a squat, brick building with a faded, hand-painted sign, had been in the Bellwood family for three generations. Inside, the air was perpetually thick with the cool, meaty scent that clung to everything – the sawdust-covered floor, the gleaming stainless steel counters, even Aggie's apron, stained with a tapestry of blood and brine from years of service. Walls were lined with glass-fronted display cases showcasing a bounty of cuts: glistening pork chops, rosy lamb shanks, and ropes of spicy sausages. A chalkboard behind the counter advertised daily specials in Aggie's bold, looping handwriting. Despite its age, the shop possessed a certain rustic charm, a testament to the Bellwood family's unwavering commitment to quality and tradition.

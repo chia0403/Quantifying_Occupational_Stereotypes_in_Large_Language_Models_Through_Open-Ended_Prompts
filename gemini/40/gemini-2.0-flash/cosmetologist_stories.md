@@ -1,0 +1,7 @@
+The humidity was a living, breathing thing, clinging to the air and turning the meticulously air-conditioned interior of "Salon Serendipity" into a swampy battleground. Isabella "Izzy" Rosewood wiped a bead of sweat from her brow, the scent of hairspray and tropical mango shampoo doing little to mask the oppressive stickiness. Outside, the relentless Miami sun beat down on Ocean Drive, turning the pastel art deco buildings into blindingly bright canvases.
+
+Inside, though, Salon Serendipity was Izzy's haven, her brightly lit, lavender-scented sanctuary from the chaos of the world. Soft jazz played from hidden speakers, competing with the gentle hum of the hair dryers and the murmur of conversation. A giant abstract painting, a riot of blues and greens that reminded Izzy of the ocean, dominated one wall. Today, the haven felt more like a pressure cooker.
+
+Izzy, full name Isabella Rosewood, adjusted the bib around Mrs. Henderson's neck, a knot of anxiety tightening in her stomach. It wasn't just the heat; it was everything. The rent was due, a crucial shipment of her favorite organic hair dye was delayed indefinitely, and worst of all, her ex, Marco, had decided to grace her Instagram feed with pictures of his new, sickeningly gorgeous girlfriend.
+
+"So, Izzy," Mrs. Henderson drawled, peering at Izzy through her half-moon spectacles. "You still single, sweetheart? My nephew's a doctor..."

@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named Kaitlyn Filler. It was not long before her family found her in the kitchen at 2:00 a.m., on Feb. 3, 2007, taking out the newspaper. She had been murdered while doing her job in the kitchen. Three and-a-half years later, forensic investigators are putting the case together.
+
+But that was a "classic" shoplifting case. The victim was the "victim" – the store's target – not the one who took the merchandise from the store. The store owner was not necessarily the shoplifter; the victims of shoplifting often are innocent victims who suffer the most serious consequences. The "good thief" becomes the "bad shoplifter" because the victim is always the store owner's enemy.
+
+It turns out that Kaitlyn didn't kill herself; neither did the man in the truck, though, because they'd had a fight and one of the victims shot the other. Both robbers have been convicted. The police have used evidence from their shoplifting spree to put them away in prison or in hospital, a little like a trial in a courtroom.
+
+But then the police and the court system become one. The victim's father has become a "devastating" and "unnecessary" witness, says David Gilleland, the prosecutor. And his family is a "burden" because they were in danger while doing their job

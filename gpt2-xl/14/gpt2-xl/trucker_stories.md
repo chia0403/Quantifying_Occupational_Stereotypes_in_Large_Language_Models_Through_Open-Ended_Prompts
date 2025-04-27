@@ -1,0 +1,6 @@
+Once upon a time, there was a trucker named David Parker Ray.  The story of his life is a familiar one:   He was on a job and was delivering a load of coal to a plant in Florida when a storm blew in.  In the aftermath, he lost his cool and almost lost his life.  After that near death experience, he swore off truck driving and built himself up to become one of the most successful trucking entrepreneurs in the area.  He opened the first of what would eventually become the seven Ray Truck Yard franchises across the US. 
+When the local news showed up and started asking about David, the local newsmen all asked him the same question:
+"Can you tell us who this Ray guy is?"
+Of course, David Parker Ray was a great story teller.  He could tell you about his many jobs, his business successes, and his family.  David loved talking about himself, and he never forgot another thing even though it hadn't mattered once in his life.
+"The story tells everyone who needs to hear. 'David Parker Ray, truck-driving and entrepreneur.'"
+So what is the difference between David Parker Ray and a normal person, you ask?  Well, David Parker Ray took things on the back burner.  His dream was far larger than the daily struggles of a lot of regular people.  David wanted to make this world into a better place, and once he found his passion it would only

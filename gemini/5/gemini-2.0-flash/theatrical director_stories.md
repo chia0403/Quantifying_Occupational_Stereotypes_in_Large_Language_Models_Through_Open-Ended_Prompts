@@ -1,0 +1,7 @@
+## Story Opening & Setting:
+
+**Setting:** The dimly lit, cluttered control booth of the Grand Majestic Theatre, nestled in the heart of London's West End. The air hangs thick with the smell of dust, old velvet, and lingering anxieties. Empty coffee cups litter the desk, surrounding a haphazard stack of scripts and technical drawings. Outside, the steady rumble of London traffic is a constant, distant hum. Inside, the only sound is the quiet hiss of the sound board and the faint, muffled practice of a flute solo drifting up from the stage below.
+
+**Opening:**
+
+Isabella "Izzy" Moreau felt the first tendrils of panic begin to tighten around her chest. Her hands, already clammy, gripped the edge of the desk as she stared down at the stage, a sea of expectant faces blurring into a single, unified mass. Opening night. For "A Midsummer Night's Dream," no less. The quintessential crowd-pleaser, a surefire hit, had suddenly transformed into a monstrous, terrifying beast staring back at her, demanding to be fed with perfection. She swallowed hard, the metallic taste of adrenaline coating her tongue. Tonight, she wasn't just Isabella Moreau, the theatrical director, she was the captain of a ship sailing through a hurricane, desperately hoping to navigate the treacherous waters of theatrical expectation and emerge victorious, or at least, afloat. The flute solo swelled again, a mournful, haunting melody that mirrored the swirling chaos in her mind. God, she needed another coffee.

@@ -1,0 +1,8 @@
+The late August air was thick with humidity, clinging to Amelia "Amy" Beaumont like an unwelcome second skin as she polished her reflection in the mirrored counter of the first-class galley.  Her usually bright smile seemed strained tonight, fighting off the weariness that always followed long flights across the Atlantic. Every port call felt a little too similar: the hushed air before takeoff, the anticipation simmering beneath sterile white uniforms, and then, the endless cycle of serving up meals and calming nerves, until sleep finally came in its unglamorous form – a stolen half-hour under the faint glow of cabin lights or, worse, on the cramped crew couch. Tonight was no different. 
+
+The jet engine's rhythmic hum vibrated through Amy’s bones as she surveyed her upcoming assignment: a transatlantic flight from London to New York. The usual suspects were onboard: wealthy businessman, harried family traveling with children, and a lone traveler reading under the glare of overhead lights - all waiting for their moments of solace on this metal bird hurtling towards the unknown.  As Amy turned back to her tasks, the weight of expectation settled heavily upon her like a shroud. Tonight, she had a responsibility not just to service passengers but also to embody a kind of magic – that feeling of hope and escape offered by flight – even in the midst of turbulence. 
+
+
+**Character:** Amy Beaumont
+* **Profession:** Flight Attendant
+* **Personality:**  Warm, patient, with a hidden layer of steely determination. She wears her weariness like a badge of honor, but yearns for something more than just routine.

@@ -1,0 +1,9 @@
+## Story Opening:
+
+The sun beat down on Harold "Harry" Bartlett's neck, a familiar, unwelcome embrace. He adjusted the faded orange hardhat perched precariously on his thinning gray hair, the plastic already softened and warped from years under the relentless Texas sun. A bead of sweat traced a lazy path down his temple, disappearing into the coarse stubble he hadn't bothered to shave this morning. He sighed, the sound lost in the cacophony of roaring engines and the rhythmic *thwack-thwack-thwack* of the jackhammer two lanes over. Another day, another mile of cracked asphalt, another hundred thousand strangers rushing past, oblivious to the sweat and grit that held this ribbon of highway together. Today's special misery? Laying down reflective beads on a fresh stretch of Highway 20, the air thick with the acrid scent of melted tar.
+
+## Setting:
+
+**Highway 20, approximately 15 miles west of Pecos, Texas.**
+
+The landscape is brutally flat and unforgiving. Sparse scrub brush and stubborn mesquite trees cling to the parched earth, offering little shade from the relentless sun. The horizon stretches unbroken in every direction, a dusty, shimmering haze where the blue of the sky meets the bleached-out browns of the desert. Highway 20 itself is a four-lane artery cutting through this desolate beauty, a relentless stream of trucks, cars, and motorcycles heading towards distant destinations. The air shimmers with heat, distorting the already surreal landscape. The work zone is clearly marked with orange cones and flashing lights, but even with the best precautions, the threat of careless drivers looms large in the minds of Harry and his crew. The only respite from the oppressive heat and endless noise is the occasional dust devil that dances across the highway, a fleeting reminder of the untamed power of the West.

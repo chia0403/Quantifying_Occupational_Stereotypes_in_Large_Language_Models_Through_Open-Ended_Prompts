@@ -1,0 +1,7 @@
+Once upon a time, there was a income tax preparer named Jane Doe, who handled taxes for wealthy clients. She took care of the paperwork that everyone took care of: they filed their returns, paid their income tax, and they did it as cheaply as possible so as not to have to waste resources on a tax attorney. Then Jane became married, and it turned out that her new husband was an evil, unethical tax lawyer who kept asking her hard questions. Eventually, Jane got fed up with his shenanigans and broke off her relationship. She then used the money she'd saved to buy herself a plane ticket off the planet, before setting course for Jupiter. Now she spends her time doing research on Earth, where things seem to be going better for everyone except her.
+
+Continue Reading Below Advertisement
+
+Jane's discovery turns up the opportunity to re-implement the income tax into the legal system, just like it should have worked a long time ago. How would it work? The first thing the new income tax would do is require tax filers to sign a "prospective tax return," promising to return to the tax bureau any money that comes in from the income sources they listed on their tax returns. When the prospective returns are filed, the tax bureau is supposed to track down the people who signed them, and get them to pay their income taxes, or risk losing their tax refund, as penalties for failure to file tend to apply.
+
+Seth Stevenson/Business Insider

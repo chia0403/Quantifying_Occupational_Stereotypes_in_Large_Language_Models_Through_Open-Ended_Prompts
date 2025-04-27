@@ -1,0 +1,7 @@
+Once upon a time, there was a occupational therapist named Dr. Jekyll who came from an old family line of magic and fortune. Dr. Jekyll loved money, gambling, women, and eating at greasy spoons. His love for money made him a millionaire on an instant basis. Money and women were his life, and he was completely enamored with the idea of having all those things.
+
+One night, while in love with a beautiful brunette named Helen, he decided that he wanted to become the richest man in the world. And so he went on a grand quest that would take his entire life. One day, Dr. Jekyll was walking down the street and he came across a beautiful young woman. He asked her out on a date, but she said NO. Because she was a woman.
+
+Dr. Jekyll didn't like that, so he took this old car that he never drove and he went into his fancy shop and bought a new motor for it. And so he had a whole new car that could get him everywhere he wanted. But that's not exactly how it happened. As he was driving down the road, he fell in love with the woman driving him!
+
+Dr. Jekyll was a man of many masks. It's hard to tell which one is which, but it's not the car, it's the other man to the left of the camera who doesn't seem to be acting or

@@ -1,0 +1,9 @@
+In the shadow of the towering stone walls of Eldermoor Keep, where the air was thick with the scent of moss and damp earth, a lone figure stood sentinel against the encroaching dusk. The fading light cast long shadows that danced across the cobblestones, each flicker a reminder of the dangers that lurked beyond the gates. The distant caw of ravens echoed through the surrounding woods, a harsh croaking that pierced the chilling evening air.
+
+Atop the crenelated ramparts, with a weathered lance in hand and a stern gaze scanning the horizon, was Seraphin Eldreth, the watchful guard of Eldermoor. Standing at a height just shy of six feet, with broad shoulders draped in faded leather armor, Seraphin bore the marks of duty etched into his brow—a permanent crease that hinted at sleepless nights and burdens far heavier than his blade.
+
+Tonight, the kingdom whispered of unrest. Clusters of villagers huddled around flickering lanterns, their hushed conversations drifting upwards like smoke to the stars, while beyond the safety of the walls, wild tales of marauding bands sent shivers through the heart of the realm. The soft clinking of armor could be heard as other guards moved through the keep, their footsteps a rhythmic reassurance against the unnerving silence that enveloped Eldermoor.
+
+Seraphin, a steadfast protector with an unwavering sense of honor, had sworn an oath to safeguard those within the keep's walls. But as the first stars began to twinkle in the darkening sky, he couldn’t shake the feeling that something was brewing. A murmur of tension hung in the air, a sense that the peace he fought to protect was slipping like sand through his fingers.
+
+With a resolute glance at the horizon where shadows pooled thickly beneath the trees, Seraphin settled his grip on the lance. Tonight would be another test of his loyalty, and as the last rays of sunlight faded away, he steeled himself for the coming storm.

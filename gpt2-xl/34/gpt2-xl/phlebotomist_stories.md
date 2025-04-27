@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named Jodie Greenfield who worked at the American Heart Association's San Francisco Clinic. When she was hired, the Hospital's computer system was completely automated. All communication with the clinic was done using a dial-up service. Now, this is an obvious indicator of the advent of the electronic medical record systems (EMR) and the computers that run them.
+
+Advertisement
+
+When Jodie was hired, there were also a bunch of cardiologists (cardiologists being medical doctors or cardiologists specializing in the treatment and diagnosis of heart disease, especially cases of congestive heart failure aka heart attack) who worked at the Hospital that also worked mostly without computer support. So, she decided to use her phone to send a text message to any one of the cardiologists and get a response within 20 seconds. That was a big step for both doctors and technology. As she says, you could use a computer to send a text message to the doctor, but you had to give them a password in return for the message to be sent. If you didn't have the password you couldn't do it.
+
+As it turns out, you wouldn't have to pay any money to get one and instead could just send a text message through your mobile carrier. But to do it right, you first had to buy your own phone service. For $5 a month (compared to the $30 to

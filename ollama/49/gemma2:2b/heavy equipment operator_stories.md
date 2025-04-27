@@ -1,0 +1,5 @@
+The morning air hung thick with humidity, the kind that felt almost suffocating as it clung to Reuben's worn work boots.  He squinted at the steel-grey sky above, already burning in the unforgiving sun, and sighed.  His name was Reuben "Rusty" Daniels, a nickname earned for his unwavering grit on top of the most treacherous of machinery: earthmoving equipment.  The job wasn't glamorous, but it paid the bills, kept food on the table for his little family. 
+
+Today, he sat at the foot of the sprawling construction site on Highway 16, ready to tackle his usual assignment: demolishing the old bridge spanning the creek before a new one could be erected. It was a symphony of clanging metal and roaring engines - each sound familiar, comforting in its rhythm – as Rusty shifted into gear. A rumble resonated from his massive bulldozer, "Big Bertha," the nickname he had adopted for its sheer size and power. The bridge stood there like an old sentinel, mocking him with its imminent collapse. It felt like a personal challenge; every swing of Big Bertha felt personal this morning.
+
+

@@ -1,0 +1,5 @@
+The fluorescent hum of the server room was Amelia "Mia" Rodriguez's lullaby. Rows upon rows of blinking lights, a symphony of whirring fans, and the sharp, clinical scent of ionized air - it was her happy place. Tonight, however, the lullaby felt more like a death knell. Her fingers flew across the keyboard, the rhythmic tap-tap-tapping a frenetic counterpoint to the ominous silence emanating from the core server.
+
+She was perched on a rolling chair in the bowels of Synapse Corporation, specifically in the restricted, climate-controlled sanctity of the Data Core. Synapse, a burgeoning tech conglomerate specializing in AI-powered predictive analytics, had staked its entire future on "Project Chimera" – a neural network designed to anticipate market trends with uncanny accuracy. Mia, as Lead Programmer for Chimera's infrastructure, was the only one authorized to even breathe in this particular room after hours.
+
+And right now, Chimera wasn't predicting anything. It was dead. Or, at least, critically injured.

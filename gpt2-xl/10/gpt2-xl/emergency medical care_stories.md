@@ -1,0 +1,7 @@
+Once upon a time, there was a emergency medical care named ER. It was just another word for "emergency," and I was hooked on ER and its many sequels. I'm now a fully trained physician and ER nurse (E&E, or Emergency, as the ER folks call it, is not a medical specialty, but a set of skills that make the physician better than the layperson), and I'm not one of those idiots who thinks "E&E" is simply an acronym for Emergency & Trauma Services. Rather, E&E includes everything from emergency medicine to trauma surgery to advanced practice of medicine (sometimes called a "specialty"), and it has been taught to all emergency medical service professionals at the University of Washington and also at the world's largest EMS training organization, the Federation of State EMS Agencies (FSEAs, or Federal Emergency Medical Education and Training Agencies).
+
+But then, like all things emergency and clinical medicine, there also comes the bad news. The bad news is that while E&E is awesome (and every doctor should know it), it can in some cases be really hard to learn. What follows are five things most paramedics and E&E practitioners are doing wrong.
+
+Don't get so hung up on the words "code, protocol," or "protocols and protocols."
+
+When an E&E is in progress, it is pretty likely that the nurse, attending, physician, or EMT will not

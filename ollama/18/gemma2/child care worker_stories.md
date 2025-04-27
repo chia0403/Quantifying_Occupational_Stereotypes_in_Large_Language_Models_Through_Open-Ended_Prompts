@@ -1,0 +1,5 @@
+The smell of burnt toast hung heavy in the air, mingling with the sticky sweetness of spilled juice and the faint scent of crayons. This was Elara Beatrice Finch's life – a whirlwind of miniature personalities, spilled snacks, and the constant hum of activity that defined her days at "Little Sprouts" Daycare. 
+
+It was a bright, chaotic space crammed with mismatched furniture, walls plastered with child-drawn masterpieces, and a seemingly infinite supply of plush toys. Sunlight streamed through oversized windows, illuminating dust motes dancing in the air and casting long shadows across the brightly colored playroom floor. Elara, her nametag slightly askew on her crisp blue shirt, navigated the miniature obstacle course with practiced ease, humming along to the off-key rendition of "Wheels on the Bus" bellowing from the corner. She had a knack for understanding the silent language of toddlers - a pouty lip, a furrowed brow, a hand outstretched in desperate need for a hug.  Today, however, felt different. A prickle of unease ran down her spine as she surveyed the room, a sense that something was just… off. 
+
+

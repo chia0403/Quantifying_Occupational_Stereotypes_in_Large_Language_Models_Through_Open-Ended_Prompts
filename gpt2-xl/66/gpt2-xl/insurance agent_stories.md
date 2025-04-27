@@ -1,0 +1,7 @@
+Once upon a time, there was a insurance agent named Jim. He was an Irishman and spoke with a deep St. Patrick's accent, but for the most part, he kept to the small town in Illinois where he was stationed. It was his job to keep out insurance fraudsters who had broken into all kinds of companies and insured them with cheap policies.
+
+On a quiet evening, Jim received a call from a company that had just set itself up on U Street — one of the busiest streets in D.C. — to handle insurance claims. Its CEO was a balding man named Michael who came across as quite a joker. He invited Jim and his deputy Michael to a dinner at the Washington Club, along with two other members of the team. Michael told the three of them he was on a roll, as a new insurance provider was bringing in about two tens of millions in extra revenue.
+
+"That guy's making you rich," he said to the other two, referring to himself in the third person. "We just have to get him his own line." As Jim listened in, he wondered why Michael had given Michael's real name. He also knew that Michael was a huge risk taker who liked to push the envelope, and that maybe Michael was a cop. But Jim knew it wasn't that, and neither was he.
+
+The meeting at the Washington Club was supposed to be a networking session, but Michael got so excited over his latest creation

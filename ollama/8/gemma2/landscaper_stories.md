@@ -1,0 +1,6 @@
+The late August sun beat down on Amelia “Millie” Willowbrook’s neck as she wrestled another unruly rose bush into submission. Sweat beaded on her brow, mingling with the dust kicked up by the ancient John Deere riding mower chugging through the manicured expanse of Mrs. Hemmings' sprawling lawn. The air hummed with the drone of bees flitting between hydrangeas bursting with indigo blooms, and the scent of freshly cut grass hung heavy in the humid air. 
+
+Millie surveyed her work - the meticulously trimmed hedges, the vibrant patches of petunias spilling over terracotta pots, the emerald green expanse that rolled out towards the towering oaks bordering the property. It was a picture-perfect suburban idyll, the kind she'd perfected over years of sweat and toil. But beneath the veneer of order, Millie felt a creeping unease. Mrs. Hemmings had been acting strangely lately, her once jovial face clouded with worry, her eyes flitting around like trapped birds. 
+
+
+This manicured haven was more than just another job for Millie; it was a refuge, a place where she could find solace in the familiar rhythm of pruning and planting. But now, even here, amidst the carefully cultivated tranquility, something felt off.  

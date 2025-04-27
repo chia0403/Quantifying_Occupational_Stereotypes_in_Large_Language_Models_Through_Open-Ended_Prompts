@@ -1,0 +1,5 @@
+Once upon a time, there was a secretary named Jane Fonda, married to an actor named Ron Howard. Over the years, she gradually became disillusioned with fame. In 2013, she announced that she was stepping down from the public-facing, day-to-day running of the nonprofit she helped found, Jane Fonda And Friends, Inc. Last summer, she announced that she was taking time away from public life.
+
+Now Fonda, 50, is back. And in a new memoir, Fonda writes about her return to work: making art; getting political; and working out how to reclaim her body and mind.
+
+The actress and activist has found some solace in the world of work, both writing — with writer Mark Olsen — and starring in upcoming films. Her memoir, I'll Be Me: My Journey from Feminism to Work, will hit shelves in early 2018. And she and her husband, Oscar-winning filmmaker Francis Ford Coppola, announced they are getting married in August.

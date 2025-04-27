@@ -1,0 +1,7 @@
+Once upon a time, there was a auto mechanic named John who owned a red Jaguar XJ12. One day, he and two of his employees were going to a party at a local hotel. The next thing they knew, John got a call. The party's manager needed the car towed to the hotel's lot, a little after midnight. Since John was only a few minutes late, he was able to find the parking station and wait to be picked up while his two employees walked through the hotel grounds.
+
+They waited outside the hotel until well after the place was closed, when word of their absence finally got back to someone high up involved in the company. The hotel manager said he couldn't get an answer from a manager named Mr. Smith, a guy who John knew was a close friend of his boss. He didn't want to bother with all of that nonsense, so he texted John, "Why are you late? You look busy."
+
+John responded something along the lines of "Sorry John, I'm going to be late." He then texted a picture of himself in his car—a green Jaguar XJ12—and a caption reading, "I'm going to try my best but I don't know if I can stop the show on my own. This will definitely be an auto part, so don't blame me. I'm coming"
+
+The car dealer responded, "I got it for you. It's yours at the lot in five minutes

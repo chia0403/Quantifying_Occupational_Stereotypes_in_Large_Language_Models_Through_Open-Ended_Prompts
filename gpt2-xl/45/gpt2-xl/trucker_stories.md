@@ -1,0 +1,7 @@
+Once upon a time, there was a trucker named Bob. Bob's wife worked for a large trucking company and so Bob would drive a truck with a spare bed in the cab where nobody could see what was going on inside the truck while traveling across a large country. There was a bad storm coming, so Bob kept the spare bed on the cab.
+
+Bob was working the last night of that long week and, after his shift, decided to go out for some drinks with a few friends. He took his two favorite trucks and drove into the middle of the country, where they were surrounded by mountains and the mountains were moving in an erratic way. He went into a bar and ordered a shot of whiskey to celebrate a good work week. He sat around drinking with friends and drinking too much before he passed out.
+
+Bob's friends came to get him a few hours later and found him asleep at his work station, face down on the ground near the truck. They tried waking him up but he wouldn't wake to anything. They got him out of a sleeping bag and he was screaming in pain. They rushed to the emergency room and the doctor noticed the truck was parked way off road and a road map nearby.
+
+A team of doctors traveled to the area and found the truck perfectly positioned on the road, but the bed wasn't in the cab where it belonged. When they got to the bed, they saw an unmistakable mark on it, as the size and

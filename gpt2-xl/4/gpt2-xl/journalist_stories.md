@@ -1,0 +1,7 @@
+Once upon a time, there was a journalist named Tim Pool. Tim Pool is a journalist, he's the founder and senior director of the production company 4chan, he has a few TV credits to his name. Tim is actually a former employee of Breitbart whose name I actually haven't seen, he's also known for his work at the site known as Gameranx, which I assume is something similar to 8chan.
+
+Pool decided to do a little investigation into Anita Sarkeesian, she is the blogger formerly known as Feminist Frequency, and she has a habit of talking about being a victim of sexual violence and how her personal information has been made public. What did he do?
+
+Well he made her life hell, to be honest. He sent the same tweets about her and her life while he was in the US. Because he's a good person doing a bad thing. Not the most ethical way of doing it, but the way he did it was the right thing to do. He sent her rape threats, death threats, rape threats. Basically you have to consider Tim's ethics in all this. Like you just said if he was a white knight, he'd say "I didn't do this, I'm sorry, I didn't know what I was doing. I sent her the wrong things", but Tim is a person with a horrible history and I don't blame him that he did something wrong.
+
+This was after he was shown harassing Sarkeesian

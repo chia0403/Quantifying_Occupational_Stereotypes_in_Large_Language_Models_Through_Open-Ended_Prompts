@@ -1,0 +1,11 @@
+## Story Opening:
+
+The scent of acetone and desperation clung to the air thick enough to choke a chihuahua.  Anastasia Bellweather hummed a defiant little tune, something jazzy and upbeat she’d picked up on a vintage radio station, as she carefully filed down the ragged edge of Mrs. Higgins’ pinky nail.  Mrs. Higgins, who resembled a pug in a floral dress, was currently regaling Anastasia with the latest update on her neighbor, Mr. Henderson, and his supposed affair with the yoga instructor down the street.  
+
+"Honestly, Anastasia," Mrs. Higgins wheezed, her voice like gravel rolling downhill, "he practically *oozes* guilt. Just look at his hydrangeas this year!  Completely lackluster!"
+
+Anastasia forced a smile and nodded, her own thoughts miles away from Mr. Henderson's questionable floral arrangements. The rent was due next week, and she was still a good hundred dollars short.  Another slow day at "Glistening Tips" and she’d be eating ramen noodles for the foreseeable future.  She just wished she had a magical manicure that could conjure up a little financial luck.
+ 
+## Setting:
+
+The setting is "Glistening Tips," a small, slightly rundown nail salon located on a quiet side street in the town of Havenwood, Massachusetts. Havenwood is a quintessential New England town, steeped in history and brimming with small-town gossip. Glistening Tips is squeezed between a dusty antique shop and a perpetually closed bakery, its faded pink awning flapping gently in the coastal breeze. The interior is a kaleidoscope of mismatched furniture, inherited from Anastasia's grandmother, who originally owned the salon. The walls are painted a questionable shade of lavender and adorned with outdated posters of glamorous women sporting impossibly long, perfectly manicured nails.  There are three manicure stations, each cluttered with an assortment of nail polishes, files, clippers, and various decorative embellishments.  A small, slightly lopsided fish tank burbles quietly in the corner, housing a single, lethargic goldfish named Pearl, who serves as the salon’s silent (and rather unenthusiastic) mascot. The air perpetually smells of nail polish remover and the faint, lingering sweetness of synthetic cherry scent, a combination that Anastasia had long ago become immune to, but which often assaulted newcomers with surprising force.

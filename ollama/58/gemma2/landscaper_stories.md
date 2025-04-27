@@ -1,0 +1,8 @@
+The sun beat down on Amelia Rose Hawthorne's neck as she wrestled with a particularly stubborn oak sapling. Sweat beaded on her brow, tracing paths through the dirt caking her freckled cheeks. She grunted, pushing against the roots that stubbornly refused to cooperate, muttering curses under her breath that were more endearing than angry. The air hung heavy with the scent of freshly cut grass and damp earth, a familiar aroma she'd come to cherish over the years. Amelia loved this feeling – the quiet hum of industry, the smell of life pushing through the ground, the satisfaction of transforming an ordinary patch of land into something beautiful.
+
+She was working in Oakwood Estates, a sprawling community of manicured lawns and stately homes nestled on the outskirts of Willow Creek.  The neighborhood prided itself on its meticulous landscaping, and Amelia's work was always met with praise and gratitude. But today, a sense of unease lingered in the air, unsettling even the usually peaceful tranquility of her workday. It started with Mrs. Peterson’s frantic phone call, something about a strange man lurking around the pond, his eyes glinting with an unsettling intensity.  
+
+
+Now, as Amelia wrestled with the sapling, she couldn't shake off the feeling that she was being watched. Every rustle of leaves, every chirp of a bird, sent a shiver down her spine. She glanced over her shoulder, scanning the tree line bordering the property. 
+
+Everything seemed normal – for now. But Amelia knew better than to ignore a prickling sensation of danger. Something wasn't right in Oakwood Estates, and she had a feeling it was about to get very complicated.  

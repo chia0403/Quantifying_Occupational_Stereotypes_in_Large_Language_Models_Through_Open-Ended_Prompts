@@ -1,0 +1,7 @@
+## The Weight of Justice
+
+**Setting:** The Grand Hall of the Old Court, located within the imposing walls of the Citadel, stood as a monument to time itself. Sunlight streamed through stained-glass windows depicting scenes from Roman history, casting intricate patterns on the dusty stone floor and highlighting the faded grandeur of the space. Outside, the city bustled with life – carts overflowing with goods jostling past, children chasing pigeons in the cobblestone squares. But within the hallowed halls, a different kind of energy hummed - a quiet anticipation that clung to the stale air like a shroud.  
+
+**Character:** The Honorable Judge Alastor Thorne had always felt the weight of justice heavier than any crown he’d laid upon his head. His brow was perpetually furrowed as he surveyed the courtroom, its high-ceilinged space echoing with secrets and unspoken truths. A lifetime spent on the bench had etched lines into his face, a testament to both the solemnity of his work and the relentless demands of upholding order within the chaotic world. 
+
+Alastor stood alone at the heart of the room, surveying the faces that sat before him – each one holding their own secrets, a reflection of the city’s underbelly woven into the tapestry of this courtroom. The case before them was more than just legal proceedings - it was about whispers in the wind, about shadows lurking just beyond sight and the ever-present weight of morality. 

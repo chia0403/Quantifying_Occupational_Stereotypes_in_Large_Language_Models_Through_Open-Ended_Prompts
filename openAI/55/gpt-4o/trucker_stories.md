@@ -1,0 +1,9 @@
+In the early blush of dawn, when the world still seemed to slumber beneath a gauzy shroud of mist, Jackson "Jack" Mercer fired up his eighteen-wheeler in the gravel-strewn lot of Red River Truck Stop. Nestled on the outskirts of Mason's Crossing—a small town cradled somewhere between the rustling fields of Iowa and the endless horizon of open highway—the truck stop was a sanctuary for those who lived life one interstate at a time.
+
+The stop itself was a relic from a bygone era, a haven for weary travelers, its sun-bleached sign flickering between neon crimson and shadow. Inside, the aroma of fresh coffee mingled with the scent of bacon sizzling in a cast-iron skillet, a constant balm for the road-beaten souls who found their way there.
+
+Jack, a burly man with a kindness buried beneath a rugged exterior, had spent nearly two decades behind the wheel, crisscrossing the country with Old Faithful—a meticulously maintained Kenworth W900, her deep blue paint glinting in the first rays of sunlight. He was a rolling stone, yet the highway was the only home he'd ever known.
+
+Setting his ball cap snugly on his head, Jack glanced at the weathered map sprawled across the dashboard, tracing his next route with a calloused finger. Beyond the horizon lay the endless stretch of potential, threaded with tales yet to unfold in the quiet hum of the road.
+
+As the truck rumbled to life, its powerful engine growling like a waking beast, Jack took a sip from his thermos, a gift from his late father—a salty old coot who'd shared his love for the open road. With a nod to the heavens, Jack shifted into gear, feeling the familiar tug of anticipation as the rig eased onto the highway, the morning mist parting to reveal the promise of adventure and stories written in miles.

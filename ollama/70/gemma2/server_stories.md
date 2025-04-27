@@ -1,0 +1,6 @@
+The air hung thick with the smell of fryer oil and desperation. Emilia "Em" Rosewater weaved through tables cluttered with half-eaten plates and sticky napkins, her smile as bright and artificial as the neon sign flickering outside "Rosie's Diner."  It was Friday night, usually a bustling frenzy, but tonight even the usual regulars seemed subdued, their conversations hushed whispers punctuated by the occasional clink of silverware against ceramic. A haze of melancholy settled over the diner, mirroring Em's own mood. She hadn't had a decent tip in days, and rent was looming like a hungry beast. 
+
+Rosie's sat on the edge of town, a faded beacon of chrome and red vinyl where truckers, blue-collar workers, and lonely souls found solace in greasy food and lukewarm coffee. It wasn't glamorous, but it was familiar, comfortable in its own grimy way.  That comfort, however, felt thin tonight, stretched tight like the threadbare tablecloth on table five.
+
+
+Em glanced at the clock: 8:47 PM. Closing time wouldn't be for another hour, yet the diner seemed to be sinking under the weight of its own emptiness. She hoped the last few customers would at least leave her with enough to cover gas and maybe a sad, microwaveable dinner.  

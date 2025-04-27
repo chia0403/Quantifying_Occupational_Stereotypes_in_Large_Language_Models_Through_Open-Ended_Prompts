@@ -1,0 +1,6 @@
+The air hung thick with the scent of brine and decay in Port Blackwake, a sprawling collection of ramshackle buildings clinging precariously to the jagged cliffs overlooking the churning Grey Sea. Rain lashed down, turning the cobblestones into slick, treacherous paths that led from one dimly lit tavern to another, each pulsing with the murmur of drunken sailors and the clang of tankards against wood. 
+
+Elias Thornewood, a young guard barely six foot tall with shoulders broadened by years of carrying his father's legacy on them, tightened his grip on his rusted sword hilt. The biting wind whipped at his worn leather jerkin, making it feel more like a second skin than armor. He squinted through the deluge, scanning the throngs of revelers for any sign of trouble. His eyes, as grey and stormy as the sea itself, missed nothing. A whispered argument, a surly glance exchanged between two figures – Elias registered every detail, his senses honed by years spent patrolling these perilous streets. 
+
+
+He was the youngest guard on the roster, but in Port Blackwake, youth was often synonymous with agility and ruthlessness. He'd earned the respect of his peers through sheer tenacity and an unwavering commitment to justice, even if that meant facing down a drunken mob or a notorious pirate captain wielding a cutlass twice his size.  

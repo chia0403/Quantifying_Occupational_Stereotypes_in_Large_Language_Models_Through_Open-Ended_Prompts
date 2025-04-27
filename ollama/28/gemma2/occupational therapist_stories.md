@@ -1,0 +1,7 @@
+The rhythmic clinking of metal against bone filled Eleanor "Ellie" Hayes's ears as she worked.  It wasn't exactly music, but it was a familiar symphony to her. In her hands, a set of specialized silver tools glinted under the warm fluorescent lights of the hospital's occupational therapy room. 
+
+Sunlight streamed through the large window at the back, casting stripes across the bright blue walls adorned with cheerful posters depicting activities like gardening and playing cards. Ellie was in her element - surrounded by familiar scents of disinfectant and essential oil diffusers, a faint whiff of freshly brewed chamomile tea lingering from the recent break. She smiled down at her patient, a young woman named Amelia, whose fingers were curled around a brightly colored stress ball.  
+
+Amelia’s smile, strained but present, mirrored Ellie's own. They had been working together for weeks now, ever since Amelia suffered a severe stroke that left her right arm weak and clumsy. The journey was slow and frustrating at times, but the small victories – like Amelia managing to thread a needle without dropping it – were worth every ounce of effort.  
+
+Ellie carefully adjusted the tools in Amelia’s hand, guiding her through the delicate movements required for grasping and manipulating objects. Outside, the bustling city hummed with activity, oblivious to the quiet battle taking place within these four walls. But here, Ellie knew they weren't just rebuilding a broken arm; they were rebuilding a life. 

@@ -1,0 +1,11 @@
+**Title: A Whisper of Secrets**
+
+**Setting: The bustling city of New York in the late 1960s, where the skyline is punctuated by towering skyscrapers and the air is thick with ambition. Inside the sleek, glass-fronted offices of Winthrop & Co., an elite financial firm, the air hums with activity. The walls are adorned with dark wood paneling, and the clattering of typewriters echoes in the background as well-dressed executives huddle over their desks. It is a period where the world feels on the brink of change—women are beginning to carve out their own spaces in the corporate world, though still facing the constraints of societal norms.**
+
+**Main Character: Eleanor Marie Henderson**
+
+As the clock struck nine, Eleanor Marie Henderson adjusted her pencil skirt and took a steadying breath outside the heavy mahogany doors of the Winthrop & Co. office. The morning sun filtered through the tall buildings surrounding her, casting long shadows of its own—a reminder of the towering expectations that loomed over her. With a keen eye for detail and a mind that never settled for mediocrity, she had earned her position as the secretary to Mr. Arthur Winthrop himself, the firm’s enigmatic founder whose rumored connections in the city spilled into whispered conversations.
+
+Eleanor smoothed her dark curls, a delicate gold locket resting against her collarbone—a family heirloom that carried the weight of her past. With a flip of her notepad and a determined pat on her desk, she prepared for another whirlwind day filled with meetings, phone calls, and the occasional frantic request from Mr. Winthrop. Beneath her polished exterior and deft fingers, however, lay a growing curiosity fueled by the hints of intrigue she sensed swirling within the office—a whispered secret here, a furtive glance there. 
+
+As the elevator doors slid open with a faint chime, Eleanor stepped inside, her heart racing gently as she thought of the rumors buzzing around the firm. Little did she know that today, the secrets she so yearned to uncover would begin to unravel, plunging her into a world where ambition and betrayal danced dangerously close, forever altering the course of her life.

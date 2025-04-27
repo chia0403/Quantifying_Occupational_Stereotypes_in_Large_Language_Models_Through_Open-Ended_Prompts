@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Bill Fusco, and his wife, Lora, were in love. Then, at least according to their stories, an angelic young woman appeared and took the two friends on a fantastical but short road trip to a far off and mystical place called O'Shaughnessy's Castle. But things went terribly, horribly wrong. In the end, the boys were dead, and Bill lost his wife and all his worldly possessions. When he died, his wife was devastated – and left a collection of photographs. That woman is Lora and her husband are still with us, still married and happy, and with a collection of photos, too.
+
+So I'm not sure any of you are ready for some serious supernatural horror when your boyfriend (or, really, any other guy) shows you his collection of photos. That is, unless you have some friends who are good, smart, funny, interesting, funny, strong, powerful, self-confident, and pretty much what you want in a man.
+
+10 Photos That Will Totally Blow Your Mind – (Courtesy of The Lonely Island)
+
+I've been watching The Lonely Island since they first aired some three years ago. I can't remember how it started, I know the first season is the one that made me fall more in love with the MTV channel, but I don't really recall where I learned about this new project that they are currently making.

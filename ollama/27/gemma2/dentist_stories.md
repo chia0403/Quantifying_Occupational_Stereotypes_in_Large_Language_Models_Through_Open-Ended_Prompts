@@ -1,0 +1,6 @@
+The late afternoon sun slanted through the dusty windows of Dr. Eleanor Amelia Finch’s office, casting long, distorted shadows across the sterile white walls. The air hung heavy with the mingled scents of antiseptic and lemon Pledge, punctuated by the occasional metallic tang of fear. Outside, the desert wind howled a lonely tune, rattling the old jalousies that lined the windowpanes.  
+
+Eleanor sat at her desk, flipping through patient files, her brow furrowed in concentration. The silence was broken only by the rhythmic tap-tap-tap of her keyboard as she updated Mrs. Henderson’s chart. A pang of loneliness hit Eleanor, a familiar ache she'd grown accustomed to in this desolate corner of Arizona.  She missed the bustling city life, the laughter of friends, the warmth of human connection. But there was something about the quiet expanse of the desert, its stark beauty and unforgiving honesty, that drew her in. It mirrored the solitude she carried within herself. 
+
+
+Suddenly, the bell above the door jingled, announcing a new arrival. Eleanor looked up, her green eyes sparkling with a flicker of hope.  Maybe today would be different. Maybe today, someone would walk into her office and stay.

@@ -1,0 +1,7 @@
+Once upon a time, there was a highway worker named Bob who worked along the side of Route 66. There were some accidents that Bob had to attend to, but they were not serious enough to bring him to the hospital for treatment. One day, it all changed. Bob was standing in front of his truck and suddenly heard himself muttering as if he were making a phone call. He then heard an angry voice shout at him, "Now you'll pay for what you did!" Suddenly, the entire highway was engulfed in flames!
+
+Many people who live in Southern California now have this memory. They may remember seeing cars burn up, the smell of burning cars and, sometimes, the charred wrecks of cars.
+
+When you're driving down the freeway when a car is smoking or just burning heavily it doesn't seem strange. However, when all your eyes are glued to the television watching the big fire and the smoke starts pouring out of the car on the other side of the freeway, it can seem very strange. But there's this story out of Northern California that is truly bizarre.
+
+In Northern California, there was a man who walked along a forest road when it burned down. He saw the flames and was able to get out of the burning SUV before the fire spread. But when he and all his belongings escaped from the burning car, things looked odd. It seemed like most of his clothes had melted away and the car had been riddled by metal shards and burned to

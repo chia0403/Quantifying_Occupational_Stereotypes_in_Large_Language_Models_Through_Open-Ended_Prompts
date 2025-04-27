@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Setting:** The stale air of the Cook County Clerk of Courts archive hung heavy with the scent of decaying paper and forgotten dreams. Sunlight, filtered through the grime-coated windows, illuminated swirling dust motes like tiny, frantic dancers in a silent ballet. Row upon row of towering shelves, crammed with meticulously organized but undeniably outdated case files, stretched into the dimness. The rhythmic thump of the aging HVAC system was the only consistent sound, a low, mechanical heartbeat throbbing through the space.
+
+**Story Opening:**
+
+Eleanor Maeve Hayes, a paralegal with a particular fondness for order and a simmering disdain for bureaucracy, tapped her pen impatiently against the dog-eared cover of the "Estate of Mortimer Finch" file. 1978. Forty-five years lost to legal limbo. She’d been tasked with finding the Finch will, a document rumored to contain a surprisingly generous donation to a long-defunct animal shelter. Eleanor doubted it. Most "generous donations," in her experience, were generous in sentiment only.
+
+She sighed, pulling down another file from the shelf. The cardboard felt brittle beneath her gloved fingers, threatening to crumble at any moment. This wasn't exactly the career she’d envisioned after graduating with honors from Northwestern. Law school had seemed like a natural progression, the logical next step. Instead, here she was, relegated to the dusty corners of legal history, chasing ghosts in the hope of finding a few forgotten dollars for a bunch of abandoned cats. Eleanor flipped open the file. "Probate Hearing Transcript, October 12, 1978." Just her luck, another dead end. At this rate, those cats would be eating dust before she found their benefactor. But Eleanor Hayes wasn't one to give up easily, especially when faced with the formidable challenge of a stubborn, and likely long-deceased, man named Mortimer Finch.

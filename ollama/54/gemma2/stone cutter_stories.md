@@ -1,0 +1,6 @@
+The wind whipped across the exposed plateau, carrying with it the scent of brine and the distant clang of hammer against granite.  Elias Stoneheart shivered in his roughspun tunic, pulling his woolen cloak tighter around him as he surveyed the quarry. Jagged cliffs, sculpted by centuries of salt-laced winds and crashing waves, rose sharply from the rocky floor, their faces scarred with deep gouges made by generations of stone cutters before him. 
+
+He squinted at the blinding sun, its glare reflected off the myriad shards scattered across the plateau like fallen stars. Each piece was a testament to his craft: smooth, polished stones destined for grand cathedrals and humble homes alike. Elias Stoneheart, son of the late Thaddeus, master stone cutter of the Aethel Islands, was next in line to inherit the family legacy. He had learned the trade from his father's calloused hands, feeling the pulse of the earth thrumming through each chisel strike. But today, a knot of apprehension tightened in his stomach, as heavy and cold as the stones he worked with. 
+
+
+This wasn’t just another day at the quarry. Today was the day Elias would present his first commission to Lord Eldred, a powerful nobleman who had commissioned a stunning sundial, its intricate design meant to capture the very essence of time itself.  

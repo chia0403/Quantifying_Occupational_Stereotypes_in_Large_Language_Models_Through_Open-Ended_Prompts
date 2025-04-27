@@ -1,0 +1,11 @@
+## Story Opening:
+
+The aroma of stale cigarette smoke and desperate ambition clung to the air backstage at the Grand Majestic Theatre like a cheap perfume. Dust motes, disturbed by a frantic stagehand's broom, danced in the single shaft of light cutting through the gloom. Outside, the relentless London rain drummed a mournful rhythm against the stained-glass windows, a sound that perfectly mirrored the hollow ache in the chest of **Alistair Benedict Finch**, Artistic Director. He pinched the bridge of his nose, the greasepaint and glitter that still stubbornly clung to his fingers a grim reminder of the spectacle – or rather, the catastrophic implosion – he had just witnessed.
+
+The curtain had fallen not to thunderous applause, but to stunned silence, followed by a slow, hesitant trickle of boos. Alistair had seen shows bomb before, of course. Every director worth their salt had their fair share of artistic duds. But this… this was different. This wasn't just a bad show; it was a spectacular, breathtaking, career-ending disaster of Shakespearean proportions. He could almost hear the whispers already, the knowing glances, the insidious rumours that Alistair Finch, once the darling of the West End, had finally lost his touch.
+
+He exhaled slowly, the air heavy in his lungs. He needed a drink. And possibly a new career.
+
+## Setting:
+
+**The Grand Majestic Theatre, London, England.** The theatre itself is a grand, Victorian-era building, a testament to a bygone era of opulent entertainment. The red velvet seats are worn and faded, the gilded balconies chipped and peeling, but the space still holds a certain majestic charm. The backstage area, however, is a stark contrast: cramped, chaotic, and littered with the detritus of countless productions. Racks of costumes overflow with silks and satins, haphazardly crammed next to tattered robes and threadbare tunics. The air is thick with the scent of sweat, makeup, and old wood, a potent cocktail of art and desperation. The soundproofing is notoriously poor, allowing the echoes of the street outside, and the increasingly muffled sounds of departing theatregoers, to seep into the dressing rooms and corridors. It’s a place of dreams and nightmares, where careers are made and broken under the unforgiving glare of the spotlight.

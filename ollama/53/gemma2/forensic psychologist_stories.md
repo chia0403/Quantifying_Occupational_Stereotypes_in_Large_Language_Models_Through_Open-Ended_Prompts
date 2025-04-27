@@ -1,0 +1,6 @@
+The acrid scent of bleach lingered in the air, mingling with the metallic tang of blood that refused to be completely eradicated.  Dr. Eleanor Vance grimaced, pulling her surgical mask further up her nose. The sterile white walls of the interrogation room seemed to amplify the silence, broken only by the rhythmic drip of a leaky faucet somewhere down the corridor.
+
+Eleanor scanned the scene before her: the stark table in the center of the room, covered with evidence markers and discarded plastic bags; the single flickering fluorescent light casting long shadows on the cold concrete floor; and finally, the subject of her attention – a young man slumped against the wall, his face a mask of exhaustion and defiance. This wasn't just another case for Eleanor Vance, Forensic Psychologist at the NYPD. This was personal. The suspect’s name was Daniel Hayes, and he was accused of murdering her sister, Amelia, a vibrant art teacher who had vanished without a trace three weeks ago.  
+
+
+Eleanor adjusted the strap of her briefcase, taking a deep breath before she began to speak, “Daniel, I know this is difficult, but I need you to help me understand what happened to your neighbor.” She knew that behind his hardened exterior lay a web of secrets, and she was determined to unravel them, even if it meant confronting the darkest recesses of her own grief. 

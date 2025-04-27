@@ -1,0 +1,6 @@
+The worn leather armchair creaked in protest as Amelia Beatrice Finch adjusted her spectacles and sighed. Outside, the Seattle rain hammered against the windowpanes of her tiny office, mirroring the incessant drumming of worry in her chest.  Rain was one thing, but this persistent slump in bookings was another beast altogether. 
+
+Amelia's agency, "Voyages to Wonder," had once been bustling with excited travelers eager for Amelia's expertly curated adventures. Now, the only sounds were the ticking of the antique clock on the wall and the rhythmic whirring of her ancient computer fan battling a particularly stubborn virus. The travel brochures piled high on her desk seemed to mock her, each glossy page depicting sun-drenched beaches, snow-capped mountains, and vibrant cities – all tantalizingly out of reach for Amelia's dwindling clientele. 
+
+
+She tapped at the keyboard, trying in vain to coax the online booking system back to life.  A desperate thought flickered through her mind - perhaps it was time to abandon Voyages to Wonder, pack up her dreams, and accept a more stable job. But as she glanced at the framed photo of herself on a safari, grinning beside an elephant twice her size, Amelia knew she couldn't give up just yet. 

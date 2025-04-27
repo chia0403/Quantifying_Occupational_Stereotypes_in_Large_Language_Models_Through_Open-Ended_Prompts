@@ -1,0 +1,6 @@
+The flickering gaslight cast long, dancing shadows across Amelia Beatrice Cartwright's meticulously organized ledgers. Dust motes swirled in the pale light that filtered through the grimy windowpanes of her cramped office above Mr. Fitzwilliam's haberdashery. A faint scent of mothballs and old wool clung to the air, a familiar perfume that mingled with the aroma of ink and paper. Amelia sighed, rubbing her tired eyes. Another long day spent wrestling with figures, deciphering cryptic notes from merchants who wouldn't know an asset from a liability, and trying to keep the precarious finances of her late father's failing apothecary afloat. 
+
+It wasn't glamorous, but it was honest work.  And Amelia, though she longed for something more – perhaps a quiet life with a garden, or maybe even a trip to Paris – was determined to see her father’s legacy survive. Tonight, however, the weight of responsibility felt heavier than usual. The latest invoice from the spice merchant was baffling, filled with nonsensical numbers and cryptic abbreviations that whispered of something more sinister lurking beneath the surface. Amelia leaned back in her creaky chair, a knot of unease tightening in her stomach.  
+
+
+This was no ordinary bookkeeping problem. 

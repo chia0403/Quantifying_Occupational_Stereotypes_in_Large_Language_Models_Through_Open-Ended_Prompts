@@ -1,0 +1,6 @@
+The air in "Mane Attraction" was thick with the scent of lavender shampoo and ambition.  Seraphina Bellweather, her auburn hair pulled back in a tight bun that mirrored the sharp angles of the Parisian chic salon she owned, surveyed her domain with an appraising eye. It wasn't just another Tuesday; today was the day Isabelle Dubois, the city's most notorious fashionista and known for her avant-garde hairstyles, would be gracing her salon. 
+
+The afternoon sun streamed through the large window overlooking the bustling street in Montmartre, casting long shadows on the polished wooden floor and scattering gold dust on Seraphina's meticulously organized collection of hair products. The clinking of shears and the soft murmur of conversation formed a familiar melody, but today, an extra layer of anticipation buzzed beneath the surface. This appointment wasn’t just about another satisfied customer; it was about proving that Seraphina could cut her way to the top of Paris's competitive hairdressing scene.  
+
+
+The bell above the door jingled, announcing Isabelle's arrival, and a hush fell over the salon. Seraphina straightened, a tremor of excitement running through her. This wasn’t just another appointment; it was her chance to make her mark on the city, one daring style at a time. 

@@ -1,0 +1,9 @@
+The sun crested over the jagged peaks of the Cascade Mountains, casting long, golden shadows across the sleepy town of Maple Ridge. Morning mist still clung to the lush pines that bordered the quiet streets, and the crisp air carried a whisper of autumn’s imminent arrival. The town was small, with rows of quaint, timber-framed houses lining its central thoroughfare and a cobblestone square that harkened back to an earlier time.
+
+Nestled in the heart of town was Fire Station No. 7, its red brick facade standing in sturdy contrast to the verdant backdrop. The station was more than just a hub of emergency response; it was a beacon of resilience for Maple Ridge, a symbol of unity and protection. Inside, the once stillness was disrupted by the familiar hum of activity, the smell of fresh coffee intermingling with the faint scent of smoke that seemed to permanently linger.
+
+Within those walls, a figure moved with purpose. Jackson "Jack" Callahan, a seasoned firefighter with over a decade of service, was preparing for the day. Standing at an impressive six-foot-three, Jack was a commanding presence, his broad shoulders and rugged demeanor tempered by keen eyes that reflected both determination and kindness. He wore the scars of his profession with quiet pride, each mark an unspoken testament to the lives he’d touched and the fires he’d battled.
+
+Jack’s routine was as ingrained as the morning light that spilled through the station’s wide windows. Today, however, there was an undercurrent of something different—a sense of anticipation that sparked in the crisp morning air. The radio crackled softly in the corner, a constant companion to the firefighters, as Jack tightened the straps of his gear. He glanced towards the horizon, where the faintest whispers of smoke marred the otherwise clear sky.
+
+Maple Ridge was about to wake, and Jack Callahan was ready to meet whatever challenges the day would bring.

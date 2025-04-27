@@ -1,0 +1,6 @@
+The stench of iron and brine hung heavy in the air, a familiar perfume to Thaddeus Bartholomew Hemlock III, or Thad as he preferred.  His weathered hands, calloused from years of wielding cleavers and boning knives, expertly handled the slab of prime rib, separating fat with practiced ease. The rhythmic thud of his cleaver against the butcher block echoed in the cool silence of the shop, a counterpoint to the chirping crickets outside the window. 
+
+Thad's Butcher Shop was a fixture on Elm Street, its faded awning and dusty windows whispering tales of generations past.  The town of Oakhaven itself seemed frozen in time, a quaint tapestry of cobblestone streets, Victorian homes with peeling paint, and whispers of secrets carried on the wind. It was a place where everyone knew their neighbor, and Thad, despite his gruff exterior, was known for his quality cuts and even better advice on Sunday roasts. 
+
+
+But beneath the familiar rhythm of butchering lay an unease Thad couldn't quite shake. A darkness had seeped into Oakhaven lately, a creeping chill that started with whispers in the market and escalated to unsettling dreams plaguing the townsfolk. Tonight, as Thad prepared for his last customer, he felt it more acutely than ever - a prickling sensation on his skin, like unseen eyes were watching him from the shadows. 

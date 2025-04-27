@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of the precinct's forensic psychology office, mirroring the storm brewing inside Dr. Eleanor Vance.  The stale scent of antiseptic and despair clung to the air, a familiar companion.  The city of Veridian, choked by smog and simmering resentment, mirrored the turmoil in her own soul.  From her perch behind a cluttered desk, littered with case files and half-empty coffee cups, she stared out at the churning grey landscape.  Veridian wasn't known for its beauty, but tonight, even the rain held a menacing beauty.
+
+**Setting:**
+
+Veridian, a sprawling metropolis notorious for its sprawling inequalities and a simmering undercurrent of violence, masked by a veneer of prosperity.  The precinct, a concrete monolith, stood on the edge of a neglected industrial district, a stark contrast to the glittering skyscrapers that dominated the city's center. The forensic psychology unit was tucked away on a lower floor, its cramped rooms whispering tales of trauma and despair.  The city itself felt weighed down, burdened by a history of unresolved tensions and echoing whispers of past injustices.

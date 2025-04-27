@@ -1,0 +1,5 @@
+The flickering neon sign outside "Benny's Burgers" cast long, dancing shadows across Eleanor Beatrice Finch's face as she meticulously balanced her ledger. The air was thick with the smell of frying onions and stale beer – a symphony of aromas that had become as familiar to Eleanor as the scent of old paper and pencil shavings in her tiny apartment above the bakery.  
+
+Eleanor, all 5'2" of meticulous precision and auburn braids, was a bookkeeper by necessity, not by passion. She hadn't chosen this life; it had chosen her. After her father's sudden passing, she inherited his rundown accounting practice and the responsibility for keeping their family afloat. Benny's Burgers, with its greasy charm and perpetually bustling crowd, was one of her most loyal clients.  
+
+The setting sun bled into the horizon, painting the dusty windows of Benny's a fiery orange. Eleanor pushed back her glasses, squinting at the numbers on the ledger. Something didn’t add up. A discrepancy, small but persistent, gnawed at her. This wasn't just another misplaced receipt or an accidental double-entry; this felt deliberate, calculated… and potentially dangerous. 

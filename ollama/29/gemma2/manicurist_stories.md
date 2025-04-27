@@ -1,0 +1,3 @@
+The gentle hum of the electric file blended with the rhythmic tapping of Amelia "Amy" Rose's acrylic nails against her work station. The air in "Nails by Amy," tucked away on a sleepy side street in Astoria, was thick with the scent of acetone and jasmine hand cream. Sunlight slanted through the dusty windows, casting long shadows across the neatly arranged bottles of polish that lined the shelves. 
+
+Amy hummed along to the soft jazz emanating from the Bluetooth speaker, her focus entirely on shaping the almond-shaped acrylics she was meticulously buffing for Mrs. Petrov, a regular who always arrived with a worn copy of Tolstoy and a gossip column printed in the New York Times tucked under her arm. 

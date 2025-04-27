@@ -1,0 +1,5 @@
+Rain lashed against the windows of "The Rusty Anchor," each gust threatening to rip through the old wooden frames and into its cozy interior.  Inside, Amelia Bellweather, known as "Amy" to regulars and locals alike, expertly crafted a fiery concoction in her tiny, well-worn station. The air hung thick with smoke from her specialty drink – the 'Devil's Breath,' a whiskey sour infused with habanero bitters and a sprinkle of black pepper –  a secret recipe she guarded like a treasure. 
+
+The year was 1926, and Amy had spent the last decade working in the legendary dive bar on the docks of Newhaven. It wasn’t exactly high society, but it was home, her haven from the swirling maelstrom of life. Tonight, however, she felt different.  A restless energy buzzed beneath her skin, fueled by the storm raging outside and a man who sat hunched in the corner booth, his face obscured by the brim of a fedora. 
+
+The air throbbed with unspoken secrets as he glanced up, catching Amy’s eye for a fleeting moment. Her heart hammered against her ribs - she could feel his gaze like a physical presence. 

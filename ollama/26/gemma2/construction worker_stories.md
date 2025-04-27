@@ -1,0 +1,6 @@
+The morning air hung thick with the scent of diesel and sawdust.  Sweat beaded on Michael "Mac" McArthur's brow even before the sun crested over the city skyline, turning the steel girders of the half-built skyscraper into shimmering giants against the bruised purple sky. The rhythmic clang of hammer against steel was a familiar lullaby to Mac, a symphony of industry that had been his soundtrack for nearly two decades. He squinted at the foreman, a burly man with a face like weathered granite, as he barked out instructions for the day's work: reinforcing the fourth floor beams, ensuring they could support the weight of the steel skeleton rising above them. 
+
+Mac adjusted the worn leather strap of his hard hat and took a swig from his thermos, the lukewarm coffee doing little to chase away the lingering chill in his bones. He glanced across the construction site at the bustling hive of activity - the whirring of cranes, the shouts of workers, the constant flow of materials - and felt a familiar pang of pride. This city was being built brick by brick, beam by beam, sweat by sweat. And he was a part of it.  
+
+
+Mac McArthur knew this job wasn't glamorous. It was hard, dirty work, but it was honest work. 

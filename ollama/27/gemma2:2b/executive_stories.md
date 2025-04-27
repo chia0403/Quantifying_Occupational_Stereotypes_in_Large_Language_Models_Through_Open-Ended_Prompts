@@ -1,0 +1,5 @@
+The air shimmered above the chrome-and-glass towers of New Shanghai. A kaleidoscope of neon pulsed in the night sky, reflecting off the rain-slick streets below. Rain hammered against the glass of Alistair Sterling's office, each drop echoing through his cavernous space like a drumbeat. Alistair, CEO of the sprawling Sterling Group conglomerate, sat hunched over a mahogany table littered with data projections and crumpled cigarette ends. 
+
+He was supposed to be meeting with investors later this evening, but instead, he stared out into the storm. A gnawing unease had overtaken him since the news broke this morning – the massive corruption scandal engulfing his company's long-standing partnership with the infamous Shi family. The details were gruesome: forged invoices, back-room deals, and a network of shell corporations that bled Sterling Group dry. 
+
+Alistair ran a calloused hand through his salt-and-pepper hair. He’d built Sterling Group from the ground up, painstakingly crafting its empire in every corner of the city. Now, he felt like the entire edifice was about to crumble around him, and the storm reflected the turmoil brewing inside. 

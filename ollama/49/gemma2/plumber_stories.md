@@ -1,0 +1,5 @@
+The pungent aroma of sulfur hung heavy in the air, clinging to Bartholomew "Barty"  Finnigan's overalls like a persistent shadow. Barty adjusted his worn-out tool belt, its leather creaking with the weight of years spent battling leaky pipes and stubborn clogs. The setting sun cast long, distorted shadows across the grimy alleyway behind Mrs. O’Malley’s bakery. A symphony of buzzing insects and the distant rumble of city traffic filled the humid night air. 
+
+The rusted fire escape ladder groaned under Barty's weight as he ascended to the second-story window, his gaze fixed on the flickering candlelight within. The call had been cryptic: "Emergency plumbing situation, please come quickly." Mrs. O’Malley was an elderly woman known for her delicious scones and even more eccentric personality. Tonight, whatever emergency she faced seemed particularly dire. Barty swallowed nervously, clutching his trusty wrench – a tool that had seen him through countless battles against the unseen enemies lurking within the city's aging infrastructure. 
+
+

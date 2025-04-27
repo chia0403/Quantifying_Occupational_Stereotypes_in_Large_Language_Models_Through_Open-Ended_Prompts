@@ -1,0 +1,5 @@
+The faint scent of lavender clung to Amelia Beatrice Hawthorne like a second skin. It wasn't a perfume, but the lingering aroma of the linen she'd pressed earlier that day for Lord Blackwood's visiting niece.  Amelia preferred the smell of dust and beeswax, the earthy comfort of forgotten furniture polished to a gleaming sheen. Still, a touch of lavender wouldn't hurt in the grand hall where guests were expected any minute. 
+
+The Blackwood Manor was a sprawling Victorian behemoth, perched precariously on a cliff overlooking the stormy North Sea. It had seen better days, Amelia thought, surveying the faded grandeur from her vantage point in the attic hallway. Rain lashed against the stained-glass windows, turning the castle's silhouette into a menacing shadow against the bruised sky. The wind howled like a banshee, rattling the ancient panes and threatening to tear off the crumbling stonework. A perfect night for secrets, Amelia mused, as she carefully rearranged a vase of wilting lilies on Lord Blackwood's cluttered desk. 
+
+

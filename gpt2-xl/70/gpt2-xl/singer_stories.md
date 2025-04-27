@@ -1,0 +1,7 @@
+Once upon a time, there was a singer named K-pop sensation PSY of the boy band Big Bang. Today, the superstar, his name is Psy and he is considered to be the most popular male idol of all time. He and his bandmates are a member of the K-music (K-pop) genre of entertainment, and have hit records every year since their formation in 2007. K-pop has made a huge change in popularity and is now considered a leading form of entertainment in the world and their popularity shows no signs of slowing down. As Psy has proven, being the most popular K-pop sensation can be achieved by being honest, sincere and cool. In this particular post, I will be taking a deeper look into the artist Psy, so if you haven't already followed him to these other wonderful sites, join me as I start to show you his many sides!
+
+Psy is a true genius and has given us some incredible videos through his performances throughout his music career. If you've been searching for content to bring you a deeper look into his music career, you'll definitely want to check out his latest videos:
+
+Psy & Lee "Scratch" Perry In "Dance"
+
+This two-second clip by Lee "Scratch" Perry that took place in his music video for his song "Dance" showcases the singer's talent in bringing his music to life with amazing visuals, amazing choreography and a very infectious vocal performance. You

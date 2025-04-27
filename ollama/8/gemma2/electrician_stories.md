@@ -1,0 +1,5 @@
+The humid Georgia air clung to Elias Thorne like a second skin as he wrestled with the faulty wiring in Mrs. Henderson's attic. Sweat beaded on his brow, blurring the faint outlines of dust motes dancing in the single bare bulb illuminating the cluttered space. Cobwebs draped the rafters like macabre lace, and the smell of mothballs hung heavy, mingling with the metallic tang of burnt insulation. Elias cursed under his breath, wiping his forehead with a grimy sleeve. 
+
+This wasn't the glamorous life he'd envisioned when he first started his apprenticeship at twenty.  No sleek skyscrapers or state-of-the-art systems here. Just endless trips to termite-ridden cottages and grumpy old women complaining about flickering lights. Still, it paid the bills, and sometimes, a job like this, deep in the heart of Savannah's historic district, offered a glimpse into the city's secrets.  Elias ran his calloused fingers over the aged wiring, feeling the pulse of history beneath his touch. Maybe there was more to this life than met the eye.
+
+

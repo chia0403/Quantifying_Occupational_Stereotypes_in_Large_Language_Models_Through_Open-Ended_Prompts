@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting, including the full name of our income tax preparer protagonist:
+
+**Setting:** The fluorescent lights of "Accurate Returns, LLC," buzzed a monotonous tune above rows of cubicles crammed with mismatched chairs and overflowing filing cabinets. It was mid-March, the air thick with the scent of lukewarm coffee, cheap printer ink, and the barely-veiled desperation of procrastinating taxpayers. The break room, a cramped space with a sticky linoleum floor, was decorated with motivational posters that had clearly seen better days.
+
+**Opening:**
+
+The high-pitched squeal of a dot-matrix printer nearly drowned out the strains of elevator music filtering through the office. Beatrice Eleanor Hawthorne, hunched over her computer screen, winced and rubbed her temples. April 15th loomed like a tax audit itself, and Beatrice, with the beleaguered sigh of a veteran soldier, was staring down the barrel of another all-nighter. Her fingers, stained faintly with ink from years of wrestling with carbon paper, flew across the keyboard, inputting numbers with a speed that bordered on the miraculous. She was a maestro of deductions, a virtuoso of credits, a champion of the under-withheld.  At least, that's how she liked to think of herself, even when she was untangling the mess of receipts someone had mailed in a crumpled grocery bag. Today's challenge? Mrs. Higgins and her "charitable donation" of twenty-seven partially eaten muffins to the local pigeon population. Beatrice groaned inwardly. This was going to be a long night.

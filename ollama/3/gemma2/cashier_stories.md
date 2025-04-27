@@ -1,0 +1,3 @@
+The fluorescent lights hummed above Eloise Amelia Harper’s head, casting a sickly yellow pallor over the aisles of Bargain Bites Grocery. It was 7:32 pm, the hour when the rush subsided and desperation set in for both customers and employees alike.  Eloise, perched on her stool behind the register, idly traced patterns on the dusty counter with her acrylic nail. The air smelled faintly of stale popcorn and despair – a heady mix that permeated this late-night corner of the city. She longed for the sweet release of sleep, but duty called, as it always did, in the form of a rattling receipt printer and the occasional mumbled grumble from a disgruntled shopper. Eloise sighed, bracing herself for whatever the last hour would bring. 
+
+

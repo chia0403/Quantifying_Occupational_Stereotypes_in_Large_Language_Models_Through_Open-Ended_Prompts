@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Setting:** October in the small, perpetually damp town of Havenwood, Oregon. The sky hangs low, the color of bruised plums, threatening rain that never quite materializes but leaves a perpetual sheen on the already moss-covered rooftops of the clapboard houses and the gnarled branches of the ancient pines that dominate the landscape. Havenwood Elementary School, a squat, single-story brick building, smells perpetually of floor wax, stale milk, and the vague anxiety of a hundred children trying to navigate the complexities of childhood.
+
+**Story Opening:**
+
+The aroma of burnt coffee clung to Dr. Elara Grace Hawthorne's sweater like a persistent toddler. She sighed, pushing the unruly strands of her chestnut hair behind her ear and staring out the smudged window of her small, cluttered office. Outside, a gaggle of fifth graders were engaged in a surprisingly vicious game of tag, their squeals echoing across the playground. Elara knew she should be grading the pile of standardized test results looming on her desk, each filled with the hopes and anxieties of parents desperate for their child to succeed. But the data points swam before her eyes, blurring into a meaningless mess.
+
+It wasn't the tests that bothered her. It was the silence that followed them. The silence from Mrs. Peterson, the third-grade teacher whose eyes had been a little too bright, a little too strained, the day she handed Elara a drawing depicting a stick figure cowering under a menacing, many-eyed monster. The silence from young Finnigan, a first grader who suddenly refused to leave his mother's side at drop-off, dissolving into tears at the mere mention of the classroom. Silence, Elara knew, could be the loudest alarm of all. And Havenwood Elementary was starting to feel deafening.

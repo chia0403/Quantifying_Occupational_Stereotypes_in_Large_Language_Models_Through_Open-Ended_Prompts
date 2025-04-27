@@ -1,0 +1,7 @@
+Here's a story opening:
+
+The fluorescent lights overhead cast an unforgiving glare over the small convenience store, where Aurora Rose Thompson rang up purchases with a practiced efficiency. It was 11:45 PM on a Friday, and the only customers were the occasional late-night worker grabbing a snack or a drink before heading home. The store's proprietor, Mr. Patel, had long since gone home for the night, leaving Aurora to manage the till and keep an eye on the security cameras.
+
+As she processed a transaction with a young couple, Aurora's mind began to wander to the strange occurrence that had been plaguing her all week. It started on Monday, when she'd noticed a faint humming noise coming from the store's back room. At first, she'd thought it was just the old air conditioning unit, but as the days went by, the sound grew louder and more insistent. She'd tried to ask Mr. Patel about it, but he seemed evasive and secretive, and whenever she brought it up again, he'd simply tell her to "ignore it" or change the subject.
+
+Aurora wasn't one to ignore strange occurrences, and as she watched the couple leave with their purchases, she couldn't shake the feeling that something was off. She made a mental note to do some digging of her own and get to the bottom of the mystery before things got any weirder. Little did she know, her life was about to take a drastic turn.

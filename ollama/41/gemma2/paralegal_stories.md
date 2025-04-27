@@ -1,0 +1,6 @@
+The air in Mrs. Petrov's office was thick with the smell of lavender potpourri and unfulfilled dreams. Sunlight slanted through the dusty blinds, painting stripes across the worn Persian rug where Eleanor Beatrice Cartwright sat hunched over a mountain of legal briefs.  Eleanor, or Ellie as she preferred, sighed, rubbing her temples with the back of her hand. Another day, another pile of paperwork threatening to consume her soul. 
+
+She was just a paralegal at Petrov & Associates, a mid-sized firm specializing in family law. It wasn't glamorous, but it kept the bills paid and the existential dread at bay.  Ellie dreamt of being a lawyer herself, of arguing passionately in court, of fighting for justice. But reality, like Mrs. Petrov's potpourri, was a bit too cloying, a bit too dusty. 
+
+
+The setting: A small law office nestled on a quiet street in a bustling city. The year is 2023, and the internet, while present, hasn't quite taken over the way it would later.  Fax machines whir, rotary phones jingle, and legal documents are still filed in cabinets, not cloud storage.  The air is thick with anticipation, waiting for that big case that will shake things up, a spark of excitement in this otherwise mundane world. 

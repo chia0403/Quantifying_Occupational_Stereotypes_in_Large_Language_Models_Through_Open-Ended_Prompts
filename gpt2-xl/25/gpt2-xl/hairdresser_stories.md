@@ -1,0 +1,5 @@
+Once upon a time, there was a hairdresser named Judy, who had worked in a salon on Broadway for nine years. A handsome, successful, successful man, the son of a prominent banker, he had just purchased a real estate company in the old city, and he decided to bring in as a partner one of his best friends, Mr. Kowalitz, a former city attorney.
+
+But the partners' love affair didn't survive the start of the Depression, and they split up after only two years. Mr. Kowalitz tried to move on, but the old man would not, and when the man died, Mr. Kowalitz sold their partnership to an investor named Arthur Zweibel, a well-known hotel-industry broker known as "Dr. Death," for only $8,000.
+
+Mr. Zweibel paid the hairdresser's costs and gave her only $100 of her shares. They also divorced. The hairdresser, whose last name was Fuhrman, would never work in a salon again, although she maintained a passion for old-time hairdressing that might have attracted him to a city so rich in natural beauty.

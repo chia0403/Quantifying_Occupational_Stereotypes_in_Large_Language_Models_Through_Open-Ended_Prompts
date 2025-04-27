@@ -1,0 +1,6 @@
+The fluorescent lights hummed overhead, casting a sterile glare on the vibrant bowls of quinoa salad and roasted vegetables that lined Amelia Evergreen's counter. A faint aroma of cinnamon lingered in the air, mingling with the tangy scent of unsweetened grapefruit. It was 7:00 AM sharp, and Amelia, her auburn hair pulled back in a neat braid, was already deep into prepping for her busy day at "Nourish," her small, independent nutrition practice nestled on a bustling side street in downtown Seattle. 
+
+The city outside her window was just waking up, the air still crisp from the overnight chill. Cars began to trickle through the streets, their horns punctuating the rhythmic whir of the espresso machine next door. Inside Nourish, everything felt calm and organized, a sanctuary amidst the frenetic energy of the urban landscape. Amelia took a deep breath, smoothing down her apron as she mentally prepped for the first appointment – Mrs. Henderson, battling high cholesterol and craving chocolate chip cookies. 
+
+
+Amelia's phone buzzed, reminding her to check on the batch of overnight oats soaking in chia seeds – a healthy breakfast staple for her clients. A smile tugged at her lips; another day filled with helping people make positive changes through food.  

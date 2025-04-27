@@ -1,0 +1,7 @@
+## Opening and Setting
+
+**Setting:** Dust devils danced across the parched earth of the Double Bar Ranch, kicking up fine red soil that stained the late afternoon sun a hazy orange. The air hung heavy, thick with the scent of sagebrush and the lowing of thirsty cattle desperate for the meager trickle of water left in the irrigation ditch. The ranch house, a weathered clapboard structure that had seen better days, stood as a solitary sentinel against the vast, unforgiving landscape of southeastern Montana.
+
+**Opening:**
+
+Margaret Eileen O'Connell spat a stream of tobacco juice onto the cracked earth, the dark stain momentarily obscuring the path of an ant struggling to haul a crumb of something edible. She squinted, her weathered face a roadmap of wrinkles etched by years of sun and wind, as she watched the heat shimmer off the distant buttes. Another day, another crisis brewing. This time, it wasn't rustlers or a broken windmill. This time, it was the silence. A deadly, unnerving silence that had replaced the cheerful gurgle of the well, a silence that screamed of an empty aquifer and a dried-up future. Margaret Eileen O'Connell, owner and operator of the Double Bar Ranch, knew that if she didn't find water soon, she wouldn't just lose her cattle; she'd lose everything her grandfather had built. And Margaret Eileen O'Connell, stubborn as a mule and twice as determined, wasn't about to let that happen.

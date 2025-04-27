@@ -1,0 +1,5 @@
+The old library smelled of dust and forgotten dreams.  It was a comforting smell to most people, but for Amelia Thorne, it felt like an embrace from a ghost. Her fingers, calloused from years of turning pages and whispering stories, traced the faded gold lettering on a leather-bound journal. The book's cover was worn smooth by time and countless hands, its edges frayed as if trying to escape its cage of paper and glue. 
+
+Amelia Thorne wasn’t just any librarian.  She had inherited this ancient repository, an unassuming Victorian building tucked away on the edge of town, along with a legacy that whispered secrets in forgotten languages. The air hummed with untold stories - tales of love lost and found, of kingdoms lost and empires built, all preserved within these silent walls. 
+
+Tonight, though, Amelia's senses were attuned to something else entirely.  The faintest rustle from the upper floor, a whisper of unseen feet on hardwood. It was her job to protect these tales, but tonight felt different, charged with a palpable energy that made Amelia’s heart beat faster than any whispered chapter she had read before. 

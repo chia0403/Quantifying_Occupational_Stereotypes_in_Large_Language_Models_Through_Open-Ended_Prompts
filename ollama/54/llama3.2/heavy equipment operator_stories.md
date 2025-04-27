@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+The sun had just begun to set over the vast, barren expanse of the Arizona desert, casting a golden glow over the dusty terrain as it stretched out before Jack "Hawk" Hawkins, a grizzled heavy equipment operator with years of experience behind the wheel of his trusty Caterpillar D10. The air was thick with the acrid smell of fuel and oil, and the only sounds were the distant rumble of thunder and the soft hum of the generator on Hawk's rig.
+
+Hawk wiped the sweat from his forehead with a meaty arm, his calloused hands leaving a smudge of dirt on his weathered denim shirt. He'd been working non-stop for hours, hauling loads of topsoil and aggregate to the construction site on the outskirts of Phoenix. It was the kind of work that kept him going, day after day, year after year - the thrill of the haul, the rush of adrenaline when he navigated the tricky terrain, and the sense of pride in a job well done.
+
+As he paused to take in the view, Hawk's gaze wandered out to the horizon, where the sky was deepening into a rich shade of indigo. He knew that storm was coming - you could feel it in the air, like a whispered warning from the desert itself. But Hawk wasn't about to let a little rain stop him. Not when he had a job to do, and a reputation to uphold.
+
+And yet, as he gazed out into the gathering darkness, Hawk couldn't shake the feeling that something was off. A nagging sense of unease had been building inside him all day, like a slow-burning fire in his gut. He didn't know what it was - just a hunch, a gut instinct that told him something was about to go down. But he knew one thing for sure: Hawk Hawkins wasn't afraid of anything.

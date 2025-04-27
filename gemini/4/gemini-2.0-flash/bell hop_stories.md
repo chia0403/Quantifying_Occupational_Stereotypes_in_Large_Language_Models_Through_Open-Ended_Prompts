@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting with a bell hop named Bartholomew "Bart" Higgins as the main character:
+
+**Setting:** The opulent "Grand Astoria" hotel in Palm Springs, California. It's late afternoon, around 4:00 PM, in early March. The sun, though still strong, casts long shadows across the meticulously manicured lawns and the sparkling turquoise swimming pool. The air hums with the gentle whir of the distant wind turbines and the murmur of privileged conversations. The hotel lobby is a symphony of polished marble, crystal chandeliers, and the hushed tones of wealth. Lush tropical plants cascade from ornate planters, and the air is subtly scented with jasmine and something else... something expensive and indefinable.
+
+**Story Opening:**
+
+Bartholomew "Bart" Higgins adjusted his perfectly creased bellhop uniform, his knuckles white as he gripped the polished brass luggage cart. He hated Mondays. Hated the influx of fresh money, fresh tans, and fresh demands that came rolling into the Grand Astoria like a desert sandstorm. The Grand Astoria was everything Bart wasn’t – impeccably maintained, effortlessly chic, and blindingly expensive. He, on the other hand, was… well, he was from Bakersfield.
+
+He watched as a sleek, cherry-red convertible pulled up to the hotel entrance, its throaty engine a defiant roar against the hotel’s carefully cultivated tranquility. A woman emerged, all oversized sunglasses and even more oversized diamonds, practically shimmering under the desert sun. She snapped her fingers imperiously at a valet, a practiced move that sent him scurrying to open her trunk.
+
+Bart sighed. Another one. They all thought they owned the place, and they all treated him like a glorified coat rack. But this one… something felt different. Maybe it was the way her smile didn't quite reach her eyes, or the tight grip she had on her designer handbag. Or maybe it was the fleeting, almost imperceptible flicker of something dark that he saw in her expression when she glanced at the hotel’s imposing facade. He couldn’t put his finger on it, but Bartholomew "Bart" Higgins, bellhop and accidental observer of the wealthy and weary, had a feeling this particular Monday was about to get a whole lot more interesting.

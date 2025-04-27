@@ -1,0 +1,7 @@
+Once upon a time, there was a heavy equipment operator named "Bunny"! With two of his buddies, he was called the "Wanker Wagon". In the early days of WOW and even more so with the advent of WW2 and the need for heavy industry in Japan, he was often at the forefront of the most important events that took place in a country still reeling from the devastation of war. Many of these operations, which in some areas were called in the "Rain of Bombs", were so important that they often required a direct response by the American force!
+
+Our good buddy 'Bunny', being an expert at his trade, had to be a bit ahead of his time in many respects due to all the technology his era had in a time when many modern inventions weren't even conceived! In many ways, we take pride in our ability to make the best of many aspects of the old machines.
+
+In the early days of World War II, the US Army needed a heavy vehicle that could be used to bring down the "big bad Nazis" and all their huge aircraft. For this they selected the "German Vickers" machine gun. It was a good gun for the time when mounted on the right side of a vehicle. But they needed to have the power to do their job.
+
+So they decided to mount it on the right side of a WWI tank and use the German Vickers gun as a power source for electric motors that would

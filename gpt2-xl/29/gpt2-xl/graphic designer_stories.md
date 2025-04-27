@@ -1,0 +1,7 @@
+Once upon a time, there was a graphic designer named Michael, he thought he was a rock star. He used to go to high school with her and she used to play the drums in a band at school. At some point, she said this to him: "Michael, I've been having this feeling for the past few days that something is not right... Something is wrong." It was a really long time ago, but she was really worried about it. All through high school and college, and even into her last internship in a big international design firm, she was getting this feeling that something was wrong; something was off. So, she left the firm for the summer and began studying psychology at Stanford. And she thought that if she could just study psychology well enough for long enough, she would come out with a plan to solve the problem with her feelings, her obsessive compulsive disorder. So, she quit her job, went back to Stanford, took some classes that she wasn't planning on taking during the summer, and that summer she found a book on psychotherapy. She read through the book after it had been published. And her conclusion was "that's exactly what I need; I need to go through psychoanalysis."
+
+
+Michael: So, before you go through, you have a name and a date and a place and you're basically just going crazy.
+
+
+Al: So, the first psychiatrist they went to is this woman named Karen. Karen had a problem too

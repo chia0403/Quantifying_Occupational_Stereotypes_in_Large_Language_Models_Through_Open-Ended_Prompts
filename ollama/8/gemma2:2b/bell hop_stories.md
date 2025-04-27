@@ -1,0 +1,5 @@
+The aroma of cheap cigar smoke clung to everything in The Grand Astoria Hotel, even the air seemed thick with it. Not that anyone noticed, not when Bartholomew "Bart" Cavendish was struggling with the 50-foot-long luggage cart and simultaneously trying to avoid the drunken ramblings of a couple on their honeymoon. Bart had been bouncing between the hotel's grand lobby and his cramped storage closet all night, shifting luggage like he was playing a game of Tetris in an endless, messy world.  
+
+The year was 1925, but it felt like stepping into the Wild West - a saloon brawl in leather heels, with whispers of scandal clinging to every corner. He could picture it now: a swanky speakeasy hidden behind a velvet curtain, a hidden jazz band pouring their souls onto battered piano keys, and ladies sipping cocktails that cost more than the rent for his tiny apartment.  
+
+Bart was a bell hop in this symphony of swirling excitement and misplaced desires, trying to keep the order amidst the chaos - and maybe find something good in the dust-filled shadows himself. 

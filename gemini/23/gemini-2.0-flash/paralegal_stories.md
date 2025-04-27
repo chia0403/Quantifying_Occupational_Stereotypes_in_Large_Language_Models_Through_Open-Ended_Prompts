@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, featuring a paralegal:
+
+**Opening:**
+
+The flickering fluorescent lights of the Rosenblatt & Finch document room hummed a monotonous lullaby, a sound Bethany Anne Caldwell had grown to both loathe and rely on. Tonight, though, it was failing to soothe. Bethany ran a hand through her perpetually messy bun, dislodging a stray pen. Another hour. Just one more hour, and she could escape the suffocating smell of old paper and decaying cardboard boxes. The case file stacked precariously on the wheeled cart beside her – "Gideon vs. GlobalCorp" – mocked her with its sheer bulk. Gideon, bless his stubbornly litigious heart, believed GlobalCorp was responsible for his daughter's rare form of leukemia. Bethany, after six months of sifting through GlobalCorp's internal memos, felt a grudging sympathy for Gideon. She just needed…one more document. Something to tie the chemicals they were quietly dumping into the Blackwood River to the spike in cancer rates in Gideon’s town. Something concrete. Something that would actually matter.
+
+**Setting:**
+
+The story takes place in the late autumn in the fictional town of Blackwood Falls, Pennsylvania. The law firm, Rosenblatt & Finch, is a mid-sized, well-established practice specializing in corporate defense. The document room, where Bethany is working, is in the basement of their rather imposing Victorian-era building on Main Street. It’s a windowless, cramped space with stacks of archived files lining the walls from floor to ceiling. The air is stale and dusty, and the only furniture consists of metal shelving units, a few rolling carts, and a battered metal desk that Bethany has claimed as her own. Outside, the air is crisp and cold, hinting at the coming winter. Blackwood Falls is a small, struggling industrial town that has seen better days, its economy largely dependent on the (now environmentally questionable) GlobalCorp factory on the edge of town.

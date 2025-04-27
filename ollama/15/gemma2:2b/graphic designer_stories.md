@@ -1,0 +1,7 @@
+The rain hammered against the corrugated iron roof of Elara Thorne's tiny studio apartment like it was trying to drown out the city.  Elara ran a tired hand through her auburn hair, the streaks of gray showing where they shouldn't have for someone only in their late twenties. The flickering light from her computer screen cast long, dancing shadows across the walls plastered with posters of iconic design and vintage ad campaigns. 
+
+It was midnight, almost time to take the next batch of clients’ emails – a necessary evil that felt a million miles away from Elara's heart: designing a logo for a sustainable food truck named "The Green Giant." The client, a well-meaning but oblivious eco-warrior named Mr. Jenkins had insisted on an organic carrot image instead of even the most basic and beautiful minimalist font. Elara was beginning to wonder if she should ask him to take out his own garbage first. 
+
+Outside, the city hummed with a restless energy, fueled by the rush hour commute and the constant cycle of life and death in neon-lit streets. Inside, though, Elara felt trapped. Stuck between the relentless demands of her profession and the stifling weight of unfulfilled dreams.  Maybe that's why she was staring out the window, lost in a sea of gray concrete, hoping for a storm to wash away the monotony, or at least, a little inspiration.  
+
+Tonight, Elara realized with a sudden pang of fear, she didn't have an ounce of either. 

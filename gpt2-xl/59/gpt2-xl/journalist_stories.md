@@ -1,0 +1,7 @@
+Once upon a time, there was a journalist named Eric Trump. He was a good kid, a good, clean boy, in every way. He loved to play baseball and he loved to be in the kitchen, cooking and preparing dinner. But his father, a real estate developer, had taken him to one too many parties and it had led to a problem. And so, Eric Trump had decided that he needed to get out of his father's life as much as he could.
+
+So he did what real estate developers do. He started working at the Trump Organization…and he couldn't have been happier. It was the best job in the world. Eric had made it his business to clean up Mr. Trump's messes. He had helped him buy properties, improve them, convert them from dilapidated to shining examples of hard work. He had even, once upon a time, worked with Mr. Trump to build a new golf course in Scotland.
+
+But, Eric Trump was not the only one enjoying the benefits of his father's celebrity. Soon, other members of the Trump family—and it quickly expanded—were working for his company and enjoying the benefits that came with such close and consistent contact with the man who was so influential in their lives.
+
+The New Yorker story tells of the case of Marla Maples, Trump's daughter from his first marriage. She was a real estate agent for the Trump Organization, working with a young, young Trump to

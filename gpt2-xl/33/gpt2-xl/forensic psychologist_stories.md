@@ -1,0 +1,7 @@
+Once upon a time, there was a forensic psychologist named Dr. Arthur G. Thomas. He worked in the Atlanta and Virginia hospitals of the American Psychological Association, and when his superiors learned of his close, close association with Dr. Robert Hare, the editor of a book on serial killers, Thomas was removed from his job. (Thomas had done so much good work for a long time that the authorities saw his removal as a punishment. This is true in any field, and it appears true in psychology, as I wrote three years ago.)
+
+Now Thomas has published a book about his experience, which in my opinion is an incredibly important read.
+
+[NOTE FROM TONY: It is still available for purchase here.]
+
+Dr. Arthur G. Thomas, a forensic psychologist and professor of psychology at Emory University in Atlanta, has written This Monster's Eye: A Clinical Psychology Survivor of the False memory Syndrome reveals how he was forced out of medical school and had his book suppressed by the American Psychological Association and the US Senate Subcommittee on Health and the Law because they feared it would cause others to falsely confess and incriminate themselves. This story is the story of one man's battle to keep what he knew from being hidden from the rest of the world. Dr. Thomas received a letter from a patient who had been falsely accused of sexually abusing his daughter, threatening his life. However, on further investigation Dr. Thomas found that the patient had only confessed to having sexual intercourse with his daughter

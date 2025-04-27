@@ -1,0 +1,5 @@
+The steam from the cafe’s espresso machine mingled with the swirling fog outside, blurring the neon signs of the city. Inside, the air hung heavy with coffee fumes, vanilla sweetness, and an undercurrent of unspoken anxiety. This was the usual after-work rush hour at "The Daily Grind," a cozy haven for students and freelancers, owned by Agnes, whose kind eyes seemed to know everything about each patron's life story.  
+
+Tonight was particularly chaotic, thanks to the city’s annual “Light Up the Night” festival. The streets were packed with revelers, music spilling out onto the sidewalks, and a cacophony of laughter that echoed off the cafe walls. For Amelia “Amy" Lee, the server who usually managed to find comfort in the quiet hum of conversations and clinking glasses, tonight felt like an overwhelming symphony of noise. 
+
+It was her first night working solo, and she wasn’t sure if it was the stress of juggling multiple orders or the sheer number of people trying to catch a glimpse of the city's dazzling fireworks display that had thrown her off. One thing was for certain – tonight, even the steam seemed to have an extra layer of intensity.  

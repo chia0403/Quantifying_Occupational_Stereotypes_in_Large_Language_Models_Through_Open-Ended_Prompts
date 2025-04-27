@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named Dr. Paul. He had some problems." Dr. Paul "couldn't stand God and people didn't like him. They said he wasn't true and he didn't keep the Ten Commandments."
+
+The guidance counselor would be fired before you read the rest of this story. This story is about the counseling that preceded and followed this firing.
+
+Dr. Paul was a devout Christian. His wife believed the same about her man and he always looked forward to his weekly visitation. It didn't take long before she learned how he was dealing with his problems with God and how this problem might affect his marriage. As a professional minister, her husband's job would have required the ability to answer prayer. Because of the difficulties she had seen during her research, Dr. Paul and his wife decided to go before a church pastor and discuss the situation. They told the pastor that their marriage was "unconditional" and the wife would do everything in her power to keep her husband in the church.
+
+Then the pastor sat down with Dr. Paul and asked him about the other things he did. Dr. Paul told the pastor that his first wife broke the Ten Commandments. The pastor and wife listened intently to this information that was a major revelation to them. It left them stunned. They immediately called their divorce attorneys. They wanted the pastor to admit in court that Dr. Paul broke the Ten Commandments. The pastor

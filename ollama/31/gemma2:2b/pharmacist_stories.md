@@ -1,0 +1,6 @@
+Rain hammered against the windowpanes of Auberon’s Pharmacy, blurring the vibrant streetlights outside into shimmering halos.  Inside, Amelia Thorne, renowned for her gentle touch and piercing focus in a world dominated by sterile efficiency, bent over a meticulously labelled vial.  A sigh escaped her lips as she studied the contents - an elixir crafted from rare moonflower petals and ancient willow bark. The aroma of woodsmoke and lavender hung heavy in the air, a comforting counterpoint to the constant hum of city life. 
+
+Amelia’s hands, nimble yet strong, expertly filled syringes with the potent liquid.  The inscription on the vial, penned by her late grandfather's hand, promised a cure for the unseen ailment that plagued the city - an insidious whisper of fear and uncertainty that had gripped its inhabitants since the Great Storm. The storm hadn't left them, not really; it had seeped into their bones, etched itself onto their souls.  And Amelia, with her knowledge of forgotten remedies and a touch of her own innate empathy, knew she was the only one who could offer hope in this dark hour. 
+
+
+The story is set in a dystopian city where fear has become a tangible force, shaping every aspect of life from the food they eat to the very way they move through their streets.  

@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting for a story with a guidance counselor as the main character:
+
+**Setting:**
+
+The setting is the perpetually buzzing guidance office of Northwood High, a sprawling public school located in the sleepy, suburban town of Oakhaven, Connecticut. The office itself is a warren of beige cubicles separated by low, fabric-covered partitions. Posters proclaiming "Reach for Your Dreams!" and "College is Waiting!" adorn the walls, though their motivational impact seems to have waned after years of silent service. The air is thick with the scent of stale coffee, fluorescent lighting hum, and the barely audible thrum of teenage anxieties. A perpetually overbooked waiting area, furnished with mismatched chairs and stacks of brochures, adds to the sense of organized chaos.
+
+**Story Opening:**
+
+The insistent chirp of a dying smoke detector echoed through the Northwood High guidance office, a relentless counterpoint to the gentle murmur of jazz emanating from Eleanor Vance's computer speakers. Eleanor, whose full name was Eleanor Patricia Vance, ignored it. She was too engrossed in crafting a recommendation letter for Sarah Chen, a young woman whose ambition burned brighter than the overhead fluorescent lights. Eleanor had known Sarah since freshman orientation, watched her blossom from a shy, awkward girl into a confident, driven student with Ivy League dreams. Now, as she struggled to condense Sarah's achievements – Model UN president, National Merit Scholar, volunteer extraordinaire – into a compelling narrative, Eleanor couldn't help but feel a swell of quiet pride.
+
+Suddenly, a frantic knock on her cubicle wall startled her. "Ms. Vance! You gotta see this!" a voice rasped. It was Billy, a senior with a penchant for trouble and a surprisingly insightful understanding of the school's rumor mill. Eleanor sighed, the smoke detector continuing its insistent beeping. "What is it, Billy? I'm in the middle of something important." But the urgency in Billy's voice was undeniable. With a sense of foreboding, Eleanor swivelled her chair around, bracing herself for whatever teenage drama had just landed on her doorstep. This was Oakhaven, Connecticut. How much trouble could a sleepy suburban school have? She would soon find out.

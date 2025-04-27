@@ -1,0 +1,7 @@
+Once upon a time, there was a electrician named David. After a few months of saving up money on one of every single appliance he could, he decided to take a vacation home in Florida. It was called the "Disneyland of Homes". As he toured the place looking for something to entertain himself, he came across this place. For the most part, the home was completely empty, but that didn't matter. It was an amazing experience for him. He loved the decor, the ambience, and the people. He would spend an entire day or more here.
+
+One day, while he was in the bathroom, everything went dark. Just like David has spent hours of leisure time here. As a result from a small explosion, David ended up on a life sustaining level that he has never seen before. Even with the amount of electricity in his body, and that of every single electricity user in the state of Florida, it was nothing compared to what happened to him. After he passed out, he slowly went into a coma and awoke to a totally normal life.
+
+What Is An Electro-encephalograph?
+
+It's a thing that you can buy at any place. We see this one in the movies. The "Electroscope" does what it says. It measures the "voltage in your brain". Now, as you can see from the picture, this is not exactly the best way to be able to assess the levels. They are not

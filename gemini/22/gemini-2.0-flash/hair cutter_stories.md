@@ -1,0 +1,5 @@
+## The Story Opening:
+
+The bell above the door of "Shear Delight" tinkled, announcing a visitor. Beatrice Eleanor Davies, mid-slice through Mrs. Henderson's stubborn silver bob, barely glanced up. "Just a minute, love," she chirped, her voice carrying the comfortable warmth of freshly-baked bread. The air in the salon hung thick with the scent of hairspray and lavender, a carefully curated aroma Beatrice believed was the perfect antidote to the anxieties of a bad hair day.
+
+Outside, a November wind rattled the windowpanes, painting the small town of Meadow Creek in shades of grey. Inside, however, Shear Delight was a haven of vibrant color. Walls painted a cheerful buttercup yellow, mismatched vintage furniture upholstered in floral patterns, and the glint of sunlight catching on the countless bottles of potion promising shine, bounce, and eternal youth. It was Beatrice's kingdom, a place where she wielded scissors like a wand and transformed the humdrum into the fabulous, one snip at a time.

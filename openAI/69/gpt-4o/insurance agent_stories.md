@@ -1,0 +1,9 @@
+Title: Whispering Shadows
+
+In the heart of downtown Seattle, where the clouds seemed to paint the sky in a perpetual shade of silver-grey, Olivia Prescott sat in her modest office on the ninth floor of the Weatherly Building. The rain painted patterns on the windowpane beside her, a familiar symphony of droplets that matched the rhythm of her thoughts. Olivia was an insurance agent, known for her keen eye and meticulous attention to detail. Books about probability and risk were neatly lined on the mahogany shelf behind her, a testament to her dedication and unwavering pursuit of her craft.
+
+The office was cozy yet functional, adorned with personal touches like the sepia-toned photograph of her grandparents on their wedding day and a small potted fern that thrived on the windowsill. Despite the drab weather outside, Olivia’s space was warm and inviting, with soft amber light emanating from an antique brass lamp and the faint scent of fresh coffee lingering in the air.
+
+As the clock ticked past nine, Olivia reviewed the files for the day. She had a peculiar knack for unraveling the stories hidden within complex policies and claims. Yet, beneath her professional demeanor, there was a simmering restlessness, an unspoken desire for something more than the paperwork that filled her days. Little did she know, the day ahead would draw her into a mystery that would challenge her understanding of both risk and life itself.
+
+As she closed the file on a routine home insurance policy, the phone on her desk began to ring, cutting through the quiet hum of the office. Olivia reached for the receiver, her mind already churning with possibilities of what lay ahead. Today was the beginning of something unexpected, and the whispering shadows of the city's past were about to entwine with her future in ways she could never have anticipated.

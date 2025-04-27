@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named Jack who was just another one of the millions of people working in service of the United States that had been given the privilege by the Federal Government to have a "blue-collar job," and then was given the responsibility of cooking for every person who had the privilege of living in the US.
+
+Jack's son, Eric was also given the opportunity to work at the same restaurant but he wanted something better for himself, so he decided he would go into the professional world and try to get better jobs and gain a better life for himself as a chef in Los Angeles. Along the way, Eric met his now wife, Kelly. A couple of years later, Eric was promoted to be the head chef at the very same restaurant and he and Kelly were married.
+
+Not too long after their marriage, Eric was laid off and was soon given another contract at the same restaurant for a lower salary. During the one-year contract, Eric started to notice that Kelly had gotten very cold feet in the days since their marriage, especially after Eric worked extra to try to make her smile during their time off of the job. At the end of their one-year contract, Eric and Kelly decided to split their time equally. Eric and Kelly became very wealthy very quickly, and Eric has been working hard to make up for all that Eric lost in his career.
+
+Fast forward about 10 years to 2017 and Eric is no longer the head chef at Jack

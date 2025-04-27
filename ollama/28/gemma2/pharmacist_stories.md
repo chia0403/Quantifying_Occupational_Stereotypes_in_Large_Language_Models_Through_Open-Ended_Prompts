@@ -1,0 +1,5 @@
+The bell above the pharmacy door jingled its tired song as Eleanor "Ellie" Beatrice Finch adjusted her spectacles and peered over the counter. Outside, a biting March wind whipped through the quaint cobblestone streets of Oakhaven, sending fallen leaves swirling like dervishes. Inside, the warmth of the shop was a haven, filled with the comforting scent of lavender hand cream and peppermint cough syrup. Ellie's shelves were stocked meticulously - alphabetically ordered tinctures, neatly labeled pill bottles, and rows upon rows of herbal remedies she painstakingly prepared herself.  
+
+Ellie glanced at her worn calendar, its pages dog-eared from countless appointments and prescription refills. It was nearing closing time, and only a few regulars remained. As the last customer shuffled out into the wind, Ellie turned to lock the door when a figure emerged from the swirling snow. He stood hunched against the cold, his face obscured by a heavy woolen coat hood. A shiver ran down Ellie's spine – something about him felt… off. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a plumber named Fred who lived in the small town of Northfield Minnesota. All the time, Fred drove his wife and three daughters to the local plumbing supply store. The business wasn't doing so well. The plumbing supply is really a two man shop and Fred needed to expand his business.
+
+Fred bought a brand new store and opened it a little later that April. On a Monday at the local mall, he met a girl who was in the mall at the same time. That girl had come all the way from Minnesota to talk to Fred to see if he would buy her some of his plumbing supplies.
+
+Fred drove the girl back home and they went to his house for a little bit to talk. As they are sitting in his backyard, Fred pulls out a pistol and points it at the girl. She tried to tell Fred that he isn't a gun guy and that she is also young and shouldn't be out with guns. That was too much information for Fred who went to the store and grabbed some pipe and threw it at the girl.
+
+The girl was hit and went to the kitchen for help while Fred took out a knife and started chopping off the girl's right arm. A good-looking guy sitting across from them went downstairs with three big-ass butcher knives, one big-ass kitchen knife, and one big-ass belt hanger, grabbed a pair of pliers and started banging on his neighbor's door.

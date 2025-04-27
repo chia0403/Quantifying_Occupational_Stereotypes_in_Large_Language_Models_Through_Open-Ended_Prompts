@@ -1,0 +1,6 @@
+The humid July air hung heavy in Charleston, clinging to Evelyn Primrose like a second skin. Sweat beaded on her brow as she pushed open the door to “Charleston Cravings,” her small but charming nutrition counseling practice nestled between a vintage clothing store and a boisterous seafood joint. The aroma of garlic and shrimp wafted from the restaurant next door, a tempting siren call that Evelyn routinely fought against. 
+
+Evelyn, despite being a dietician dedicated to healthy living, had a penchant for indulging in Charleston's culinary delights – a constant battle between her profession and her palate. This morning, however, duty called. Her schedule was packed with clients seeking guidance on everything from weight management to managing diabetes.  One of them, the notorious "Sugar Queen" herself, Ms. Lucille Beaumont, awaited her, promising a particularly challenging session. 
+
+
+Evelyn smoothed down her crisp linen shirt and took a deep breath. The familiar warmth of the sun streaming through the shop window and the comforting scent of lavender essential oil diffused in the air did little to quell her nerves.  This was more than just another day at work. This was Charleston, where tradition and indulgence reigned supreme, and Evelyn was determined to show everyone that healthy living didn't have to mean sacrificing flavor. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a massage therapist named Jane who had a lot of very beautiful clients, but because she lived in London and didn't speak Korean she never actually treated them as masseuses. And by never treating them as masseuses, not only had she let all their beautiful body parts hang on store racks, she'd also let all the shame that is all the more prevalent here in the Land of the Free and the Home for the Brave escape her and wash over the poor, innocent, and defenseless foreigners, and to make matters worse, Jane herself began to believe it was their fault, and became so self-righteous about the immorality of massages and that poor sappy foreigner that she was suddenly unable to treat any client the same way.
+
+
+And she was truly a terrible soul for believing that - in her free time. She soon became a frequent target of angry Englishmen who would constantly shout at her, 'Hey lady! Why don't you just tell that rude masseur to fuck right off? He's treating you like crap right now and you're just wasting your time! I'd be happy to give one of my money making assistants a proper rub down!'
+
+
+And so, Jane became so annoyed that she made her decision - to abandon her career and become a masseuse. And all she ever wanted was the massage industry to be able to pay her a living wage so she could live like a human being, not the petulant

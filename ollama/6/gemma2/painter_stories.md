@@ -1,0 +1,6 @@
+The scent of linseed oil and turpentine hung heavy in Amelia Celeste Harding's studio, a familiar comfort amidst the chaos of her latest project. Sunlight slanted through the dusty skylight, illuminating motes dancing in the air and throwing long shadows across the cluttered canvas-strewn floor. 
+
+Amelia, her brow furrowed in concentration, worked on a massive canvas that dominated one wall.  It depicted a bustling cityscape, rendered in bold strokes of crimson and gold that shimmered under the afternoon sun. But beneath the vibrant surface, Amelia felt a growing sense of unease.  The city seemed to be pulsating with an unseen energy, its buildings straining towards the heavens as if reaching for something beyond their grasp. This wasn't just another cityscape; it was a portrait of her own restless soul. 
+
+
+Amelia adjusted her spectacles and stepped back to assess her work. The brush strokes, usually a source of joy, now felt heavy and uncertain. Her reflection stared back at her from the canvas – a woman with fiery red hair pulled back in a messy bun, eyes that burned with both passion and frustration.  She was caught between the pull of creation and the creeping fear that she was losing control. 

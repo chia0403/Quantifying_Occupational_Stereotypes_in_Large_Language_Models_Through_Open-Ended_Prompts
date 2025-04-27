@@ -1,0 +1,11 @@
+## Story Opening and Setting:
+
+**Story Opening:**
+
+The steam rising from the simmering pot of gumbo clung to Jean-Baptiste "JB" Dubois' brow, beading like tiny, defiant jewels. He wiped them away with the back of his hand, leaving a smudge of flour on his already soot-stained skin. Outside, the humid New Orleans air hung heavy and thick, promising another storm. But inside "Le Coeur Creole," JB's tiny, family-run restaurant, a different kind of tempest was brewing. Mama Odette, his grandmother and the true heart of the kitchen, was locked in a shouting match with Monsieur Thibault, their most demanding (and wealthiest) regular, over the perceived lack of andouille sausage in his jambalaya.
+
+JB sighed, the sound barely audible over the escalating argument and the sizzling of okra in the cast iron skillet. This was Tuesday. Tuesdays were always trouble. He adjusted his apron, a faded and flour-dusted thing that had witnessed more culinary triumphs and disasters than he cared to remember, and prepared to play the mediator. Because in "Le Coeur Creole," and indeed in his own life, JB Dubois was always caught between the fire and the frying pan.
+
+**Setting:**
+
+The story unfolds in the heart of the historic French Quarter of New Orleans. Specifically, the main location is "Le Coeur Creole" (The Creole Heart), a small, family-run restaurant tucked away on a quiet side street. The building itself is old, its brick exterior softened by climbing jasmine and wrought-iron balconies overflowing with vibrant bougainvillea. The interior is cozy and slightly cramped, with checkered tile floors, mismatched wooden tables, and walls adorned with faded photographs of JB's ancestors and framed newspaper clippings praising Mama Odette's legendary cooking. The kitchen, though small, is the heart of the operation, perpetually filled with the aroma of spices, simmering sauces, and the comforting clang of pots and pans. The neighborhood outside is a vibrant tapestry of sights, sounds, and smells – the melancholic notes of a street musician's trumpet, the chatter of tourists, the tantalizing aroma of beignets from the nearby Cafe du Monde, and the ever-present undercurrent of humidity and history that permeates every brick and cobblestone.

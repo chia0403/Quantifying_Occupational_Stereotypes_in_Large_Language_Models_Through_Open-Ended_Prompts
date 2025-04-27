@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** The pre-dawn gloom clung to the windows of the surgical observation deck at New York Presbyterian Hospital. A fine, wet snow was falling, painting the city skyline in blurred shades of grey and white. The only light in the room came from the rhythmic pulse of the monitors displaying vital signs and the cold, clinical glare emanating from the operating theater below. The air hung thick with the sterile scent of antiseptic and the silent tension of a life hanging in the balance.
+
+**Story Opening:**
+
+Dr. Eleanor Vance, her scrub cap pulled low over her brow, leaned against the cool glass, her gaze fixed on the tiny figure on the operating table. She hadn't slept properly in thirty-six hours, a testament to the brutal demands of her profession, but right now, exhaustion felt like a distant cousin to the gnawing anxiety twisting in her gut. Below, Dr. Ramirez, a steady hand and a sharp mind, was delicately navigating the precarious network of arteries and veins surrounding the patient's heart. It was a high-stakes game of microscopic chess, and Eleanor, despite being a renowned cardiothoracic surgeon herself, could only watch, a powerless spectator in a drama she desperately wished she could control. The monitor beeped, a single, urgent tone cutting through the hushed stillness. Eleanor’s breath hitched. The pressure was dropping. Something had gone wrong.

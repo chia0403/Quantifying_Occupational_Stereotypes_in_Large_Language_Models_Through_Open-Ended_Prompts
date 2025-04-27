@@ -1,0 +1,9 @@
+## Story Opening and Setting
+
+**Setting:** The blistering August heat hammered down on Harmony, Indiana, turning the air thick and shimmering above the sleepy town square. Sweat beaded on the sun-baked brick facades of the antique shops and the town's only diner, "Mamie's Muffins," where the aroma of frying bacon battled with the oppressive heat. The sky, a relentless shade of blue, offered no respite.
+
+**Story Opening:**
+
+The familiar clang of hammer against shingle echoed through the stagnant air, a rhythmic counterpoint to the chirping cicadas. Bartholomew "Bart" Finnegan, perched precariously on the roof of the old Harmony Historical Society building, wiped a grubby forearm across his brow, leaving a streak of dust in its wake. He squinted, his eyes, the color of faded denim, tracing the shimmering heat waves rising from the black asphalt below. He’d been at this since six, trying to beat the worst of the day’s sun, but it was no use. It felt like the sun was personally determined to turn him into beef jerky.
+
+He cursed under his breath, spat a wad of chewing tobacco into the gutter, and reached for another shingle. This roof was a real pain in the backside, riddled with rot and decay hidden beneath layers of moss and lichen. He suspected that the Historical Society, with their paltry budget and their obsession with preserving the past, were hoping the roof would simply collapse before they had to pay someone to fix it. Well, Bart Finnegan wasn't about to let that happen. He had bills to pay, a daughter to feed, and a stubborn pride that wouldn't let him walk away from a job, no matter how miserable it was. Besides, there was something about the history nestled in the old rafters that he couldn’t quite put his finger on. Something that kept him hammering away, even as the sun threatened to melt him into the shingles.

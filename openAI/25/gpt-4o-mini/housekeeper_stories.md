@@ -1,0 +1,13 @@
+Title: *Echoes of the Past*
+
+Setting: Willow Grove Manor, an old Victorian estate perched on a hill overlooking a small coastal town. The manor is framed by wildflower gardens and surrounded by towering, overgrown trees that have seen better days. Inside, the grand hall features high ceilings adorned with intricate plasterwork and a sweeping staircase that creaks underfoot. The air is thick with the scent of polished wood, faded floral wallpaper, and a hint of something forgotten, as if the house itself holds memories in its walls.
+
+---
+
+Lillian Mae Montgomery stood at the threshold of the grand parlor, the morning sun filtering through the dusty panes of stained glass and casting colorful patterns on the intricate Persian rug beneath her feet. With her hands clasped firmly around a worn feather duster, she took a moment to gather her thoughts, a habit she had developed over her ten years as the housekeeper of Willow Grove Manor. Outside, a brisk sea breeze whispered through the open window, ruffling the lace curtains and carrying with it the faint sound of waves crashing against the rocky coastline below.
+
+The manor, with its peeling paint and once-gleaming chandeliers now dulled with age, held stories in every crevice. Lillian had always felt a connection to the house, as though it whispered its secrets to her while she polished the furniture and dusted the ornate shelves lined with porcelain figurines and leather-bound books. She had learned to listen closely, for there was a rhythm to the manor—a heartbeat that resonated through its halls and echoed in the silence between each chore.
+
+Today, however, felt different. A sense of unease hung in the air, and Lillian could not shake the feeling that something was about to change. With a determined breath, she stepped further into the room, her eyes falling on the faded portrait of Miss Evelyn Blythe, the last of the manor's original owners, which loomed over the fireplace like a watchful guardian. Lillian sighed, remembering the stories of Miss Blythe's tragic life, and wondered what it meant for her own place within the aged walls of Willow Grove.
+
+As she approached the fireplace to dust the mantel, she caught sight of a glimmering object half-hidden among the cobwebs that clung to the shadows. Curiosity ignited within her, and she leaned closer to investigate, unaware that today would unravel the tightly woven tapestry of her life intertwined with the manor—and perhaps even unearth secrets long buried beneath its floorboards.

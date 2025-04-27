@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named George Washington Carver who had lived for years with, among other things, a slave named Moses Carver. Carver's son, George Washington Carver III, is a physician in the Washington D.C. area who, as part of his research into how to alleviate the suffering of poor people, took up the work his father began. Carver was in his late fifties when he first embarked on his life-long study of food stamp recipients.
+
+George Washington Carver III is now 66. Carver died in 2013, at the age of 86. Although Carver's original findings are still valuable, as I learned after attending the inaugural meeting of the Georgetown Community Food Bank last night, he has an unfortunate legacy that many of their members still grapple with today.
+
+His name is George Carver, but today he is known by The Man Who Kept Poor People Down.
+
+In recent years, Carver has been viewed in the same light as other prominent economists who have made big scientific breakthroughs, most famously the Nobel prize winning economists David Ricardo and Robert Walpole, and John Maynard Keynes, who died a few months before Carver in 1940. Carver became a bit of a celebrity, known for his "giant experiment:" every month, Carver would stop by local Salvation Army soup kitchens to collect information on their members' food habits. He was also very well funded, working on his

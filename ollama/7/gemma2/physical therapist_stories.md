@@ -1,0 +1,6 @@
+The air hung heavy with the scent of antiseptic and liniment in Amelia Beatrice Croft's small office. Sunlight slanted through dusty windows, illuminating motes dancing in the stillness. Outside, the familiar symphony of San Francisco - car horns, seagulls squawking, distant sirens - provided a comforting backdrop to her work.  Amelia sighed, stretching her own aching shoulders. Another long day at "Second Chance Physical Therapy" was coming to a close. 
+
+Her practice wasn't fancy, tucked away in a converted Victorian on a quiet street near Golden Gate Park. But it was hers.  She'd poured her heart and soul into transforming the worn-down space into a haven for healing, with its calming blue walls, soft lighting, and carefully curated collection of plants that breathed life into the room. 
+
+
+Tonight, though, Amelia wasn't focused on the comforting familiarity of her space. A knot of tension tightened in her stomach as she glanced at the last appointment on her schedule: a young woman named Lily Reyes, referred by the local high school athletic director.  Lily was an accomplished runner, sidelined by a devastating knee injury just weeks before the state championships. Amelia knew this case wouldn't be easy.  The weight of Lily's dreams and the pressure to deliver rested heavily on her shoulders.

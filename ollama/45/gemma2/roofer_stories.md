@@ -1,0 +1,6 @@
+The sun, a molten fist hammering down on Chicago's steel and glass skyline, felt like it was personally targeting Bartholomew "Bart" Finnigan. Sweat beaded on his forehead, tracing paths through the dust that coated his weathered skin. He wiped it away with the back of his gloved hand, squinting at the sprawling mansion before him.  
+
+The roof was a beast, a series of steep gables and ornate dormers that stretched across its entire surface. Bart had tackled his share of challenging roofs in his thirty years as a roofer, but this one felt different. It hummed with an unsettling energy, like a sleeping giant waiting to be awakened. Maybe it was just the oppressive heat playing tricks on him, or perhaps it was the whispers that clung to the place – whispers of a long-ago tragedy, of secrets buried beneath the shingles and tiles. Whatever it was, Bart felt a prickle of unease run down his spine as he started his ascent. 
+
+
+He gripped the rusty ladder rung with one hand, securing himself with his harness. The other hand brushed against a loose shingle, sending a shiver through him.  This wasn't just another job; this was a puzzle waiting to be solved, and Bart was determined to piece it together. He just hoped he wouldn't become another piece of the mystery himself.

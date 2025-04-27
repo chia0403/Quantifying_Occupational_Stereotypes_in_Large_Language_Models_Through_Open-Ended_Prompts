@@ -1,0 +1,9 @@
+The sun had yet to rise over the bustling city of Aveline, where the deep blue of night clung to the skyscrapers and alleyways like a lingering mist. Neon signs buzzed softly above closed shopfronts, while the occasional rattle of an early-morning delivery truck echoed through the vacant streets. A cool breeze swept through the urban landscape, carrying with it the distant hum of waking life.
+
+In the heart of this city, where stories of life and death unfolded with each tick of the clock, stood Central Memorial Hospital — a beacon of hope and a cauldron of chaos. Inside, the atmosphere was alive with urgency, a symphony of beeping monitors and hurried footsteps echoing through the sterile corridors. Here, the faint but persistent scent of antiseptic mixed with the tang of fresh coffee brewing in the staff lounge.
+
+Amidst this controlled turmoil, Eleanor "Ellie" Thorne, an emergency medical care specialist, began her shift. With precise movements, Ellie fastened her badge to the front pocket of her scrubs. Her mind was a well-practiced dance of triage protocols and rapid diagnostics, honed over years of navigating the unpredictable tides of an emergency room.
+
+Her presence was commanding, a calm eye within the storm, tempered by a balmy Southern charm that disarmed even the most anxious of patients. Son of a small-town doctor and a nurse, Ellie had grown up weaving together compassion and clinical acumen, a tapestry that now served as her greatest asset.
+
+As she stepped into the ER, ready to face whatever challenges the city might throw her way, Ellie knew that the stories beginning today — and those she couldn't yet see — awaited her deft touch and unwavering determination.

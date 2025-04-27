@@ -1,0 +1,6 @@
+The smell of antiseptic and lavender hand soap hung heavy in the air, a familiar comfort to Amelia Beatrice Hawthorne. She adjusted her blue scrubs, smoothing out a wrinkle with practiced ease, before taking a deep breath and stepping into the brightly lit room. Sunlight streamed through the large window, casting a warm glow on the gym equipment arranged neatly against one wall. This was her domain: The Rehabilitation Room at St. Michael's Hospital, where Amelia helped rebuild lives, one aching joint, one wobbly step at a time. 
+
+Amelia’s current patient, Mr. Henry Caldwell, a man once renowned for his marathon times, now struggled to even stand without wincing. A recent fall had shattered his hip, leaving him vulnerable and frustrated. But Amelia knew better than anyone that the human body was resilient. It just needed a little guidance, a lot of patience, and maybe, just maybe, a sprinkle of her signature determination. 
+
+
+The whirring of the treadmill in the corner filled the silence as Amelia prepared for their morning session, a symphony of healing sounds she'd come to cherish. This wasn't just a job for Amelia; it was her calling, a way to make a real difference in people's lives, one painful step at a time. 

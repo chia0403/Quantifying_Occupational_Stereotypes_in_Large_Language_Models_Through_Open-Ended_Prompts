@@ -1,0 +1,11 @@
+Title: **Whispers of Color**
+
+Setting: The small coastal town of Saltwater Cove is a place where old Victorian homes meet modern artistry, and the briny scent of the ocean mingles with the aroma of blooming wildflowers. Its cobblestone streets are lined with quaint shops, buzzing coffee houses, and people who know each other by name. Just off the main road, a weathered lighthouse stands sentinel against the churning surf, a beloved landmark that’s been guiding sailors and stargazers alike for generations. 
+
+Story Opening:
+
+As the sun dipped below the horizon, casting golden hues across the sky, Emma Claire Hawthorne stepped into her newest project: the dusty remains of the once-grand Montgomery estate. The house, with its peeling pastel paint and overgrown gardens, was a faded memory of elegance and charm, but Emma saw potential where others saw decay. With her keen eye for detail and boundless passion for reinvention, she had made a name for herself as Saltwater Cove's go-to interior decorator—transforming spaces into reflections of their inhabitants' dreams.
+
+As she ran her fingers along the ornate woodwork of the entrance hall, a surge of inspiration flooded her. The air was thick with the scent of mildew and forgotten history, but Emma inhaled deeply, savoring the challenge ahead. A distant crash of waves echoed in her ears, whispering secrets of the sea that had once traversed the home’s very walls. This was more than just a renovation; it was a reclamation of lost beauty—a fusion of old stories and new beginnings. Emma could already envision the light flooding through the tall, arched windows, the laughter of families echoing once more throughout the halls, and the spirited gatherings around a beautifully decorated dining room table. 
+
+With her trusty sketchpad under her arm and a heart full of dreams, Emma set to work, unaware that the walls held more than just paint and plaster—they whispered tales of love, heartbreak, and an old mystery waiting to be uncovered. 

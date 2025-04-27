@@ -1,0 +1,6 @@
+The air in Mr. Caldwell’s office was thick with cigar smoke and simmering resentment.  Eleanor Beatrice Cartwright, or Ellie as everyone called her (except Mr. Caldwell, who maintained an air of stuffy formality), smoothed down the wrinkles in his schedule for the hundredth time that morning. He hadn't been happy about the cancellation of his golf game due to the unexpected storm. He hadn't been happy about the misplaced files either, or the fact that he was out of his favorite brand of cigarettes. Ellie wasn't sure what would set him off next, but she knew it wouldn't be long.
+
+The setting: A small, cramped office overlooking a bustling city street in 1947 Chicago.  Rain lashed against the windows, blurring the neon signs and storefronts below. The air inside was stuffy and smelled of stale cigarettes and burnt coffee. Mr. Caldwell’s mahogany desk, polished to a high shine, was littered with papers, empty ashtrays, and half-eaten sandwiches. 
+
+
+Ellie sat at her own smaller desk, trying to focus on the seemingly endless stack of letters piled before her. But every time the phone rang, or Mr. Caldwell barked an order, she felt the tension in the room tightening like a drumhead about to burst.  This was just another Tuesday morning in the office of Mr. Archibald Caldwell, and Ellie knew it was going to be a long one. 

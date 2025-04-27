@@ -1,0 +1,11 @@
+## Story Opening:
+
+The aroma of stale coffee and suspiciously cheerful hand sanitizer was, as always, the first greeting Ms. Eleanor Penelope Ainsworth received each Monday morning. She took a deep breath, the scent clinging to the familiar knot of anxiety in her chest. Another week. Another five days navigating the boisterous minefield of nine-year-old emotions, the endless curriculum updates, and the ever-present fear of a rogue glitter bomb exploding somewhere within the walls. Today felt particularly daunting. Mrs. Higgins, the school secretary, had warned her the first thing this morning: "Brace yourself, Ellie. Full moon."
+
+Eleanor offered Mrs. Higgins a weak smile, a practiced maneuver designed to mask the growing tremor in her hand as she reached for her classroom key. She knew "full moon" was code for anything from a sudden influx of head lice to a synchronized chorus of coughing fits erupting during silent reading time. God help her if it meant both.
+
+## Setting:
+
+The story is primarily set within **Room 203 of Willow Creek Elementary School, a modest, brick building nestled in the sleepy, suburban town of Oak Haven, Pennsylvania.** Room 203 itself is a vibrant, albeit slightly chaotic, space. Sunlight streams (or attempts to, depending on the perpetually overcast weather) through large, paned windows overlooking the school's sprawling, albeit frequently muddy, playground.
+
+The walls are a riot of color: posters of the solar system compete for attention with student artwork showcasing lopsided dinosaurs and portraits of suspiciously green-skinned families. There's a "Reading Nook" in the corner, overflowing with brightly colored cushions and dog-eared chapter books, a "Math Marvels" bulletin board displaying the class's latest triumphs in times tables, and a whiteboard perpetually covered in equations, spelling words, and hastily drawn motivational slogans courtesy of Ms. Ainsworth. The desks are arranged in small clusters, encouraging collaboration (and the occasional whispered secret). A dusty, neglected gerbil cage sits in the back corner, a silent testament to a long-lost science project. The room, in essence, is a microcosm of the energy, creativity, and occasional chaos that defines Eleanor's daily life.

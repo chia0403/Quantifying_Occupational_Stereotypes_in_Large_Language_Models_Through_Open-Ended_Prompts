@@ -1,0 +1,7 @@
+## The Fade and the Fog 
+
+**Setting:**  The year is 1934. San Francisco’s fog hangs heavy over Lombard Street, clinging to its crooked buildings like breath on cold stone. The city buzzes with a restless energy; jazz wails from hidden speakeasies, sailors return home with stories of faraway shores and the scent of freedom hangs thick in the air. 
+
+**Main Character:**  Elias Thorne, "Eli" to those who knew him well, runs his family-owned barbershop on the corner of Lombard and Taylor Street. The shop's worn wooden sign creaks gently above the door, its brass lettering dulled by time and the sea spray from nearby waves. For years, Eli had been the trusted confidant of every sailor, dock worker, and bohemian artist in the city. 
+
+**Opening:**  A plume of grey smoke curled from the chimney above the shop's entrance as Eli stared out at the fog rolling over the Bay. He ran a calloused hand through his thick brown hair, a faint smile playing on his lips as he thought about a particularly sharp-witted sailor who'd come in for a trim. "He asked me what it meant to be 'shipwrecked,' said he'd rather be that than sell shoes," Eli remembered with a chuckle. The old man had been one of the last survivors from a long line of seafarers, his stories filled with adventure and heartbreak. As Eli watched the fog roll in, the memory of him faded like smoke itself, replaced by an unease. He knew there was something different about the air today; a quiet tension that hummed beneath the city's usual cacophony. 

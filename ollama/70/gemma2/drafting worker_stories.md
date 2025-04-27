@@ -1,0 +1,6 @@
+The air in the drafting room hung thick with the smell of stale coffee and graphite dust. Eleanor Cartwright hunched over her drafting table, brow furrowed in concentration as she meticulously laid out lines for the new industrial complex. Outside, the sun was setting, casting long shadows across the bustling city of New Albion. Its skyline, a jagged silhouette against the fiery sky, pulsed with activity – a symphony of clanging metal and rumbling machinery. 
+
+Eleanor, however, found solace in the quiet precision of her work. Each line she drew, each curve she measured, represented a piece of the future, a blueprint for progress. Her world was one of blueprints and steel, of angles and dimensions, a stark contrast to the vibrant chaos that unfolded beyond the glass walls of the drafting room. 
+
+
+But today, something felt different. A gnawing unease twisted in her gut, a discordant note in the familiar hum of industry.  Perhaps it was the news report she’d caught earlier about labor unrest at the nearby factory, or maybe it was the shadow that seemed to linger just beyond the corner of her eye, always watching but never fully coming into view. Whatever it was, Eleanor couldn't shake the feeling that something was amiss, that the meticulously crafted world she knew was on the verge of unraveling. 

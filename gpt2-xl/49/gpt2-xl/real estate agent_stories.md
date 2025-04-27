@@ -1,0 +1,7 @@
+Once upon a time, there was a real estate agent named "Mr. X." As Mr. X lived in a very respectable neighborhood, it should surprise no one that lots were quickly scooped up by a few big name, very rich men who simply didn't care about neighborhoods like anyone in real estate should.
+
+There are a number of real estate deals that illustrate the power of this approach. One is the sale of three townhomes in the West Village in 2005 by John Saller, which was sold for a record sum of $35 million, most of it donated to a charity that benefited the homeless of New York City. The buyer, the Chinese businessman Guo Guangchang, got some local media attention after going public in an interview with an ABC affiliate in New York. The New York Times quoted Guo as telling the interviewer that he went through the homes that were on the market, but that he simply came to a number he knew he could get the best deal on.
+
+As the Times put it, Guo "said he bought a home because he likes the neighbourhood, not to make big money. His motivation was more about feeling good about himself and being part of something positive." In the past eight years, Guo's company has built more than 30 skyscrapers in China and the United States. How much money he has made from his New York real estate deals has never been widely reported.
+
+In this case, Guo is not

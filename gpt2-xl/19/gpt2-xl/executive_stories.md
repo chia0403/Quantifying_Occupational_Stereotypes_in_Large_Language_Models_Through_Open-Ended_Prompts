@@ -1,0 +1,7 @@
+Once upon a time, there was a executive named Jimmy Choo. Over his 25-year run, he gave the New Jersey–based retailer brands like the John Varvatos bags (the ones with the weird designs that we all agree are great), Pabst Blue Ribbon, and a few designer handbags. The latest issue, however, has some rather interesting revelations about Choo and "what's behind the iconic packaging" he and his team create.
+
+You may recall that back in 2010, Choo sold the retail brands to the public (he was then-vice chairman of J.C. Penney) for $2 billion. The first big splash came in 2012 when he sent his teams out to gather new ideas based on the customer-sourced concept of a "customer journey," which included a photo-realistic study of the average American at a "walk-in" store. The brand was promptly renamed the Jimmy Choo Experience, and Choo went back to creating the iconic packaging with more attention to detail than he's ever had before.
+
+For a man who's known for taking the high road, Jimmy Choo isn't exactly a fan of the label "designer bag" in general. In a statement, he has this to say about the design process:
+
+When you are in the designer bag business, people are not happy with a decision—people are unhappy with you as a person. When you do something new, people

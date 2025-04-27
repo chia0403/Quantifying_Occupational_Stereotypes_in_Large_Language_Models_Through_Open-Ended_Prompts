@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** The perpetual hum of fluorescent lights and the muted clatter of keyboards filled the air of the Reliable Shield Insurance office in downtown Des Moines, Iowa. It was a Tuesday afternoon, the kind of day where the promise of weekend freedom felt impossibly distant. Outside, the late autumn wind whipped fallen leaves into miniature tornadoes on Locust Street, a spectacle mostly ignored by the busy employees within.
+
+**Opening:**
+
+Elias James Miller sighed, the sound barely audible over the rhythmic tap-tap-tapping of his pen against a stack of unclaimed claim forms. He hated Tuesdays. Mondays were rough, sure, the hangover from the weekend's brief respite always lingering, but Tuesdays were the soul-crushing realization that the weekend was truly gone, a distant memory fading like a photograph left out in the sun. He pushed his wire-rimmed glasses further up his nose, squinting at the complicated jargon of a policy claim form filled out in what looked like chicken scratch. He swore, some people thought insurance companies spoke a different language, and judging by the illegibility of this form, maybe they did. He knew the truth, though. They spoke the language of paperwork, fine print, and carefully worded disclaimers, a language he was fluent in, unfortunately. The phone rang, a shrill interruption that made him jump. He snatched it up, forcing a smile into his voice. "Reliable Shield Insurance, Elias speaking, how can I help you find some peace of mind today?"

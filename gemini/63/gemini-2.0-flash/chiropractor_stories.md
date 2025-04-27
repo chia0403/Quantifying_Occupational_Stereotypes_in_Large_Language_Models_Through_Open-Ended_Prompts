@@ -1,0 +1,7 @@
+## Opening:
+
+The fluorescent lights of the office hummed a monotonous tune, a soundtrack to Dr. Amelia Grace Hawthorne's growing dread. A persistent knot had lodged itself between her shoulder blades, a sympathetic mimic of the tension she sensed in her patients. Normally, the gentle rhythm of her manipulations, the satisfying clicks and pops of vertebrae falling back into alignment, soothed her as much as her clients. But tonight, the weight of a new appointment sat heavy on her chest, like a misplaced bone pressing against her lung.
+
+## Setting:
+
+Dr. Amelia Grace Hawthorne's practice, "The Hawthorne Clinic," was nestled in a converted Victorian house on a quiet, tree-lined street in the historic district of Asheville, North Carolina. The building, painted a comforting shade of sage green, radiated an aura of calm despite its age. Inside, the waiting room was furnished with plush armchairs upholstered in floral patterns, mismatched rugs, and a crackling fireplace (gas-fueled, for convenience's sake). Sunlight streamed through stained-glass windows, casting kaleidoscopic patterns on the hardwood floors. The scent of lavender and eucalyptus, diffused through a sleek, modern aromatherapy diffuser, hung in the air, a delicate attempt to mask the sharper, more clinical aroma of liniment and rubbing alcohol that inevitably lingered from the examination rooms. Amelia had consciously curated this space to be a haven, a place where people could feel safe and relaxed before entrusting their bodies to her care.

@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+The sun had barely cracked the horizon over the small town of Willow Creek, casting a warm orange glow over the quaint streets and shops that lined Main Street. Inside "Snips & Styles" salon, 27-year-old Alexis Renee Thompson was already elbow-deep in a tangled mess of curly brown hair. The scent of hot oil and hairspray wafted through the air as she expertly worked to unravel the knots, her fingers moving deftly as she chatted with regular client Rachel Jenkins about her upcoming wedding.
+
+Alexis had taken over the salon from her mother when she retired a few years ago, and it had been a dream come true for the young hairstylist. She loved nothing more than making people feel confident and beautiful with a fresh new 'do, and Willow Creek was a small enough town that everyone knew everyone - and Alexis knew exactly how to make each of them look their best.
+
+But as she worked on Rachel's hair, Alexis couldn't shake the feeling that something was off. The phone hadn't stopped ringing all morning, and every call seemed to be from an unknown number or some stranger who claimed to know her by name. She had tried to brush it off as nerves - after all, it was almost opening day for her new summer menu, and she wanted everything to be perfect - but the feeling persisted, like a nagging itch at the base of her neck.
+
+As she finished up Rachel's appointment and handed her over to her assistant for the next client, Alexis took a deep breath and tried to push the unease aside. It was time to focus on the good stuff: new haircuts, happy customers, and a fresh start to the summer season. Little did she know, however, that this would be the last thing on her mind for weeks to come...

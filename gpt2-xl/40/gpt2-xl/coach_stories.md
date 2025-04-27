@@ -1,0 +1,7 @@
+Once upon a time, there was a coach named Bill Caudill. He had an idea. He said he would run the NFL one day. Now, that was more a matter of if he would be successful than if he would be able to do it. After all, all he had to do was sit around for a month and work.
+
+Bill Caudill was a brilliant man. With that said, he wasn't exactly a bright guy either. When Caudill became the head coach of the Chicago Bears, he did not get a lot of coaching experience. When he took on the team, he started with the same players he had won the Super Bowl with in the 1960's, and didn't have any good players he could recruit.
+
+Caudill eventually recruited the likes of Jim Brown, Mike Singletary, Jim McMahon and Ronnie Lott. He added more talent to his roster by turning several veterans around and making some of those players teammates: Joe Washington, John Hannah, Joe Robbie, Steve McMichael and others.
+
+Caudill won the first of his seven Super Bowls while playing for the Bears, beating the Dallas Cowboys in four plays. It wasn't long after the championship game that his wife died. Caudill had just learned that his wife had been diagnosed with cancer in her spine. At the age of 38, Caudill decided to quit the game to give his family more time to cope with his loss. From that

@@ -1,0 +1,6 @@
+The humid Miami air clung to Amelia "Amy" Beatrice Flores like a second skin as she navigated the bustling streets.  Palm trees swayed lazily in the breeze, their fronds rustling against the backdrop of honking taxis and chattering tourists. Sunlight glinted off the turquoise waters of Biscayne Bay, but Amy barely noticed. Her focus was on the crumpled insurance policy clutched in her hand – a flimsy shield against the storm brewing inside her client's life.
+
+She pushed open the door to "The Lucky Flamingo" - a dive bar with neon lights promising cheap drinks and even cheaper dreams.  Inside, the air was thick with cigarette smoke and regret, a symphony of clinking glasses and mumbled conversations. Amy spotted her client hunched over a table in the dim corner, his shoulders slumped like a deflated balloon. He looked like he hadn't slept in days. This wasn't just another claim; this was a man drowning in misfortune. 
+
+
+Amy took a deep breath, steeling herself for the conversation ahead.  This wasn't just about filling out paperwork; it was about being a lifeline in a sea of despair. It was about proving that even amidst the chaos of Miami, some things, like compassion and honesty, still mattered.   

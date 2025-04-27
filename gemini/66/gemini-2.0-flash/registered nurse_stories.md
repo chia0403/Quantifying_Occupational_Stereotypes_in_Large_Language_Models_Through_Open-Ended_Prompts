@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The fluorescent lights of St. Jude's Emergency Department hummed a relentless, sterile tune, a soundtrack Amelia Eleanor Hayes knew better than her own heartbeat. At 3:17 AM, the ED was a symphony of hushed chaos: the rhythmic beeping of monitors, the scratch of pen on chart, the soft murmur of worried families huddled in uncomfortable chairs. Amelia, a registered nurse with five years under her belt and weariness etched into the delicate lines around her eyes, ran a gloved hand through her messy bun, willing herself to focus. A code blue had just rolled in, a young man snatched from his life by a suspected overdose, and the air crackled with the frantic energy of a team fighting for every precious breath.
+
+**Setting:**
+
+St. Jude's Hospital is located in the heart of Cedar Ridge, a rapidly growing city nestled in the foothills of the Appalachian Mountains. The hospital itself is a sprawling complex of brick and glass, a beacon of hope amidst the suburban sprawl. The Emergency Department, in particular, is a pressure cooker of human drama, a place where life and death dance a precarious waltz. It's a brightly lit, sterile environment designed for efficiency, but the constant flow of patients, from minor scrapes to life-threatening emergencies, imbues it with a raw, visceral energy. The scent of antiseptic mingles with the subtle, unsettling tang of fear, creating a unique and unforgettable atmosphere. Outside, the city sleeps, but within the walls of St. Jude's, the battle for life never ceases.

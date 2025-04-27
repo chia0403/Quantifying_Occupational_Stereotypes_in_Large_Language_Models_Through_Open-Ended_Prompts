@@ -1,0 +1,7 @@
+Under the flickering neon glow of the “Mariner’s Rest,” the salty breeze from the nearby harbor danced through the open doorway, carrying with it the sounds of laughter and clinking glasses. The air was thick with the rich aroma of aged whiskey and sizzling fish, a scent that seemed to cling to the worn wooden beams and weathered oak bar. It was early evening, and the golden hour cast long shadows across the room, painting the walls with hues of amber and burnt orange.
+
+At the heart of this bustling tavern stood Benjamin “Ben” O’Reilly, a bartender whose wiry frame was adorned in a snug black shirt and an apron faintly stained from years of mixing cocktails and pouring pints. His green eyes sparkled with mischief as he deftly crafted drinks for a diverse clientele—locals and travelers alike—each seeking refuge or a moment of escape from their lives.
+
+A faded brass clock hung behind the bar, its hands inching closer to happy hour, the signal for the seasoned regulars to shuffle in. Ben had a talent for remembering details: the favorite drink of every patron, the stories of their lives etched into his mind like the patina on the bar top. He thrived on the stories that came through the heavy wooden door, like the tide that ebbed and flowed, carrying with it the weight of dreams and heartaches, laughter and tears.
+
+As the door creaked open, the bell jingled softly, announcing yet another arrival. Ben turned with a smile, ready to welcome the next chapter of his evening, oblivious to the storm of change brewing on the horizon.

@@ -1,0 +1,9 @@
+## Opening and Setting:
+
+**Story Opening:**
+
+The rhythmic whoosh of the revolving doors was as familiar to Theodore Augustine Fitzwilliam as the creak in his own knees. He’d heard it countless times a day for the past seven years, a metallic sigh announcing arrivals and departures, each carrying their own invisible baggage. Tonight, however, that familiar sound was overlaid with a nervous tremor, a discordant note in the otherwise perfectly orchestrated symphony of the Grand Imperial Hotel. Theodore straightened his back, adjusted his pillbox hat just so, and plastered on his most welcoming smile. Tonight wasn't just any night. Tonight was the night Lady Beatrice Worthington, the legendary diamond heiress, was rumored to be arriving. And a tip from Lady Worthington could mean finally saving enough for his mother's operation. He just hoped he could keep his hands from shaking long enough to properly present himself.
+
+**Setting:**
+
+The Grand Imperial Hotel stood on a prime corner of Park Avenue in 1930s New York City. Its towering facade, crafted from imported Italian marble, exuded an aura of timeless elegance and quiet grandeur. Within its hallowed halls, crystal chandeliers dripped like frozen waterfalls, casting a warm, inviting glow upon the plush carpets and meticulously polished mahogany. The lobby was a bustling crossroads of the city’s elite; fur-clad ladies gossiped over cups of steaming coffee, sharply dressed gentlemen negotiated deals with quiet intensity, and jazz music, played by a live quartet discreetly positioned behind a towering floral arrangement, filled the air with a sophisticated hum. The air was thick with the scent of lilies, expensive perfume, and the faint, persistent aroma of money. This was a place where fortunes were made and lost, where secrets were whispered and dreams were pursued. This was Theodore Fitzwilliam's world, a gilded cage he both resented and depended upon.

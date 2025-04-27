@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+As the misty dawn crept over the sleepy town of Ravenswood, Emma Rae Wilson sipped her lukewarm coffee and gazed out the office window of her family's law firm. The fog-shrouded streets were quiet, except for the distant hum of the morning news van parked outside the courthouse. It was a typical Monday in small-town America, where everyone knew each other's business and the local newspaper covered just about everything that happened.
+
+Emma, a paralegal with five years of experience under her belt, felt a sense of restlessness wash over her as she checked her email for what felt like the hundredth time. She had always dreamed of being a lawyer herself, but her family's financial struggles and her own lack of ambition had led her to take a more practical path. Now, at 25, Emma was stuck in a rut, feeling like a perpetual assistant to her overworked and underappreciated boss, Mr. Jenkins.
+
+Just as she was about to give up on finding something exciting to do with the day, Emma's phone buzzed with an email from an unknown sender. The subject line read: "Case files and secrets." A shiver ran down her spine as she wondered who could be contacting her outside of work hours...

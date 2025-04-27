@@ -1,0 +1,7 @@
+Once upon a time, there was a construction worker named Steve from Michigan who made the decision not to pay for medical care for his own cancer-induced brain infection.
+
+He was diagnosed and took full advantage of the Affordable Care Act's (ACA) newly created "Cadillac" plans, covering certain out-of-pocket costs. Steve could no longer afford regular ER visits or even a simple procedure. So many times he went to the emergency room, which cost $600-800, he told me. And yet, he said, "I didn't feel that somebody else bore responsibility for my medical needs or the costs."
+
+At the time, I didn't know whether to give an enthusiastic, "Yeah, really, dude?" response or, "Fuck yeah, people are getting hurt and being treated like shit" — because, as anyone who has been through the world of insurance knows, I'm about as far from the mainstream of American health care as it is possible to get. The ACA makes it easier for people to get insurance, but it also creates a financial incentive for insurers to offer "essential benefits" coverage and limit the costs of non-essential health care — which, in the case of an ER visit, means not paying your bills in an emergency.
+
+In June, however, Obamacare came up on Capitol Hill, and it looked like Steve wasn't alone. The GOP Senate bill would, for the second consecutive time, remove that financial incentive to get

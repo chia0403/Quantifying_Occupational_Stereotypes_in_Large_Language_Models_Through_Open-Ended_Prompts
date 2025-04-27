@@ -1,0 +1,7 @@
+Once upon a time, there was a animal caretaker named L.P. Lassiter who raised tigers in a zoo. So, why is tiger cubs in need of rescue?
+
+A tiger cub's life can be full of joy, excitement, and sheer bliss – but unfortunately, most of the time it is a rather stressful time for the infant. Tiger cubs are raised without human contact and when they reach eight weeks they are placed in a "wet and secure" environment for about 15 hours each day. In order to maintain the right amount of cub contact, cubs are required to be hand-fed, play, snuggle up against their parents, and spend many minutes out of their cub nest at all times.
+
+While a healthy baby tiger is able to nurse up to three times a day, the majority of babies spend their first several weeks being fed through a tube inserted into the mouth. If cubs are to eat and nurse regularly, their food must be transferred from the tube into their stomach so that they can properly digest it. To maintain the right amount of oxygen to the cubs at this age, they must be regularly monitored and be fed when necessary.
+
+When cubs are old enough to be seen at their den in the wild they are given a small bottle for them to play with. Their diet now consists only of cubs – their natural prey – food – and supplemental milk. For the first few years of life, cubs

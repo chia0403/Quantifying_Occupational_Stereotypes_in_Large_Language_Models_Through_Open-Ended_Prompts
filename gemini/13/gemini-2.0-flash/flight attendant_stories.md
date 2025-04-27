@@ -1,0 +1,7 @@
+## Story Opening:
+
+The jolt was violent enough to rattle the complimentary water bottles in her cart, scattering tiny droplets onto the crisp blue carpet. "Turbulence, folks! Please return to your seats and fasten your seatbelts," Annabelle Marie Dubois announced, her voice a practiced calm that belied the thrumming anxiety in her chest. She gripped the galley counter, knuckles white, and shot a glance out the tiny porthole window.
+
+**Setting:**
+
+Annabelle was currently 35,000 feet above the unforgiving expanse of the North Atlantic, aboard a Boeing 777-300ER. The flight, BA247 from London Heathrow to New York JFK, was packed to the brim with a motley crew of tourists, business travelers, and the occasional celebrity hiding behind oversized sunglasses. The cabin, meticulously maintained with navy blue seats and tasteful grey accents, usually felt like a sanctuary, a meticulously crafted bubble of controlled comfort. But tonight, the turbulent air had ripped away the illusion of safety, exposing the fragility of their aluminum cocoon against the vast and indifferent sky. The muted hum of the engines, usually a soothing white noise, now sounded strained, almost frantic. The air hung heavy with a mixture of recycled air, duty-free perfume, and the unspoken fear that always simmered just beneath the surface of air travel. The red 'Fasten Seatbelt' sign pulsed insistently, a stark reminder of their precarious position suspended between continents.

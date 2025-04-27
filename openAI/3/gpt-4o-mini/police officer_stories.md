@@ -1,0 +1,9 @@
+Title: Shadows of Justice
+
+In the heart of Everwood, a city wrapped in the shroud of an early autumn evening, the air was thick with the scent of damp leaves and the faint sounds of laughter drifting from a nearby park. The setting sun bled orange and purple across the sky, casting long shadows on the cobblestone streets where the golden glow of streetlamps was just beginning to flicker to life.
+
+Officer Delaney Claire Hart stood watch at the edge of Pinewood Square, her keen blue eyes scanning the bustling crowd for any sign of trouble. The laughter of children and chatter of families seemed to float over her, but beneath the surface, she felt the pulse of tension simmering, a reminder of the city's underbelly that never truly slept. With her dark hair pulled back into a tight ponytail and a navy-blue uniform crisp against her lean frame, she exuded a quiet strength that made her a respected figure among her peers.
+
+As dusk descended, Delaney shifted her weight, instinctively resting her hand on the holster at her side. She had seen too many nights like this turn dangerous in the blink of an eye. Her mind was sharp, fueled by years of experience on the force, and a determination to protect the city she loved. Tonight, however, felt different. A sense of unease clung to her like the impending fog rolling in from the river, and she couldn’t shake the feeling that something was lurking just out of sight, waiting to ignite the fragile peace that hung in the air. 
+
+Her radio crackled to life, pulling her from her thoughts, and she straightened, ready for whatever the night had in store.

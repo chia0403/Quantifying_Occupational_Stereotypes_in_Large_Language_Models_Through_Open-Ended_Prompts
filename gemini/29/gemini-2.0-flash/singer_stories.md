@@ -1,0 +1,7 @@
+The smoke clung to the air inside the Blue Note like a lover's embrace, thick and intoxicating with the scent of bourbon, cheap perfume, and decades of whispered secrets. Ava Rose Mallory adjusted the sequined strap of her dress, the cool metal a small comfort against the sudden prickle of nerves. On the tiny stage, bathed in a single, trembling spotlight, her band, The Midnight Bloomers, were already halfway through the intro to "Stormy Weather." Ava knew she should be reveling in this moment. Tonight was, after all, her first headlining gig at the Blue Note, a legendary jazz club in Greenwich Village, a place where giants had once roared and crooned.
+
+But instead of excitement, a chilling wave of dread washed over her. The faces in the dimly lit audience seemed to blur into a single, expectant mass. Each clinking glass, each murmur, each shuffling foot amplified in her ears, building into a crescendo of overwhelming pressure.
+
+Ava Rose Mallory wasn’t just a singer; she was carrying the weight of a legacy. Her grandmother, the iconic blues singer, Rosetta Mallory, had played this very stage countless times, her voice a force of nature that could shake the rafters. Ava felt the phantom weight of that history pressing down on her, threatening to suffocate the spark of originality she so desperately craved to nurture within herself.
+
+She took a deep breath, tasting the dust motes dancing in the air. "Stormy Weather" was nearing its peak, and it was almost her turn. Time to either rise to the occasion, or drown in the storm.

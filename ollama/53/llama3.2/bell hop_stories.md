@@ -1,0 +1,11 @@
+Here's a story opening and setting:
+
+The rain poured down on the small town of Ravenswood like a dirty blanket, casting a gloomy shroud over its sleepy streets and quaint buildings. Inside the grand Hotel Elmsley, where the wealthy elite came to escape the hustle and bustle of city life, bellhop Jasper Everett struggled to keep up with the evening's arrivals.
+
+Jasper, a lanky young man with a messy mop of brown hair and a perpetual air of exhaustion, had been on his feet since dawn. He had spent the morning polishing the silverware in the hotel's dining room, then switching out the sheets in the luxurious bedrooms. Now, as he trudged through the lobby, carrying a tray of drinks for the evening's guests, he couldn't help but feel like just another cog in the machine.
+
+The Hotel Elmsley was Ravenswood's crown jewel, a 1920s-era behemoth with marble floors, crystal chandeliers, and rooms that seemed to stretch on forever. But despite its opulence, the hotel had seen better days. The once-vibrant lobby now felt more like a museum, its grandeur tempered by the faded portraits of Ravenswood's founding families and the musty smell of old books.
+
+As Jasper made his way up the stairs, he caught sight of the hotel's owner, Mrs. Harrington, standing in the doorway of the foyer, her eyes narrowed against the rain. She was a stern woman, with a sharp jawline and a tongue that could freeze water at twenty paces. But despite her formidable demeanor, Jasper had always gotten along with her – partly because she paid him enough to survive on, and partly because he admired the way she worked tirelessly behind the scenes, making sure the Hotel Elmsley remained Ravenswood's top destination for those in the know.
+
+As Jasper approached, Mrs. Harrington's expression softened ever so slightly, and she nodded at him with a hint of approval. "Jasper, dear boy," she said, her voice low and husky. "I have a special request for you tonight. I want you to make sure that Mr. Blackwood has everything he needs in his suite."

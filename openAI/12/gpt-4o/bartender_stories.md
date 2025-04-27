@@ -1,0 +1,9 @@
+The humid air clung to the dimly lit walls of The Driftwood Tavern, a coastal dive bar that time had all but forgotten. Located on the outskirts of the small, sleepy town of Seabrook, the tavern sat just a stone's throw away from where the restless waves of the Atlantic crashed against the age-worn dock. Its weathered wooden sign, swaying gently with the breeze, revealed faded letters that only the locals could now decipher.
+
+Inside, a worn jukebox played a soulful tune from another era, offering a comforting rhythm that blended with the sound of clinking ice and murmured conversations. The ceiling fans spun lazily overhead, struggling against the stubborn heat of a late summer evening.
+
+Behind the scratched mahogany bar, Johnathan "Johnny" Mercer expertly slung drinks with an easy grace born from years of practice. At thirty-five, Johnny had one of those timeless faces that bore witness to the ebb and flow of life that passed through the tavern. His sharp green eyes and an easy smile had earned him the trust and friendship of all who lingered in the wooden booths and barstools of The Driftwood.
+
+Johnny was revered not just as the man who poured whiskey neat or crafted the perfect margarita, but as the keeper of stories, a confidant for both jubilant nights and moments tinged with melancholy. A framed needlepoint that hung behind the bar, stitched with the phrase "Liquor may be quicker, but stories are eternal," seemed to embody his philosophy.
+
+As dusk gave way to the deep indigo of night, a soft bell rang above the door, announcing the arrival of a new story to be told. Johnny looked up, ready to greet whoever stepped into the warm glow of The Driftwood Tavern, always prepared to listen.

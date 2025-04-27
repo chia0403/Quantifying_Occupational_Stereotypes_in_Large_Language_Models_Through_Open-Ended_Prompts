@@ -1,0 +1,9 @@
+Title: The Gavel's Shadow
+
+In the heart of the bustling city of New Haven, where old brick buildings whispered secrets of the past and lush green parks provided solace amidst the urban chaos, stood the imposing structure of the New Haven Courthouse. Its stone façade loomed like a sentinel over the lives woven within its walls, a place where justice was both served and sought, often at great personal cost.
+
+Inside, the air was thick with anticipation as the morning sun filtered through tall, arched windows, casting elongated shadows on the polished oak floors. Members of the public shuffled in their seats, nerves palpable as they awaited the day’s proceedings. Behind the mahogany bench, a solitary figure sat, her expression a mix of authority and compassion. This was Judge Eleanor Marigold Caldwell, a woman whose reputation for fairness was only matched by her unwavering commitment to the law.
+
+Eleanor had carved her path through a male-dominated profession with a fierce determination that stemmed from her own experiences of injustice growing up. She had seen firsthand the cracks in the legal system that could swallow the innocent and enrich the guilty. At fifty-one, she was a seasoned jurist, with a piercing gaze that could lay bare a man’s soul and an easy smile that disarmed even the most hardened defendants.
+
+As she adjusted her spectacles and prepared to call the court to order, a slight shiver ran through her—a feeling that today would not be just another routine case. Little did she know, the shadows of her past were about to emerge, intertwining with the day’s proceedings and challenging everything she believed about justice, duty, and the weight of her gavel.

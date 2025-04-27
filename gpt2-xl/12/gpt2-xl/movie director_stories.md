@@ -1,0 +1,5 @@
+Once upon a time, there was a movie director named Jack Haneke (yes that one) who made a movie called "Amour" on which there's a really weird scene that goes:
+
+And she's with two guys in a taxi - a German guy and a Russian guy. And the German guy, he's telling her: "So, what do you want?" and she's like in French, "I want to fuck." And he's like: "Oh, okay, I thought that too." She said: "So, what are your names?" And she said: "'S' and 'F', my name is 'S'. And my name is 'S' and my name is 'F'" - she didn't tell me her last name. And she said: "And what is your father's name?" And he said, "You know, my father is a priest," or something like that. And she's got her head down. And she goes: "How old is your father?" And he goes: "Sixteen." And she says: "Oh, that's cool, he's good looking." And she goes, "Well, what is your name?" And he goes: "I'm Jack Haneke." And she says: "What do you do for a living?"
+
+And she tells him: "I work at a bar." And he says: "How old are you?" And she says: "I

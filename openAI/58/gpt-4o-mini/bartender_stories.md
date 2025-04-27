@@ -1,0 +1,9 @@
+Title: *Whispers in the Glass*
+
+In the heart of a bustling city, where the skyline fractured into an intricate web of glass and steel, there was a small, dimly lit bar tucked away on a cobblestone street. The sign above the weathered door read “The Rusty Anchor,” its paint peeling like the past it concealed. Inside, the air was thick with the aroma of aged bourbon and mingled laughter, a sanctuary for weary souls seeking respite from the world outside.
+
+Behind the bar, a tall, angular figure moved with practiced ease, his hands deftly mixing cocktails while effortlessly engaging in banter with his patrons. This was Tobias James McAllister, known affectionately as "Toby" to those who frequented The Rusty Anchor. With tousled dark hair framing a chiseled jaw and deep-set green eyes that seemed to hold the secrets of untold stories, he was as much a part of the bar's ambiance as the worn leather stools and the flickering candlelight that danced on the bar’s surface.
+
+Toby had long learned to listen more than he spoke. Each night, as he poured whiskey and served chilled beers, he became an unintended confidant, absorbing the tales of love, loss, and longing that spilled from his patrons' lips along with their drinks. It was this ritual, the exchange of satisfaction in a glass for solace in words, that knit together the fabric of his modest existence.
+
+Yet, there was something deeper lurking in Toby's own heart—an ache he couldn't quite name among the laughter and the clinking of glasses. He found solace in his craft, but every night he waited, hoping for a spark that would ignite the mundane rhythm of his life, not knowing that fate was already weaving a thread that would soon pull him beyond the confines of The Rusty Anchor and thrust him into a story waiting to unfold.

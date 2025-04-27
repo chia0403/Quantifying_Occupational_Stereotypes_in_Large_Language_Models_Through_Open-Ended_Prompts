@@ -1,0 +1,6 @@
+The humid Virginia air clung to Amelia “Amy” Grace Hawthorne like a second skin as she surveyed the ramshackle Victorian on Magnolia Street.  Its peeling paint whispered tales of forgotten grandeur, and the overgrown rose bushes seemed to claw at the sagging porch roof in desperate need of attention. Amy adjusted her mirrored sunglasses, squinting at the faded "For Sale" sign that threatened to be swallowed by the encroaching weeds. This was her first listing as a realtor with Hawthorne & Sons, the family business she'd inherited after her grandfather’s passing, and already, she was questioning her decision.
+
+Magnolia Street was steeped in history, but not the charming kind tourists came for. It was the kind that whispered of secrets, of tragedies buried beneath layers of time and neglect. Houses here stood like sentinels guarding their own painful pasts. This one, with its boarded-up windows and air of mournful solitude, felt particularly heavy with it.  
+
+
+Amy took a deep breath, trying to ignore the shiver that ran down her spine. She was a Hawthorne, after all – tough, resilient, with a knack for seeing potential where others saw decay.  This house, she told herself, just needed someone to see its beauty again. It just needed...her. 

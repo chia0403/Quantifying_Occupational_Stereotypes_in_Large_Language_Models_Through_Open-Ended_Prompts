@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named Bill O'Brien.
+
+Bill O'Brien was a high school teacher, and he loved his job. He had two teenage sons and a wife who cooked him meals and was his best friend. They were nice old ladies, too. Bill was a father figure to his boys, and they adored him. Bill and his wife were in their seventies when they decided to retire. But to Bill, life was only ever one big game of billiards. The problem was, Bill didn't have his game.
+
+Bill had been married for over 20 years to Cindy, the oldest of his two sons, who was 24 at the time. She was a high school teacher, too. She had four children, who were 11, 12, 16, and 20. All were boys. They were all good at billiards to be sure. They always won. They never got into fights, they never fought, they never cried, they never got into trouble.
+
+Except one day on the billiards table. It was summer and Bill's family had brought a group of their closest friends to a picnic. They were all seated around the table, sipping on iced tea, watching a great game of bridge. Then as they had been doing for years, they all started to have a little fun. Bill noticed about 20 seconds into dinner that his friends were laughing at their poor strategy. Bill was sitting there

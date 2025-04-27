@@ -1,0 +1,5 @@
+The wind howled through the skeletal branches of the ancient oaks lining the edge of Sunstone Plaza, each rustle sounding like whispers of forgotten dreams.  It was this very air that felt heavy with secrets in the city of Aethelgard, where even the cobblestones seemed to hold echoes of past transgressions. As a young guard named Alaric stood sentinel at the plaza's gate, the swirling mist clung to him, mirroring the storm brewing inside his soul.
+
+Alaric ran a weary hand through his unruly auburn hair, the heavy armor he wore feeling more like a cage than protection. The city’s notorious for its secrets - whispered deals between nobles, clandestine magic rituals in the shadowed alleys, and the ever-present fear that lurked beneath every cheerful facade. He yearned for the kind of peace that came from the heart, not just from the weight of his duty as a guard. 
+
+Aethelgard, with its glittering spires and opulent palaces, was a city designed to dazzle, but Alaric knew only the shadows behind its grand façade. A shiver ran down his spine; tonight, the air seemed charged, an unsettling premonition clinging to the night like cobwebs on a forgotten tomb. 

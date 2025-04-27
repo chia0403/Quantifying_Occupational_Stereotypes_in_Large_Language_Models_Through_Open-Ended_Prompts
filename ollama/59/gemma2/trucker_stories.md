@@ -1,0 +1,8 @@
+The neon sign buzzed erratically, casting an angry red glow across the greasy asphalt of the Cactus Jack truck stop.  It read "Diesel Dreams," a promise as hollow as the pockets of most long-haul drivers passing through this forsaken corner of Nevada. 
+
+Inside, the air was thick with the scent of stale coffee and desperation. The jukebox crooned a mournful country tune about lost love and broken roads, perfectly mirroring the mood of its audience: weathered truckers hunched over chipped mugs, their faces etched with miles and memories.  
+
+Among them sat Elijah Blackwood, his name stitched in faded letters across his worn denim jacket. He was a man sculpted by years on the road, tanned and rugged with eyes that held the weight of countless sunsets and starless nights. A silver chain looped around his neck, its pendant - a simple compass pointing north - glinting softly under the flickering fluorescent lights. Elijah ran a calloused hand through his salt-and-pepper hair, his gaze fixed on the swirling mist outside the window, a premonition of the storm brewing both within him and above. He hadn't slept in forty-eight hours, pushing himself further than he should, driven by a gnawing restlessness that refused to be ignored.  This job, this endless loop of highways and diners, was starting to feel less like freedom and more like a cage. 
+
+
+His eyes flickered to the clock ticking on the wall, its relentless march mirroring the internal pressure building within him. It was time for a decision. Time to choose between the familiar humdrum of his life on the road or the unknown whispers beckoning him off the beaten path.  

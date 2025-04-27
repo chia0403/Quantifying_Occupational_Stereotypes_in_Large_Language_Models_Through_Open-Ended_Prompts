@@ -1,0 +1,7 @@
+The dust motes danced in the amber glow of Amelia Blackwood's studio lamp, their silent waltz illuminated by the chaotic swirl of paint across her easel. The smell of linseed oil hung thick, mixing with the earthy scent of old canvas and forgotten dreams. Outside, the wind moaned a melancholy tune through the abandoned Victorian mansion’s eaves, its once-grand facade now marred by peeling paint and rusting vines. 
+
+Amelia, her heart heavy as the leaden sky outside, struggled to capture the essence of this decaying beauty on her canvas.  She was an artist trapped in time, her brushstrokes mirroring the slow decay of the very building that held her soul. For Amelia Blackwood, art wasn't just about paints and canvases, it was a way of life, a lifeline to a forgotten world she yearned to reclaim.
+
+But this new commission - to capture the melancholy grandeur of the manor for a wealthy family seeking a “piece of its forgotten past” – felt more like a cage than an inspiration. The house, once a symbol of hope and prosperity in her youth, now held only echoes of lost dreams and broken promises. 
+ 
+The setting sun cast long, distorted shadows across the studio floor, and Amelia knew this was just another layer to the mystery that had woven itself into her life.  Tonight, she wasn’t merely painting a house; she was trying to piece together fragments of a forgotten past she had only seen reflected in the dusty memories of her grandmother's attic box of stories. 

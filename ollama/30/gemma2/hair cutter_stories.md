@@ -1,0 +1,5 @@
+The air hung thick with the scent of lavender and freshly brewed coffee as Amelia Beatrice Hawthorne adjusted her tortoiseshell glasses. She surveyed the clutter of her salon – "Beatrice's Bows" -  with a practiced eye. A stray bobby pin glinted on the dusty floor, a rainbow of hair clips lay forgotten on a shelf, and a half-finished tapestry depicting a unicorn wearing a top hat hung crookedly on the wall. Amelia sighed. It was a charming mess, just like her clientele in the quirky seaside town of Seabrook. 
+
+Seabrook wasn't exactly bustling with high fashion or celebrity clients. But Amelia wouldn't trade it for anything. Her regulars were a colorful bunch - weathered fishermen with salt-and-pepper beards, giggling grannies with sky-high perms, and even the occasional eccentric artist sporting hair that defied gravity. Today was just another day in paradise, until the doorbell chimed, announcing a visitor Amelia hadn't expected. A woman entered, draped in black from head to toe, her face obscured by a wide-brimmed hat.  Her air of mystery sent a shiver down Amelia's spine - this wasn't a regular Seabrook resident. 
+
+

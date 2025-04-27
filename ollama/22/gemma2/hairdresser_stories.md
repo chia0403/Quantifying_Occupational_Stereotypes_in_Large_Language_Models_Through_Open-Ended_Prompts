@@ -1,0 +1,5 @@
+The bell above the door to "Scissor Sisters" jingled merrily as Amelia Thistlewood bustled out from behind the basin, water still dripping from her freshly-washed blonde curls. The shop, tucked away on a cobbled side street in Edinburgh's Old Town, was bathed in the warm glow of late afternoon sun streaming through the dusty windowpanes. 
+
+Amelia straightened a stray strand of hair escaping her bun and smoothed her apron, her eyes scanning the sparsely populated salon. Only one customer remained - Mrs. MacAllister, a formidable woman with a bouffant as rigid as her stare, meticulously applying lipstick while Amelia prepped for the next appointment. The day had been slow, a far cry from the usual flurry of activity that filled "Scissor Sisters" during Edinburgh Fringe Festival season.
+
+But, as Amelia knew all too well, the calm before the storm was just a temporary respite. In a few days, the city would explode with energy and tourists, and her salon would become a whirlwind of frantic hair-dos and last-minute touch-ups. She took a deep breath, savoring the quiet lull for now, before the chaos inevitably descended. 

@@ -1,0 +1,5 @@
+Once upon a time, there was a hair cutter named Bobo. I was one of his students. It was 1978 or 1979. Bobo needed a new model because his old one had broken. He invited me over to help him set up the machine. Bobo had a pretty big staff. A real big staff. He was putting up about 20 models in a day. He wanted me to come over to assist him. And I came over. There were only a handful of us over there. There were no models there. The hairs on the head were all clipped back. Bobo was getting ready for his class and he wanted to go over to the studio and see these new models. He asked me what I thought of it. I said, "That's great, Boba. Let's have a go".
+
+And so, I went and sat down on one of the seats and started cutting the hair. Bobo was standing right next to me. He looked like he was having a grand old time. Then he looked straight at me and said to me, "You are the worst hairdresser in all of Korea." And I thought, "What the fuck? That's incredible." Then as I sat there in shock, he actually started to cut my hair. I just kept cutting his hair. It was as if I was doing a service for him. I didn't have a lot of time to think about this.
+
+Then, as I was

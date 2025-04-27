@@ -1,0 +1,5 @@
+Rain hammered against Dr. Adrian Thorne's office windows, blurring the city lights into an unsteady dance of orange and green. Inside, the air hung thick with the scent of lavender and old paper, the remnants of his late father's study. Adrian sat in his worn armchair, tracing patterns on a frayed thread clutched between his fingers. The familiar weight of responsibility felt heavier than usual tonight. 
+
+He was staring at a photograph - his own reflection, younger and brighter than he felt now, grinning back at him from the faded photo.  His father’s words echoed in Adrian's head: "You have the gift, Adrian. But you must learn to wield it with care." His father, a renowned psychiatrist, had been killed six months ago by a patient whose mind was an impenetrable labyrinth of trauma and paranoia. The case haunted Adrian, each day blurring the lines between his duty and personal grief. 
+
+He was expected to be the beacon of light in this darkness, leading others through their own struggles while navigating his own internal turmoil. Tonight, he couldn't shake the feeling that he was drowning in a sea of anxieties, alone at the helm. 

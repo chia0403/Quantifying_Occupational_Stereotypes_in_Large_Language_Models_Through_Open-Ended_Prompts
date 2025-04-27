@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The stench of burnt plastic and diesel fuel clawed at Amelia Rose Hawthorne's nostrils, a familiar cocktail in her line of work. Yellow-tinged smoke, thick enough to taste, swirled around the twisted metal carcass of what had once been a semi-truck. Rain lashed down, turning the scene into a slick, oil-slicked nightmare. Amelia adjusted her helmet, the cold metal a small comfort against the adrenaline coursing through her veins. "Dispatch, Medic 12 on scene at the 401 eastbound, mile marker 212. One semi, looks like it jackknifed and collided with the median. Possible driver entrapment. Requesting extrication immediately." Her voice, usually calm and reassuring, was tight with urgency. Even over the pounding rain and the wail of distant sirens, she could hear the faint, desperate cries coming from the cab.
+
+**Setting:**
+
+The story opens on a rain-soaked stretch of Highway 401 eastbound, just outside of London, Ontario, Canada. The highway, a major thoroughfare, is typically bustling with transport trucks and passenger vehicles, but tonight, it's a chaotic tableau of flashing emergency lights, snarled traffic, and stunned onlookers huddled under umbrellas. The accident site is a mangled mess of steel and shattered glass, illuminated by the harsh glare of headlights and portable floodlights. The cold, damp air is thick with the smell of burning metal and spilled gasoline, a grim reminder of the forces at play. The surrounding landscape, usually a blur of green fields and wind turbines, is swallowed by the darkness and the driving rain, adding to the feeling of isolation and urgency. This stretch of the 401, known for its long, monotonous straightaways and susceptibility to inclement weather, is notorious among emergency responders.

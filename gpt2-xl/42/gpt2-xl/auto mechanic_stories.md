@@ -1,0 +1,7 @@
+Once upon a time, there was a auto mechanic named George; and the last thing he wanted after a week of work was to come home to his wife and daughters. When he finished repairing her car, he felt as if he had done something worthwhile. Then he had an idea. He took a little sheet of metal and covered a certain part of her dashboard with adhesive. He didn't actually put the part in place, but simply covered the area around it, leaving the rest bare. He left his car running for a day or so, just so he could have an excuse to go home. He returned to the vehicle one day to see that it was now the perfect instrument of his revenge. There was a chip missing from the windshield, just as he had left it. A message was written at the end, pointing him back to a certain address. For reasons known only to him, George chose the house next to the street.
+
+
+The man parked his car with the chip installed, and went back to have a quiet dinner. This was never something he did often, but tonight he had decided to try it a little. He opened his refrigerator and pulled out a beer from a cooler. He took a sip and smiled to himself. He turned and began to walk away, toward the garage. In the back of his mind, he knew that he didn't need to use some magic trick to make this work.
+
+
+At the front door, the door slid back, closing behind

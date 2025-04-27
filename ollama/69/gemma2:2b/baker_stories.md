@@ -1,0 +1,5 @@
+The air hung thick with sugar and spice as Elara kneaded her dough. The scent was usually a balm, soothing her frayed nerves after another long day in the bustling market square. But today, even the aroma of cinnamon-sugar brioche couldn't quite soothe the knot in her stomach.  She glanced at the cracked wall that housed her bakery, "The Golden Crumpet," where the faded paint peeled like sunburnt skin. 
+
+Elara adjusted the threadbare apron tied around her waist and smoothed down a stray curl escaping from her braid. The setting was bleak, but she refused to let it show. She had poured every ounce of her meager savings into making this bakery – an escape from the harshness of the city and a sanctuary for weary souls. It was supposed to be a refuge, not a reminder of everything that was going wrong.  
+
+This morning, however, the usual quiet hum of customer chatter had been replaced by a tense silence. The whispers, like autumn wind through dry leaves, carried tales of a sudden market crash and dwindling supply chains – a storm brewing in the heart of the city she longed to keep safe from. 

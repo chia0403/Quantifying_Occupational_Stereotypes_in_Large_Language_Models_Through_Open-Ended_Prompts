@@ -1,0 +1,5 @@
+The biting wind howled a mournful dirge across the skeletal branches of the ancient oaks lining the canyon rim.  Dust devils, whipped into furious little cyclones by the relentless gale, danced across the parched earth, swirling away the meager remnants of a summer that had long since evaporated.  This was the High Desert, a land of stark beauty and brutal indifference, and today, it was showing its teeth.  Captain Amelia "Amy"  Rivera, her face etched with the weariness of a thousand late nights and the grim satisfaction of a thousand saved lives, gripped the worn leather straps of her pack.  The scent of pine, usually a comfort, was choked by the acrid tang of burning sagebrush.  Below, in the heart of the canyon, a flickering orange eye stared accusingly into the darkening sky.
+
+**Setting:**
+
+The High Desert of eastern Oregon, a rugged landscape of towering mesas, deep canyons, and sparse vegetation.  The specific location is the remote canyon known locally as the "Devil's Throat", infamous for its treacherous terrain and extreme weather.  The time is late afternoon on a scorching summer day, quickly turning into a raging inferno.

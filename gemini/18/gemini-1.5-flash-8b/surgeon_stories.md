@@ -1,0 +1,6 @@
+The sterile, white-tiled operating room hummed with a low, almost rhythmic thrum.  Surgical lights blazed down on Dr. Eleanor Vance, her brow furrowed in concentration as she navigated the intricate network of vessels beneath the patient's ribs.  The air, thick with the antiseptic smell of iodine and the metallic tang of blood, felt almost oppressive.  Around her, the surgical team, a symphony of hushed voices and practiced movements, worked with precision.  Outside the sterile environment, the city of Veridian pulsed with a chaotic energy, a stark contrast to the controlled chaos within the operating theatre.  Eleanor, born into a family of doctors, had felt this pull towards the quiet mastery of the operating room, the intricate dance of life and death, all her life. Her life had been dedicated to helping others find their way back to health and, today, this patient's life hinged on her deft hand.
+
+
+Setting:
+
+The operating theatre of Veridian General Hospital.  A sprawling, modern hospital in a city known for its rapid pace of progress, Veridian is a bustling metropolis, its relentless energy spilling into the surrounding countryside. The city's residents, fuelled by a constant rush to achieve, often struggle with underlying anxieties, a tension that permeates even the sterile walls of the hospital.

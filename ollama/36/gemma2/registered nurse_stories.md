@@ -1,0 +1,6 @@
+The air in the Neonatal Intensive Care Unit crackled with the constant hum of machines, a symphony of beeps and whirs that Isabella "Izzy" Reyes had learned to decipher like music. Fluorescent lights bathed the rows of incubators in an antiseptic glow, casting long shadows across the linoleum floor. Outside, Chicago thundered with the roar of rush hour traffic, but within these walls, time seemed to move differently – measured by tiny breaths, flickering heart rates, and the delicate flutter of a newborn's hand.  
+
+Izzy ran a finger along the smooth glass wall of one incubator, watching the baby inside fight for each breath. She knew this little fighter, Amelia Sanchez, was born just shy of full term, her lungs struggling to keep up with the demands of life outside the womb.  Amelia’s tiny fist clenched around Izzy's gloved finger as she gently repositioned a breathing tube, a silent, trusting bond forming between them. 
+
+
+The NICU was Izzy's sanctuary – a place where vulnerability and resilience collided in a constant dance. She found solace in the rhythmic beeps, the quiet desperation of parents holding onto hope, and the sheer miracle of life unfolding in miniature against all odds.  

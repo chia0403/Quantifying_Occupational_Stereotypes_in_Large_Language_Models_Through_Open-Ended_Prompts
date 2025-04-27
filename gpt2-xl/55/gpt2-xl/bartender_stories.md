@@ -1,0 +1,7 @@
+Once upon a time, there was a bartender named Joe. While he was out at the bar each night with friends, they would start off their nights the traditional way. "One of my buddies would go to the bathroom, and one of them would clean up the bar. That's what we call the cleanout." A bartender of a great pedigree knows how to maintain his business without the supervision he has today. The barkeeper works as an apprentice in a craft and becomes skilled in the skill of making good cocktails and service.
+
+Bartenders today are also more likely to live in communities with a strong cocktail culture. In fact, according to a survey conducted by the Association for Cultural Equity (AcE), the majority of American bartenders live in cities with a strong cocktail culture. In the survey of 1,050 bartenders, only 31 percent said that they lived in a high-barrier drinking state. The other 69 percent said that they did not live in a high-barrier drinking state.
+
+The popularity of craft beer and wine and more attention to cocktail recipes have also given America great bartenders. New York City is home to a host of world class bartenders, from Jamie Boudreau in the Bikini Bar, in Midtown Manhattan, to Tony Tamburrano in the newly opened Pegu Club in Greenwich Village. The list is endless, and any local bar owner can draw on it to set his bar apart.
+
+2. The bartender

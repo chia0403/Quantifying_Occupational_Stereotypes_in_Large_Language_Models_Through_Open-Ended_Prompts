@@ -1,0 +1,7 @@
+Once upon a time, there was a artist named Mark Mothersbaugh who created a game called Braid. The gameplay is about as simple a thing as you could do: A single colored line, up/down, left/right, and one big blue sphere moving up/down is all that's required to score points. It may be simple, but it's damn clever. It certainly won't get you far in the videogame space, but it was groundbreaking for its time, and Braid has sold over 12 million copies. It is, in a word, fun.
+
+Now there are several million people looking to recreate it in the digital world with the indie smash title, Super Meat Boy. There aren't many videogames that get attention from the media (with the exception of, say, Final Fight and the recent Hitman), but this is one of them. Many people, myself included, think that this game doesn't measure up to the high expectations some have placed upon it. I'm going to look at some of the shortcomings, and maybe offer a few helpful tips.
+
+First and foremost: Super Meat Boy is hard.
+
+I'm not one for game reviews so much as commentary. My purpose is just to point out the shortcomings, and to offer some insights on the game and its creator. I'm not looking to defend it or disparage it, I'm just pointing out the truth…I'm just not that good at games (not that I blame

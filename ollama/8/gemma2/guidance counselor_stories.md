@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Eleanor Beaumont's head, casting a sterile glow over the cluttered office. Posters with inspirational quotes – "Reach for the Stars," "Believe in Yourself" – hung precariously from peeling walls, testaments to years of misplaced optimism.  Eleanor sighed, pushing aside a stack of crumpled permission slips and sinking deeper into her creaky chair. It was another Monday morning at Willow Creek High, and already she felt the familiar weight of teenage angst settling upon her shoulders like an unwelcome blanket. 
+
+Willow Creek wasn't known for its academic rigor or extracurricular successes. Nestled in a forgotten corner of rural Oregon, it was more about survival than soaring ambitions. The students were mostly adrift, their futures as hazy as the morning fog that often blanketed the valley. Eleanor, however, clung to the belief that even in this small town, there was potential waiting to be unearthed.
+
+
+She glanced at the clock – 7:58 am.  Just two minutes until her first appointment of the day, a student named Riley Hayes who had been referred for "unexplained behavioral issues." Eleanor braced herself. Another lost soul hoping she could help them navigate the turbulent waters of adolescence.  

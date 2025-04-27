@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named Mimi. She and a team of fellow members of the hospital's emergency room worked day and night to save the life of every person in the hospital. She took incredible care of and never did put the patient's needs below herself or her family. It got so bad that doctors refused to work with her in the future and she was forced to start her own emergency trauma care center. One day, I want you to watch a video that tells a very different story.
+
+Mimi is being treated in the emergency room of a different hospital run by a different team. She is watching the video of her past team performing a procedure on some other poor wounded patients. Mimi has come up to the door but instead of giving her a hug and a kiss, the staff pulls her back. They say she cannot help the patient.
+
+The staff then take all photos and video from their room. Mimi's team are all gone and she sees the new team members standing alone in the hallway with only their headlamps to show their direction. They have no idea where Mimi went, what's wrong or why they are being sent away.
+
+Mimi watches helplessly as they leave and then she sees the door suddenly open and her old colleagues race into the room. They quickly run all over the old patient's body asking if he is ok. He had a bad car accident and his ribs are broken. Mimi knows that

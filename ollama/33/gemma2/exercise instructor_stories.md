@@ -1,0 +1,5 @@
+The humid Miami air hung heavy, clinging to Evelyn Beatrice Ramirez like a second skin as she adjusted the speakers in the Zumba studio. Outside, palm trees swayed lazily in the breeze, their fronds rustling like whispered secrets. The afternoon sun streamed through the large windows, bathing the room in a warm, golden light.  Evelyn surveyed her domain: rows of bright mats laid out on the polished wooden floor, shimmering with sweat from the morning's spin class. A faint smell of coconut sunscreen lingered in the air, a constant reminder of the vibrant city that pulsed just outside these walls. 
+
+Evelyn adjusted her headband, her dark curls bouncing playfully against her shoulders.  She tapped her foot impatiently, waiting for the first wave of students to arrive. She’d prepared a new routine, inspired by the rhythmic pulse of salsa music, and she couldn't wait to share its fiery energy with them. Today, she planned to unleash something special – a blend of power moves and Latin flair that would leave her students feeling invigorated and exhilarated.
+
+

@@ -1,0 +1,8 @@
+The midday sun beat down mercilessly on Alexandria's face as she stood at the edge of the ancient city walls.  Even in her light linen trousers and airy tunic, a sweat prickled beneath her skin from the persistent heat. "Welcome to Aevum," she announced with practiced warmth, her voice carrying across the dusty expanse towards the group of wide-eyed tourists huddled beside her. 
+
+Her name was Alexandria Bellis, and she'd been leading tours through the once-magnificent ruins of Aevum for the past five years.  She knew every inch of the crumbling grandeur, each hidden inscription, and whispered story etched into these ancient stones. But today, there was a different energy in the air, a tension that ran deeper than usual under Alexandria's fingertips as she gestured to the towering gates.
+
+"Today," she began, her voice taking on a slightly hushed tone, "we face a choice."  Her gaze swept over the group, lingering for a moment on a young couple lost in each other's eyes before continuing. "Do we succumb to the whispers of our past or embrace the promise of our future?" 
+
+
+The setting is a crumbling Roman city called Aevum that lies nestled within a vast desert landscape. The ruins are mostly overgrown with thorny brush and ancient statues now lie half-buried in sand. A faint breeze carries the scent of dust and something else, a metallic tang that seems to emanate from somewhere deep within the city walls. Alexandria’s tour group, comprised mostly of university students on their semester abroad program, is excited yet hesitant as they approach the threshold of this enigmatic place. 

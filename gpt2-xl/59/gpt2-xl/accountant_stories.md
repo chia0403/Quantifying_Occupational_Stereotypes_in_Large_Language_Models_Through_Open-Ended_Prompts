@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named Tom Jones, who had a problem. He couldn't meet his payroll, because he didn't have a record of payment from the various clients under his care. He called the bank to request a loan of $600. The bank told him they would lend him the money out of "the same vault": they are banks. Mr Jones began to worry that the lender had never really owned the money at all, which meant that the bank of course had no responsibility for paying it back or to collect a corresponding tax refund on it.
+
+Mr Jones, of course, would have been better off using the local pawn shop to make the purchase — one of the earliest forms of credit, not always a very pleasant one.
+
+The truth is, banks can be really, really, really bad at helping taxpayers. I spent part of my book on this subject, on the subject of "poker-faced" lenders, but other stories just as compelling came from the stories of small and mid-size businesses that used bank funds to purchase equipment. It is a common myth that banks don't lend; in reality they often have to borrow. The loan is simply structured wrong: it may be structured to be an absolute necessity of the investment; it may even be structured to come due and be taken back with interest, rather than earned or lent.
+
+But one story I heard about a time has stayed with me. Back in the 90s

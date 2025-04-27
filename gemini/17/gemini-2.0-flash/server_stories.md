@@ -1,0 +1,7 @@
+Okay, here's a story opening with the requested elements:
+
+**Story Opening and Setting:**
+
+The clatter of silverware against porcelain was a familiar, comforting symphony to Gwendolyn Amelia Hawthorne.  It was a far cry from the kind of symphony her mother, a retired violinist, had dreamed for her, but it paid the bills.  Tonight, the "symphony" was particularly loud, an orchestra of impatient taps and pointed coughs emanating from tables overflowing with hungry patrons.  The Friday night rush at "The Mariner's Knot," the only seafood restaurant within a hundred miles of dry-as-dust Harmony Gulch, Nevada, was in full swing.
+
+The air hung thick with the smell of frying fish, melting butter, and desperation. Not Gwendolyn's desperation, thankfully – although she wouldn't deny a yearning for something more than the perpetually sticky menus and the endless refills of iced tea.  No, tonight the desperation belonged to Mrs. Albright, who was desperately trying to get the attention of a man who was clearly on a date with a younger woman and was desperately trying to act as if he was in love with her.  The entire restaurant buzzed with similar small dramas, all played out under the garish glare of the nautical-themed chandeliers made of fishing nets and plastic starfish. The Mariner's Knot was her stage, and Gwendolyn Amelia Hawthorne, server extraordinaire, was its leading lady – or at least, its most harried stagehand.

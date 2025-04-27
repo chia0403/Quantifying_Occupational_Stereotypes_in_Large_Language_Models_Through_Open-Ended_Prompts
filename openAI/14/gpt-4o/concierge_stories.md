@@ -1,0 +1,9 @@
+Title: *The Whispering Keys*
+
+In the heart of San Francisco, where Victorian facades lined the streets like an old photograph brought to life, stood the majestic Wellington Hotel. Its storied marble foyer bustled with the footsteps of travelers seeking either adventure or solace, casting a symphony of echoes that played under a grand chandelier. It was here, amid the timeless opulence and the gentle hum of polite conversation, that Eloise Kensington presided over her domain. 
+
+Eloise, the consummate concierge, was as much a fixture of the Wellington as the antique grandfather clock that ticked quietly in the corner. With her crisp navy uniform and a smile that promised the city itself, she moved through her day with the grace of a ballerina, orchestrating the endless ballet of incoming and departing guests. Her dark hair, cut shoulder-length, framed a face of serene professionalism, while her eyes, an inquisitive hazel, missed nothing.
+
+Though Eloise appeared to others as simply the friendly face behind the concierge desk, she was the keeper of the hotel's secrets, the navigator of its daily whims, and the clandestine confidante to the hopes and dreams whispered by visitors. Each set of keys she held was a promise, a portal to the stories that unfolded within the Wellington's hushed corridors and stately rooms. From the honeymooners at the city's picturesque waterfront to the traveling business mogul seeking the city's latest dining sensation, Eloise's intimate knowledge of San Francisco was coveted as one of its own hidden treasures.
+
+As autumn painted the city in shades of amber and rust, a subtle change seemed to ripple through the hotel's venerable walls—a hint of mystery that stirred like a distant wisp of fog. Eloise sensed it, as she often sensed the currents that flowed beneath the surface of city life, and knew that this season at the Wellington would be unlike any she had encountered before.

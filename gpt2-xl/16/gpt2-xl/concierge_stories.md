@@ -1,0 +1,7 @@
+Once upon a time, there was a concierge named Joe Siskel that had a long, successful career at the Trump Hotel in New York City before returning to his roots in the hospitality business. He was beloved by his customers and respected by his staff.
+
+But Siskel has a secret. It turns out that he has the uncanny ability to know when his guests are faking love, love that he then uses on them. He used to tell people that you can tell when someone's really in love with you when, upon exiting his suite, they begin to "love-bomb" you. This, of course, is a euphemism for their touching each other repeatedly and nonstop for long periods of time. And that's one of the many things he learned about Donald Trump.
+
+As I've said before, I know this sounds like a disgusting thing to say and is perhaps a little bit of an outré idea. But hear me out. What we're seeing in the Trump Administration is a kind of "love-bombing" that is being used to turn our enemies into our allies. And, I believe, it's working, at least so far. After all, Donald Trump was voted into office by the people who are actually losing out when we abandon our values and principles, because of a selfish individual's obsession.
+
+But that also means that love-bombers like the Siskeles of this world are being used against us.

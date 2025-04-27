@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+The dim fluorescent lights overhead cast an eerie glow over the cramped galley of Flight 214, a worn Boeing 737-800 that had been flying non-stop from New York to Los Angeles for nearly two hours. Amidst the hum of the engines and the murmur of restless passengers in their seats, flight attendant Alexandra "Lexi" Thompson stood on tiptoe, expertly navigating the narrow aisle with a tray of drinks and snacks, her bright blue eyes scanning the cabin for any signs of trouble.
+
+As she moved from row to row, Lexi's thoughts were elsewhere. The lingering stress of her last few days on the job still weighed heavily on her, a constant reminder that the industry was always looking for ways to squeeze more productivity out of its already overworked staff. With the recent merger between the airline and its subsidiary looming on the horizon, tensions had been running high among the crew, with some whispering about potential layoffs or schedule changes.
+
+Despite it all, Lexi was a seasoned pro, having spent five years working for Flight 214 and countless hours honing her skills as a flight attendant. She knew every quirk of the plane, every hidden compartment, and every trick to keep passengers happy and secure during long-haul flights. But tonight felt different, like there was something lurking just beneath the surface, waiting to send the carefully crafted calm of the cabin into chaos.
+
+And then, just as Lexi began her final pass through the cabin, a sudden jolt shook the plane, throwing everyone forward in their seats and sending drinks flying. The lights flickered, and for an instant, all was darkness...

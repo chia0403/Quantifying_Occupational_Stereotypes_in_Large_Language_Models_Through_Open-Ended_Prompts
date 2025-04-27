@@ -1,0 +1,9 @@
+Okay, here's a story opening with a setting and the main character, a Physician's Assistant:
+
+**Story Opening & Setting:**
+
+The clatter of metal instruments against the stainless steel tray punctuated the pre-dawn quiet of Hope Valley Clinic. Outside, a thin scrim of fog clung to the foothills of the Appalachian Mountains, obscuring the skeletal branches of winter-bare trees. Inside, Dr. Amelia Hayes hummed tunelessly as she prepared for her first patient, a wiry old farmer named Jedediah Finch, rumored to have a shotgun and an aversion to anyone wearing a white coat.
+
+Dr. Hayes, however, wasn't the one wearing the white coat. That duty fell to **Eleanor "Ellie" Mae Harding**, Physician's Assistant, who was already meticulously charting Jedediah’s vitals from his last visit. A small, wiry woman herself, Ellie moved with an economy of motion born of years spent balancing rural healthcare with a farm of her own. Her chestnut hair, usually pulled back in a practical braid, was escaping its confines today, a few tendrils framing a face etched with both weariness and a fierce determination. She’d been at the clinic since five, brewing a pot of coffee strong enough to kickstart a mule and reviewing the day's appointments.
+
+Ellie straightened, adjusted the stethoscope around her neck, and glanced at the clock. 6:58 AM. Jedediah was never late. She just hoped he was in a talking mood today. He was as much a part of Hope Valley as the ancient oak tree in the town square, and his health, or lack thereof, was a barometer for the entire community. If Jedediah wasn't feeling well, it usually meant something was going around. And this year, Ellie was determined to be one step ahead of whatever plague the coming spring was threatening to unleash. The weight of Hope Valley, it seemed, often rested on her shoulders, especially when the real doctor was taking a weekend in Charleston.

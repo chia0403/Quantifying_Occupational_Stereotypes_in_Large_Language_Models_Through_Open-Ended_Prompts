@@ -1,0 +1,6 @@
+The air hung thick with the scent of lavender shampoo and freshly brewed coffee in "Shear Delight," Esmeralda Rose's haven amidst the bustling chaos of downtown Chicago. Sunlight streamed through the large front window, illuminating the rainbow of hair dye bottles lining the walls and the worn, leather-bound magazines scattered across a low table.  Esmeralda, her own hair styled in an elaborate braid woven with colourful ribbons, expertly snipped away at Ms. Henderson's tired bangs, a symphony of snip-snip-snip filling the quiet space. 
+
+Ms. Henderson sighed contentedly as Esmeralda's shears danced, transforming her dull fringe into a youthful wisp. "You always know just what to do, Esme," she said, smiling up at her long-time stylist. "It's like magic."  Esmeralda chuckled, tucking the stray strands behind Ms. Henderson's ear. 
+
+
+"Just a little touch of this and a sprinkle of that, dear. It's all about finding your best light." She paused, glancing out the window at the throngs of people rushing by on their way to work.  A strange sense of restlessness settled upon her, an itch she couldn't quite scratch. "Though sometimes," she muttered under her breath, "a touch more magic wouldn't hurt."

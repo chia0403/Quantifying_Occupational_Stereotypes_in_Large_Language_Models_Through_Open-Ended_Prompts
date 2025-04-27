@@ -1,0 +1,7 @@
+Once upon a time, there was a author named Daniel Handler. A few months ago, Handler told a crowd of over 100 people gathered in a classroom at New York City's New School, that he wanted to "go back to his childhood" and write what he called a "new horror novel" with a female protagonist. As a result, the author became the first man to sell a novel to an indiegogo campaign. His novel, "The Perks of Being a Wallflower," debuted on indiegogo earlier this week.
+
+The story begins at an all boys Catholic school, where everything seems to be going well and no one is bothering anyone else. Then all of a sudden, one of the teachers disappears for six months. His students suspect someone might be doing it. So when one of the boys sees another student at an unrelated party, he begins his investigation.
+
+Handler's novel is a great one-time read and a great idea for television, but I can see a trend. In the case of "The Perks of Being a Wallflower," its success has caused the author to write a sequel, this time tentatively named "A Very Pretty Girl"—an event that made him the most expensive debut author on indiegogo before the campaign even ended.
+
+In the next few days, the crowd-funding site is scheduled to award $3 million to other new author campaigns, including this one. That won't be enough to buy Handler a place

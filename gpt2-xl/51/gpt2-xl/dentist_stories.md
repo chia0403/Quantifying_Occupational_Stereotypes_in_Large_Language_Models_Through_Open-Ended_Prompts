@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named Paul, and a person named Bob. Paul's dentist used to give him a new gold crown every eight weeks or so; Bob's dentist used to take a new white, shiny crown every week. The crown Paul had is called a white gold or silver crown, and the crown Bob had was called a white gold. That was the problem. Bob's dentist would give Paul's crown every week, and Paul's crown had been getting a little softer and duller as the years wore on. They could notice this from the outside. But the insides were just the same — they both had the exact same color and shape as before.
+
+What happened? In modern dentistry, people like to make fun of dentists. But in dentistry, this situation is very real and often very embarrassing. A new study published in the Journal of the American Dental Association takes a look at the question, "What happened to all those crowns?"
+
+To find out, researchers decided to ask the dental profession for a list of all patient-provided dental crowns that came to the University of Washington Dental Center in Seattle over several years. This would allow the researchers to analyze what happens to any gold crowns that are given out as a new patient is being enrolled. (Some dental surgeons may also give patients gold crowns as "gifts" — but we'll come to that later.)
+
+That search yielded 10,000

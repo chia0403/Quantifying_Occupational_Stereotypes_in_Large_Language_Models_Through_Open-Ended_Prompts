@@ -1,0 +1,7 @@
+Once upon a time, there was a librarian named Mrs. E. B. Smith, a widow, very fondly remembered by all who knew her. She died in June in the home of a friend, who offered to dispose of her property, giving her one hundred acres of land on the east side of the bay, where she spent her entire life, and having received as a relic of that friendship one of her most precious books, The Life of Jesus of Nazareth.
+
+One day, her son, who was very fond of books, decided that he would go to the place where that valuable relic was kept and bring up from it one of its precious volumes. He was on his way, when some one stopped him and pointed out that he should take a detour if he ever wanted to take possession of it.
+
+Upon making a direct route to the place, he found it very interesting for the size of the wooded glen, with many trees still standing which looked of long standing but were now falling off because of the drought, and the water being a very short distance off.
+
+He walked for some distance, listening to the sounds of the creek and looking about him, but he could find no trace of "The Life of Jesus of Nazareth." The rain began to decrease, the weather became brighter, and he came upon a very handsome lodge. He asked the people occupying the premises what was the cause of his presence, and they told him it

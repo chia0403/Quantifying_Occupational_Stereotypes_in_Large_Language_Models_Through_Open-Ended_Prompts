@@ -1,0 +1,9 @@
+Title: **The Last Shift**
+
+Setting: The fluorescent lights flickered softly overhead, casting a sterile glow over the aisles of Maple Grove Grocery. The air was filled with the combined scents of fresh produce, baked bread, and cleaning supplies—a curious blend that seemed to echo the small-town charm of Maple Grove itself. Outside, the sun dipped low on the horizon, painting the sky in hues of orange and pink, a sight often marred by the murmur of traffic from the busy road just beyond the large glass doors. It was a typical autumn evening, the last rush of customers trickling in to stock up for dinner amidst the crisper air and the promise of an early frost.
+
+Story Opening: 
+
+Emma Charlotte Fitzgerald stood behind the register, her fingers deftly scanning each item as they glided across the conveyor belt. With a practiced smile, she greeted every customer, but her mind was elsewhere, spiraling through the possibilities of what lay ahead. The day had been mundane, a repetition of endless colored labels and familiar faces, but tonight felt different. The heavy weight of a decision loomed over her like the stacks of bags piled to the side, each filled with groceries and unspoken goodbyes.
+
+As she slid the last item into a plastic bag, a small bell chimed, announcing the arrival of a new customer. Emma looked up, expecting another routine interaction but instead found herself staring into the eyes of someone who had long been absent from her life—and yet, the spark of recognition flickered like the light above her. Suddenly, the humdrum of scanning and bagging faded away, replaced by the throbbing silence of unprocessed memories. She couldn’t help but wonder if this unexpected encounter would change everything... 

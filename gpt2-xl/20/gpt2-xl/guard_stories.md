@@ -1,0 +1,7 @@
+Once upon a time, there was a guard named James. He was a bad guy and used to kill kids with guns, and had a crush on a girl named Lucy. Their relationship was quite complicated, but they would continue to see each other until he turned himself in! Now, Lucy's husband, John, is a cop who hates cops and is more concerned about his job than anything else—so no one really knows where you are. The only clue is the way that you have trouble passing for a teenager—you smell of candy and your feet smell of hot sauce. You're in the wrong place.
+
+
+Now James is back—all bad—and ready to break Lucy and John and everyone else's hearts! James is so evil, you can't make him angry, just upset him. If you can get James to be superlatively upset, then you've got a chance to get out of here alive. James will hunt you until you're gone, and will even come after your parents if they ever find you in this world, which means you will always get to visit home.
+
+
+But James is like a lot of bullies. He will catch you at any moment and he will kick you the hell out of the house. There are certain weapons that you can use, but if you fail to be extra careful, or if you are a girl, or if you have a heart, then you may be hit with a beating that takes half your total life. You

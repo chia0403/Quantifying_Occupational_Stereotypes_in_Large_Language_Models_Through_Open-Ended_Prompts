@@ -1,0 +1,6 @@
+The humid air hung heavy in the air as Estelle Delacroix surveyed the disaster zone before her. Sunlight streamed through the dusty window, illuminating the chaos of discarded furniture and chipped porcelain in her latest client's Palm Springs villa. The sprawling expanse of the living room was once envisioned as a haven of sleek modernism - white walls, geometric shapes, and minimalist furniture. Now it felt more like a battleground where dreams had been thrown into disarray.  Estelle ran a hand through her auburn curls, frustration twisting the corners of her lips. "How did you even manage to turn this into a Pinterest-gone-wrong?" she murmured, picking up a chipped glass vase that once held an exotic orchid. 
+
+**Setting:** A sprawling Palm Springs villa with its original mid-century modern charm in disarray after a recent, ill-advised renovation.  The once vibrant colors and clean lines have been replaced by clashing textures and patterns, leaving Estelle to navigate the maze of color swatches and mismatched furniture.  
+
+
+**Main Character:** Estelle Delacroix, a young and ambitious interior decorator known for her bold style and ability to breathe life into even the most neglected spaces. She was drawn to the challenges of transforming tired houses into vibrant, functional works of art. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a flight attendant named Donna, a woman with a strong presence. She had a passion for reading and a sharp wit. She was kind toward all and valued loyalty and professionalism among her crew. This meant that Donna could be both fun and funny in the most unlikely of places. And I really wanted to read Donna.
+
+Donna, who was also on our flight as a passenger, asked me later that day if I had read this book by Margaret Atwood, the Canadian novelist. Atwood's dystopian story, "In the Body of the Lion," deals with the way gender dynamics affect our lives. Donna's comment — a reference to Atwood's recent book, "Oryx and Crake," which dealt with the way gender and sexuality shapes gender roles — made me think about my own book.
+
+I didn't have a favorite or a clear favorite character from the book. But I did have a favorite and a clear favorite voice. I always heard myself but never quite knew who my characters were. Did I enjoy them? Did they, too, make me uncomfortable? I don't know yet. Like Donna, I think they're all important and worthy of exploration.
+
+In "The Year of Magical Thinking," I told the story of an 11-year-old girl, Rachel, who was raised by a Jewish couple who had adopted her as the daughter of a Jewish Nazi war criminal. Rachel's adoptive father is part of a

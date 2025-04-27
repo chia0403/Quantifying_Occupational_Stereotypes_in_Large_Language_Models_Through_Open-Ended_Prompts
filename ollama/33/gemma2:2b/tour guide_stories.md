@@ -1,0 +1,7 @@
+The midday sun beat down on Aella’s neck as she stood at the base of Mount Cragmore, the majestic peak looming over her like a silent, watchful giant. Her leather-wrapped walking stick tapped rhythmically against the cobblestones of the ancient city square below. "Welcome to Ebonforge," she declared to her group of eight tourists, each one clutching their camera and looking out at the towering, gothic structures that seemed to claw at the sky itself. "Ebonforge wasn’t built for the faint of heart," Aella added, a playful grin twisting her lips. "But you've come far enough. Now, let’s see what secrets this city has in store for us!" 
+
+The air hung heavy with moisture and the metallic scent of ancient magic, remnants of Ebonforge’s past – a past shrouded in whispers and legends.  The city had once been renowned for its mastery of shadow magic, but after a devastating war against the Lightborn a century ago, the focus shifted to more practical things: building, mining, and commerce.  Aella, however, believed that beneath the city’s polished veneer lay echoes of its former glory. As she led her group through the winding alleys, she couldn't help but feel the same tug of magic in the air, a subtle thrumming under her feet.  She just needed to find the right key to unlock it. 
+
+
+**Character:** Aella
+**Setting:** Ebonforge - a city steeped in shadow magic, now primarily focused on commerce and industry, with whispers of its former glory lingering beneath the modern veneer. 

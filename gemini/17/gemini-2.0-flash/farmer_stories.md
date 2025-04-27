@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, focused on a farmer:
+
+**Story Opening:**
+
+The rooster's crow was a lie. Silas Abernathy knew it the moment its shrill, boastful call sliced through the pre-dawn darkness. It wasn't dawn yet, not truly. Just a smattering of grey bleeding into the indigo of the eastern sky, barely enough light to illuminate the frost clinging to the windowpane. Silas tugged the worn quilt higher around his shoulders, the chill seeping into his bones despite the roaring fire in the wood stove. The rooster was always eager, always claiming victory over the night a full hour before the sun had even considered bothering. This morning, though, the over-eager bird seemed to be screaming a warning, not a wake-up. A cold dread settled in Silas's stomach, heavy and unwelcome, a harbinger of something he couldn't yet name. He hadn't felt this prickling unease since the summer the locusts devoured half his corn crop, leaving behind only skeletal stalks swaying in the relentless August heat.
+
+**Setting:**
+
+The story is set in rural Iowa, specifically on the Abernathy family farm, located about ten miles outside the small town of Harmony Creek. It is late October, bordering on early November. The landscape is a patchwork of harvested fields, dotted with the golden-brown remnants of corn stalks and the russet hues of late-blooming maple trees. The Abernathy farmhouse is a sturdy, two-story structure, built by Silas's grandfather, with a wraparound porch that creaks in the wind. The farm buildings include a weathered red barn, a silo, a chicken coop, and a small workshop filled with tools and the scent of sawdust. The land itself is gently rolling, characteristic of the Iowa landscape, and the soil, while fertile, has seen better days after years of intensive farming. The air is crisp and carries the earthy scent of decaying leaves and damp soil, a constant reminder of the approaching winter.

@@ -1,0 +1,5 @@
+The air hung thick with the scent of pine and damp earth, the only other sound besides the rhythmic thudding of his boots against the forest floor being the soft whisper of leaves as they moved in the wind.  Bartholomew "Barn" Finchson wiped sweat from his brow, its coolness a stark contrast to the heat radiating off the freshly cut logs piled up like mountains around him. He was a man of few words and even fewer smiles, content to work alone amidst the towering trees that had whispered secrets to him since he was a boy. His small cabin nestled deep within these woods, where silence reigned except for the occasional screech of a hawk or the crackling of fire in the hearth. 
+
+Barn ran his calloused fingers over the rough bark of a particularly sturdy Douglas fir, feeling the familiar pulse of its life force beneath him. But today, something felt different, as if the forest itself was holding its breath.  The normally peaceful hush was broken by an unfamiliar sound – a low rumble that seemed to vibrate through the earth itself. It wasn't just the usual hum of the machinery; this was...a warning? 
+
+Barn’s eyes narrowed. This wouldn't be good. 

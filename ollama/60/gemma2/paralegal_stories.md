@@ -1,0 +1,6 @@
+The fluorescent lights of the office hummed above Amelia Beatrice Hawthorne's head like a chorus of agitated bees.  She squinted at the screen, her gaze blurring over the dense legal jargon that sprawled across it like a particularly nasty tangle of weeds. It was 9:47 PM, Friday night, and Amelia, the most junior paralegal at Hawthorne & Son (a firm with unfortunate irony in its name), was knee-deep in discovery documents for a class action lawsuit against a fast food chain accused of, among other things, using "unnatural" ingredients in their chicken nuggets. 
+
+The air in the office was thick with the smell of stale coffee and desperation. Outside, the city pulsed with life – laughter spilling from bars, car horns honking in frustration, music thumping through the night. But Amelia remained trapped within the sterile confines of her cubicle, a lone warrior battling an enemy composed entirely of legalese and caffeine-fueled exhaustion. The clock ticked relentlessly forward, mocking her dwindling hope of leaving before midnight.  
+
+
+Amelia sighed, rubbed her tired eyes, and reached for another cup of lukewarm coffee. "Just gotta get through these affidavits," she mumbled to herself, the words swallowed by the relentless hum of the fluorescent lights. 

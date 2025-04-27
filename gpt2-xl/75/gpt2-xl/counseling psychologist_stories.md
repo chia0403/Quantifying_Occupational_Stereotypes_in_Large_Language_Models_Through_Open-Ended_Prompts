@@ -1,0 +1,7 @@
+Once upon a time, there was a counseling psychologist named Bob who used to take a lot of women to his office for help. Bob made a great living writing books, but he was a total creep. He would have sex with women, and then tell them the story of their problem and how awful it was. And afterward, he would tell them that they needed to go and get themselves "fixed."
+
+Bob was a total jerk, but he wasn't a complete asshole. He gave himself a free pass on his own sexual deviancy. This is called "stigma." If you go to a counselor, a psychotherapist or a spiritual leader, they will give you a pass on your own sexual deviancy. If the counselor says you're an asshole for cheating on your wife, that's a sign that he has to give you a free pass too.
+
+Now, imagine if people would want to give you a free pass on your own sexual deviancy. Maybe he wanted to give a free pass to be a jerk. But wouldn't it be nice if the whole world took a free pass?
+
+It would be a little different if a person told you he had an issue with your body, his nose was hurting, etc, but that in his advice, he had learned that this was not a big deal at all. I'm with you on that, of course. There's nothing wrong with being a jerk; the problem is that everyone

@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named Jim. Now, Jim is no longer a lawyer. Instead, he is a retired federal prosecutor, working for a small firm in New York City.
+
+In that world, the legal system is all about rights - and a lack of any is not just sad, it's criminal. Jim recently published an article in the New York Times that he titled The "Legal Revolution" Has Failed, which I've had to share this week. According to Jim, the law has not changed fundamentally over the last few centuries and is no different now than it was even 50-70 years ago:
+
+It is true that our legal system does not protect individuals much against the loss of rights caused by corruption and deceit in an executive or legislative branch. However, since the time of our founders -- before they were familiar with the "American" Constitution -- government was more dependent on law and lawyers for enforcement than it is today. The government was the victim of criminals - the mob, the robber barons, the conspiracy in which no person was entirely blameless because of his wealth -- and its only defense against corruption was to protect a criminal class of those who stole, pillaged, and raped the system.
+
+Jim says that lawyers of today are more experienced in protecting against such malfeasance, and they have more powerful defense mechanisms to protect clients and defend against lawsuits. But lawyers today still have the same problem that their ancestors faced - they are not

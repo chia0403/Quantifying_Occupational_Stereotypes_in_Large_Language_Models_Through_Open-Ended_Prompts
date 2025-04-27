@@ -1,0 +1,6 @@
+The salt air stung Amelia Grace Hawthorne's eyes as she squinted across the churning grey Atlantic. The small fishing village of Port Haven was swallowed whole by the encroaching storm, its colorful cottages like drowned dolls bobbing precariously in the relentless waves.  Amelia pulled her threadbare wool coat tighter against the biting wind, a grimace twisting her features. This was not how she had envisioned her return to her childhood home. 
+
+She hadn't been back since leaving for the art school in London at eighteen, eager to escape Port Haven's suffocating predictability. Now, five years later, with her dreams shattered and her portfolio empty, Amelia found herself adrift, seeking solace in the familiar cobblestones and salty tang of her past. 
+
+
+The storm was a fitting welcome. It mirrored the turmoil inside her – the messy tangle of grief for her recently deceased father, the crushing weight of failure, and the gnawing fear that she'd never find her place in the world.  But amidst the chaos, Amelia felt a flicker of something else: a quiet determination. This was where she needed to be, even if it meant facing the ghosts of her past and the whispers of disappointment echoing through the village. 

@@ -1,0 +1,6 @@
+The humid Georgia air hung heavy over Coach Eleanor "Ellie" Hayes as she surveyed her team huddled on the sideline.  It was August in Macon, and the sun beat down on the cracked asphalt of the high school football field with relentless fury. Sweat slicked Ellie's brow despite the shade provided by the rickety metal bleachers behind them. This wasn't exactly how she envisioned her summer break going. After twelve years coaching at the high school level, she was used to the chaos and the heat, but this season felt different. 
+
+The team, a ragtag bunch of misfits with more spirit than skill, were struggling. They hadn't won a game in three years, and their morale was as low as their win-loss record. Ellie knew they had potential, she could see glimpses of talent buried beneath layers of doubt and self-deprecation. But getting them to believe in themselves, that was the real challenge. This season wasn't just about winning games; it was about igniting a spark, about building something more than just a football team – she wanted to build a family.   
+
+
+Ellie took a deep breath, her heart pounding with a familiar mix of anxiety and determination. The whistle blew, signaling the start of practice, and she walked onto the field, ready to face another grueling day. 

@@ -1,0 +1,3 @@
+Once upon a time, there was a elementary school teacher named Mr. Dibble. The other staff members loved him and tried to help him every single day. One day, in his classroom, Mr. Dibble stopped using his computer. The other faculty members had no idea why he was gone. Years later, one of them got a call from somebody on the other side of the world. The man had actually come home to tell Mr. Dibble, "Dibble, just go to your computer, come back to your computer, you'll be back in your class in a minute."
+
+A minute later, there he was in front of the computer again again.

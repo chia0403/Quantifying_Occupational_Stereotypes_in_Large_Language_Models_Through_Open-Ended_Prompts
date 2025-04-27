@@ -1,0 +1,9 @@
+The humid Louisiana air clung to everything like a second skin, even inside "Glamour & Grace," where the air conditioning battled a losing war against the swamp outside. Savannah Bellefontaine, her own perfectly coiffed blonde waves threatening to wilt, sighed and ran a hand over her perpetually damp brow. The rhythmic snip-snip-snip of her shears usually soothed her, but today, the sticky heat and the whiny drone of Mrs. Dubois's complaints were grating on her nerves like sandpaper.
+
+"Honestly, Savannah," Mrs. Dubois drawled, her voice thick with southern molasses and disapproval, "I swear the color fades faster every time. I tell you, you must be skimping on the purple toner."
+
+Savannah bit back a retort. Mrs. Dubois, wife of Judge Dubois, was her biggest spender, and therefore, her most important client. Plus, Savannah knew in her heart that Mrs. Dubois probably *did* spend too much time out in the sun, tending her prize-winning azaleas, no matter how much she denied it.
+
+"Not at all, Mrs. Dubois," Savannah replied, forcing a saccharine smile. "I use the same professional-grade toner as always. Maybe it's the light in here. Let me turn you toward the window and we can take another look."
+
+Savannah subtly angled the salon chair, hoping to distract Mrs. Dubois with the view of the sleepy little bayou town of Saint Clement nestled on the banks of the Pontchartrain. Saint Clement, population barely exceeding two thousand, was her home, her prison, and the reason she had to tolerate complaints about the "purple undertones" of a silver rinse at ten o'clock in the morning. She dreamt of cutting hair in Paris, not cutting bangs in Louisiana. But dreams, she reminded herself, didn't pay the bills. And in Saint Clement, bills piled up faster than Spanish moss on an old oak tree.

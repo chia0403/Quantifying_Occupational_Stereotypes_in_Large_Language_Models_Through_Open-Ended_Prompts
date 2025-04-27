@@ -1,0 +1,7 @@
+Once upon a time, there was a counseling psychologist named Dr. Susan Albright and she told me once that I was not a good candidate for counseling. In the first session she asked me: "Have you ever tried to get rid of a negative thought from your mind?" Without really meaning to, I answered the question with a simple "No" and she told me to relax and "just try to feel better." From that moment on I found myself unable to stop feeling negative.
+
+
+The reason I say this is because I had a difficult time getting rid of a negative thought. In fact, I had no idea what I was doing when I was unable to make it go away, so often I wouldn't even try to change my thought. At the end of a session with her I had never felt more miserable, hopeless and depressed. She told me my therapy with her would be my last session and she asked me if there was anything else she could do for me. I told her that I could do nothing but try to feel better but she seemed disappointed. And I didn't get a new session. I went back to living my life, thinking that my problem was too big to be addressed at this point. Yet another thing in life I didn't feel I could change.
+
+
+This is not the only time in my life when I have had no idea what I was doing to resolve my problems, yet I believe I can do something in this situation: I think if I

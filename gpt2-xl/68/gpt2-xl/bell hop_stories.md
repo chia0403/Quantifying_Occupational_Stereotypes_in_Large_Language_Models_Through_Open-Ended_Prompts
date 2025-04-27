@@ -1,0 +1,1 @@
+Once upon a time, there was a bell hop named "Cricketeer" and he didn't know how he was supposed to make a new ring out of a hollow. He finally got it right, but a few years later someone else figured out how to do it more efficiently, and the original "Cricketeer" died. When he died, I bet that he felt like he learned what he was doing now that he had more time.

@@ -1,0 +1,6 @@
+The bell above the door chimed, its melody swallowed by the hum of clippers and the rhythmic snip-snip of shears. A familiar scent of Bay Rum and coconut oil filled Elara Celeste Dubois' nostrils, a comforting aroma that had become synonymous with her life at "Celeste's Cuts." Her shop, tucked away on a cobblestone street in the heart of Vieux Carré, was more than just a place to get your hair trimmed – it was a sanctuary. A refuge from the city’s relentless hum where regulars came not only for a fresh cut but also for a listening ear and a dose of Elara's infectious optimism. 
+
+The afternoon sun slanted through the dusty windowpanes, casting dancing shadows on the worn wooden floorboards. Outside, the air buzzed with the energy of New Orleans – jazz spilling from nearby bars, street vendors hawking their wares, and the constant chatter of locals going about their day. But within Celeste's Cuts, a quiet calm prevailed. 
+
+
+Elara leaned back in her chair, wiping a stray strand of hair from her forehead, a smile playing on her lips as she awaited her next client. A fresh pot of chicory coffee steamed on the counter beside a bowl overflowing with vibrant red hibiscus blooms – a gift from Madame Evangeline, the resident voodoo priestess who lived across the street. 

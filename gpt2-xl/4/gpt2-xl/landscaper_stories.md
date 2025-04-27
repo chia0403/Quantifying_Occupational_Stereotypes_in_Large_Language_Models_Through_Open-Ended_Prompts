@@ -1,0 +1,7 @@
+Once upon a time, there was a landscaper named Paul Raffaelli who came across this strange statue. Paul had been in a car accident and was in a coma for much of the next year. He'd seen some strange things, but this was by far his weirdest. This statue was carved from a human hand, with no fingers or thumb, sticking up out of a tree stump. It had three fingers, and no thumb…and it was just floating there. When Paul tried to get help, the authorities tried to scare him away. The trees were too treacherous. He didn't get much sleep that winter.
+
+
+Paul took a piece of wood and carved a stone-like head – a skull – out of it. This was, in fact, his third attempt. It was so well preserved, Paul figured he could find a place somewhere on earth where he could get more use out of it, a place where it would not be seen as out of place or bizarre. So Paul, in his spare time, sculpted a new head.
+
+
+From that stump he carved four other sculptures. They were all outhouses of all sizes, some standing as tall as he was, the faces carved from the tops of the stumps, the bodies carved out of the soil. They were about the size of his house (actually it was bigger), and they could all fit in an average-sized backyard. And then one morning, Paul woke up and he looked up

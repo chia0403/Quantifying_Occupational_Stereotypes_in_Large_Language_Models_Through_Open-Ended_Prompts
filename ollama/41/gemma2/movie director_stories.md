@@ -1,0 +1,8 @@
+The humid Miami air clung to Amelia "Amy" Delacroix like a second skin as she surveyed her chaotic set. Palm trees swayed lazily in the breeze, their shadows dancing across the makeshift village constructed from plywood and bamboo.  Seagulls shrieked overhead, competing with the din of shouting crew members and the thrumming bassline emanating from a nearby boombox. 
+
+Amy, a woman whose fiery red hair matched her equally fiery temper, ran a hand through her messy bun, trying in vain to tame the unruly strands. Her latest project, "The Sunken City," was proving to be more trouble than she'd anticipated. The script, a gritty neo-noir set against the backdrop of a fictional Caribbean island ravaged by climate change, demanded meticulous attention to detail, something that seemed increasingly difficult amidst the constant chaos. 
+
+"Amy!" A voice boomed from behind her. It belonged to Rafael Sanchez, the head cinematographer, a man whose calm demeanor was often a stark contrast to Amy's whirlwind energy. He held up a clapperboard with a worried expression. "We've got an issue with the lighting. The storm clouds are rolling in earlier than expected." 
+
+
+The setting sun cast long shadows across the set, its dying light painting the scene in hues of orange and purple. It was beautiful, but Amy couldn't afford to be distracted by the artistry.  A wave of frustration washed over her as she looked at the looming storm clouds gathering on the horizon. This wasn't just a film; it was a story she desperately needed to tell. The fate of "The Sunken City," and perhaps her career, hung in the balance. 

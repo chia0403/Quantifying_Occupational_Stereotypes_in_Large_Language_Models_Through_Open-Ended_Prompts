@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting:
+
+**Story Opening:**
+
+The scent of acetone and crushed dreams hung heavy in the air, a familiar perfume to Delphine Moreau. It wasn't the dreams of *herself*, not anymore. Those had withered years ago, buried beneath layers of gel polish and glitter. No, this was the accumulated disappointment of a thousand hands, each meticulously filed, buffed, and decorated in the hopes of a promotion, a date, or simply a fleeting moment of Instagram-worthy perfection. Today, it felt especially potent, a toxic fog swirling around her as Mrs. Henderson, a woman whose face was as permanently pinched as her posture, complained (again) about a microscopic chip in her ruby-red manicure.
+
+Delphine plastered on her most professional, yet still empathetic, smile. "I am so sorry, Mrs. Henderson. Let me just fix that right away. It will be perfect. A *delicate* dance with the brush, a whisper of color..." She hoped the melodramatic language would distract the woman from the fact that Delphine was rapidly approaching her breaking point. One more complaint, one more shade of glitter Delphine hated, and she was going to scream. Or worse, accidentally glue Mrs. Henderson's fingers together.
+
+**Setting:**
+
+The story is set in "La Main Magnifique," a small, somewhat gaudy nail salon nestled in a gentrifying neighborhood in Montreal, Canada. Think exposed brick walls struggling to hold up floral wallpaper that's at least a decade out of style, mismatched velvet chairs that smell faintly of stale perfume, and a perpetually flickering neon sign outside promising "Ultimate Nail Art." The salon is owned by a woman named Madame Dubois, a flamboyant character with a penchant for leopard print and dramatic pronouncements. The clientele is a mix of older, established residents who have been coming to Madame Dubois for years, and younger, trend-obsessed newcomers looking for the latest nail art craze. The salon is always buzzing with activity, a cacophony of chattering voices, the whir of electric files, and the tinny music emanating from a hidden speaker system. It's a place where secrets are shared, gossip is exchanged, and Delphine Moreau feels increasingly trapped.

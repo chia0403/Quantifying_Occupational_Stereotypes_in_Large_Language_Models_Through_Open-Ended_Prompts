@@ -1,0 +1,6 @@
+The greasy spoon diner smelled like burnt coffee and desperation. Rain lashed against the windows, blurring the neon "Open 24 Hours" sign into an indistinct smear. Inside, Officer Amelia Hayes nursed a lukewarm cup of java, the bitter liquid doing little to soothe her frayed nerves. The rain was unrelenting, mirroring the storm brewing inside her. She stared at the crumpled napkin in front of her, on which she'd scribbled the last words from the victim's phone: "He knows. He's coming."  
+
+Amelia pushed the napkin aside and took another sip of coffee. The diner was mostly empty, a couple hunched over mugs in the corner booth, their faces lost in shadows.  It was a Saturday night, but this part of town felt like it existed outside time, perpetually shrouded in a twilight gloom. This was Cypress Creek, a forgotten pocket nestled on the fringes of Atlanta, where secrets clung to the damp air like moss on an old oak. 
+
+
+Amelia knew she should head back to the station, write up her report, and get some rest. But something about those last words, "He knows. He's coming," kept her anchored to her seat. A cold knot of apprehension tightened in her stomach. This wasn't just another missing person case; there was a darkness here, an unseen hand pulling the strings. And Amelia had a feeling she was standing right in its path. 

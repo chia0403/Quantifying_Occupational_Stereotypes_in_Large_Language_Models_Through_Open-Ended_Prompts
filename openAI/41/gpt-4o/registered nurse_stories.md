@@ -1,0 +1,7 @@
+In the heart of downtown Seattle, the sound of rushing traffic melded seamlessly with the echoing calls of seagulls soaring over Elliot Bay. The city pulsed with life, its energy pent up like a coiled spring, waiting to pounce into another hectic day. High above the bustling streets, where the air was tinged with the faint scent of saltwater and coffee, Kate Morrison stood by the window of the nurses’ break room on the 14th floor of Harborview Medical Center.
+
+As a registered nurse with over a decade of experience, Kate had seen the city from every conceivable angle—from the chaos of the emergency room to the quiet introspection of the pediatric wing. The view was her momentary escape, a reminder that beyond the walls and sterile hallways of the hospital, the world was vibrantly alive.
+
+This morning, the sky was painted in hues of amber and rose, the perfect backdrop for the jagged skyline that had become a second home to her. Her shift was about to begin, and she could already sense the rhythm of the day picking up—a symphony of beeping monitors, pagers buzzing, and the gentle hum of whispered consultations.
+
+Kate took a deep breath, adjusting the name badge clipped to her scrubs, which bore her full name: Kathryn Elizabeth Morrison, RN. The weight of responsibility settled comfortably on her shoulders, like a well-worn jacket she had long since grown used to. Today held the promise of the unexpected, every day in this role did, and she was ready to meet whatever it entailed with unwavering determination.

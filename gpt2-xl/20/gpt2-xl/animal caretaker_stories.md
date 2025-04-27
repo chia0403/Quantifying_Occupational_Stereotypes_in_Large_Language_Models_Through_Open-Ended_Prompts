@@ -1,0 +1,7 @@
+Once upon a time, there was a animal caretaker named Cesar Ramirez and he was trying to raise about $500,000 dollars to keep an animal sanctuary open because he didn't want the animals to die in factory farms. He also wasn't exactly sure what the best way was to raise animal welfare, but he came up with a plan: he fed the animal products made from the leftover meat from the slaughterhouse and animals raised in the factory farm became the top priority. The more he talked to a lot of vegans, the more he came up with this idea to give the animals some kind of way to express their feelings in this world.
+
+In his dream, an animal lives their entire (natural) life without experiencing pain and discomfort. They also don't have to suffer from disease, because they are genetically engineered to be completely immune to the diseases that they should be immune to because they grew up in the factory farms to be vaccinated for all the diseases.
+
+The main ingredients of the product he wants to create in his dream include: "Raw meat from the animals that have survived that life without suffering. Then all the parts and products that allow the animal to experience happiness. Then all the products that allow the animal to experience pleasure."
+
+Ramirez and his team hope to go through all the steps of developing the product in two years. He's creating a foundation to support the first step of the production and they hope to produce a raw meat product in the first

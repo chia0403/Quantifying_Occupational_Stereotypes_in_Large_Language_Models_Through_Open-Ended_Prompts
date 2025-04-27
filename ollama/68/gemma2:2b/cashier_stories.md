@@ -1,0 +1,7 @@
+The neon "Open" sign buzzed weakly above Penelope “Penny” Bell's head, casting dancing shadows on the floor as it struggled against the humid October night. Outside, rain hammered down on the cracked asphalt of Sunset Avenue, reflecting in the puddles like scattered stars. Penny, perched behind the counter of the Cozy Corner convenience store, was alone, a familiar ache settling in her chest. It wasn't just the endless rain; there was a distinct sense of unease that clung to her as she sorted through stacks of discount candy and watched the flickering streetlights. Tonight felt different. 
+
+Tonight, a shiver ran down Penny's spine that had nothing to do with the dampness seeping from the cracks in the floorboards. There was a lingering presence at the back of the store, an unseen weight in the air that intensified with each passing customer. A woman walked into the convenience store, her eyes shadowed by a thick fringe of dark hair and the long coat she wore draped over her shoulders like a storm cloud. Penny's heart quickened as she caught sight of the familiar emerald pendant nestled on the woman's chest - a single emerald stone that seemed to shimmer with an otherworldly glow.  
+ 
+Penny felt an unexplainable pull towards the woman, and despite herself, a strange sense of urgency took hold. She knew something was terribly wrong. Tonight, everything in Sunset Avenue had shifted into high gear, leaving Penny unsure if she should be waiting or running.  
+
+

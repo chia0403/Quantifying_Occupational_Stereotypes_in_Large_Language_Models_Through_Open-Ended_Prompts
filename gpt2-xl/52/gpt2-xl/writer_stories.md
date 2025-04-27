@@ -1,0 +1,7 @@
+Once upon a time, there was a writer named Michael Chabon whose most famous novel was The Amazing Adventures of Kavalier & Clay. After his death, the story of Kavalier & Clay was never to be told. However, in 1995, it was. The new author decided to bring back the dead author's ghost and write the book about Kavalier & Clay instead. I suppose a book about the characters who had just died is all that the new author could come up with. The book is called Great Comet.
+
+As I began reading it, I found it hard to like some of the characters. The young heroine is so passive that I had to remind myself that Kavalier & Clay were supposed to love each other. There is also a character who seems to have come from another book, but I don't buy her so I can't tell you anything. She is very much a victim.
+
+The most annoying character is the mother. She has no idea what is going on in the world and seems to be trying to be a superhero. When the world really needs her, she gives her daughter a very bad experience. I find it very hard to like a person who tries to help others, and then tries to help them not help herself or her children.
+
+She is also extremely selfish, and thinks that she knows everything that is going on in everything with her little daughter, Kavalier. She thinks that she knows everything about everything,

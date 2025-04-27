@@ -1,0 +1,6 @@
+Once upon a time, there was a barber named Jeff. Jeff used his razor handle to open and close his business, while his wife, the barber's assistant-manager, tended the customers' barber needs. In doing so, Jeff learned the importance of a strong client-service system. In one memorable episode, Jeff and the assistant-manager, a handsome and kind young man named Ron, have an argument, the result of which is an unfortunate incident involving a cut. To appease the anger of his customers, Jeff refuses to allow a customer with a neck injury to have a haircut until the neck injury is healed. The customers, however, still refuse to follow the manager's orders. When Jeff realizes the error of his ways, he apologizes to his customers and vows never to make such a mistake again.
+
+But just before Jeff closes down for the night, he spots an elderly customer who is not properly dressed for a Saturday morning. Jeff is unable to prevent the man from walking into the store, but he is able to prevent him from hurting himself, as a result of a single hair. Jeff then closes the store for good, never to open it again.
+
+On the other hand, it could be argued that we will never know if Jeff was sincere. In order to find the answer to such a difficult question, we will have to examine the meaning of life in general, and, in particular, of a life based on justice and love.
+

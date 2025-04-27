@@ -1,0 +1,6 @@
+The flickering neon sign of the "Rusty Mug" cast a sickly yellow glow on the rain-slicked cobblestones of Old St. Denis.  Rain hammered against the corrugated iron roof, a relentless percussion against the muted cries of the city.  Inside, the air hung thick with the scent of stale coffee and desperation.  Amelia "Ace" Nightingale, Private Investigator, leaned against the counter, her trench coat damp and clinging to her.  A half-eaten pastry, abandoned on a chipped porcelain plate, was the only visible sign of the diner's fleeting clientele.  
+
+Ace, a woman sculpted from resilience and grit, had a particular dislike for rainy nights in St. Denis.  The city, a patchwork of crumbling Victorian architecture and looming, ominous alleyways, seemed to whisper secrets in the downpour, secrets she was paid handsomely to unravel. Tonight, a new one called.
+
+
+The setting is Old St. Denis, a city steeped in history and shadowed by the weight of forgotten secrets.  Rain-lashed cobblestone streets, crumbling Victorian architecture, and flickering neon signs create a sense of mystery and unease. The "Rusty Mug," a small, dimly lit diner, serves as a meeting place for the city's underbelly, a hub for whispered rumours and clandestine dealings.

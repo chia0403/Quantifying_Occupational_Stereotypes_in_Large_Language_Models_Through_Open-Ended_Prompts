@@ -1,0 +1,15 @@
+Okay, here's a story opening and setting featuring an occupational therapist:
+
+**Story Opening:**
+
+The scent of stale coffee and antiseptic hung heavy in the air of Willow Creek Rehabilitation Center.  Eleanor Rose Carmichael, Occupational Therapist, sighed and pushed a stray strand of auburn hair behind her ear, the movement mirroring the wearied routine of her day.  Another stack of charts sat precariously on her desk, each one a testament to broken bodies and fragmented lives. Today, the case of Mrs. Henderson, the retired kindergarten teacher who'd suffered a stroke, loomed largest. Eleanor had spent weeks helping her regain the dexterity to hold a crayon again, a seemingly small victory that held the weight of Mrs. Henderson's identity.
+
+Eleanor glanced at the clock. Time for her first appointment of the afternoon, a young man named David, recovering from a traumatic brain injury sustained in a motorcycle accident. The last few weeks had been a frustrating dance of resistance and incremental progress, a constant tug-of-war between David's anger and Eleanor's unwavering determination. She took a deep breath, a silent prayer for patience, and pushed back her chair. It was time to face another challenge, another opportunity to rebuild a life, one careful movement at a time.
+
+**Setting:**
+
+**Willow Creek Rehabilitation Center**
+
+Willow Creek Rehabilitation Center, located in the heart of the picturesque, but slightly faded, town of Willow Creek, Pennsylvania, is a sprawling, single-story building constructed in the late 1970s.  The exterior is a muted beige brick, softened somewhat by overgrown ivy clinging to the walls.  Inside, the decor attempts to be cheerful with pastel colors and generic nature prints, but the overall effect is more sterile than comforting.
+
+The Center is divided into several wings: Physical Therapy, Occupational Therapy, Speech Therapy, and a residential wing for patients requiring round-the-clock care.  The Occupational Therapy wing features a large, open therapy gym equipped with parallel bars, therapeutic putty, adaptive kitchen equipment, and a variety of assistive devices. Individual treatment rooms line the perimeter of the gym, providing spaces for more private consultations and focused therapy sessions.  Eleanor's small office, crammed with textbooks, therapy tools, and pictures of her golden retriever, Finn, is a testament to her attempt to inject some personality into the clinical environment. The hum of fluorescent lights and the rhythmic beeping of medical equipment create a constant, low-level white noise that permeates the entire building. The facility serves a diverse patient population, from elderly individuals recovering from hip replacements to young adults grappling with the aftermath of accidents and illnesses.  While Willow Creek Rehabilitation Center strives to be a place of healing, it also carries an undercurrent of quiet desperation, a reminder of the fragility of the human body and the long road to recovery.

@@ -1,0 +1,5 @@
+The scent of antiseptic hung heavy in the air, a familiar comfort to Amelia Rose Harper.  She moved through the dimly lit hallways of Pine Ridge Rehabilitation Center with practiced ease, her stethoscope bouncing rhythmically against her chest. Sunlight struggled to pierce the clouds, casting long shadows across the worn linoleum floor. Outside, the wind howled, rattling the windows like anxious bones, a counterpoint to the gentle whirring of machines that kept patients alive and, hopefully, hopeful.
+
+Amelia paused at Room 214, her brow furrowing slightly as she noticed a flicker of movement within.  She inhaled deeply, willing herself not to flinch at the sickly sweet smell emanating from the doorway. This was always the hardest part - confronting the fragility, the desperation etched on the faces of those who had lost control of their bodies, their lives. Yet, Amelia found solace in her work. She saw it as more than just rehabilitation; it was about restoring dignity, reigniting purpose, proving that even amidst the wreckage, there could be hope.  Today, she hoped, Room 214 would be a testament to that.
+
+

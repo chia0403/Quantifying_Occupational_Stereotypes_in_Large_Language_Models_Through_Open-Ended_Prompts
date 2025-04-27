@@ -1,0 +1,7 @@
+Once upon a time, there was a bell hop named Bob who got into a fight with a bully on school grounds. The bully lost his temper and threatened to kill Bob and his dad. I do find this funny when he says "I'll show ya'. Nowadays, many people are trying to defend this type of behavior (especially the bully's) by claiming Bob and his dad were too soft. What is your assessment of this behavior?
+
+
+Well. This is what I think about that. I do believe that there is a sort of "bully" complex that many people are born with. But I do believe that they aren't fully formed, because when a bully gets older, we see that he becomes more aggressive and his problems become more severe. I don't recall Bob ever being abusive or being verbally abusive to anyone. He may have been an asshole to some people, but I certainly didn't hear him being a mean friend. He did however have an inflated sense of his importance in the world, and he thought he is the last, best person to ever come out the woods, the last person who will ever have what it takes. (This was during a time in my life when the world felt very uncertain and uncertain is a great indicator that the person has issues.)
+
+
+Also I can't remember the bully actually winning. It seems like he had a better idea of what he wanted and got what he wanted, but he was still losing. Again, just more

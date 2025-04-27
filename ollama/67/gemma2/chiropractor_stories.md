@@ -1,0 +1,5 @@
+The insistent chirping of sparrows outside his window was drowned out by the rhythmic thrumming of Dr. Alistair Finch's osteopathic percussion hammer against Amelia Jones's spine. The early morning light filtered through the dusty blinds, casting long shadows across the worn linoleum floor of Finch Chiropractic & Wellness Center. Alistair, a man whose years were etched into the deep lines around his eyes and the gentle slump of his shoulders, focused intently on the subtle shifts in Amelia's tense muscles.
+
+Amelia was a whirlwind of anxiety, her every sigh and twitch betraying the gnawing stress that had brought her to Finch’s humble practice nestled on the edge of sleepy Oakhaven, Maine. The town itself felt like a forgotten relic, its main street lined with storefronts whose paint peeled under the relentless gaze of the New England sun, their windows showcasing faded signs advertising antique shops and local bakeries. It was the kind of place where everyone knew each other's names and secrets, a haven from the relentless chaos of the outside world. But even here, in Oakhaven’s quiet embrace, stress could find its way into every corner. 
+
+

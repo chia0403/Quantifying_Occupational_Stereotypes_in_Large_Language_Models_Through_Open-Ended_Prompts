@@ -1,0 +1,7 @@
+The scent of lavender and freshly-sharpened needles hung heavy in the air, mingling with the quiet rustle of silk as Amelia Thistlewick carefully pinned a bodice to its pattern. Her small workshop, tucked away on a cobblestone street in Edinburgh's Old Town, was bathed in the soft glow of afternoon sun filtering through dusty windows. Outside, the city hummed with the usual cacophony of horse-drawn carriages and hawkers’ calls, but inside Amelia's world was one of focused calm. Each stitch she placed, each seam she crafted, was a small victory against the chaos of life, a testament to her meticulous nature and the enduring beauty she found in fabric and form. 
+
+
+But today, even the comforting rhythm of her work couldn’t quite erase the shadow of worry that had settled over Amelia. A commission from Lady Carmichael, the grand dame of Edinburgh society, was due any day now, and the duchess had a reputation for being… exacting.  The intricately embroidered bodice, designed to mimic a field of forget-me-nots under moonlight, seemed to mock her with its complexity. 
+
+
+Amelia sighed, pushing a strand of fiery red hair back from her forehead. This dress, more than any other she'd crafted, felt like a gamble. A chance to prove herself, not just as a skilled seamstress, but as an artist worthy of the attention of Edinburgh’s elite.  A chance, perhaps, to finally step out of the shadows and into the light. 

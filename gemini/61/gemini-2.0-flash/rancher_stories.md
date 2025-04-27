@@ -1,0 +1,7 @@
+## Opening:
+
+Dust devils danced across the cracked earth, mimicking the restless spirit stirring within Abner Ezekiel "Zeke" Calhoun. He stood on the porch of his weathered clapboard ranch house, squinting against the setting sun, a perpetual squint etched deeper into his face by years of sun and worry. The silence was a thick blanket, broken only by the mournful creak of the windmill and the distant lowing of his cattle, a sound that usually brought him a measure of peace, but tonight felt more like a lament. The air hung heavy with the scent of sagebrush and the coming storm.
+
+## Setting:
+
+Zeke's ranch, christened "The Broken Spur" more out of ironic defiance than romanticism, clung to the harsh landscape of the northeastern corner of New Mexico. The land was vast and unforgiving, a tapestry of ochre and burnt sienna, stitched together by snaking arroyos and dotted with the hardy resilience of mesquite and prickly pear. The ranch itself was a collection of buildings that had accumulated over generations: the main house, a sturdy but tired structure built by his grandfather; a crumbling barn, its roof patched with rusting corrugated iron; a bunkhouse that hadn't seen a full crew in years; and a corrals system, dusty and worn, but still functional. In the distance, the jagged silhouette of the Capitan Mountains clawed at the sky, a constant reminder of the land's untamed power and the precariousness of human endeavor within it.

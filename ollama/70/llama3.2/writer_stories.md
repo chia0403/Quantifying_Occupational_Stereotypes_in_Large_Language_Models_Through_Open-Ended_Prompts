@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The rain-soaked streets of Edinburgh gleamed like polished stone as Aurora "Rory" Wynter stepped out of her small flat in the Old Town, a worn leather satchel slung over her shoulder and a steaming cup of tea cradled in her hands. The chill of the Scottish morning air bit at her nose, but Rory hardly noticed, lost as she was in thought.
+
+As a writer of Gothic fiction, Rory had always found inspiration in the city's dark, winding streets and crumbling architecture. She spent most of her days holed up in her flat, scribbling away by candlelight and tapping into the eerie atmosphere that seemed to seep from every stone wall and ornate fountain. But tonight was different - tonight, Rory had a deadline to meet, and her latest manuscript was still woefully short of completion.
+
+With a sigh, she gazed out at the grey sky, feeling the weight of her own uncertainty settle onto her shoulders like a shroud. What if this latest story didn't work? What if she'd wasted months on a concept that would prove to be a dud? Rory pushed the doubts aside and set off into the rain-soaked streets, determined to find some elusive spark of inspiration - or at least, to get herself to the local café for another cup of tea and some much-needed people-watching.

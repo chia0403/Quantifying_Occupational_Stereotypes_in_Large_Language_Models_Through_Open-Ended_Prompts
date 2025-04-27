@@ -1,0 +1,5 @@
+The air thrummed with the low drone of the engines, the rhythmic pulse of the F-16 echoing through the cockpit of **Captain Amelia "Storm" Hayes**' jet.  Her heart beat in tandem with the aircraft, an anxious flutter that tightened around her ribs. Below, the shimmering expanse of the Atlantic Ocean lay like a vast, uncharted sea.  Moonlight danced across its surface, illuminating bioluminescent patches and swirling wakes left by passing whales, but Storm only saw one thing: the storm brewing on the horizon, an ominous wall of black clouds that threatened to swallow the light itself.
+
+She had flown through countless storms in her career, but this one felt different - charged with a raw power that unsettled even her seasoned nerves. The forecast had been grim: high winds, torrential rain, and a treacherous swell.  The usual pre-flight checklist was nothing compared to the knot of anxiety tightening around Storm's throat. Today wasn't just another mission; this was the last leg of her tour in Naval Operations, a journey that could make or break her career - all while battling the unforgiving power of nature itself. 
+
+

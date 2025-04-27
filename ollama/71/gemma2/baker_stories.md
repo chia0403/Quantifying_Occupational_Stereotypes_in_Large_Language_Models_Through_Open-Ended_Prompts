@@ -1,0 +1,5 @@
+The aroma of caramelized sugar and rising dough hung heavy in the air, a warm blanket against the chill creeping in from the cobblestone streets of Prague. Inside "Sladká Drobná,"  Amelia Rosekova kneaded the dough with practiced hands, her brow furrowed in concentration. The ancient oven hummed behind her, its warmth a constant companion in her small bakery nestled on a quiet side street in the Old Town. 
+
+Sunlight streamed through the stained-glass window, casting dancing rainbows across the flour-dusted counter and illuminating shelves laden with trays of freshly baked kolaches, poppy seed rolls, and plum cakes. Amelia hummed a Czech folk tune, her voice as comforting as the scent of baking bread. A few regulars were already seated at the mismatched wooden tables, enjoying their morning coffee and pastries, while others waited patiently for their orders, their eyes drawn to the display case filled with colorful treats. But today was different. Today, Amelia felt a restlessness stirring within her, a yearning for something beyond the familiar rhythm of her bakery life. 
+
+

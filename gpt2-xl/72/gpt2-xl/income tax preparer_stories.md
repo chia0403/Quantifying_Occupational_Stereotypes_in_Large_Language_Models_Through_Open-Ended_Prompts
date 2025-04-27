@@ -1,0 +1,7 @@
+Once upon a time, there was a income tax preparer named Gary Wagoner whose job was to prepare and print out the tax forms for his client's businesses. One day, his wife came home to find that Wagoner had just died of a brain aneurysm (he died on December 21, 1978). He wanted the forms to be printed for their son's business as well.
+
+So, he set about gathering all the necessary information from each of his clients (which were all family businesses), and from various tax agencies in his network to try and get them to sign on to his last-ditch effort. Eventually, the forms were ready. But before Wagoner could put them in the mail, he had to know the law.
+
+Now, I don't like to use 'law' loosely, but that's the sense within which Gary Wagoner was operating when he first created his last-ditch push to get his clients to sign his last few forms. Tax law is an area of legal practice that is very technical. It consists of a long book that is very much like the Bible (well, I suppose it does in the sense that the Bible is the most-studied legal book in the world). That text is meant to be read and understood, and is rarely understood by a layman.
+
+However, tax issues are as much about understanding rules as they are about the facts themselves. One of the rules Wagon

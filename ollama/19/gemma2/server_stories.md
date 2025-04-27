@@ -1,0 +1,6 @@
+The greasy spoon diner buzzed with the usual pre-dawn crowd: long-haul truckers scarfing down lukewarm coffee, construction workers trading gossip over plates of bacon and eggs, and the occasional insomniac seeking solace in a steaming mug of something strong.  Elara Beatrice Finch adjusted her frilly black apron, the faded cotton scratchy against her skin. Another shift at The Midnight Sun had begun. 
+
+The diner itself was nestled on a forgotten stretch of highway, a beacon of greasy comfort amidst the desolate landscape of rusting gas stations and abandoned motels. Its neon sign, flickering erratically like a dying firefly, cast an unsettling green glow over the cracked asphalt parking lot. Inside, mismatched booths lined the walls, their vinyl seats worn smooth by countless elbows and spilled coffee. The air hung thick with the smell of frying onions, stale cigarette smoke, and a lingering aroma that Elara couldn't quite place, perhaps a hint of desperation clinging to the faded dreams woven into the diner's fabric. 
+
+
+This was Elara’s world - a universe of clattering plates, endless refills, and whispered secrets shared over greasy breakfasts. A universe where she knew every regulars' order by heart, every creak in the floorboards, and every story etched onto the faces around her.  

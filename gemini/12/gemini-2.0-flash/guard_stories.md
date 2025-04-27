@@ -1,0 +1,13 @@
+## Story Opening:
+
+The stale, recycled air of the Orbital Reclamation Station Alpha-7 hummed a monotonous dirge, a constant soundtrack to Jarod Elias Vance's existence. He swiped his access card against the scanner with practiced ease, the green light blinking a brief, unsatisfying confirmation that he was, in fact, authorized to be here. Not that anyone else was likely to be wandering the desolate Level 3 Service Corridors at 0300 hours. The rhythmic clank of his boots against the gridded metal floor echoed in the narrow passageway, a lonely percussion in the mechanical heart of the station. Another night, another patrol, another dose of existential dread threatening to overwhelm him in the echoing silence.
+
+He adjusted the strap of his sidearm, a standard-issue pulse pistol that felt heavy and unnecessary in his hand. Jarod knew, with a certainty that settled deep in his bones, that the most dangerous things out here weren’t armed criminals or escaped convicts. The most dangerous thing was the creeping rot, the insidious decay that permeated the very fabric of the station, both physical and psychological. And lately, he felt it gnawing closer.
+
+## Setting:
+
+Orbital Reclamation Station Alpha-7 is a massive, cylindrical structure orbiting a depleted Earth, a colossal piece of salvaged technology designed to process space debris and recycle resources back to the struggling colonies on Mars and the Jovian moons. It’s old, built in the twilight years of Earth's reign, and it shows. Decades of micrometeorite impacts have left its exterior scarred and pitted, while the internal systems groan and creak under the strain of constant use and inadequate maintenance.
+
+The station is divided into levels, each dedicated to a specific function. Level 1 houses the docking bays and initial processing units. Level 2 is dedicated to refining and manufacturing. Level 3, where Jarod spends his nights, is the network of service corridors and auxiliary systems - the forgotten, neglected arteries that keep the whole behemoth alive.
+
+Level 3 is a labyrinth of dimly lit passageways, tangled cables, and hissing pipes. The air is thick with the metallic tang of recycled water and the faint, acrid odor of decaying electronics. Flickering emergency lights cast long, dancing shadows, turning mundane objects into menacing shapes. Scrawled graffiti, faded and peeling, adorns the bulkheads, testaments to boredom, desperation, and the fleeting rebellions of the station's underpaid and overworked crew. It's a place where hope goes to die, and the only company Jarod has is the hum of the machinery and the ghosts of forgotten maintenance workers.

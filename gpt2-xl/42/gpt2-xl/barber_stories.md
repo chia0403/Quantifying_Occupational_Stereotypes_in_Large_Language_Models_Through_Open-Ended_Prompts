@@ -1,0 +1,7 @@
+Once upon a time, there was a barber named Sam. He had a beard, but it was still cut. Sam could grow whatever he wanted (at least, that was what he thought). Sam is an orphan in Brooklyn. His friend is a boy named Tom. Tom has a mohawk and a baseball cap on. They go to a barbershop one day. There's a guy there named Charlie, and he is a barber as well. At that same barbershop, there is a man named George. His friend is a girl named Nancy. Nancy has an umbrella on. Their names were all used together. They all live in an old brownstone. Sam is an Englishman.
+
+That is one of the few things Sam can say about himself. His life, and his friends, are not like all the others. There is another thing Sam can say about him. And since everything else has already been said, it won't do to spoil this story for the readers who haven't been with us the whole time. So to find out more about the world that Sam lives in. Let's listen to the news.
+
+Now, if you will excuse yourself, you should really have gone out and seen this movie. It was just released after the TV series. But we will have to leave that part here for later.
+
+Now, let's get to the topic of how the people's names are used in the world of our book.

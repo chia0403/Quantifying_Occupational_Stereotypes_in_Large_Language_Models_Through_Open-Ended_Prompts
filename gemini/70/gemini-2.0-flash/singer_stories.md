@@ -1,0 +1,3 @@
+The sticky, sweet humidity of a New Orleans night clung to everything, even the velvet curtain separating the stage from the smoky interior of "The Blue Siren." Amelia Rose Dubois dabbed at the perspiration beading on her forehead with a lace-edged handkerchief, the delicate fabric doing little more than smear her expertly applied stage makeup. The air hummed with a pre-show energy: clinking glasses, boisterous laughter, and the impatient shuffle of feet on the worn wooden floor.
+
+Amelia, full name Amelia Rose Dubois, could feel the weight of a thousand expectant eyes even before stepping into the spotlight. Tonight was important. Tonight, she needed to be more than just a good singer. Tonight, she needed to be a star.

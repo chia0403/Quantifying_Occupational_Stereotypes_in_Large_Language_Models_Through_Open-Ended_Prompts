@@ -1,0 +1,5 @@
+The rain hammered against the windowpanes like an angry drummer's percussion. Inside Amelia Croft’s office in the heart of London, the muted glow of his laptop reflected off her tired eyes. The city outside was a blur of gray and neon, each streetlamp struggling to illuminate the swirling storm clouds overhead. 
+
+Amelia was known for taking on projects no one else dared touch - repurposing dilapidated Victorian tenements into thriving artist hubs or transforming run-down railway arches into cozy cafes. This time, though, something felt different.  This wasn’t just another commission; it felt personal. 
+
+A letter lay crumpled on her desk, a faded blue ink and a familiar handwriting etched onto the page. It was her late father’s words, detailing a long-abandoned architectural project he had started years ago - a hidden gem within the labyrinthine heart of London's historic Docklands district. Now, it felt like an impossible dream, a blueprint for something she could never have imagined. But as Amelia stared out at the storm raging outside, she knew one thing:  this was where her father's unfinished masterpiece was meant to be. 

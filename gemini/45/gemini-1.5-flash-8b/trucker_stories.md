@@ -1,0 +1,4 @@
+The biting wind whipped across the desolate plains of the Dakotas, stinging Elias Thorne's face and rattling the windows of his rig, the "Iron Horse."  Dust devils danced across the cracked earth, swirling like phantom cowboys in a silent rodeo.  September sun, already weak and low, cast long, skeletal shadows that stretched out like gnarled fingers, promising a night as cold as a winter grave.  Elias, a man weathered and hardened by a life spent navigating the treacherous arteries of America, squinted through the windshield.  The faded "Thorne's Transport" logo on the cab, nearly obscured by grime, seemed to mock him.  He was alone, as usual, except for the relentless hum of the diesel engine and the whispering wind.  The only other companion on this stretch of highway was the endless, unforgiving expanse of the Great Plains.
+
+
+Setting: A deserted stretch of highway in the Dakotas, during the late afternoon of a September day.

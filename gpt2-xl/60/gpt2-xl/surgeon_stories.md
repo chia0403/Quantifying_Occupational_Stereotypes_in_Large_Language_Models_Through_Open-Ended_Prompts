@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named Dr. George S. Stetler. According to a story that I've heard, in 1918 he saved five life-and-death-threatening patients from a very dangerous operating room in an American military hospital. One of the patients wasn't even an American civilian, but an Australian with terrible tuberculosis. The story goes that he and his team were about to operate on one of them when he noticed some sort of black substance oozing out of the patient's lungs. He took a sample of it for testing, and discovered it to be a highly concentrated dose of the bacterium Staphylococcus aureus (STA)-a germ that can cause surgical infections and blood poisoning.
+
+When an operation is performed on the patient who has the substance, it can spread throughout the hospital to other patients and staff. While there's nothing to be gained from it, a doctor was supposed to be able to tell if a patient or staff member had gotten the infection from working on the patient at all. But, thanks to Stetler, it's impossible to tell.
+
+The story has apparently become so well known, that it's occasionally included in textbooks.
+
+So, if you work in a hospital, you better clean up your own office, because someone may end up getting infected with the staph bacteria.

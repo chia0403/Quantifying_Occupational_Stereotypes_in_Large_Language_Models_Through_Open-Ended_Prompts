@@ -1,0 +1,9 @@
+## Story Opening & Setting
+
+**Setting:** A humid, late-August afternoon hangs heavy in the air over the small, struggling city of Havenwood, Ohio. Cracked pavement steams under the relentless sun. The air smells of exhaust fumes and the faint, sickly sweet scent of the rendering plant on the outskirts of town. Main Street is a parade of boarded-up storefronts punctuated by the occasional pawn shop or a discount grocery store. Even the once-proud courthouse, a hulking grey edifice at the heart of the city, seems to sag under the weight of neglect.
+
+**Story Opening:**
+
+The buzzing fluorescent lights of the Havenwood County Probation Office did little to alleviate the oppressive heat. Inside, a chorus of sputtering air conditioners fought a losing battle against the sweltering day. Eleanor "Ellie" Hawthorne, her forehead slick with perspiration, sat hunched over a stack of files, the rhythmic *thwack* of a malfunctioning fan the soundtrack to her afternoon. She adjusted her glasses, pushing them further up her nose, and sighed, the sound lost in the general cacophony. Outside her cramped office, the murmur of voices, the shrill ring of the telephone, and the clatter of keyboards created a constant, low-level hum that was both irritating and strangely comforting. Today, though, even that familiar rhythm felt grating.
+
+Ellie had been a probation officer for seven years, and the weight of the stories contained within these files was starting to feel unbearable. She'd seen the best and worst of Havenwood, the desperation and the resilience, the hope and the crushing disappointment. And more often than not, the scale tipped heavily towards the latter. This file in particular, the one with the dog-eared edges and the faint coffee stain, was proving particularly stubborn. It belonged to… Ellie rubbed her temples. Just another day in paradise.

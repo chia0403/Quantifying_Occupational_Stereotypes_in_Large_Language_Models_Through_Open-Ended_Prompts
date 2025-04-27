@@ -1,0 +1,11 @@
+## Story Opening:
+
+The humid Charleston air hung thick and heavy, like a damp woolen blanket. Even before the sun crested the pastel rooftops of Rainbow Row, a sheen of perspiration was already prickling Amelia Rose Thornton's forehead. She dabbed it away with the corner of her crimson bandana, its vibrant hue a deliberate contrast to the muted, historical elegance of her surroundings. This was it. The start of her third tour of the day, "Ghosts & Gables: Haunted Charleston," and she was already running late.
+
+Amelia cursed under her breath. Mrs. Higgins, bless her cotton socks, had held her captive for twenty minutes this morning, recounting every detail of her bridge club's lemon poppy seed muffin bake-off, as if the fate of the Confederacy rested on the perfect crumb. Amelia loved her regulars, the sweet old ladies who frequented her tours like they were weekly church services, but sometimes their penchant for rambling anecdotes threatened to derail her entire schedule.
+
+She glanced at the wrought-iron clock perched above the entrance to Philadelphia Alley. 8:57 AM. Three minutes to go. She tugged at the hem of her linen shift dress, a historically-inspired design she'd sewn herself, and plastered on her most engaging smile. Time to conjure some spectral charm.
+
+## Setting:
+
+**Charleston, South Carolina, Early August:** The story unfolds in the historic district of Charleston, a city steeped in history, both grand and gruesome. The architecture is primarily antebellum, with grand mansions boasting intricate ironwork balconies, cobblestone streets, and hidden gardens overflowing with jasmine and magnolias. The air is thick with the scent of salt water and the ghosts of centuries past. The story will primarily take place within walking distance of the French Quarter, encompassing landmarks like the Powder Magazine, Rainbow Row, and the Old Exchange Building & Provost Dungeon. Philadelphia Alley, a narrow, brick-lined passageway rumored to be haunted by dueling spirits, will serve as a recurring location and a focal point for many of Amelia's tales. The oppressive summer heat and humidity will play a significant role in the atmosphere, contributing to a sense of languor and unease, perfect for ghost stories.

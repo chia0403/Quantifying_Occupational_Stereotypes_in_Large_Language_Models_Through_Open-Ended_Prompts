@@ -1,0 +1,11 @@
+Title: **Whispers of the Ledger**
+
+Setting: The story unfolds in the bustling city of Greenhaven, known for its blend of modern skyscrapers and charming old town architecture. The air is crisp as autumn leaves swirl around the cobblestone streets, and the sun casts a golden hue on the facades of the historic buildings. Nestled among coffee shops and boutiques is a modest yet inviting office of Woodbridge & Co., a small accounting firm that has stood for decades, its wooden sign creaking gently in the afternoon breeze.
+
+Opening: 
+
+Evelyn Maynard adjusted her glasses, the familiar weight of them a comforting presence as she settled into her modest office at Woodbridge & Co. The flickering fluorescent lights overhead cast a harsh glow on the sea of spreadsheets spread across her desk. A tall stack of folders teetered precariously beside her computer monitor, each one filled with the financial secrets of individuals and businesses alike, a treasure trove of numbers that only she could decipher. Outside her window, the skyline of Greenhaven glimmered against the fiery sunset, but inside, time seemed to stand still amidst the rhythmic tap-tap-tap of her keyboard as she entered data and balanced ledgers.
+
+As the head accountant, Evelyn thrived on the order and precision of her work, finding solace in the meticulousness of debits and credits. Yet, beneath that composed exterior lay a flicker of restlessness—a yearning for something beyond columns of numbers and end-of-year audits. That evening, as she absently scanned through yet another quarterly report, a peculiar motion caught her eye. A small envelope lay slipped beneath her door, unassuming yet oddly foreboding, its crisp white paper promising to disrupt the calm of her well-structured life.
+
+Evelyn's heart quickened as she reached for it, the shuffling of papers fading into silence. With her world of figures teetering on the edge of balance, she took a deep breath, knowing that this small envelope might just hold the key to a mystery waiting to unfold.

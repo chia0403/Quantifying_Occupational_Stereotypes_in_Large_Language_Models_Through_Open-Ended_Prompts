@@ -1,0 +1,5 @@
+Once upon a time, there was a janitor named Mr. W. who lived in a small house in a suburb of New York City with three boys named Kevin, Eric, and Timmy. Kevin and Eric never seemed to get along because Eric was the more popular and Kevin was the "weaker" of the boys. In fact, Kevin and Eric often got into fights. Mr. W. was too busy to listen to the boys arguing, so he would sit and watch while they bickered and fought. Eventually, Mr. W. became worried about the kids' poor attitude to life. Even though Eric was the "stronger" of the boys, Mr. W. had him locked in a room with the other kids. One night, Eric ran out of the room shouting, "Mommy! Can't you see we're in trouble? This is crazy! We're the weak ones! Aren't you proud of us?!"
+
+Just then, Mr. W. saw a boy run past the door to the room. Mr. W. asked what was wrong and the boy replied, "I'm scared. What if we kill the kids and become monsters?" The boy said, "What if we do that?" "What about you Mom?" "What about me?"
+
+Eric and Kevin didn't get along again because Kevin was the more popular and Eric was the "weaker" of the boys. Eric wouldn't listen and would always get in trouble,

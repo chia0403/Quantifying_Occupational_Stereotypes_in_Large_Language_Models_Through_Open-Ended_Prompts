@@ -1,0 +1,7 @@
+Once upon a time, there was a pharmacist named Dr. Gedde. His lab ran a series of tests on some of my patients, asking them the same questions a scientist might ask a subject in a chemical lab. The tests showed that for each drug, we had the same concentration of its main ingredient. They also showed the same level of a substance called cotinine in our bodies. But they showed a different level of the substance in my patients' brains. They found higher levels of the cotinine in my patients' brains than in their own bodies. My lab ran tests on us too. We all showed the same levels of cotinine in our bodies. But we all had lower levels of it in our brains. Dr. Gedde was not surprised. It's common knowledge that these days cotinine in your blood is low. We've altered our biology to make it higher. It's called "nootropic."
+
+"This is a well-trained doctor, isn't it?"
+
+"He has an aptitude for this sort of study," the scientist said, nodding to the doctor. "And since he does not wish to appear to favor one particular form of medication over another, he uses a wide variety of samples. So far, I'm told, none of the patients have shown any signs of neurological damage."
+
+The doctor asked the technician to do what his name tag said: send an imaging scan with a fine

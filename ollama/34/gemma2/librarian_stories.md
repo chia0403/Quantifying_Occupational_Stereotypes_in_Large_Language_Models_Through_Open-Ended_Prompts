@@ -1,0 +1,4 @@
+The scent of aged paper and vanilla hung heavy in the air, a comforting aroma that had always been Eleanor Beatrice Hawthorne’s favorite. It was a Friday afternoon, the golden light of dusk filtering through the arched windows of the Oakhaven Public Library, casting long shadows across the polished wooden floors. Eleanor, perched on a ladder halfway up to the dusty shelves of the History section, ran her fingers along the spines of forgotten volumes. A gentle rustle filled the silence as she pulled down a particularly thick tome bound in crimson leather, its title embossed in faded gold: "The Lost Chronicles of Oakhaven."  
+
+
+Eleanor’s heart skipped a beat. This book was a legend amongst the librarians, whispered about in hushed tones and dismissed as pure myth. Yet, here it was, resting in her hands, calling to her with its secrets. 

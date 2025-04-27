@@ -1,0 +1,6 @@
+The diesel engine rumbled like a contented beast, its purr vibrating through the worn leather seat where Jebediah "Jeb" Tucker sat, his knuckles white as bone around the steering wheel. Outside his windshield, the Arizona desert stretched, a tapestry of ochre and burnt umber, punctuated by the occasional scrubby cactus clinging to life in the harsh sun. The air inside the cab was thick with the scent of stale coffee and asphalt dust, a familiar aroma that had become Jeb's own personal olfactory signature.
+
+Jeb squinted at the sunrise bleeding over the horizon, its fiery rays casting long shadows across the desolate landscape. He'd been hauling freight for fifteen years, crisscrossing this country like a steel spider weaving through the veins of America.  His rig, a battered Peterbilt nicknamed "Old Reliable," was his home away from home, a rolling sanctuary where he found solace in the rhythm of the road and the solitude it offered. 
+
+
+But today felt different. A gnawing unease twisted in Jeb's gut, a feeling as unwelcome as a rattlesnake in your boot. He couldn't shake the sense that something was about to change, something big.  The weight of the unknown pressed down on him, heavy and foreboding like the Arizona sky just before a dust storm. 

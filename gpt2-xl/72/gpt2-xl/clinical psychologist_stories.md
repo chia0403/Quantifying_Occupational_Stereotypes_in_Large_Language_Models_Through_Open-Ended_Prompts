@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Dr. Bob Sears on YouTube. He had a show called the Bob and Carol Show that was very popular, but it was very strange. You know, all his show had been a kind of parody of reality television. Some viewers might have even thought he was just in the business of doing this, and you see this in the show, where you have a man who's very successful so he's a really nice guy and he can afford to go out and be funny and he's got great friends.
+
+"But you also have this guy who has an interest in a very unusual area of therapy. He believes that sex can be very healing and beneficial."
+
+ROTH: But I was surprised they'd actually show him doing this counseling therapy with other people. There was a woman from Atlanta who had just been in a car wreck, and they were talking about how she had found healing therapy after she had the accident. And so I said, "What's she talking about?" And they were like, "We don't know." When I tried to ask Dr. Bob about this, he said the same thing.
+
+What was interesting about the Bob and Carol Show, was that, there was a female interviewer, Carol, that he was pretty comfortable with, who'd interviewed all these celebrities for his show and she'd come with him down to the hospital where the woman was, to see if she got better. And

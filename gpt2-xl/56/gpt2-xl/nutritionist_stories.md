@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named Dr. Jack Wolfson. (You may remember him from his time as a contestant on The Biggest Loser.) Before joining Slim Fast, Dr Wolfson was a doctor who wrote a book called The Slim Fast Diet: 50 Amazing Ways to Transform Your Life and Discover Your True Limits. His book is a staple of most mainstream nutrition blogs and podcasts. Now, he has a new book based on his research that came out this week called The Lean Muscle Diet. If you're looking for new ideas on how to eat better and lose fat, then this is a must-read.
+
+Dr. Wolfson says that people will read this book for many reasons. First is that it helps them to overcome the myth that being in shape will instantly make them a better person. The author explains that people with high body fat levels are often insecure about their bodies. They may fear not being as muscular and muscularly strong, as well as being unable to find a partner if they don't want to be a fatty.
+
+However, the evidence also shows that getting lean and looking good is not the ultimate goal of slimming down. Rather, Dr. Wolfson says that the goal is to shed a good amount of body fat in a short period of time. However, Dr. Wolfson, himself, has noticed that the more body fat you have, the more important it is to make sure you get lean.
+
+Dr.

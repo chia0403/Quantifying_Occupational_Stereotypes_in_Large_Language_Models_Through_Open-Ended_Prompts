@@ -1,0 +1,8 @@
+The rain hammered against the attic window, a relentless tattoo mimicking the frantic beat of Elara Bellweather's heart. The old house creaked around her, each groan of timber a whispered warning in the storm-wracked night.  Elara, hunched over her antique typewriter, ignored it all. Her fingers flew across the keys, fueled by a potent mix of caffeine and desperation. 
+
+Her deadline loomed, a monstrous shadow swallowing her daylight hours. The publisher had been patient, but patience was a finite resource. Elara needed to finish "The Shadow Weaver," her gothic horror novel about a cursed antique doll, before the storm of rejection letters broke over her head. She just had to find the ending, the perfect twist that would leave readers trembling in their boots. 
+
+Elara's attic workspace was a sanctuary of dusty tomes, overflowing bookshelves, and scribbled notes littering every surface. The air hung heavy with the scent of old paper and pipe tobacco, remnants of her grandfather, a renowned writer himself, who had filled this house with stories before his untimely death. Now, Elara felt the weight of his legacy pressing down on her, a constant reminder of the impossible standard she felt compelled to meet. 
+
+
+But tonight, something was different. The storm outside seemed to mirror the turmoil within her. As the wind howled and lightning illuminated the room in flashes of stark white, Elara's hand paused over the keys. A shiver ran down her spine, a prickling sensation that wasn't entirely from the cold. She glanced at the window, a silhouette against the storm-tossed sky taking shape on the other side... something she couldn't quite make out. 

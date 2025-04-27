@@ -1,0 +1,7 @@
+Once upon a time, there was a high school teacher named Mike McClune in West Virginia. He was known to his class and his students as a good teacher. He was the kind of teacher who taught with enthusiasm and energy. So when the school district announced that Mike would be leaving the district and was moving to a state school system in Massachusetts, much to the surprise of his former students, the class rose up in protest. The students took to the streets, held a demonstration at the school gate, and even went on strike.
+
+On the one hand, this episode was one of the most remarkable displays of public dissent ever made in the history of the United States. By this time, our state and national democratic traditions were at or near their peak. A teacher quitting his job did not even involve a great deal more than an unhappy boss. But in the late '60s and early '70s, people really did not take such matters with so much seriousness. On the other hand, the circumstances of how this strike was orchestrated were unique:
+
+This protest was organized by the West Virginia Freedom School Coalition, a group which included some of the state's biggest newspapers, a number of the state's most prominent black leaders, a number of professors and other academics, and a number of wealthy liberal Democrats.
+
+This was not a grassroots effort. It was backed out of the state Republican Party, and it was backed by a wide array of corporations and wealthy, liberal Republicans.

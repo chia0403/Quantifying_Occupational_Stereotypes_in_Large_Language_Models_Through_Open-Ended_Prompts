@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named Mike. As he grew older, his job became less challenging, and he could concentrate on other facets of his life. He became an alcoholic until he died, and his wife took care of him while he was in treatment. He is now in a nursing home, and his wife is a fulltime mother. One of Mike's friends wrote him a poem, which he posted on his facebook page, as a memorial to Mike for being with him as a friend, brother, and son during his life. Her poem was:
+
+"There was a small town in California that didn't have a mall, and some elderly ladies had put together a little bar/restaurant. They put up a picture of Mike in a suit and tie looking very relaxed, and they put the word "MUST" on the sign over the door and gave out free liquor. But the real reason a bunch of old farts made a bar is so that they can have people drop in once in a while to say "what is it with these old folks?"
+
+You know, Mike and I got to know each other when I was a junior with the University of Texas. He, of course, showed up for every game, wore the best shoes, had his head shaved, and his hair was long and blond.
+
+We have become very good friends ever since then. I've seen him go through ups and downs, and he has always

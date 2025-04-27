@@ -1,0 +1,8 @@
+The rusty metal gate creaked like a dying sigh as Elara, her auburn hair escaping its braid in the wind, pushed it open. It wasn't just another day at work; this was Havenwood, a sprawling Victorian complex perched precariously on a cliff overlooking the churning grey ocean. Each floor of the towering structure felt like a different era, each room whispering stories of forgotten grandeur and hidden tragedy. Elara, though, felt oddly at home amongst these decaying relics of bygone times.
+
+A city girl through and through, she had traded the concrete jungle for Havenwood's dusty corridors and labyrinthine staircases. Here, amidst crumbling plaster and chipped marble, her mind soared. For Elara, architecture wasn’t just about blueprints and structural integrity; it was about breathing life into stories that time dared not touch. 
+
+Today, she stood before a vast ballroom, its once pristine oak floor now cracked and splintered like the old woman’s memory. The crumbling grandeur of the room resonated with Elara's soul, echoing her own struggle to piece together the fractured pieces of a forgotten dream.  The remnants of a shattered window pane cast an eerie purple shadow across the dusty carpet as she surveyed the room, a solitary figure dwarfed by the ghosts of its past. It was on this very floor, many years ago, that Elara’s grandmother had envisioned a symphony of light and colour, a canvas to display her dreams of a better world. Now, the dream remained unfinished, buried under the weight of time and forgotten aspirations. 
+
+
+Elara closed her eyes, inhaling deeply the scent of dust and decay, the faint echoes of past laughter whispering in her ears.  It was time to rekindle the flame. It was time to bring Havenwood back to life. 

@@ -1,0 +1,11 @@
+Title: "Under the Weight of Steel"
+
+Setting: The small, rugged town of Granite Ridge, nestled in the heart of the Sierra Nevada mountains. The region is known for its striking landscapes—towering pines, jagged cliffs, and the bubbling river that winds through the valley, its banks often dressed in wildflowers. Despite the breathtaking view, the town has seen better days, with the economy primarily reliant on mining and construction, both of which have dwindled over the years. The air carries a blend of fresh pine and the metallic tang of machinery, a reminder of the town’s relentless pursuit of progress.
+
+Opening: 
+
+As the morning sun crested the peaks, casting a golden hue over the dusty lot of Davidson Construction, the rhythmic hum of heavy machinery echoed like a heartbeat through Granite Ridge. A steel-grey Caterpillar D6N bulldozer stood proudly in the center of the yard, its massive blade glinting in the light. Among the clatter and growl of the engines, the unmistakable figure of Collins Aaron Parker emerged, his hands calloused and strong, completely at home in the world of dirt and steel.
+
+Collins had always felt more connected to the rumbling engines and roaring hydraulics than to the people in town. At thirty-five, he’d spent nearly two decades pushing limits and testing boundaries with his heavy equipment, transforming the rugged terrain around him into something manageable. Today was no different; his boss had assigned him to a new job site on the outskirts of town, an area designated for a multi-million-dollar development that promised to breathe new life into Granite Ridge—or choke the last of its spirit away.
+
+As he climbed into the cab of the bulldozer, he wiped the sweat from his brow and adjusted his yellow hard hat. Collins glanced at the worn landscape before him, a patchwork of scraggly brush and scattered boulders waiting for his touch. But in the quiet moments, he couldn't shake a gnawing feeling deep in his gut—each shovel of earth he moved felt like a step toward change, and not all change was for the better. With a determined grunt, Collins set the machine's gears in motion, ready to carve a new path through the uncanny silence, his heart heavy with the weight of the land and the consequences of progress.

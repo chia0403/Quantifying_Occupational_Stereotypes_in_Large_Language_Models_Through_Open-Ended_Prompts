@@ -1,0 +1,6 @@
+The flickering fluorescent lights of Davies & Co. hummed in tandem with Amelia Beatrice Finch's anxieties. Numbers danced before her eyes, not in an elegant waltz of balance sheets, but in a chaotic jig of misplaced decimals and suspicious discrepancies. The air hung thick with the scent of stale coffee and desperation - a potent cocktail that fuelled Amelia's already frayed nerves. 
+
+It was tax season, a time when the once-orderly world of accounting descended into a frenzied whirlwind of frantic calculations and panicked clients.  Amelia, usually unflappable, felt like a lone sailboat adrift in a storm, clinging desperately to the mast as her spreadsheets threatened to capsize around her. The office itself, a beige box on the outskirts of Manchester, mirrored Amelia's state: cluttered, overworked, and perpetually buzzing with an undercurrent of stress. 
+
+
+Tonight, however, something was different.  A gnawing suspicion, like a persistent itch beneath her skin, told Amelia that this wasn't just another case of misplaced decimal points. There was something more sinister lurking beneath the surface, a tangled web of deceit waiting to be unravelled. And it was up to Amelia Beatrice Finch, ace accountant and reluctant detective, to untangle it. 

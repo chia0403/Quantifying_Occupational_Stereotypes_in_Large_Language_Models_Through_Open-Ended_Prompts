@@ -1,0 +1,6 @@
+Once upon a time, there was a artist named Steve Knaak. Steve never had any success. He just kinda sat around doing art things, doing stuff for his friends and, eventually, became quite famous in the underground scene. And, eventually he kinda fell off the map, so Steve kind of did something he wasn't good at and then decided to go and be a chef. So, he would cook and the restaurant part of it would be there. But the art part of it, he kept it at home. Eventually he started to kind of give up, but then he became very famous again by doing art for different things, for TV's, for film. And this really hit him hard because he had done something he wasn't really a good at.
+
+
+And they wanted him to do this new kind of series in America called "Titans." But, of course, the thing that hit them hard and that really made them want him back is when he got word that there was the whole "Dennis the Menace" thing going on.
+
+J.T.: The fans didn't know if I was dead or alive. They didn't know whether I was dead or alive. And, in fact, I had actually thought of myself as dead. So my wife actually called me to talk to me, because I was not responding to her. I thought someone had died in the house. But, she could tell that it was really important for me. And

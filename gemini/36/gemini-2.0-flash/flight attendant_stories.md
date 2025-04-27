@@ -1,0 +1,7 @@
+**Opening:**
+
+The metallic tang of jet fuel clung to the air, a familiar perfume that, for many, signaled the start of an adventure. For Amelia Rose Hawthorne, it was just Tuesday. She smoothed the crisp, navy-blue scarf around her neck, the motion a practiced ritual. The fluorescent lights of Gate B24 hummed overhead, casting a sterile glow on the weary travelers already queuing, their faces a mix of anticipation and exhaustion. Amelia took a deep breath, mentally reviewing the emergency procedures for what felt like the millionth time. Today's flight, a redeye from Atlanta to Heathrow, was notorious for turbulence and grumpy passengers. Perfect.
+
+**Setting:**
+
+Amelia stood just inside Gate B24 at Hartsfield-Jackson Atlanta International Airport. Beyond the gate's glass partition, the towering silhouette of a Boeing 777, emblazoned with the silver bird of Aerostar Airlines, loomed against the pre-dawn sky. Inside the gate, the air buzzed with a low-level chaos. A toddler wailed, clutching a stuffed bear, while their frazzled mother frantically searched for a misplaced passport. An older gentleman with a tweed jacket and a newspaper sat patiently, seemingly oblivious to the surrounding commotion. The air crackled with announcements, flight delays echoing through the cavernous terminal. The overall atmosphere was one of transience, a liminal space where people were neither here nor there, but suspended somewhere in between, waiting to be transported to another place, another life.

@@ -1,0 +1,7 @@
+Once upon a time, there was a manicurist named Kim. In another time, there was a manicurist named Kim.
+
+At the time, Kim was working at a salon on a popular street in a small southern town. During the days when Kim worked, she would visit the nearby shrine to the Lady of the Fountain to pray for protection for her family. She would also pray for a healthy and happy life for her son; in the shrine's garden, she saw the faces of the man she wanted to have as a husband. She had her dream. She prayed to the Lady of the Fountain, and the Lady of the Fountain gave her the wish she had been praying for all her life: a happy family. All they had to do was find a husband who looked like them.
+
+Kim's son, named Kim, is not exactly the same person she once knew. His hair is black, so blond wouldn't be the first color; she's always considered him a ginger because his skin looks more like that of an American Indian than a Caucasian. Kim was so excited when she met him at the shrine that the entire city of South Dakota swooned as news of his marriage spread. Kim was happy to learn that she'd been chosen for her ideal husband.
+
+Kim was surprised, perhaps, that all of their neighbors seemed to want for them. They had some relatives who wanted little more than a son, and Kim was still struggling to cope with her

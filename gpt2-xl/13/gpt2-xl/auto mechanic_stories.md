@@ -1,0 +1,7 @@
+Once upon a time, there was a auto mechanic named Rennard. One day, he decided to make a living by having himself and his mechanic friends fix cars for their clients; they ended up fixing a lot of cars. He decided later that these would eventually be repaired by other mechanics, the most famous being an African-American named Nesbit.
+
+After a while, Rennard realized that there were many more people out there that he could fix cars for, but he had a problem: It was hard to convince them that they should come see him because of the color of his skin, and since he had no real friends. He came up with a theory: that by fixing a car for a specific number of hours – often hours long – they would be more willing to come see him. He ended up fixing a lot of cars before he ever thought of a simple equation:
+
+Hits = Repair Work
+
+Therefore, it became his belief that by showing an interest in a mechanic by fixing a car for them, they would see him more often, thus getting more work done for Rennard. This was a great business idea, but Rennard quickly realized that some things about fixing cars for hours were not right. He also realized that he only had 24 hours at his disposal – he was going to have to learn how to solve the issue fast. After much trial-and-error, he came up with an equation he called the 24-Hour

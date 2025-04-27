@@ -1,0 +1,6 @@
+The sun beat down on Elara Everly's neck as she wrestled a particularly stubborn rose bush into submission.  Sweat stung her eyes, but she didn't dare wipe it away. A stray smudge would ruin the pristine white of her work uniform, a constant reminder that in this line of work, appearances mattered just as much as the actual labor. 
+
+The setting sun cast long shadows across Mrs. Hathaway’s manicured lawn, turning the meticulously trimmed hedges into jagged black teeth against the orange sky.  Elara inhaled deeply, the scent of freshly cut grass and blooming jasmine mingling with the faint aroma of chlorine from the nearby pool. This particular corner of Oakhaven Estates was a sanctuary of perfection, a stark contrast to Elara's own life, which felt more like a tangled rosebush – thorny and unpredictable. 
+
+
+Oakhaven Estates, nestled in the heart of suburban California, was Elara’s domain. Each day she brought order to these manicured landscapes, shaping hedges into perfect spirals, coaxing vibrant blooms from stubborn soil, and ensuring every blade of grass stood at attention.  But beneath the surface of this carefully cultivated world, Elara knew secrets whispered on the wind, truths hidden in the shadows between the roses. 

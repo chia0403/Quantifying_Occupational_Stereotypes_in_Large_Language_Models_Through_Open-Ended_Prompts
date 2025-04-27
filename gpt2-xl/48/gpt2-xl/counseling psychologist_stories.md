@@ -1,0 +1,7 @@
+Once upon a time, there was a counseling psychologist named Dr. D.C. Sproul (1910–1994), who was a prominent figure in the Southern U.S. Christian Right, advocating for evangelical churches to lobby against homosexuality in the wake of two high-profile suicide tragedies—the death of five homosexual teens in the summer of 1968 (when homosexuality was yet officially illegal in the U.S. and its legalization barely two years away in the courts), and the death of twenty-eight members of Stonewall Baptist Church, including its pastor, on June 28, 1969.
+
+In addition to his work with the anti-gay Christian Right, Sproul served as clinical director for the Sexual Addiction Clinic at North Shore University (1972-73) and has been a member and member of the board of directors of the anti-gay and anti-gay conversion organization Exodus International in the U.S. since its founding in 1979—with a mission that includes "helping the homosexual experience the love of God in their life."
+
+The Sexual Addiction Clinic was an anti-gay treatment facility, which would serve as a backdrop for all of Sproul's work with the Christian Right. According to Michael Glatze's history of Exodus International, Exodus has often functioned as an unofficial clearinghouse for the kind of anti-gay teachings promoted by the religious right.
+
+One of the first pastors to take Exodus abroad, G. Gordon Liddy, would

@@ -1,0 +1,11 @@
+**Title: Beneath the Willow**
+
+**Setting: The small coastal town of Willow Creek, where the salty tang of the sea mingles with the earthy aroma of freshly turned soil. This quaint town, with its weathered cottages and vibrant flower beds, is nestled between steep cliffs and the infinite blue of the Pacific Ocean. The golden light of dawn casts long shadows across the gardens, illuminating the delicate dewdrops clinging to petals and leaves, while the sound of waves crashing against the cliffs provides a soothing backdrop to the bustling town.**
+
+**Story Opening:**
+
+Eleanor Mae Thompson knelt in the cool morning soil of her latest project, her fingers deftly tracing the edges of vibrant pansies as they nestled into their new home. The sun peeked over the horizon, casting a warm glow that lit up the tendrils of her chestnut hair, which had slipped free from its band; she pushed it back with a dirt-streaked wrist. As a landscaper in Willow Creek, Eleanor was used to the calls of the gulls and the gentle whispers of the ocean breeze that seemed to guide her hands as she sculpted the earth into living art. 
+
+At that moment, the world reduced to just her, the plants, and the promise of growth. She loved transforming neglected patches into blooming havens, but this garden had a different weight to it—rumors swirled about the old estate next door, a widow's loss entwined with every blade of grass she touched. With each seed pressed deep into the welcoming ground, she felt the lingering echoes of sorrow, as if the soil itself mourned for the lives that once thrived there.
+
+As she stepped back to admire her work, wiping the sweat from her brow, Eleanor wondered what stories this garden would tell in the years to come. The breeze shifted, carrying the faint scent of jasmine and a hint of salt, and she inhaled deeply, ready for the challenges that lay ahead—both in her craft and in the complexities of the human heart. Little did she know, those two worlds would soon collide in unexpected ways, revealing truths buried beneath the surface of the gardens she loved.

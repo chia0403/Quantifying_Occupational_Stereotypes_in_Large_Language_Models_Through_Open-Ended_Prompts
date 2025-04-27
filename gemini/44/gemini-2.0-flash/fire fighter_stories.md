@@ -1,0 +1,5 @@
+## Story Opening and Setting:
+
+**Setting:** The biting wind howled off Lake Michigan, whipping snow into a frenzy against the brick facade of Fire Station 12 in Chicago’s gritty Pilsen neighborhood. The air inside, thick with the smell of coffee and burnt toast, offered a temporary reprieve, but the storm outside felt like a restless beast, waiting to pounce.
+
+**Opening:** Lieutenant Isabella “Izzy” Rodriguez stared out the frosted window, her breath fogging the glass. Outside, the city was a monochrome blur of white and grey, punctuated only by the flashing lights of a stalled CTA bus further down 18th Street. She took a long sip of lukewarm coffee, the bitter taste doing little to soothe the knot of unease tightening in her stomach. It wasn’t just the weather. It was the feeling, that preternatural sense that always preceded the worst calls. The kind of feeling that made the hairs on the back of her neck stand on end, even under the weight of her thick, wool uniform. Today, it felt like a full-blown inferno. She just prayed it wouldn't be.

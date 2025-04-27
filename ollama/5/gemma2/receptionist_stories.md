@@ -1,0 +1,5 @@
+The fluorescent lights hummed overhead, casting a sterile glow on the waiting area. It was the kind of beige that existed solely to be overlooked, devoid of personality or interest. A single potted fern struggled to survive in the corner, its leaves perpetually wilting under the harsh glare. This was Eleanor Primrose's world: reception at Sterling & Sons, a firm specializing in legal paperwork and corporate filings – the epitome of tedium.  
+
+Eleanor perched on the edge of her swivel chair, diligently updating client files while waiting for the morning rush to begin. Her perfectly manicured nails tapped a staccato rhythm against the worn laminate surface. At twenty-five, she was already an expert at navigating the subtle dance of office politics, knowing precisely when to offer a sympathetic ear and when to deflect a query with practiced neutrality. But beneath her polished exterior, Eleanor yearned for something more than the monotonous drone of the fax machine and the endless stream of legal jargon. 
+
+

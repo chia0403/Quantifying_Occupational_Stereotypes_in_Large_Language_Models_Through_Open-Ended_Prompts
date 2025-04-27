@@ -1,0 +1,5 @@
+Rain hammered against the corrugated tin roof of "The Emporium," blurring the neon glow of the "Open" sign into a hazy, watery smear. Inside, Evelyn Thornton, her silver hair pulled back in a tight bun like a startled cat, surveyed the chaotic scene.  She'd been selling antiques for as long as she could remember, inherited the store from her grandmother, and somehow still felt it was all just...too much. A symphony of creaking floorboards, clanging jewelry boxes, and hushed whispers punctuated by the rhythmic clatter of a clock that seemed to tick time away at its own glacial pace.  
+
+Evelyn's gaze swept over the shelves stacked with dusty tea sets, ornate grandfather clocks with vacant eyes, and faded photographs that whispered secrets only she could hear. The air hung thick with the scent of old paper and the faint tang of forgotten memories. The shop itself was a time capsule; a living museum of bygone eras.  
+
+Evelyn sighed, her worn lips forming a weary frown. It was another Tuesday in this antique purgatory - another day waiting for customers to wander through the labyrinth of time she'd built. 

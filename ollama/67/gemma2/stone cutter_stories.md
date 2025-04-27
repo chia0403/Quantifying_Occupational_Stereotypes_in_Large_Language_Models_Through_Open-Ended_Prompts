@@ -1,0 +1,5 @@
+The dust hung heavy in the air, a gritty fog that clung to Elias Thorne's beard and coat like a second skin. Outside his workshop, nestled between a bustling tavern and a poultice-making apothecary in the heart of Oldhaven, the cobblestones were slick with a recent rain, reflecting the flickering gaslights in a distorted shimmer. Inside, the rhythmic clang of hammer against chisel echoed through the small space, punctuated by Elias's occasional grunts as he coaxed another piece of granite into submission.  
+
+He wasn't shaping it for a monument or a doorway this time; no grand public display. This was a personal commission, smaller and far more delicate - a simple stone heart, etched with a single name: Amelia. His knuckles were raw from the work, but his touch remained steady, guided by a deep well of grief he'd been trying to channel into something beautiful.  Each strike of the hammer was a silent vow, a promise whispered to the wind that her memory would be carved in stone, forever enduring. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a school psychologist named M.D. Johnson who said, "The only constant in life is change." Well, that is until it really, really starts to change in one way or another. After going through something, you have a tendency to take, if not a positive, then a neutral stance.
+
+Then came this, the most recent trend in mental health: the "post-traumatic growth" approach, which proposes that there is hope for a return of happiness to life after traumatic trauma if certain factors are met. The first thing one needs to understand about post-traumatic growth is that it is not mental health at all. It's merely a way for those of us with traumatic experiences to avoid the normal emotional backlash of life.
+
+So, let's set aside this topic for the moment and focus instead on what is actually taking place when someone sees that "success" poster with their smiling face on it: It's the old fear of losing what one has; of being judged in some way; of missing what has been. In other words: the fear of being alone.
+
+In another interview with Huffington Post, Dr. Karen Stollznow says that many people who visit post-traumatic growth centers and workshops "report that they are often so convinced that they are the only person who is suffering in this situation because of trauma that they have a sense of hopelessness, that their life is over." As Dr. Stollz

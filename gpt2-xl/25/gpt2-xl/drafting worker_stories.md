@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named Charlie, who worked for a company named Blue Book. Charlie was the only drafter of his kind.
+
+When he was young, he was very smart. He was always willing to study an unusual subject and was very knowledgeable about it. Most of his time was spent in his basement lab in a blue plastic box with the sign "B" and one of his favorite stickers: "I HATE BECOMING AN ELEPHANT SENSEI. HATE IT." That's his little desk and all the pens and pencils that are in it. When he wasn't working on formulas for the company, he would sometimes take it on outings to the zoo to take pictures of tigers and other animals.
+
+One day, Charlie left the lab to help out a client. As he was walking to the client's apartment, he was attacked by a spider that had landed in his box. It grabbed him by the foot and started to pull him down the stairs until he screamed and then fell on his face and began to drown. In the chaos, the client had run out to see his neighbor and her dog and Charlie had hit with a chair to stop his progress until they could find a surgeon to amputate his leg and start over.
+
+As he was being cut out and the surgeon put his hand on the cut, it started to dissolve. Charlie saw this as a sign of good things to come and stopped what

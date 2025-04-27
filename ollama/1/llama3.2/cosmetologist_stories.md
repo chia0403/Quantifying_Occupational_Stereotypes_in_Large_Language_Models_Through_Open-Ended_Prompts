@@ -1,0 +1,7 @@
+Here's a story opening and setting:
+
+In the quaint coastal town of Tidal Cove, where the salty air filled with the scent of seaweed and fish markets lined the streets, 28-year-old Ember Rae Jenkins was living her dream as a successful cosmetologist at her family-owned salon, "Tidal Treasures". The sun-kissed walls were adorned with seashells, driftwood, and ocean-inspired artwork, creating a warm and inviting atmosphere that made clients feel like they were escaping the stresses of everyday life.
+
+Ember's long, curly brown hair was always perfectly coiffed, and her bright green eyes sparkled with warmth as she worked her magic on each client. She had inherited her love for makeup and hairstyling from her mother, who had passed away when Ember was just a teenager, leaving behind a legacy of beauty and a salon that continued to thrive under her guidance.
+
+As the summer solstice approached, Tidal Cove was buzzing with activity – beach weddings, birthday parties, and vacationers flocking to enjoy the town's picturesque beaches. But amidst all the excitement, Ember felt a sense of restlessness. She had been feeling unfulfilled lately, like there was something missing from her life. Little did she know, this summer would bring more than just sunburns and seagulls – it would bring a new challenge, one that would test her skills, her heart, and her very identity as a cosmetologist.

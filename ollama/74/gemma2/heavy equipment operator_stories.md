@@ -1,0 +1,5 @@
+The air hung thick and heavy with humidity, clinging to Amelia "Amy" Beatrice Cartwright like a second skin. Sweat beaded on her forehead, tracing paths through the grime that caked her face from hours spent wrestling the controls of the 20-ton excavator. Sunlight glinted off the steel claws as they gouged into the earth, pulling up chunks of clay and gravel in a symphony of grinding metal and roaring engine. The rhythmic thudding was a familiar lullaby to Amy, the soundtrack to her life on the sprawling construction site that dominated the landscape outside Chicago. 
+
+She squinted through the haze of dust, focusing on the mammoth steel skeleton rising in the distance - another apartment complex for the ever-expanding city, another monument to progress devouring the remnants of rural land. The project was a behemoth, a tangle of cranes, bulldozers, and trucks, all buzzing with frantic energy.  But even amidst the chaos, Amy found a strange kind of peace in her work. Here, amidst the raw power of machines and the earth itself, she felt truly alive. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a hairdresser named Mrs. Jocasta who's mother-in-law had a little hut outside the camp. The women could work as they liked, the men were given the land of another hut for their use in the evenings. After awhile, this changed into a sort of semi-military situation. Women did the cooking, and women did sewing. The men were supposed to work in the fields but had their farms left to them if, by doing something nice for a woman, they were given the land themselves. This was a bit like slavery actually. Many people died from starvation there.
+
+When one woman died, she was replaced that day. If women were allowed to have a child, she was immediately taken back on and her house was given all the best furniture and supplies. Men could give their wives or mistresses a house as a wedding gift, but this did not count towards the allotted land. Women could also give each other money for food but only if they could put it to some useful purpose and had to sign a deed.
+
+It's hard to think of a better way to describe a country like that. But I digress. Back in the old time, we didn't have a king of the realm, or any real land title except what we could claim.
+
+But there is something that most of the world doesn't have or have come to accept as true, even in countries as advanced as ours

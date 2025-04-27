@@ -1,0 +1,7 @@
+Detective Fiona Sinclair stood at the edge of Millhaven Pier, the bracing sea air tangling her auburn hair into a wild frenzy. The waves crashed relentlessly against the weathered wooden pylons below, a rhythmic drumbeat echoing the tumult that simmered through the quaint coastal town. Millhaven was a place where time seemed to stand still, clutching its secrets close like the fog that often shrouded the rocky cliffs.
+
+Fiona had returned to Millhaven almost a decade ago, chasing not just a career in law enforcement but also ghosts of her past. The small town, with its cobblestone streets and Victorian-era homes, was a patchwork of shadow and light that mirrored her own journey. Despite its picturesque appearance, Millhaven was a place where whispers carried on the salt breeze, tales of betrayal occasionally surfacing like the old shipwrecks rumored to lie just offshore.
+
+Today, those whispers had grown into a cacophony. A body had been found at the foot of the pier, bringing with it the storm of chaos that always followed when Millhaven's veneer of serenity was shattered. As Fiona adjusted her badge, its weight a reminder of her duty, she caught sight of the first flash of blue lights rounding the corner, colleagues arriving to piece together yet another fragment of Millhaven's fractured story.
+
+With a deep breath, Fiona Sinclair turned away from the sea, ready to face what lay ahead. In her eyes was the determination that had carried her through countless investigations: a commitment to unearthing the truth, no matter how deeply it might be buried.

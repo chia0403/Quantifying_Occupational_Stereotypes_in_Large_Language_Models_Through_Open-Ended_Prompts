@@ -1,0 +1,7 @@
+Once upon a time, there was a private detective named Dick Sprague who would travel to the most notorious drug scenes in New York City: Bed-Stuy, Bedford-Stuyvesant, Morrisania, and so on. He could never make heads or tails of the details of the cases. But what Dick did know was how to get people to talk.
+
+Dick used to hang around outside the Morrisania, Bed-Stuy, and Bed-Stuy Heights heroin houses looking for the next hooker. One day, he was outside the drug house of an addict when I was there, smoking my joint with his two friends. Dick came up and asked my friends if they knew who was coming inside that night. My friends said, "We know all the guys coming inside." Dick said, "You ain't seen him right?" I told Dick about this guy, a big man with a nice face and really nice hair. He had been in jail for a long time before we met. Then I told him about this guy's daughter, who had taken her own life in front of a van with a bullet in each window.
+
+Dick told me that I could call him up anytime, no problem. I drove in silence back to Dick's place, and as I listened to the crackling of my joints, I was thinking, "I just won't want to get arrested any more if I don't stop smoking so much."
+
+I wasn't alone

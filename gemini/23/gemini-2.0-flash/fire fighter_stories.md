@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting for you:
+
+**Story Opening:**
+
+The wail of the alarm ripped through the quiet Saturday afternoon like a jagged tear in fabric. Amelia "Amy" Rosewater cursed under her breath, dropping the half-eaten sandwich she'd been enjoying in front of the baseball game. Peanut butter side down, of course. It was always peanut butter side down. Another superstition to add to the pile she already carried, heavy as her turnout gear. "Structure fire, Maple Street. Multiple calls. Possible entrapment," crackled the dispatcher's voice, laced with an urgency that sent a chill down Amy's spine. She bolted for the rig, adrenaline already pumping, the image of maple leaves burning a horrifying red in her mind's eye. Maple Street... that was where old Mrs. Higgins lived, the woman who always made them cookies during the holidays.
+
+**Setting:**
+
+The story is set in the small, close-knit town of Havenwood, nestled in the foothills of the Appalachian Mountains. Havenwood is a place where everyone knows everyone, where the local diner still serves a decent cup of coffee for under a dollar, and where the volunteer fire department is the heart of the community. The fire station itself is a single-story brick building, a little worn around the edges but meticulously maintained. It houses two engines, a ladder truck affectionately nicknamed "Old Bess," and a handful of dedicated men and women who answer the call whenever the alarm sounds. The town is surrounded by dense forests, and the homes, while mostly well-kept, are often older and prone to the kinds of electrical and heating issues that keep the Havenwood Fire Department busy. The sense of community is strong, but beneath the surface lies a quiet awareness of the inherent dangers of living so close to the untamed wilderness.

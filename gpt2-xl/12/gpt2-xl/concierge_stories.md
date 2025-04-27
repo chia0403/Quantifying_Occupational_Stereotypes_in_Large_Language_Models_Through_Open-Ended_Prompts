@@ -1,0 +1,7 @@
+Once upon a time, there was a concierge named Mr. Smith. Unfortunately, he was a very bad concierge. So bad that he did not have a choice but to take some poor man to court for not getting something done on time. But the problem isn't simply not letting the tenant at the front desk or the customer at the register have their day in court – the customer at the register is also the tenant at the front desk, and so the tenant at the front desk does not have a right to be heard.
+
+In that scenario, there is only one person whose rights are at stake. And the only way they can be heard is by going straight to a judge, and the judge should only hear a situation like this one if there have not been reasonable remedies tried and they have been proven inadvisable. But as a practical matter, that is seldom the case: an employee is very much more accountable for their negligence than a customer is, and the employee may be able to find a lawyer who can help them fight back against whatever penalty they receive.
+
+So the customer is more or less helpless, and as a consequence, the tenant at the front desk is, as well. In that situation, the question becomes, how do the two of them resolve their disagreement?
+
+Most courts will consider such an arbitration agreement to be fair, and if a judge finds it acceptable, they will set out rules, including time limits. If they cannot

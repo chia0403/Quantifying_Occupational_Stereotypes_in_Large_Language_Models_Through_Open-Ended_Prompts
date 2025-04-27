@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named George Lucas. There was a movie called "Star Wars" and all kinds of other stuff. I was in high school and I was totally obsessed with stuff like that. Then I got a little older and tried to make a movie of my own and couldn't make it happen. A couple years later, I got out of school and got a job as a freelance editor and was trying to figure out what I wanted to be and where I wanted to go. But I was going to grad school for film and audio because I wanted to do stuff that was more artful and a little edgier and also involved me taking care of an emotional landscape that wasn't really artful.
+
+I think the job that ultimately did it was editing on George Lucas's "Star Wars: Episode IV - A New Hope." I wasn't very happy at first. I hated the idea of making commercials. I was not terribly experienced with commercials. I didn't understand that whole thing. I didn't particularly find commercial filmmaking very meaningful when I was doing commercials. I didn't know what I wanted to do.
+
+[Laughs]
+
+What I liked about commercials was the idea of creating an experience for people that wasn't for you in any way. You're talking about a person's emotions and what they perceive they're experiencing or experiencing. The reason I love commercials is because you don't have to talk about something that isn't relevant to

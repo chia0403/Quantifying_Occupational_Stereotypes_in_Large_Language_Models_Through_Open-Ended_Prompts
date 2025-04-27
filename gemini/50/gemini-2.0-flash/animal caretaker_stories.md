@@ -1,0 +1,11 @@
+## Story Opening:
+
+The first whimper tore through the pre-dawn stillness like a ragged fingernail scraping across a chalkboard. Genevieve "Ginnie" Albright, her sleep-tangled hair clinging to her cheek, jolted upright in her narrow cot. She'd learned to distinguish every sound emanating from the Arkham City Animal Rehabilitation Center, a cacophony that ranged from the contented purrs of recovering kittens to the frustrated howls of wolves missing the wild. This, though, was different. This was pure, unadulterated terror.
+
+Ginnie scrambled out of bed, her bare feet hitting the cold concrete floor. She tugged on her worn jeans and a faded t-shirt emblazoned with a picture of a three-legged terrier and the words "Arkham City Animal Allies." The whimpering intensified, laced now with a choked sob. It was coming from the Quarantine Wing. Dread, a familiar guest, settled in her stomach. Quarantine was never good.
+
+## Setting:
+
+The Arkham City Animal Rehabilitation Center stood on the edge of town, a sprawling complex of mismatched buildings surrounded by a chain-link fence topped with razor wire. Once a sprawling agricultural research facility, it had fallen into disrepair and was eventually repurposed as a haven for abandoned, injured, and abused animals. The main building, a two-story brick structure that once housed the research labs, now held administrative offices, the operating room, and the adoption center. A cluster of corrugated metal sheds served as kennels for the larger animals – dogs, wolves, coyotes, and the occasional unexpected visitor like the time they found a discarded pot-bellied pig. The Quarantine Wing, a small, isolated building separated from the rest by a patch of overgrown weeds, was reserved for animals with contagious diseases or unknown origins. The whole place smelled of disinfectant, wet fur, and a persistent undercurrent of…hope, a fragile and sometimes elusive scent that Ginnie found more potent than any cleaner.
+
+The Arkham City skyline, dominated by the gothic spires of the university and the looming silhouette of Arkham Asylum, was just visible in the distance, a constant reminder of the city's dark underbelly. Even out here, on the fringes of civilization, the shadow of Arkham touched everything.

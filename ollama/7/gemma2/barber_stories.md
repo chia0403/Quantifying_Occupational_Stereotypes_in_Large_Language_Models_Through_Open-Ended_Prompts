@@ -1,0 +1,6 @@
+The whirring of clippers cut through the quiet hum of the early morning air, a steady rhythm in the symphony of sounds that filled Antonio “Tony” DeLuca’s barbershop. Outside, the first rays of dawn were just beginning to paint the brick buildings lining Mulberry Street in soft hues of orange and gold. The scent of freshly brewed coffee hung heavy in the air, mingling with the sharper aroma of bay rum aftershave. Tony, a man whose salt-and-pepper beard mirrored the shop's faded red leather chairs, carefully trimmed the sideburns of Mr. Rizzoli, his most loyal customer. A lifetime of snipping and shaping had honed his skills to an art form, each snip precise, each gesture deliberate. 
+
+Tony glanced at the vintage clock hanging above the counter – 6:30 AM. He knew today would be like any other in this bustling corner of Little Italy; a tapestry woven with familiar faces, shared stories, and the gentle rasp of conversation punctuated by the comforting hum of his clippers. But beneath the surface of routine, Tony felt a prickling unease. A sense that something was about to change, like the stillness before a storm.  
+
+
+He couldn’t quite place it, but he knew, deep in his bones, that this ordinary morning in his beloved barbershop held the promise of something extraordinary. 

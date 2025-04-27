@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named Dr. E.D. Hill. Dr. Hill was famous for making the world a more joyful place! From his office in the Bronx, Dr. Hill sent his people to do a lot of good, which, if Dr. Hill is good, is most definitely a good thing. One day Dr. Hill decided that it might be in his best interests to stop taking the time to take good care of his teeth and have someone else do it for him. Dr. Hill called around offering all sorts of health care professionals free time to do an office visit. His patients were so happy that they refused him and he became known as "E.D. Hill."
+
+One day, the head of the dentistry department of a major hospital wanted to hire the man of Hill's dreams. Everyone knew about Dr. Hill. They were all waiting to be called because Dr. Hill was a good dentist and so they all wanted to work for him: the dentists, the orthopedic surgeons, the ophthalmologists, the osthetists, the laboratory scientists.
+
+So, what happened?
+
+Dr. Hill got more than he bargained for. First of all, many of his patient refused to work for him because they saw him as a shady dentist. For that reason, Hill started doing very unpopular and unpleasant things with his time. For example, one of the more popular things Hill

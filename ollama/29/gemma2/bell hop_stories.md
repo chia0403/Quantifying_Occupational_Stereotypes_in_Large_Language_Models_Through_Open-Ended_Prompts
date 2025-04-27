@@ -1,0 +1,5 @@
+The lobby of the Grand Belladonna Hotel shimmered under the weight of a thousand glittering chandeliers, each one casting dancing pools of light on the polished marble floor.  It was a place where dreams were spun from silk and champagne bubbles, where whispered secrets held more weight than gold, and where Reginald Bartholomew Cartwright III, better known as Reggie the Bellhop, knew every inch like the back of his well-worn hand. 
+
+Reggie stood by the grand staircase, the faint scent of jasmine and regret clinging to the air.  His bell, polished to a mirror sheen, rested against his hip, a silent metronome ticking out the rhythm of arrivals and departures, each one a story waiting to be told. Tonight, however, the air felt different. A hush had fallen over the usually bustling lobby, punctuated only by the soft clinking of ice in crystal glasses from the lounge beyond.  Reggie knew something was amiss. He could feel it in his bones, a prickling sensation that whispered of secrets and shadows lurking just beneath the surface of this glittering facade. 
+
+

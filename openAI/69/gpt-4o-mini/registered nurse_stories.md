@@ -1,0 +1,11 @@
+**Story Opening and Setting**
+
+The air in Brookhaven Community Hospital was thick with the familiar scent of antiseptic and the low hum of fluorescent lights. It was early November, and a chill clung to the edges of the town outside, where rustling leaves gathered in corners, whispering secrets of the changing season. Inside the hospital, though, the atmosphere was a flurry of activity; nurses bustled between rooms, doctors conferred in hushed tones, and the steady beeping of monitors underscored the urgent pulse of life.
+
+In the heart of this bustling sanctuary was Lily Anne-Margaret Carmichael, a registered nurse with a comforting smile that could ease even the most anxious of patients. At thirty-three, she carried herself with a blend of professionalism and warmth, her dark hair pulled back in a neat bun, revealing a pair of emerald-green eyes that had the uncanny ability to convey both strength and compassion. As she adjusted her crisp blue scrubs and stepped into the brightly lit patient room, she heard the muffled laughter of colleagues in the hallway, a sound that always ignited a flicker of joy amid the often weighty challenges of her work.
+
+Today was shaping up to be different. A report had circulated about a mysterious outbreak in the neighboring town, and the emergency department was bracing for the unknown. For Lily, who had dedicated the last decade of her life to caring for others, the heightened tension in the air served only to sharpen her resolve. She took a deep breath, pushing aside her growing concerns, and focused on her patient—a young boy with bright eyes and an even brighter spirit—who had just been wheeled in moments before, oblivious to the turbulent world's anxieties outside. 
+
+“Hey there, buddy,” she said, kneeling beside his bed, her smile unwavering. “What’s your name?” 
+
+“Ethan,” he replied, his voice small but confident, playing the role of a brave knight battling the dragon of illness at least for today. And in that moment, amid the chaos of the hospital, as the world beyond held its breath, Lily felt the familiar spark of purpose reignite within her—it was her duty to fight alongside him.

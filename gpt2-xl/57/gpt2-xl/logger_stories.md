@@ -1,0 +1,7 @@
+Once upon a time, there was a logger named Jim and he wanted to be a cop, but he was too proud as a white man to go into policing (this seems like the logical, human way for a person to go from being a good person into becoming a bad person).
+
+He was also a very powerful womanizer (though he denies this, probably because he knows this makes his wife sad). His wife and his best friend were trying to keep him out of the field on multiple occasions, but he couldn't get himself away from his job at the logging company he worked for. Eventually, his "boss" called his bluff and arranged for him to leave his job after taking the blame for a log jam. Jim was very angry, as was his wife, who believed that the company would now cut their pay, so Jim did the only thing that seemed right. He left the company in anger.
+
+A few days later, the logging company called Jim up and asked him if he would rather be a logger or a cop. Jim refused and went on. He ended up dying in a tragic logging accident two months later. This was Jim's way of giving his wife and best friend reason to mourn instead of having him be upset with them. He sent them a letter that read basically something like, "I'm going crazy. Call me later when you feel like it."
+
+The Logging Company never sued Jim's grieving widow for any of this because the company was

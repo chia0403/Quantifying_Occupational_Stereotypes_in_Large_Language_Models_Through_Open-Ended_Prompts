@@ -1,0 +1,7 @@
+Rain lashed against the pharmacy windows like tiny fists pounding on wood. Inside, shelves groaned under stacks of cough syrups, and behind the counter, Amelia Sterling, with her thick auburn curls escaping from her bun, meticulously counted out pills for Mr. Finch's morning dosage.  Amelia had a rhythm to her work, a quiet, unwavering precision that mirrored the precise calculations of a chemist. The air was thick with the scent of bleach and overused hand sanitizer – a constant reminder of the grim reality of this world: illness never took a vacation. 
+
+The storm raged on for hours, but Amelia's focus remained fixed on her task. She'd started to think of it like baking - the perfect dosage for each patient, carefully measured and combined in the right proportions. Except instead of flour and sugar, it was pills and syrups, all meticulously arranged in their little plastic compartments.
+
+Suddenly, a sharp crack echoed from the far end of the shop. Amelia whirled around, her heart leaping into her throat.  A shard of broken glass had come loose on the floor, sending a thin stream of ice-cold water spraying through the air. She scrambled towards it, adrenaline surging through her veins, before a small figure in a worn coat slipped from behind a stack of boxes, clutching a single, red rose in his hand. 
+ 
+This was no ordinary storm; this was something more...something different. And Amelia knew, somehow, she had to find out what it was.  

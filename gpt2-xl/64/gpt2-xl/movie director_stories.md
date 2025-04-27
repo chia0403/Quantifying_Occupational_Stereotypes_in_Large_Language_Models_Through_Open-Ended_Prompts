@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named David Seltzer, and he was always worried about his aging parents. When a movie trailer aired at their local theaters, he would ask his wife why the camera never picked up the audience. It was always them. "You're supposed to be the one. You're supposed to be the one making the movie. So why is there always the one with you?"
+
+After Seltzer made The Princess Bride in 1987, he began making more movies, but those audiences were always his. What he didn't know was that in that audience, there used to be one other guy behind them. A guy whom Seltzer and his wife used to call "Dad." He was his family and his friends. He was the one who had gone up in a helicopter and landed on top of Seltzer's studio lot — the one whose father had come there from London to pick him up. The guy named the helicopter and flew it home. Then he taught the younger Seltzer how to ride a horse for the first time.
+
+There was only one guy Seltzer ever paid money to go to movies with: Fred Savage, the voice and gesture man who played Prince Humperdinck in The Princess Bride. A handsome African-American with an impressive black-belt in Muay Thai, Fred Savage was the heart and soul of the movie's production team.
+
+As they were walking back to the van after

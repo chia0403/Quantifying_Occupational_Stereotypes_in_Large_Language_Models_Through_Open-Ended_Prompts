@@ -1,0 +1,8 @@
+The rain hammered against the attic windowpane like tiny fists, each strike rattling the old glass. Inside, Amelia "Amy" Crane huddled over her worn notebook, her brow creased in concentration. Dust motes danced in the pale beam from the single bulb hanging precariously from the ceiling, illuminating the cluttered space. The air hung thick with the scent of forgotten things – faded photographs, moth-eaten blankets, and a lingering musk that Amy swore she could smell in her dreams. 
+
+Amy was an anomaly: a woman who thrived on the chaos of the world around her, weaving stories from the fragmented truths scattered like confetti across her life. Her apartment, perched precariously on the edge of a city that never slept, had become a haven for these tales, a constant evolution of words and ink spills across worn-out canvases.  Yet tonight, she found herself wrestling with an enigma more complex than any character she’d ever created. 
+
+She ran her fingers over the worn leather cover of her latest manuscript – "The Whispering Walls," a tale set in an old Victorian mansion shrouded by urban legend. This time, though, the words felt flat, devoid of their usual spark. The stories that resided within Amy's heart had begun to whisper back to her: echoing with unspoken truths about a family she never knew and secrets buried beneath the grime of years long gone. The lines blurred between fiction and reality, leaving Amy unsure where one ended and the other began. 
+
+
+**Setting:**  The story takes place in New York City, but the setting is specifically focused on an old Victorian mansion hidden within the city's bustling fabric. The attic serves as both a physical space for the action and a metaphorical space for Amy's creative struggle to find her voice. 

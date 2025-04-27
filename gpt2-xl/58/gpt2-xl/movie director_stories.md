@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named Danny Boyle. Boyle is not your typical Hollywood superstar. The director is known for his subversive comedy, and it was he who began to make a name for himself with his 2012 film 28 Days Later. There, he set out to remake a franchise of films that had been the brainchild of Michael Crichton, which had inspired many a zombie film. It was Boyle's attempt to take the zombies to a completely different, even more horrifying, level. And on Halloween, the film's success led to it taking over the box office and winning nine Awards during its run. (Read Full Review)
+
+9. The Lord of the Rings: The Return of the King (2001)
+
+As the Middle-earth franchise had evolved in modern times, Tolkien's fantasy had grown less and less central to the films, and by The Lord of the Rings: Return of the King, it seemed as though he'd left such an important thing behind. With Lord of the Rings, we were introduced to a whole new world that the films had created and expanded upon in subtle but substantial ways. The world had been developed with subtle touches—both on narrative and on fantasy imagery—that had never been heard before in the epic fantasy world. In fact, one of Tolkien's most famous and beloved inventions was the Ring—it just might be the most essential element in all of his work. (Read Full Review)
+
+10. The Last

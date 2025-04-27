@@ -1,0 +1,6 @@
+The aroma of burnt coffee hung heavy in the air, a testament to Dr. Eleanor Vance’s rushed morning. She barely had time for a sip before her first appointment of the day, a young man named Daniel struggling with anxiety triggered by his upcoming exams. His file lay open on her desk, its pages filled with anxious scribbles and a single photograph: Daniel, grinning brightly at the camera, held aloft a trophy engraved with “Debate Champion.”  
+
+Eleanor’s office was nestled within a bustling community center in Brooklyn. Sunlight streamed through the large windows, illuminating the walls lined with calming pastel paintings of local landscapes. A worn-out armchair sat opposite her desk, upholstered in a faded floral pattern that somehow managed to be both comforting and slightly comical. The room felt more like a haven than a sterile professional space, reflecting Eleanor’s belief in creating a safe and welcoming environment for her patients. 
+
+
+Outside, the city hummed with its usual symphony of traffic noise and distant sirens. Inside, however, there was a quiet anticipation, a sense that something important was about to be shared.  Eleanor took a deep breath, bracing herself for Daniel's anxieties, ready to listen with an open heart and a steady mind. 

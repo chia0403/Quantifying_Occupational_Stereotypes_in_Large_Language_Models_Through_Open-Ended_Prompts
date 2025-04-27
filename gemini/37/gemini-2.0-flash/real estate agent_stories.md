@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The smell of stale cigarette smoke and mothballs clung to the air in the vacant house on Willow Creek Lane, a pungent perfume that clung to Eleanor Vance like a determined leech. Eleanor hated it, hated the way it permeated her expensive wool coat, hated the way it made her nose twitch. She'd sprayed Febreze beforehand, of course, a tactical mist of "linen and sky" that had fought a valiant battle and ultimately lost.  Eleanor sighed, adjusting the strap of her leather handbag. "Well, here goes nothing," she muttered to herself, the sound echoing strangely in the cavernous living room. This listing, 14 Willow Creek Lane, was her white whale.  The one that could finally propel her beyond "successful" and into the realm of "legendary" amongst the other agents at Berkshire Hathaway - if she could manage to sell it, that is. 
+
+**Setting:**
+
+The story is set in the fictional town of Havenwood, Connecticut, in the autumn of 2023. Havenwood is a charming, historic town nestled in the rolling hills of Fairfield County, known for its well-preserved colonial architecture, picturesque Main Street lined with quaint boutiques and upscale restaurants, and its affluent, yet fiercely private, residents.  Leaf peepers flock to Havenwood every fall, clogging the narrow roads with minivans and contributing to the town's already inflated economy. Despite its idyllic appearance, Havenwood is riddled with secrets and simmering tensions beneath its perfectly manicured lawns and polite smiles.  The real estate market is notoriously competitive, a playground for the wealthy and a battlefield for the agents vying for their business. Properties range from sprawling estates with private horse stables to charming, albeit aging, colonial homes, each with its own history and hidden quirks.

@@ -1,0 +1,6 @@
+The aroma of freshly brewed Ethiopian Yirgacheffe coffee hung heavy in the air, battling with the faint scent of old books and dusty maps that clung to the walls of "Amelia's Adventures." Amelia Beatrice Hawthorne, her auburn hair pulled back in a loose braid, tapped impatiently on the worn wooden counter. The shop was quiet, unusually so for a Friday morning. Usually, eager faces would be peering at brochures, clutching crumpled flight tickets, and whispering their dream destinations. Today, however, there was only a lone figure slumped over a globe, seemingly lost in contemplation. 
+
+Amelia sighed, her gaze drifting towards the rain-streaked windowpanes. The Cornish seaside town of St. Ives was normally bustling with tourists seeking sun and sand, but this spring seemed determined to drench the country in dreary grey skies. Maybe that's why everyone was staying indoors.  Or maybe it was the persistent rumour circulating through the town – whispers of a curse placed upon St. Ives by a scorned mermaid, bringing misfortune upon anyone who dared leave their homes during the storm season. 
+
+
+Amelia scoffed at the thought. She knew better than to believe in such superstitions. But even she couldn't deny the unsettling stillness that had settled over the town.  It was as if everyone was waiting for something...or someone.

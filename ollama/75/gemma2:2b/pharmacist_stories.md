@@ -1,0 +1,7 @@
+The scent of lavender and vanilla hung heavy in the air, a sickly sweet aroma that always reminded Aisling Rowan of her mother's perfume.  It was like an unwelcome shadow draped over the pristine white walls of The Apothecary – a haven she had painstakingly built for herself after years at the bustling city pharmacy, "The Healing Hand." Now, surrounded by shelves stacked with herbs and bottles holding potent concoctions, Aisling felt the weight of her mother's ghost in her chest.
+
+**Setting:** A small, independent apothecary nestled on the outskirts of a quiet seaside town, known for its idyllic beaches and the occasional storm that battered the shore like an old sailor's temper. 
+ 
+**Character:**  Aisling Rowan, a woman in her late twenties with eyes as blue as the ocean and hair the color of sun-kissed wheat. She was renowned for her dedication to holistic healing, believing in the power of herbs and natural remedies before modern medicine took its hold.  She carried an air of quiet wisdom that belied her youth, honed by years of studying ancient texts and mastering the art of concocting potent elixirs. 
+ 
+**Story Hook:** Aisling had always avoided dealing with the town's eccentric folk doctor, Bartholomew "Barnacle" Davies. His bizarre cures were whispered about in hushed tones and met with skepticism from even the most open-minded villagers. But when a mysterious illness begins to spread through the community,  Aisling is forced to confront her prejudices and seek Barnacle's help - an act that may unravel both her past and her future. 

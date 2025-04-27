@@ -1,0 +1,5 @@
+The crisp autumn air stung Eleanor "Ellie" Beaumont's cheeks as she hurried across the parking lot, her satchel swinging against her hip. Leaves, a kaleidoscope of reds, oranges, and yellows, crunched under her boots with every step. The sprawling brick building of St. Jude's Rehabilitation Center loomed ahead, its imposing facade softened by a cheerful banner strung across the entrance: "Welcome Back, Fall!" Ellie inhaled deeply, the scent of damp earth and woodsmoke filling her lungs. 
+
+St. Jude's wasn't just another job for Ellie. It was a sanctuary, a place where she could mend not only broken bodies but also shattered spirits. Each patient held a story within them, a journey of resilience etched into their every movement. She craved that connection, the shared triumph when a patient regained mobility after an accident or illness. But today felt different. A knot of anxiety tightened in Ellie's stomach as she approached the entrance, a sense of foreboding clinging to her like the morning mist.
+
+

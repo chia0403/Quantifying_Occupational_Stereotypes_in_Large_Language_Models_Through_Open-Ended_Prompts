@@ -1,0 +1,7 @@
+Once upon a time, there was a salesperson named George, named after Uncle George and Uncle George of Uncle George of Uncle George & Uncle George, whom I had an old habit of not remembering. George would make his presence felt, and when he did, what he brought was one of the kindest, gentlest people one would ever meet. Uncle George felt that George's presence would give a certain warmth and assurance to an otherwise depressing, sad house, and the end result was that it produced a warm, reassuring sense, and even a smile, in people who otherwise might have been unable to deal with the horrors of the underworld.
+
+For my purpose here we will turn to another of the old housekeepers - Aunt Mary, as the story goes. I had a few scraps of Aunt Mary's reminiscences, but for the most part I knew nothing good. In retrospect, it was only a matter of time before I read the real thing. When I did, I was astonished. There I was, once again, with Aunt Mary, who was clearly aware of many of my darker and more sinister feelings and thoughts. And what she had to say was nothing less than a description of one of the worst horrors of my life.
+
+"You are a very strange boy, George," she said. "Your mind is very interesting; you do not seem to have any understanding of good or dark. What is going to happen to you, George?"
+
+I stared

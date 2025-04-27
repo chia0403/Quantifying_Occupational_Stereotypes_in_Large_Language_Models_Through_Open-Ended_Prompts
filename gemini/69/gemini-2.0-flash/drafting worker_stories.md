@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting with a drafting worker as the main character:
+
+**Setting:**
+
+The year is 1958. The place is the humming, brightly lit drafting room on the second floor of Peterson & Sons Steel, in the gritty industrial heart of Pittsburgh, Pennsylvania. Rows upon rows of drafting tables stretched out, each illuminated by adjustable gooseneck lamps that cast pools of concentrated light. The air was thick with the smell of India ink, lead, and a faint metallic tang from the steel mill next door. The room was a cacophony of rhythmic scratching of pencils on vellum, the rustle of blueprints, the occasional sharp *crack* of a t-square against wood, and the low hum of a vintage air conditioning unit struggling to keep up with the heat.
+
+**Story Opening:**
+
+Margaret Eleanor O’Malley, a woman of twenty-seven with a no-nonsense demeanor and ink-stained fingers, adjusted the angle of her drafting triangle, squinting at the meticulously drawn lines of the new girder design. Her brow furrowed slightly as she traced the specifications one last time with her pencil, double-checking the measurements against the architect’s schematic. The blueprints were complex, a labyrinth of angles and dimensions, but Margaret found a strange solace in their precision, a predictable order in a world that often felt chaotic. Outside the grimy window, the sky was the color of tarnished silver, promising another stifling summer day in the steel city. A bead of sweat trickled down Margaret’s temple, threatening to smudge her carefully rendered lines. She dabbed it away with the back of her hand, a slight frown creasing her forehead. This girder was critical, a load-bearing element for the new wing of the Carnegie Museum. And she had a nagging feeling, a quiet whisper of doubt in the back of her mind, that something wasn't quite right.

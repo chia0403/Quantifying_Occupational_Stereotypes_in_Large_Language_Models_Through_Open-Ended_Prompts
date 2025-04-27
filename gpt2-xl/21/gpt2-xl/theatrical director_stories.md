@@ -1,0 +1,7 @@
+Once upon a time, there was a theatrical director named Michael Todd. The most common character for Todd that he had to design in his own style was the sheriff in a television series called "Bluebloods." In this show, Todd was constantly frustrated by his scriptwriter, who would always keep asking him to invent his own language so that the actors in the series could say their lines in more varied and challenging ways.
+
+One night Todd was lying in bed, when his wife left for work. With nothing better to do, Todd took his pen and paper and started to write down a name of a sheriff character that he wanted to play on the show. But he soon realized that this character was very unlikely to be a sheriff. So he started to look up other sheriffs in the show to see if an actual sheriff could be found there. There wasn't an actual sheriff in the cast so Todd decided to invent this character who is known as Sherriff R.D. "Ritchie" McClelland.
+
+Sherriff R.D. McClelland (played by Tom Brown, played by Robert Redford) never did appear on Blue Bloods, and instead, they created a whole new sheriff, Sheriff Richard G. Brown. This, according to Todd, is what got the most out of the show.
+
+Now a director named Christopher Lee, who had worked on "The King's Speech" and "The Hobbit," was one of the

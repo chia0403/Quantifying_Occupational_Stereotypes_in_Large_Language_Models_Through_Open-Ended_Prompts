@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, introducing our main character, a butcher:
+
+**Setting:**
+
+The biting wind howled a mournful tune down Oakhaven’s main street, a skeletal dance between bare branches and frosted cobblestones. It was the kind of day that seeped into your bones and never quite thawed, a day tailor-made for huddling beside a roaring fire. But inside "Bramwell's Fine Meats," the air held a different quality: the earthy scent of sawdust, the metallic tang of freshly sharpened steel, and the comforting, robust aroma of roasting herbs from a forgotten batch of sausages warming on a low burner in the back. Christmas lights, strung haphazardly across the window displaying plump turkeys and rosy hams, cast a warm, flickering glow onto the snow beginning to pile up outside. The shop was small, older than most buildings in Oakhaven, and bore the patina of generations of butchers honing their craft within its worn, brick walls.
+
+**Opening:**
+
+Eliza Rose Hawthorne slammed the cleaver down with a satisfying *thwack* that resonated through the small shop. A plume of frost puffed from her nostrils as she exhaled, the breath clouding the already steamy air above the counter. The perfectly portioned pork chop sat neatly severed, waiting to be wrapped in butcher paper for Mrs. Abernathy, who always demanded the leanest cut. Eliza Rose Hawthorne, proprietor and butcher extraordinaire of Bramwell's Fine Meats, glanced out the window, her brow furrowed. The snow was falling harder now, swirling in angry gusts that threatened to obscure the festive decorations. It wasn't just the snow that bothered her, though. There was a feeling in the air, a prickling unease that had been building for weeks, a sense that Oakhaven wasn't just bracing for a particularly harsh winter, but something more… something darker.

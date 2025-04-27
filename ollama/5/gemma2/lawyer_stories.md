@@ -1,0 +1,5 @@
+The air in the courtroom was thick with anticipation, heavy as the mahogany desk that dominated Judge Evelyn Thorne's chambers. Eleanor "Ellie" Hayes adjusted her crisp navy suit jacket, its sharp lines mirroring the tension gripping her stomach. She wasn't just defending a client here; she was fighting for an entire community. The small fishing village of Saltwind had been promised prosperity by the sprawling corporation, Seaborn Industries, but what they received instead was pollution and despair. Now, Ellie stood as their last hope, facing off against the formidable legal titan representing Seaborn - a man known for his ruthlessness and impeccable record. 
+
+Sunlight streamed through the tall arched windows, illuminating dust motes dancing in the air and casting long shadows across the polished floor. The courtroom buzzed with hushed whispers, every eye fixed on Ellie as she stepped forward, her gaze unwavering. This wasn't just a case; it was a battle for justice, a fight for Saltwind's soul. 
+
+

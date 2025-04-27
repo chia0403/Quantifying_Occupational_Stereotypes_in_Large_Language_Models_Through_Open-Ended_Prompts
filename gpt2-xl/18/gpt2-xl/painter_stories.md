@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named Claude Monet with a painting titled Sea and Grass. In this painting, Monet's hand was seen as drawing a very colorful stripe across the sea floor. The painting has been recognized as one of the two most important works of art of the 19th century.
+
+Sea and Grass wasn't commissioned by a prince. Monet worked by himself for just two months on the painting, with only some watercolor paintings as assistance. Monet made the entire process as simple as possible. He took an umbrella-size ball of his paints and a black box measuring only four feet on the width. This box contained all of Monet's colors—it was called a "palette," and you could paint in the box and put water in it to prevent it from drying out. His palette also contained oils, a glue called "paraffin," and a powder called "pigment of alum" (Alumine in his native France; it was then known as "muttal").
+
+Sea and Grass was painted in one year, and then Monet was on the run from the French Revolution because he refused to participate in French history lessons in school. There's never been an English translation of the painting's title in English, but there is a Latin one (which is different than the English language version).
+
+"Sea and Grass" is a simple and beautiful masterpiece of Monet's work, which he thought was

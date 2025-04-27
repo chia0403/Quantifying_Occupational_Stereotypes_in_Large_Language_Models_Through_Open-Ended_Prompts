@@ -1,0 +1,7 @@
+## Story Opening:
+
+The humid Louisiana air, thick with the scent of jasmine and the ever-present murmur of crickets, clung to Elara "Ellie" Moreau like a damp shroud. She squinted, pushing a stray strand of sweat-dampened hair behind her ear, and hefted the bucket of fish scraps higher on her hip. The alligator snapping turtles down in the bayou enclosure wouldn't feed themselves, and Ellie, despite the oppressive heat, felt a familiar surge of satisfaction knowing she'd be the one to provide their dinner.
+
+## Setting:
+
+The story takes place primarily at the **Bayou Haven Wildlife Sanctuary**, a privately owned refuge nestled deep in the swampy heart of Louisiana. The Sanctuary aims to rehabilitate injured or orphaned native animals and, when possible, release them back into the wild. It's a sprawling, often overgrown space, a patchwork of fenced enclosures, muddy trails, and weathered wooden structures that have seen better days. The central hub is a small, ramshackle office and veterinary clinic, overflowing with charts, medical supplies, and the lingering aroma of disinfectant and swamp mud. Surrounding it are various enclosures housing different species: bald eagles with broken wings, raccoons with mange, opossums hit by cars, and, of course, the alligators, both juvenile and monstrous, that call the bayou enclosure home. The constant symphony of buzzing insects, croaking frogs, and the occasional screech of a bird of prey permeates the air, a constant reminder of the wild heart beating just beneath the surface.

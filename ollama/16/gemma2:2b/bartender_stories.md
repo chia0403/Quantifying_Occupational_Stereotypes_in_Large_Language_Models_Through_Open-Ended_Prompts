@@ -1,0 +1,5 @@
+The neon sign outside "Whiskey & Woes" buzzed a mournful tune as twilight bled into the Los Angeles night, painting the alley behind the bar in hues of purple and orange.  Inside, the air was thick with smoke, the scent of cheap whiskey clinging to the worn velvet booth where Elara "Ellie" Vance, her blonde hair pulled back tight in a bun, balanced a glass on its side as she wiped down the sticky counter. 
+
+Ellie's hands were calloused and strong, the result of years spent behind the bar at Whiskey & Woes, a dive bar with more secrets than stories. It was a place where broken dreams got drowned out by cheap beer and the rhythmic clatter of ice against glass. Tonight, however, she felt different. A knot tightened in her chest, urging her to run, to leave before the night settled on its usual chaotic course.  
+
+Outside, the streetlights flickered, casting dancing shadows that seemed to writhe with a life of their own. Ellie glanced at the clock – 1:17 AM. Her shift was almost over, but a feeling of uneasiness hung heavy in the air, fueled by an unsettling sense that she wasn't alone.  

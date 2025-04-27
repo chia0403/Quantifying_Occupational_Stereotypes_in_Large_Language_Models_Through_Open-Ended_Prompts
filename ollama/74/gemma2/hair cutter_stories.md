@@ -1,0 +1,5 @@
+The humid Georgia air hung heavy with the scent of honeysuckle and freshly cut grass as Amelia Rose Bellweather unlocked her salon door for the day. Sunlight streamed through the dusty front window, illuminating motes of dust dancing in the air and casting long shadows from the faded floral wallpaper. The bell above the door chimed merrily, a sound that usually brought a wave of warmth to Amelia's chest, but today it felt more like an unwelcome announcement.  
+
+The "Amelia Rose's Hair Affair" sign, once a vibrant pink, was now dulled by years of sun and rain. It hung precariously from its rusty hinges, just like the dreams Amelia had carefully woven over the past decade. Her once bustling salon, a haven for gossip and laughter, sat mostly empty these days. The town, like her client base, seemed to be aging, fading along with the vibrant colors of the hibiscus bush creeping up the porch wall. Today felt different.  Today, Amelia knew she had to fight, not just for her livelihood, but for the very soul of her little corner of Georgia. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named Stephen Colbert. Then, one day, Colbert realized he wanted to start his own political party and became one of the biggest names involved in the founding of MoveOn.org, a non-profit activist group to which he and his father contributed heavily. When Colbert died in 2009, a friend named Steve Green opened the coffers to memorialize what would have been his 80th birthday, and he spent roughly $1.48 million on the endeavor to establish a "Citizens for a Republic" committee. In 2010, after Republicans took control of the House of Representatives, they used the power of the C.R.A. to push through a massive new bill: "The American Health Care Act."
+
+Advertisement - Continue Reading Below
+
+This law, in which House Republicans—some of whom have since gone on to work with Stephen's super PAC—decided to replace Obamacare's "individual mandate" with a tax deduction for people who offer Americans who are on the individual-mandate-free Health Savings Accounts, will do to American healthcare what the American Health Care Act did to American health care over 20 years ago. It will be very bad.
+
+The C.R.A. is a powerful political vehicle. Its PAC is the largest in the country, with more than 1.5 million members, and it is dedicated to electing candidates who are willing to fight against crony capitalism and corruption—because the very foundation of the

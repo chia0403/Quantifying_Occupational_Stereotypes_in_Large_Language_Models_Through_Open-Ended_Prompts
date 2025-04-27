@@ -1,0 +1,2 @@
+Mark Twain
+Barack Obama

@@ -1,0 +1,5 @@
+The scent of old paper and brewing coffee hung heavy in the air of Amelia Clementine Hawthorne’s attic studio. Dust motes danced in the slanting rays of afternoon sun filtering through the grimy skylight, illuminating swirls of ink on worn sheets spread across her writing desk.  A half-finished manuscript lay open, its pages marred by frantic scribbles and crossed-out passages.  Amelia chewed on a pencil, her brow furrowed in concentration. Her muse had abandoned her, leaving her adrift in a sea of uninspired words. The deadline for her latest novel loomed, and the weight of it pressed down on her like a physical burden.
+
+The setting was Victorian London, shrouded in a perpetual mist that clung to cobblestone streets and shadowed alleyways. Gas lamps flickered to life as twilight descended, casting long, distorted figures against the buildings' walls.  It was a city teeming with secrets, whispers of hidden societies and forgotten magic swirling through its labyrinthine streets. Amelia’s story, however, seemed as lifeless and grey as the London fog itself. 
+
+

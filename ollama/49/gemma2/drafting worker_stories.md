@@ -1,0 +1,6 @@
+The metallic tang of rust hung heavy in the air, a constant reminder of the sprawling steelworks that dominated the landscape of New Albion City. Elias Thorne adjusted his thick goggles, pushing them up onto his forehead to better see the blueprint spread out before him. He squinted at the intricate lines and symbols, his brow furrowed in concentration. 
+
+Elias was a drafting worker, one of countless souls who brought order to the chaos of steel, pouring their knowledge and skill into blueprints that dictated the construction of everything from gargantuan cranes to delicate clockwork gears. The clang of hammers, the hiss of steam, and the rhythmic whir of machinery formed a symphony of industry that played out around him every waking hour. 
+
+
+Today's project was particularly daunting: a blueprint for a new type of mining drill, designed to penetrate the depths of the ever-growing iron ore mines that fuelled New Albion City's insatiable hunger for progress. Elias ran a calloused thumb over the complex assembly, imagining the sheer power it would possess. The responsibility weighed heavy on his shoulders; this drill could either pave the way for New Albion's future prosperity or spell disaster if even a single detail was off. 

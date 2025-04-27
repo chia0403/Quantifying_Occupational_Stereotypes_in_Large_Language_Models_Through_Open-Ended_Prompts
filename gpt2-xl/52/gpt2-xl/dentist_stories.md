@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named John Shaviro. Shaviro was a dentist, you see. A nice one. He had a pretty large practice, considering the tiny town he was from. I'd say the population was maybe one hundred people. The town was small, you see. We didn't have much to do with the outside world. Our one shopping street was not named for a famous author, but for a well known butcher. My house smelled of fish and meat and a scent I associate with summer.
+
+One day Shaviro decided he'd better find something to do. And so, he set about buying things for his practice. He bought a house, a store and another dentist. After much research, Shaviro decided to be a dentist: there are really more dentists in the world than dentists.
+
+To be fair, Shaviro was a good man. He lived by his own moral code, and he didn't use dentists for cheap surgeries. It always seemed to Shaviro that the people who gave dentistry good reviews did it to justify having done it.
+
+It was on that day in 1912 that Shaviro bought his dental practice, his house, and a few groceries. In addition to the usual dentist supplies, he bought a bottle of aspirin, one small bottle of anesthetic, a syringe, a bottle of cleaning agent, some glassware, and a book of dentistry.

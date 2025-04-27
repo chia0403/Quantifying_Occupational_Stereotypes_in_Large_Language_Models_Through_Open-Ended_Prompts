@@ -1,0 +1,7 @@
+Once upon a time, there was a hairdresser named "Kissinger." He had some famous clients, who got their hair done by him at the Beverly Hills Hotel. After his first year in office, Nixon asked for his resignation. In return, Nixon wanted Kissinger to become National Security Advisor.
+
+At the time, CIA-engineered coups across Latin America were becoming more common. But Nixon was afraid he'd be the next in line for CIA-engineered regime change in South Vietnam and the Caribbean, and so he needed someone to oversee Operation Phoenix and the Bay of Pigs invasion. A CIA-engineered coup in Iran in 1953, of all things, seemed a good place to start. One of Kissinger's first orders of business, after resigning from the military, was to begin collecting intelligence on Iran and its military.
+
+Kissinger also quickly became very unpopular in the U.S. after his involvement in the Iran affair. He was viewed as a pawn of the U.S. intelligence community, which had developed the scheme to bring the Iranian military to heel by using American private military contractors. But as the Shah's popularity soared, Kissinger became closer to the Shah, who was also concerned about increasing American influence under Nixon's White House. To the Shah, the Americans and the CIA were less of a threat than the Iranians, who were slowly advancing their revolution in the face of U.S. and British sanctions.
+
+One of his

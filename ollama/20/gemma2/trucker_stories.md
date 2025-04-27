@@ -1,0 +1,5 @@
+The air hung thick with the scent of diesel and dry sagebrush as  Cordelia "Cordy" Mae Hawthorne wrestled her rig into the dusty truck stop. The faded blue paint of her Peterbilt 379, "Old Betsy," was speckled with more highway grit than actual paint by now, but she loved her baby like a second skin. The Arizona sun beat down on the cracked asphalt parking lot, reflecting off the chrome bumpers and windshields of other rigs.  Cordy squinted, shielding her eyes with one hand as she pulled Old Betsy into a vacant spot under the scant shade of a lone cottonwood tree. 
+
+This was Dust Devil Stop, nestled on the edge of nowhere in the middle of New Mexico. It wasn't much to look at - faded neon signs, overflowing trash cans, and a diner that smelled like burnt coffee and desperation. But it was a haven for truckers like Cordy, a place where they could stretch their legs, refuel, and swap stories under the vast, unforgiving sky. Tonight, though, Cordy had a feeling this stop would be anything but ordinary. 
+
+

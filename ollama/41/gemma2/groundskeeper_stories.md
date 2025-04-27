@@ -1,0 +1,6 @@
+The humid Georgia air hung heavy as Bartholomew “Bart” Thistlewick hummed along to the radio, his calloused hands effortlessly maneuvering the lawnmower across Mrs. Periwinkle’s prize-winning petunias. He was a man of routine, his days measured in the rhythmic whirring of the blades and the scent of freshly cut grass. For twenty years, he had tended to the manicured lawns and vibrant flowerbeds of Willow Creek Estates, a sprawling community of stately homes nestled on the banks of the Chattahoochee River. 
+
+Bart knew every inch of these grounds, each shrub's temperament, every sprinkler's schedule. He knew which birds favored which feeders, where the best shade lay on a sweltering afternoon, and the exact moment the sun would paint the river in shades of gold as it dipped below the horizon.  He was more than just a groundskeeper; he was Willow Creek’s silent guardian, ensuring that beauty bloomed beneath his watchful eye.
+
+
+But today, something felt different. A stillness hung in the air, punctuated by an unsettling silence - the radio seemed to whisper instead of sing. Even the usual flurry of bees buzzing around Mrs. Patterson's lavender bushes had disappeared.  Bart paused his work, a prickle of unease running down his spine. Something was amiss. 

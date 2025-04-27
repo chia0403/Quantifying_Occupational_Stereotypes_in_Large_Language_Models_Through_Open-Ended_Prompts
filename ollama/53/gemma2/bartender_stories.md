@@ -1,0 +1,5 @@
+The worn oak counter gleamed under the dim glow of the amber pendant lights strung across the ceiling. Rain lashed against the dusty windows of The Rusty Mug, each drop drumming a melancholic rhythm against the glass. Inside, the air was thick with the scent of stale beer, spilled whiskey, and regret. 
+
+Behind the bar stood Eleanor Beatrice "Ellie" Hayes, her name etched into the worn brass nameplate bolted to the counter. Her hands moved with practiced grace, wiping down glasses and refilling ashtrays, all while keeping a watchful eye on the handful of patrons huddled in their corners. Ellie knew them all by name, their stories woven into the very fabric of The Rusty Mug. There was old Mr. Peterson, nursing his usual rye and staring wistfully into the rain; Sarah, the aspiring poet who confided her dreams over cheap gin; and Michael, the drifter with haunted eyes, whose past lingered like smoke in his wake. Ellie listened to them all, a silent confidante, dispensing both drinks and solace with equal measure. Tonight, however, something felt different. The air crackled with an unspoken tension, a brewing storm that promised more than just rain. 
+
+

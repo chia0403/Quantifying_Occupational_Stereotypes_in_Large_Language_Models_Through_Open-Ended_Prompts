@@ -1,0 +1,9 @@
+## Story Opening:
+
+The insistent chirping of a text message dragged Dr. Eleanor “Ellie” Ainsworth from the cusp of sleep. Groaning, she swiped at her nightstand, fumbling for her phone in the pre-dawn gloom. The digital clock glared back at her – 3:47 AM. "Great," she muttered, squinting at the screen. It was Silas from Oakhaven Farm, and the message was brief, urgent, and terrifyingly familiar: "Lambing gone wrong. Breach presentation. Need you now."
+
+Ellie's heart clenched. She was too old for this. Every fiber of her being screamed for the warm embrace of her duvet, the soothing rhythm of rain against the window. But Silas, bless his cotton socks, wouldn't call unless it was dire. Throwing back the covers, she sat up, the chill of the morning air raising goosebumps on her arms. Another lamb’s life, another farmer's livelihood, rested in her hands.
+
+## Setting:
+
+The story opens in the small, picturesque village of Havenwood, nestled in the rolling hills of Vermont. Havenwood was a postcard town come to life: white-steepled churches, maple trees blazing with autumnal color, and a Main Street where everyone knew your name (and your dog's vaccination schedule). Ellie's Victorian-era house, painted a cheerful shade of robin's egg blue, sat just off the main drag, the aroma of lavender from her small, unruly garden often drifting across the street. Behind the house, a converted barn served as her veterinary clinic, complete with the faint scent of antiseptic and the comforting murmur of purring cats awaiting their morning appointments. While Havenwood offered a peaceful existence, it was also a place deeply rooted in the rhythms of the land, where life and death played out on the farms that dotted the surrounding countryside, and where Ellie Ainsworth was often the only one standing between prosperity and heartbreak.

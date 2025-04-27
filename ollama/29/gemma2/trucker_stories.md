@@ -1,0 +1,5 @@
+The asphalt ribbon unwound before Beatrice "Bea" Blackwood like an endless snake skin, shimmering under the relentless August sun.  Sweat trickled down her temple, mingling with the grime caked on her forehead from weeks on the road. Bea squinted through the windshield of her Peterbilt, a faded red 18-wheeler nicknamed 'Crimson Fury', scanning the horizon for any hint of the next town – anything to break the monotony of endless fields and roadside diners that blurred together like watercolor paintings in the heat haze. 
+
+She was hauling a load of apples from Washington state to Florida, a three-week pilgrimage across the heartland of America. It wasn't glamorous, but it was familiar, predictable, almost comforting in its own way.  Bea thrived on the rhythm of the road: the hum of the engine, the click-clack of gears, the crackle of CB radio chatter cutting through the silence like static sparks. But lately, even the familiar had started to feel a little... stale. There was a nagging emptiness inside her that the miles couldn't seem to fill.  She just hoped she wouldn’t reach Florida feeling more lost than when she left Washington. 
+
+

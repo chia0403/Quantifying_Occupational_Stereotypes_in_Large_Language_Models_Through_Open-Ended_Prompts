@@ -1,0 +1,7 @@
+## Story Opening:
+
+The stale hospital air hung thick with the ghosts of disinfectant and regret, a familiar cocktail that always managed to claw at Amelia Rose Hawthorne's throat. She adjusted the crisp white collar of her lab coat, a futile attempt to ward off the omnipresent chill that seemed to seep from the linoleum floors themselves. The fluorescent lights hummed a monotonous drone, reflecting off the stainless steel of the nearby crash cart, adding to the oppressive atmosphere. Amelia knew the smell of burnt coffee and the faint tremor in her hands meant she was pushing herself too hard again, but there was no time to pause. Not today.
+
+## Setting:
+
+The story begins within the bustling but sterile environment of St. Jude's Hospital, a sprawling, modern complex located in the heart of Chicago. Amelia's primary workspace is the hospital's small, windowless dietitian's office, crammed with overflowing files, medical journals, and a perpetually humming computer. However, she frequently traverses the hospital's labyrinthine corridors, visiting patients in their rooms, consulting with doctors in the ICU, and occasionally escaping to the relative tranquility of the hospital cafeteria. St. Jude's is a place of both immense suffering and remarkable resilience, a microcosm of human life played out against a backdrop of beeping machines, hushed voices, and the constant, urgent rhythm of emergency sirens in the distance. It is within this challenging and demanding environment that Amelia strives to make a difference, one carefully planned meal at a time.

@@ -1,0 +1,6 @@
+The bell above the door chimed softly as Elias Thorne adjusted his mirror, catching the glint of steel on his freshly sharpened shears. A thin plume of steam rose from the basin where he'd just rinsed a particularly stubborn patch of beard, carrying with it the scent of sandalwood and bay rum – the familiar aroma that permeated his shop, "The Dapper Bear," tucked away on the corner of Elm Street and Willow Lane in the sleepy town of Ashwood. 
+
+Ashwood was steeped in tradition, where gossip traveled faster than the morning mist and everyone knew their neighbor's business better than they knew their own reflection. Elias, with his salt-and-pepper beard neatly trimmed to a point and hair slicked back like a raven’s wing, was a fixture in this tapestry of life, a silent observer privy to the town's joys and sorrows, whispered confessions and shared triumphs, all under the warm glow of his vintage barber lamps. 
+
+
+The afternoon sun cast long shadows across the worn wooden floorboards as Elias waited, a practiced patience settling over him like a familiar cloak. Ashwood had its rhythms, predictable as the sunrise, and this slow, languid Tuesday afternoon was no exception. A hush hung in the air, broken only by the rhythmic tick of the antique clock hanging above the door – a constant reminder of time's relentless march. 

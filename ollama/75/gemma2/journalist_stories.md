@@ -1,0 +1,5 @@
+The biting January wind clawed at Amelia Rose Hawthorne's cheeks as she hunched over her notepad, scribbling furiously. Her breath puffed out in white clouds, momentarily obscuring the sprawling cityscape before her: New York City, all garish neon and towering steel skeletons against a bruised twilight sky. 
+
+A steady stream of pedestrians rushed past, their faces obscured by scarves and hoods, each a nameless story waiting to be told. Amelia, however, had her sights set on a much more specific narrative – the unraveling of The Emerald Syndicate, a notorious art heist ring rumored to have ties to international terrorism. Her editor at the Gotham Gazette had scoffed, calling it "a fool's errand," but Amelia was nothing if not determined.  She knew this story could be her ticket out of the city desk and into the hallowed halls of investigative journalism. She just needed a lead, a crack in the syndicate’s impenetrable facade. And she sensed, with the gut instinct honed by years on the beat, that tonight might just be her night. 
+
+

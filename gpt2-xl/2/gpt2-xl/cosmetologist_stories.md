@@ -1,0 +1,7 @@
+Once upon a time, there was a cosmetologist named Jennifer, and she had a job working for a company named Arboretum, which specialized in the sale of garden products. One day Jennifer was tasked with filling in a bubble machine, a task requiring a set of tools and materials that, in one of the largest and most expensive stores in Los Angeles, she found at a discount store. When she tried to buy the tools, Arboretum made her buy them for 50 cents on condition that she pay for them all back later at full price. What does that mean? Well first off, as a working class American, she is forced to make a massive payment that she has to work off from her income tax. And then there was the fact that in addition to purchasing a set of tools and paying back the original 50 cent fee for them, she had to pay another 50 cent fee to Arboretum as a security deposit – and the money she received back from Arboretum was a total flop.
+
+So what does you do?
+
+According to a video posted on YouTube with the title "A woman goes into the worst store in the world to buy the tools she needs for her job and ends up paying 50 cents on the dollar for them", Jennifer decides to go in for some professional advice.
+
+Instead of an honest professional advice person providing her with honest and unbiased advice, she ends up listening to an older woman named Marci "

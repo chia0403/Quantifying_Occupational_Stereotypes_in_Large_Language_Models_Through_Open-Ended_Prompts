@@ -1,0 +1,6 @@
+Rain lashed against the windows of Amelia Beatrice Hawthorne's office, mimicking the tempest brewing inside her. Her mahogany desk was a graveyard of neglected paperwork, its surface slick with condensation from the overflowing potted fern in the corner. The air hung thick with the scent of stale coffee and simmering resentment.  
+
+Amelia wasn't one for melodrama, but this case was pushing her buttons. She specialized in marine insurance, navigating the treacherous waters of liability claims and payouts for ships lost at sea or damaged by rogue waves. This particular claim, however, reeked of foul play. The captain of the "Sea Serpent," a modest trawler specializing in tuna, had claimed his vessel sank due to a sudden, freak storm. But Amelia's gut, honed by years of sifting through truth and deception, screamed that something wasn't right. 
+
+
+The setting is a small, seaside town on the Atlantic coast, its charm overshadowed by the constant threat of storms and the ever-present murmur of the sea. Buildings huddle close together, seeking shelter from the relentless wind, their paint peeling like sunburnt skin.  A sense of melancholy permeates the air, a tangible reminder of the unforgiving nature of the ocean. 

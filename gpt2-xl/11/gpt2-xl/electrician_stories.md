@@ -1,0 +1,6 @@
+Once upon a time, there was a electrician named Harold. He was good at electrician work and really loved it, but he was never satisfied. He often found himself bored with his job and thought to himself: why should I work for Mr. Money Mustache? It was a very honest question he was asking himself. Eventually he became very frustrated. He had had a wife and three kids, and they were getting older so quickly. He didn'st have the time anymore to sit back, put on some shows, and tell stories about his experience with life and build some confidence, he wanted to step out of the role of the father and just go out and make a couple bucks. In his anger, he ended up driving his car into a tree and killed himself.
+
+When his life came to an end, so did his energy. His passion went out the window and he started to realize what he had become. He felt like a fraud to his family and his followers who were once in awe of him and now did not give a shit about anything he said or did.
+
+Well, at least for about two weeks, there was that energy going in my direction. I was still somewhat angry, more than disappointed. I was upset about his death because all that his power seemed to convey to us was that we could be better, that we could be successful, and that we should do that for ourselves, and not let anyone else do it for us.
+

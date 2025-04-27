@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Dr. Robert Lifton, from Columbia University, who was not the sharpest tool in the shed. He was not a researcher in himself, but was more of a consultant and a bit of a cheerleader in the field of psychological analysis. It was he who brought about the birth of clinical psychology as a scientific discipline. It was he who introduced the concept of the "analytic mind," the idea of the mind-body axis, as opposed to Freud's concept of the "reward system." And by studying the behavior of prisoners, he became one of the pioneers of psychiatric research.
+
+And in the late 1960s, we witnessed the birth of the therapeutic, or behavior-oriented, psychiatry. His name? Dr. Abraham Maslow, who would one day develop the theory of learned helplessness and the various learning styles that we now call personality types.
+
+Then the 1970s, the 1980s, the '90s were the period of the drug renaissance. In the 1970s and '80s, the movement toward therapeutic, behavior-oriented interventions was driven in large part by pharmaceutical research. And we didn't look back in wonder at the drug-free movement that had begun decades before — in fact it's the drug-free movement we now call "functional medicine".
+
+This was the period when the whole idea of "wellness" and "self-healing" came into being. Not even

@@ -1,0 +1,4 @@
+The fluorescent lights hummed above Dr. Amelia Rose Thornton's head, casting a sterile glow over her waiting room. A symphony of nervous sighs and the rustling of magazines filled the air. Outside, the Miami sun beat down on the glass facade, painting the polished floor with shifting stripes of light and shadow. The scent of disinfectant mingled with the faint aroma of coconut sunscreen from a patient who’d just arrived. Amelia glanced at her reflection in the gleaming stainless steel sink – a woman perpetually caught between professionalism and weariness.  Her auburn hair was pulled back in a tight bun, revealing a faint crease across her forehead that deepened whenever she encountered a particularly anxious patient. Today, it seemed, all the patients were anxious.  
+
+
+Amelia sighed, adjusting the stethoscope around her neck, and prepared to face the symphony of dental woes that awaited her. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named Lise Meitner. She was from Königsberg, a small city in Germany's Rhineland-Palatinate region. Her daughter, Elisabeth, and her niece Lise, the daughter of Otto, were brought to Berlin as newborns. Elisabeth was the first child to be born in Germany's "mother and child" maternity hospital, and when Lise was born, the entire crowd of women went wild, shouting "Hello, my little Einstein!". They called themselves the "Auntie Eva"s.
+
+The family lived in Berlin for three years and as such they were able to witness the development of Berlin's modern society. Lise took to this new city with more ease than her fellow countrywomen. While their husbands had to travel to the job centre at least once a week, Lise could simply walk to and from school and the offices of the city's big corporations. She was also the first girl in Berlin to attend a state school.
+
+This was an exciting prospect and there was only one problem: because Lise had contracted dysentery, she was forced to remain in intensive care for six weeks. Her mother, overwhelmed with caring, rushed there to be by her daughter's side. The entire school watched as Lise died.
+
+The Aunts Eva were understandably distraught, but she was later asked for a small favor: she wanted to

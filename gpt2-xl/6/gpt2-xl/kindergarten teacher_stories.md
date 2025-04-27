@@ -1,0 +1,7 @@
+Once upon a time, there was a kindergarten teacher named Mrs. Jones. She was fired from her job when a kid fell on her from his swing, and she sued.
+
+Apparently this happened many years ago. Since then, the kids at her school have developed special powers to "feel." After hearing some other parents talk about it, Mr. Jones finally thought about it from the standpoint of how the kids might feel about their school if they had to take part in an exercise designed to test "feel" in order to keep jobs, but then Mrs. Jones's husband, the school's superintendent, said that was a bad example and they had a teacher with no special feelings who would probably like that sort of school because he had no problem with them, so Mrs. Jones was fired and the kid who fell was moved into another school and Mrs. Jones sued to get her job back, to no avail.
+
+One day the kids get together to celebrate their new power to "feel." There's a little discussion about what they can do and what they can't, and finally the big question is, should they have a party for Mrs. Jones or not?
+
+So the next day the kids are sitting in the cafeteria and the parents are talking about it, and of course the teacher is going to say no, they don't have to, they were celebrating being a special power to feel. But the kids say they're special powers to feel because they are feeling a party

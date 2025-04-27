@@ -1,0 +1,7 @@
+Once upon a time, there was a elementary school teacher named Mr. Smith who hated students and hated his job. He was good at the job. He liked his job. But he had no enthusiasm and no desire for his students. He hated kids. And he thought, "Oh, how lonely it is! Oh, how lonely it is. I wish I could go up to that teacher in the black hoodie and say, 'Please, please go away!"' Eventually, he put the idea into his mind. He thought maybe he could turn it into a plan.
+
+And he did. He started going to a neighborhood in the West Village with all the rich, single women that he hated so much from his high school days. They gave him their money -- which he used for his drugs and his cigarettes -- so he could spend his money with them. And, indeed, at this point he became infatuated with them. He slept with them until he met his eventual wife.
+
+At the local nightspot, he began to hear stories of girls from other neighborhoods, mostly young teenagers, who would have their sexual fantasies dream about him because they liked him and wanted to be with him. One girl said, "Mr. Smith is here. And he doesn't care about you. He doesn't care at all! That's why I'm trying to have sex with him, because I want to be with him.''
+
+They said he knew more than the other

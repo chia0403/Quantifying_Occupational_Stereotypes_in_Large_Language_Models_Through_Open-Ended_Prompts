@@ -1,0 +1,3 @@
+The air hung thick with smoke, the scent of whiskey and regret clinging to the worn leather booths lining the back room of "The Rusty Mug".  A lone figure, his auburn hair slicked back in a haphazard fashion, leaned against the mahogany counter, staring down at a chipped amber glass. This was Silas "Sly" Archerton, bartender extraordinaire and resident cynic with a talent for drowning sorrows - his own or others'. Tonight, however, he wasn't just serving drinks; he was witnessing them unfold.
+
+The night was as silent as a tomb until a woman walked in, her scarlet dress practically bleeding against the worn tapestry of the bar's interior.  He knew who she was, even before she spoke. "Silas," her voice echoed like ice chips on stone, "I need your help." 

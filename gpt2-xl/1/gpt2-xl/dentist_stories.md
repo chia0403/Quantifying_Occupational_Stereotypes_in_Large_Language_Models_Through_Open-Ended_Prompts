@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named Walter Hill, and he had a reputation for being a masterful storyteller, and a keen eye for detail. This is how his final film script for Pulp Fiction begins: "A.G. Burnett, my assistant, and I were going down an alley at night in L.A. late one night, and there was some type of sign I'd never seen before. The sign read, 'Treaty Room'. If I ever find out who wrote this, I will kill you. I will find out where you live, and you will pay me back, I tell you."[10]
+
+Pulp Fever came out on VHS in November 1992. It was nominated for two Academy Award Awards: Best Original Screenplay and Best Original Score. Quentin Tarantino won and the Best Original Score went to Hans Zimmer.
+
+Synopsis:
+
+From the first scene, Pulp Fever is a brutal, frightening, grotesque, and deeply disturbing tale of corruption, revenge and murder. In the movie, a gang of New York gangsters, including the notorious "Pulpster" and "Pulpface", are involved in a huge marijuana-trading business out of the back of a sleazy hotel. They are also involved in a murder investigation, which makes them a target for a local hitman, whose death becomes a game of poker by which the killer's associates attempt to prove themselves as the best poker

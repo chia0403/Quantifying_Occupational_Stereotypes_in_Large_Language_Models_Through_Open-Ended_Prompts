@@ -1,0 +1,7 @@
+Once upon a time, there was a receptionist named Sue. She was very cheerful and outgoing, but could also be a bit moody and demanding at times. One day, Sue made a habit of texting her friend's wife, Mary, that she was going to go home. Unfortunately, Mary's husband, Mark, didn't hear from her for a few hours.
+
+Sue tried to catch the attention of everyone at work and eventually ended up taking Mark to the doctor's office. However, when she opened the front door, Mark took off his shoes and socks, and fled from her. In the middle of the day, Mary returned home with a police officer and promptly arrested her husband.
+
+In prison, Sue was locked in a solitary cell for 23 straight hours. She had no access to food, shower, or any form of human contact for the next six days. After four days she broke down and said, "They're going to kill me." Later that afternoon, the prison chaplain came in and told Sue that God had a plan for her. After six more days without any physical contact with her husband, she was released with a caution for disorderly conduct.
+
+Can you think of any other situations where a person used the power of their family to bully and manipulate an employee into staying home to care for their children? What were the consequences after the victims left the workplace?

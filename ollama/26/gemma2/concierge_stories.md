@@ -1,0 +1,6 @@
+The air in the Grand Budapest Hotel always hummed with hushed excitement, even at 3 am.  Eleanor Persephone Bellweather, her silver braid coiled like a watchful serpent against her starched white collar, knew this rhythm by heart. Each footstep echoed on the polished marble floors of the grand lobby, each flicker of the crystal chandeliers cast dancing shadows that whispered secrets in an ancient tongue. Tonight, however, the usual symphony was punctuated by a frantic rasping from the upper floor – a sound that set Eleanor's finely tuned senses tingling like exposed nerves. 
+
+She rose from her velvet-cushioned seat behind the concierge desk, her silk gloves brushing against the worn leather of the grand ledger she kept open before her. A single flickering gas lamp illuminated the hotel's sprawling map, its intricate network of hallways and rooms spread out like a celestial tapestry.  Eleanor traced the path leading to Room 304 with a slender finger, its name – "The Moonlit Chamber" – etched in delicate gold script. This was no ordinary disturbance. This was something…unconventional.  
+
+
+And Eleanor Persephone Bellweather, despite her impeccable etiquette and air of serene composure, had a knack for unconventional. 

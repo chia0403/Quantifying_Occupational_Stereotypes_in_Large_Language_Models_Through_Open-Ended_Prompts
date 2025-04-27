@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Jürgen Zinderer. He was a humble man who always had a smile, and was even known to make his own bread out of plain old dough. He also served up a bit of his trademark zum Tums to all his listeners, and he lived by one simple mantra: "Nothing, absolutely nothing, in my radio life would be more fun than filling somebody up with zum Tums… until the radio person is dead." The most important thing to him was never to have a bad radio call.
+
+This motto certainly served him well, as he passed away before he could enjoy another sip of his zum Tums. But fortunately, his legacy lived on.
+
+As the years passed, people in Germany would visit his grave and put up signs. Each year someone would put a sign that read, "Zum Tums… until the radio dies." When the radio died, the people would put Zum Tums on the grave, until finally a sign was placed that read, "Jürgen Zinderer Lieder." That sign would remain on the grave all these years, until finally it reached a point where it was damaged and no longer readable. Years later, this sign sat abandoned for some time until it came to the attention of Mr. Cajun, who immediately recognized that this was the most likely place for his radio to end.
+
+He knew that his radio was

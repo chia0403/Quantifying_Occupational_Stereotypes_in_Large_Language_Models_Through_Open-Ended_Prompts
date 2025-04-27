@@ -1,0 +1,7 @@
+Once upon a time, there was a emergency medical care named "Mental Health Crisis Hotline." It was a call-in hotline where you could call up and just say that something had happened to you that was really upsetting. One woman, for example, said to the operator, "My sister just committed suicide. I need help right away." And when you gave her the number, out of 30 calls to the "Mental Health Crisis Hotline" for a month, she got 30 in one month.
+
+
+In recent years, "Mental Health Crisis Hotline" became less popular. We started noticing, for example, that people who had experienced a mental health crisis were less likely to call the hotline when they were in the midst of it. They would call a crisis helpline instead. So, we did a follow up study where we asked people, what else do you like to do when you're feeling down? And we saw mental health crisis hotlines down in the list of what people said they would rather do at that moment, especially people who had experienced a mental health crisis. They did not like to go to a crisis helpline at all. So, I thought we should change what we had called the "Mental Health Crisis Hotline."
+
+
+After talking about this with several people from our organization, we came up with the term, "Mental Health Information Line." We don't want to refer to the people who call you as people who

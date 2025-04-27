@@ -1,0 +1,8 @@
+The air hung thick with the scent of hay and disinfectant, a familiar aroma that usually calmed Dr. Amelia Blackwood. Today, however, it felt heavy, almost suffocating. She leaned against the counter in her small animal clinic, “Blackwood’s Best,” watching the rain lash against the windows. Each drop seemed to echo the persistent drumbeat of worry in her chest. Her grandfather's health had been failing for weeks, and today was his scheduled surgery. The thought of him going under the knife sent a shiver down Amelia's spine.
+
+Amelia Blackwood, 32 years old, inherited her grandfather’s gentle hands and boundless love for animals.  Her clinic in sleepy Willow Creek, Montana, was more than just a business; it was an extension of her heart, a place where she mended broken bones and soothed wounded spirits, both animal and human. But today, even the familiar warmth of her clinic couldn't quite chase away the gnawing anxiety that threatened to overwhelm her.  Her phone buzzed, jarring her from her thoughts. It was the hospital calling with an update on her grandfather. Taking a deep breath, Amelia answered, her voice betraying none of the fear she felt within.
+
+
+The setting: 
+* **Blackwood’s Best:** A small animal clinic in the quaint town of Willow Creek, Montana. Built by her grandfather, it's filled with vintage veterinary tools and personal touches that whisper stories of generations past. The walls are lined with framed photos of happy patients, some even sporting tiny cowboy hats.
+* **Willow Creek:**  A quiet mountain town nestled amidst rolling hills and towering pines. Known for its friendly residents, beautiful scenery, and strong sense of community.  

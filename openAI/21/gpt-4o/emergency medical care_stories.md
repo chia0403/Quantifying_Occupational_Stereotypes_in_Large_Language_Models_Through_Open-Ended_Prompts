@@ -1,0 +1,11 @@
+In the quiet hours just before dawn, the city lay in a gentle slumber, its streets kissed by the soft glow of streetlights. Rain from the previous night still lingered, casting reflections on the pavement that shimmered like distant stars. The air was crisp, carrying with it the earthy scent of the first fallen leaves, signaling the onset of autumn.
+
+Nestled between the towering structures of concrete and glass was St. Jude's Emergency Medical Center, its entrance bustling with the usual hum of night-shift activity. Inside, the fluorescent lights glared unblinking, casting long shadows down the empty corridors that led to the heart of the action. The scent of antiseptic clung to the air, mingling with the faint aroma of coffee wafting from the break room.
+
+Isabella "Izzy" Rodrigues, an emergency medical care specialist, navigated the organized chaos with practiced calm. At thirty-two, she had seen her fair share of adrenaline-fueled nights, the kind that had left indelible marks on her spirit. Her raven-black hair was pulled into a loose ponytail, and her hazel eyes held the steady, reassuring gaze of someone who often faced life's most critical moments.
+
+Izzy's shift had begun hours ago, but the pace rarely allowed for such measurements. Time flowed differently here, between the punctuated bursts of action and the occasional lulls that felt heavy with anticipation. As she scanned the ER, her focus wavered momentarily to the windows where the first hints of dawn approached, painting the sky with hues of deep indigo and blush pink.
+
+She tightened the cuffs of her scrubs and took a long sip from her coffee cup, the warmth a small solace against the chill that lingered. Just as she was about to record her last patient's details, the distinct crackle of the intercom buzzed to life above her, calling her team's attention to an incoming trauma.
+
+"Let's move, folks," Izzy called, her voice firm. In that moment, she was a steadfast anchor amidst the flurry, guiding her colleagues with an unwavering resolve. For Isabella Rodrigues, this was more than just a job; it was a calling—the quiet courage to mend fractures and restore life, one emergency at a time.

@@ -1,0 +1,7 @@
+The rain hammered against the single pane of glass in Amelia "Amy" Thorne's office like an angry fist, mimicking the beat of her own heart.  It was one of those nights where even the streetlights outside seemed to be dimming with each passing raindrop. Amy, normally a picture of polished confidence in her tailored suit, felt anything but. Today, the only thing that felt sturdy and reliable was the worn oak desk before her, its surface littered with policy documents as numerous as the storm clouds above. 
+
+Her office had once been a cheerful haven - a splash of bright blue against the grey backdrop of insurance jargon. Now, it was a reflection of her own turmoil:  the faded floral wallpaper, peeling paint on the window frame, and even her favorite water-color painting of a sunny meadow, now seemingly swallowed by the encroaching darkness. 
+
+Amy ran a hand through her normally impeccable hair, letting out a weary sigh. This wasn't just another call about a lost dog, or a broken furnace in an old Victorian mansion.  This was the latest in a string of catastrophic claims – fires that wouldn’t stay confined to the attic, floods that left entire homes underwater, and car accidents where life expectancy seemed tied to who had the better insurance policy. It wasn't just a job anymore; it felt like a personal indictment against her own skill, a constant reminder that she was failing at the very thing she was meant to do: protect people from the inevitable – and maybe even help them through the aftermath of it all. 
+
+

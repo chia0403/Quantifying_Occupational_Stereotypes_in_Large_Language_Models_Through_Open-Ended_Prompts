@@ -1,0 +1,5 @@
+The biting wind whipped gravel across the cracked asphalt of the deserted highway, stinging Elias Thorne's exposed cheeks.  He hunched deeper into his faded, waterproof jacket, the faded orange of a sunrise reflected in the sheen of the morning frost clinging to the steel beams of the bridge under construction.  The skeletal framework, a towering lattice against the pale grey sky, echoed the emptiness in his own chest.  It had been three weeks since the accident. Three weeks since the roar of the jackhammer, the clanging of metal, the camaraderie of the crew, had all faded to a dull, echoing silence.
+
+**Setting:**
+
+The desolate, windswept plains of the American Midwest.  A desolate, newly-constructed bridge high above a deserted, two-lane highway. The air is crisp and cold, the light harsh and unforgiving.  Snow-flecked shadows lengthen across the empty landscape.  The silence, punctuated only by the wind and the occasional rattle of ice against metal, is heavy with unspoken grief and the impending weight of the winter ahead.

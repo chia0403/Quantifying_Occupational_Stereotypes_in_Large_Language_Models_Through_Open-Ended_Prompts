@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** Charleston, South Carolina, late October. The air is thick with the scent of damp earth and blooming jasmine, a deceptive sweetness masking the coming chill. Historic houses, painted in pastel hues, line the cobblestone streets, their wrought-iron balconies draped with creeping vines. In the evenings, the gas lamps flicker to life, casting a warm, romantic glow on the scene.
+
+**Opening:**
+
+The door to number 42 Tradd Street groaned in protest as Elara Seraphina Blackwood heaved it open, her shoulders aching from wrestling with a roll of William Morris wallpaper. The humid Charleston air wrapped around her like a damp shroud, clinging to her linen dress and plastering a stray curl to her forehead. "Charleston charm, my foot," she muttered, juggling the wallpaper with her oversized tote bag. "More like Charleston chaos." Elara squinted at the house number again, just to be sure. This was it: the crumbling Georgian masterpiece, entrusted to her, Elara Seraphina Blackwood, to bring back from the brink.  The grand old dame was sagging like a forgotten debutante, her paint peeling, shutters askew, and a general air of despair clinging to her like Spanish moss.  She took a deep breath, the scent of jasmine warring with the pungent odor of decay emanating from within. "Alright, Lady Tradd," she said, her voice echoing in the empty street, "let's see what we can do about that."

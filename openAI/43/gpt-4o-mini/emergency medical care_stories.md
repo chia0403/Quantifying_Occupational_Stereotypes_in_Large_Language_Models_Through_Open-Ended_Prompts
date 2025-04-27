@@ -1,0 +1,10 @@
+**Title:** **Between Lifelines**
+
+**Setting:** The sun was barely breaking over the horizon in the bustling city of Cascade Heights. The early morning streets were still slick with the remnants of last night's rainfall, the air rich with the scent of damp asphalt and blooming flowers. Sirens echoed in the distance, a constant reminder of the city's frenetic energy. At the center of it all stood Cascade Heights Emergency Medical Center, a sleek, modern facility awash in sterile white and steel finishes. Inside, the chaos hummed quietly, a mix of beeping machines and the urgent footsteps of medical personnel.
+
+**Opening:**  
+As the first rays of light slipped through the frosted windows, illuminating the busy break room, the sound of a coffee machine sputtering reached the ears of Samantha Claire Torres. With ink-stained hands still trembling from the adrenaline of the night shift, she poured herself a cup of the bitter brew, hoping it would quell the lingering fatigue that clung to her like a shadow. 
+
+Samantha, known as “Sam” to her colleagues, had always been drawn to the pulse of the city. A dedicated paramedic for over six years, she thrived on the adrenaline of emergency calls and the weight of human lives resting in her hands. But as she absentmindedly stirred the cream into her coffee, her thoughts drifted to the patient she couldn’t save just the night before—a young man, barely twenty, threaded through a web of mistakes and misfortunes. It was a ghost that visited her often.
+
+With a heavy sigh, she took a sip, feeling the warmth spread through her, and prepared for the day ahead. Little did she know, the next call would test not just her skills, but the very fabric of her resolve. Right outside the doors of the hospital, the city was waking up, unaware of the impending chaos that would soon demand every ounce of her strength and compassion.

@@ -1,0 +1,5 @@
+The salt-laced wind whipped Amelia's hair across her face as she stood on the crumbling dock, gazing out at the churning grey sea that mirrored the storm brewing within her own heart. The old stone jetty groaned beneath her weight, groaning like an ancient sailor lamenting his lost voyage. Even from this vantage point, a hundred miles from any bustling city and a thousand years removed from civilization’s clamour, Amelia felt utterly alone. 
+
+She was Amelia Wrenwood, daughter of the sea and master architect of the last-century's architectural revolution, yet adrift in her own world of concrete and steel. She had poured her soul into designs that breathed life into forgotten corners of the earth, but now those same designs seemed to mock her from every angle. 
+
+Her latest creation was a testament to that isolation: The Seafarer's Spire, a soaring monument intended to reclaim the untamed power of the ocean.  But its form, a twisted latticework of metal and glass, mirrored the storm raging inside Amelia, each gust threatening to tear it apart, as she struggled with her own vision for the future. 

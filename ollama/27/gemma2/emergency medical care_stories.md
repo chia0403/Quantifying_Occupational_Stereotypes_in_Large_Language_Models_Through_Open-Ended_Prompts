@@ -1,0 +1,6 @@
+The wail of sirens cut through the humid Georgia night, slicing through the symphony of cicadas buzzing in the oaks lining Peachtree Street.  Rain hammered on the cracked asphalt, reflecting the flashing blue and red lights that painted chaotic streaks across Atlanta's skyline. Inside his ambulance, Ethan Hayes, a veteran EMT with the Atlanta Fire and Rescue Department, felt the familiar adrenaline spike as he strapped on his gloves, eyes glued to the blaring monitor. The dispatcher's voice was strained over the radio, "Possible cardiac arrest, male in his sixties, unresponsive,  address is 147 Oakwood Lane. ETA five minutes." 
+
+Ethan glanced at his partner, young rookie Liam Carter, who mirrored Ethan's focused intensity. He patted Liam on the shoulder, offering a reassuring nod. “Ready?” he asked, his voice barely audible over the storm's fury.  Liam swallowed hard, gripping the crash cart in his trembling hands. "Ready," he rasped, his eyes locked on Ethan’s. 
+
+
+As they sped through the rain-slick streets, Ethan hoped it wouldn’t be another night etched with tragedy. He’d seen too many in his years on the job. But tonight, the storm seemed to amplify the urgency, whispering of a desperate race against time.   

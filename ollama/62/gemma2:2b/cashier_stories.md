@@ -1,0 +1,7 @@
+Rain lashed against the windows of "Sunshine Corner," the neon sign above flickering in a hypnotic dance with each gust of wind. Inside, the air hung thick and muggy, heavy with the scent of coffee and old vinyl records.  This was where Estelle Bellweather spent her days, surrounded by the endless aisles of discounted treasures, each object whispering stories of past lives. Her nametag, faded pink with a crooked 'E' stitched onto it, was worn down from years of being tucked into a too-small pocket after another long shift.
+
+Estelle was just your average cashier, blending in like the plaid shirts she wore every day.  Her life revolved around the steady rhythm of the cash register, the mundane dance of accepting change, and the occasional awkward conversation with an unusually chatty customer. 
+
+As Estelle finished scanning a box of mismatched teacups, the clock ticked to midnight, signaling that it was time for her shift to end. The familiar chime echoed through the empty store, leaving Estelle feeling as if she were stepping into a quiet twilight after a long day.  Her shoulders slumped with weariness. Tonight, however, something felt different. 
+
+The door chimes began playing a melody - not the usual cheerful jingle but something hauntingly slow and melancholic.  Estelle looked out at the street, noticing for the first time how the rain seemed to be turning into something more like… smoke? A ghostly fog swirled in the air outside, blurring the lines between reality and something else entirely. 

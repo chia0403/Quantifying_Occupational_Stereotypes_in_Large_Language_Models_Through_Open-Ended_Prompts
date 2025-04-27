@@ -1,0 +1,3 @@
+Once upon a time, there was a highway worker named Sam Saylor, who was fired by the state for doing the right thing; for putting those first responders' lives over his own when a gunman came calling...
+
+Saylor was dismissed from his job to "protect the public from him" even though he'd only heard about the event just a few minutes prior via media reports. Sam Saylor would be just one of the men who would take on Chris Christie, his former boss.

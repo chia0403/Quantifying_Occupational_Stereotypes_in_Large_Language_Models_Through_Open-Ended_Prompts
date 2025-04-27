@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named Steve who owned a cow named Molly. There was a problem, though. Molly was a nice young cow, one who was perfectly content to drink water and eat hay. But once Steve took her out on the ranch in the summertime and taught her to graze on the ranch's pasture, Molly would go out there and get into trouble. When she'd get inside a fence, Molly was very happy. But in the next yard over, her joy died. Molly ended up hanging out there for two years. When the weather got too hot for her, Molly would just take off and wander off into the ranch's pastures. Steve finally figured out that Molly was attracted to his cows.
+
+Steve told the owners of the nearby cowboys' club and they all agreed that Steve would get expelled from the club. So he went out, did his two years' probation and then, since he'd been convicted of misdemeanour cattle theft, he was kicked out the rest of his days.
+
+But when Steve reached a year of service on the ranch, the owners of the club told him that they'd heard that the rancher was giving their horses away. So they kicked him off the ranch, too. After all, there was no way for him to make any money with cattle once his time was up and he'd had his hands full with Molly.
+
+Steve thought the world of horses and was determined to get

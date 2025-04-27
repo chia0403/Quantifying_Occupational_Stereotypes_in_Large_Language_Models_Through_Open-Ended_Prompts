@@ -1,0 +1,6 @@
+The scent of rain-soaked earth and old paper hung heavy in Eleanor Beatrice Blackwood's study. Rain lashed against the leaded windows, each gust rattling the ancient panes like bones in a graveyard. Outside, the moor stretched out like a damp, brooding beast, swallowing the distant lights of the village whole. Inside, Eleanor sat hunched over her desk, the glow from the oil lamp reflecting in her silvering hair and the faint lines etched around her piercing blue eyes.
+
+Her fingers hovered over the worn ivory keys of her typewriter, but the words wouldn't come. This was supposed to be her masterpiece, a gothic thriller set against the desolate backdrop of the Yorkshire moors she called home. But inspiration seemed as elusive as the mist that perpetually veiled the landscape.  
+
+
+Eleanor sighed, pushing back from the desk with a weary creak. The silence in the room was broken only by the insistent drumming of the rain and the ticking of the grandfather clock in the corner, each tick a reminder of time slipping away. She had always been a creature of night, finding solace in the darkness and inspiration in the shadows, but tonight even the familiar comfort of her study felt oppressive.  

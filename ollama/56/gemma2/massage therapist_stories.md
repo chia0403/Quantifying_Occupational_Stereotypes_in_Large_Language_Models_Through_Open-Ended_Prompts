@@ -1,0 +1,5 @@
+The air hung heavy with the scent of eucalyptus and lavender as Elara Willowbrook kneaded the knotted muscles in her client's shoulders.  Sunlight streamed through the floor-to-ceiling windows of her cozy studio, bathing the room in a warm glow. Outside, the vibrant heart of Asheville pulsed with life – tourists browsing handmade wares, musicians serenading passersby, and the aroma of coffee beans mingling with freshly baked bread. But inside Elara’s sanctuary, time seemed to slow, each rhythmic stroke releasing tension and fostering tranquility. She listened intently to her client's sighs, a symphony of stress melting away with every touch.  Elara found solace in this space, a haven amidst the bustling energy of the city. 
+
+It was here, surrounded by the soothing hum of essential oils and whispered gratitude, that Elara felt truly alive. Yet, a shadow lurked beneath the surface of her peaceful existence – an unsettling premonition that something, or someone, was about to disrupt her carefully curated world.
+
+

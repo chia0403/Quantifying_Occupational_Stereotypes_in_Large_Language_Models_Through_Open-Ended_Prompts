@@ -1,0 +1,7 @@
+Once upon a time, there was a artist named Tetsuo Tsukamoto. His works appeared on the walls of a gallery in Kyoto, and were subsequently exhibited in several other countries, all over the world. A few lucky patrons would be selected at random as the lucky owners of a one of his pieces, and one of those lucky owners would own the largest painting ever made. Unfortunately, Tetsuo was a sick, unselfish man who couldn't resist the temptation to keep the rest of his collection hidden away on a pedestal in his own home--much like the old masters of Europe hid their masters' works in an attic of their mansions, and it was up to a rare finder with a genuine eye to uncover it.
+
+The rest that is, as Tetsuo's fortune swells away into the millions of dollars, his art is lost to him, forgotten as he died in 1998. And now, a Japanese collector has purchased the largest piece of Tetsuo's art, in large part to save for the eventual day that he can return to find what is still trapped behind it all. The collection consisted of a few dozen small, framed canvases, the largest of which is 11 feet in diameter, and at its largest, would have fit over a third of the size of the dome of the Kyoto Empire, at that time the largest and highest inhabited country on Earth.
+
+Advertisement
+
+The largest piece of Tetsuo's art sold for

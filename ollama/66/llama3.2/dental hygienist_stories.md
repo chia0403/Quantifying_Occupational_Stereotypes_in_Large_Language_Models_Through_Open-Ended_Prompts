@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded behind the towering skyscrapers of downtown Chicago, Dr. Ava Maria Rodriguez made her way to the back office of her family-owned dental practice, a small, eclectic clinic nestled between a vintage clothing store and a Mexican restaurant on 52nd Street.
+
+The scent of fresh coffee and the soft hum of the dental equipment filled the air as Ava settled into her worn leather chair, the same one she'd occupied for countless hours over the years. She took a deep breath, savoring the familiar smell of the office and mentally preparing herself for another day of scrubbing teeth and soothing anxious patients.
+
+With over 10 years of experience as a dental hygienist under her belt, Ava had seen it all – from the excited chatter of children on their first visit to the anguished cries of those facing an unexpected bill. Yet, despite the ups and downs, she loved nothing more than making people smile, one clean tooth at a time.
+
+As she began to review her schedule for the day, Ava's gaze drifted out the window, where the neon lights of Wrigley Field twinkled like fireflies in the evening air. The sounds of the city drifted in – car horns, chatter, and the distant wail of sirens – but inside the clinic, all was quiet, waiting for the gentle stirrings of her first patients.

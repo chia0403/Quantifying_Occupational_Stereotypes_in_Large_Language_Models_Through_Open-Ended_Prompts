@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the small town's streets, Emilia Rose Wellesley made her way to the old office building on Main Street, its worn sign creaking in the gentle breeze like an elderly sigh. The once-thriving downtown area now felt like a relic of a bygone era, with only a handful of businesses clinging to life amidst the abandoned storefronts and peeling paint.
+
+Emilia stepped inside, her eyes adjusting to the dim light that filtered through the grimy windows. She had worked as a bookkeeper at Wellesley's Accounting Services for five years, content in the quiet routine and familiar rhythms of the office. The smell of worn paper and stale air enveloped her like a comforting blanket.
+
+As she settled into her chair behind the cluttered desk, Emilia couldn't shake the feeling that something was off. It wasn't just the lingering scent of last night's dinner on the coffee pot or the faint hum of the old heating system – it was the sense of unease that seemed to seep from the very walls themselves. She pushed the thought aside, attributing it to the usual pre-weekend jitters that came with wrapping up a busy week.
+
+Little did she know, this quiet evening would be the catalyst for a mystery that would shake the foundations of her small town and change Emilia Rose Wellesley's life forever.

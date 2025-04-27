@@ -1,0 +1,5 @@
+Once upon a time, there was a server named The_Templar. This was a server run by one of the admins of RuneScape. Once upon a time, this server was a popular playfield for players to test their ability to play the game online; however, due to its popularity, many people wanted to play there as well, so to keep the servers both fun and exciting, it was suggested that the server could be renamed to something else to make it more of a social playfield. The_Templar was eventually renamed to "PvP_TheTemplar" (as a nod towards being a competitive PvP game).
+
+The_Templar was released in October 2004 and was the second game in the RuneScape series to utilize a new type of game play, as the previous game, RuneScape, had a skill based combat system.
+
+The first "legacy" server to be released was the "RuneScape Classic". These servers are named after their predecessors, so the legacy server "Classic" is from "Classic RuneScape".

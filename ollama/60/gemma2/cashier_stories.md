@@ -1,0 +1,4 @@
+The fluorescent lights hummed above Elara Rosethorn's head, casting a sickly yellow glow over the aisles of discounted knick-knacks and expired toiletries. The air hung thick with the scent of stale coffee and desperation. It was 3:17 pm on a Tuesday – prime "bargain hunters" hour at Bargain Bin Bonanza, and Elara was bracing herself for the onslaught. A bell chimed as another customer entered, their shopping cart groaning under the weight of dubious treasures. Elara sighed, adjusting the flimsy headset that pinched her ear. It was going to be one of those days. 
+
+
+She tapped at the register screen, the faded sticker proclaiming "Employee of the Month" from last July (when she'd actually been a decent employee) mockingly staring back at her. Her name tag, held together by duct tape and hope, read "Elara." Elara Rosethorn, cashier extraordinaire. Or so her mother claimed.

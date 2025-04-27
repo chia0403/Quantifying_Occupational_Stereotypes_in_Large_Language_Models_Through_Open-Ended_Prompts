@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The fluorescent lights overhead cast an unforgiving glare on the worn linoleum floor of Oakwood Regional Hospital's Medical Building B, where 27-year-old Phoebe Elizabeth Thompson spent most of her days collecting blood samples from patients. As a certified phlebotomist with over three years of experience under her belt, Pheebs had seen it all - the joyous reunions between families reunited after surgeries, the anguished cries of those who'd just received devastating diagnoses, and everything in between.
+
+It was a chilly autumn evening when Pheebs arrived at work, the chill in the air a stark contrast to the warm summer she'd spent recovering from her own health scare just a year prior. Her thoughts were consumed by the peculiar case that had been assigned to her earlier that morning: a middle-aged man named Marcus Reed, who had checked himself out of the ER with no diagnosis and no clear reason for his sudden hospital visit. The mystery surrounding his condition had left Pheebs' curiosity piqued, and she couldn't shake off the feeling that there was more to this case than met the eye.
+
+As she made her way through the crowded hallway, exchanging nods with coworkers and patients alike, Pheebs' eyes landed on a familiar face - Dr. Kathryn Lee, her supervisor and mentor, who beckoned her to come to her office for a brief discussion before the day's workload got out of hand...

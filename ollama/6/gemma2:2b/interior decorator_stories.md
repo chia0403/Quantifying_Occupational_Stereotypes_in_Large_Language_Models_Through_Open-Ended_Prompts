@@ -1,0 +1,5 @@
+The air in Elara Everly's small apartment crackled with an unsettling tension that had nothing to do with the last thunderstorm raging outside.  Every surface was meticulously curated, each object carefully chosen to convey elegance and tranquility. But even amidst her meticulously crafted world, Elara couldn't shake a growing feeling of unease. This wasn't just another design project; this house, filled with the echoes of forgotten dreams, promised something more.  
+
+Elara was an interior decorator whose clients were drawn to her calm, collected aesthetic. Her firm, "Everly Design," thrived on creating comfortable spaces that fostered harmony and balance – a philosophy she herself embodied. Tonight, however, the familiar hum of her craft felt oddly unsettling. 
+
+A heavy oak door stood closed, its ornate brass knob gleamed under the faint light filtering through the tall windows, each pane reflecting Elara's own anxiety in its glassy surface. The only sound was the rhythmic tap-tap-tap of a metronome against the floor, coming from somewhere inside the house. 

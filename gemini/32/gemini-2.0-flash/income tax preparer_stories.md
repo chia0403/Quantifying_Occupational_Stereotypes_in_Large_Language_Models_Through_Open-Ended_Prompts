@@ -1,0 +1,7 @@
+## The Taxman's Tango
+
+**Setting:** A dimly lit corner booth in "The Greasy Spoon," a diner clinging stubbornly to the edge of downtown Harmony Creek, Oregon. It's 7:17 AM on a Tuesday in mid-March. The air hangs thick with the aroma of frying bacon, stale coffee, and a faint undercurrent of desperation that only truly blooms in the weeks leading up to Tax Day. Rain streaks the window, blurring the neon sign for "24 HR BREAKFAST!" into a hazy, flickering promise. Outside, the sky is the colour of a bruised peach.
+
+**Opening:**
+
+Harold Augustus Finch, income tax preparer extraordinaire (at least, according to the laminated business card he keeps tucked inside his wallet, right next to a picture of his prize-winning zucchini), stared into the murky depths of his coffee. It was lukewarm, bitter, and tasted suspiciously like it had been brewing since last Thursday. He wasn't sure why he kept coming back to The Greasy Spoon. Perhaps it was the predictability. The chipped Formica tabletop, the perpetually grumpy waitress named Agnes, the comforting rhythm of spatula against griddle – they were all familiar anchors in a life that was about to be swallowed whole by a tidal wave of W-2s, 1099s, and the collective anxieties of Harmony Creek's working class. He stirred his coffee, the spoon clinking against the ceramic with a mournful sound. Today was the day. Today, he had to face Mrs. Higgins and her… unusual deductions. He shuddered, took a large gulp of the coffee, and braced himself for the tax season tango.

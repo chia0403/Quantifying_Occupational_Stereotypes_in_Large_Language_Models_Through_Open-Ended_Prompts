@@ -1,0 +1,5 @@
+Rain lashed against the windowpanes, mirroring the storm brewing inside Eleanor Davies's chest. It was her first day back at Willow Creek Rehabilitation Centre after a grueling six-month leave for her mother's unexpected passing. The air held a palpable tension, thick with unspoken grief and hushed whispers of patients struggling to cope.  
+
+Eleanor, usually so confident and bubbly, felt like an outsider in the familiar room. Even the soft scent of chamomile tea that normally calmed her nerves was no solace. Today, it only reminded her of the laughter she'd shared with her mother during countless home visits, the gentle touch of healing hands, and the quiet comfort they’d provided to patients.  
+
+Her eyes fell on a stack of folders on the waiting table, each one containing a patient profile – details, diagnoses, challenges, and anxieties. The name of each patient was underlined in bold: Mrs. Johnson's arthritis, Mr. Jones' stroke recovery, Ms. Ramirez's post-accident mobility... all names that once sparked joy in Eleanor’s heart now felt like burdens she had to bear. 

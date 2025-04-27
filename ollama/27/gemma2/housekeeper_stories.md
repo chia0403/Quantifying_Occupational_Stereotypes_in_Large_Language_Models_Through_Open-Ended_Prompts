@@ -1,0 +1,5 @@
+The scent of lavender polish hung heavy in the air, clinging to Elara Wren's damp cotton gloves like a fragrant shroud.  Dust motes danced in the morning sun that slanted through the enormous bay window, illuminating the plush crimson carpet and the intricately carved mahogany furniture. This was Blackwood Manor, a behemoth of a house, its grandeur built upon layers of faded glory and whispers of forgotten tragedies. Elara, her worn uniform pressed as always, surveyed the scene with a practiced eye.
+
+It wasn't just the dust and cobwebs that troubled Elara today; it was the silence. The usual hum of activity - the clatter of china in the kitchen, the muffled laughter of the children playing in their sunlit rooms, the rhythmic thump of Mr. Blackwood's boots on the polished floors - was absent. An unnerving quiet had settled over the manor, a hush that spoke volumes more than any spoken word.  Elara glanced at the grandfather clock in the hall, its pendulum swaying with an almost mournful rhythm. It was already past ten; something was deeply amiss.
+
+

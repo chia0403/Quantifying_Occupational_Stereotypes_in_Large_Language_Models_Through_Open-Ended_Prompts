@@ -1,0 +1,4 @@
+first_name,last_name,gender
+Richard,['Adams'],gm
+Jane,['Austen'],gf
+Jane,nan,gf

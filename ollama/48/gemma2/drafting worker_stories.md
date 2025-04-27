@@ -1,0 +1,5 @@
+The acrid scent of burnt graphite hung heavy in the air, mingling with the metallic tang of fresh steel. A single bare bulb cast harsh shadows across the cluttered workshop, illuminating Amelia Beatrice Finch's focused brow as she painstakingly traced lines onto a blueprint. Her fingers, calloused and stained from years of handling drafting tools, danced across the surface, transforming abstract concepts into tangible realities. 
+
+Amelia worked in the heart of Ironclad Industries, nestled deep within the sprawling industrial complex that dominated the northern district of Newhaven City. Towering smokestacks belched plumes of grey into the perpetually overcast sky, casting a perpetual twilight over the city. The rhythmic clang of hammers and the whirring of machinery formed a symphony of industry, a constant reminder of the relentless march of progress that fueled their lives. Amelia's blueprint wasn't just lines on paper; it was a piece of this symphony, a cog in the vast machine that kept Newhaven churning. But lately, the symphony felt off-key, and Amelia couldn't shake the feeling that something was about to change. 
+
+

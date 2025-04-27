@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named J. B. Smith.
+
+He believed that people's bodies were made of water, and that the best way to treat people who could not walk was to stretch them out gently and stretch their arms with a rubber band. So he stretched and stretched the neck of people whom he thought he could reach in those few bones, just like he stretched his fingers with a rubber band, and eventually everyone got better.
+
+This was the kind of thing that chiropractors believed at the time, so it was not until a few decades later that science discovered what a poor science they were, and it was not until 1990 that they were debunked and nobody believed they were still around. But it didn't help anything. Now chiropractors are as unhip as they want to believe. Their practice has been discredited, like many of their more quacky, ill-defined beliefs, but not before they began operating all over this nation with the same fraudulent degrees and dubious credentials that are usually a sign of a scam, and chiropractors are starting up all over again, only this time they look like doctors.
+
+And while they were at it, they didn't even tell the lie that they did, because if you tell a lie and believe it, that doesn't make it true, so how do you tell that lie? But if they did say it, that would be more believable, so they did not. It's even

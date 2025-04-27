@@ -1,0 +1,11 @@
+## Story Opening:
+
+The wind, a constant, mournful keening across the high plains, whipped dust devils around the boots of Ezekiel "Zeke" Beaumont as he surveyed the parched landscape. The sun, a brutal hammer in the cerulean sky, beat down on his weathered face, etching deeper lines around his eyes – lines that spoke of long days, hard choices, and a stubborn refusal to surrender to the whims of fate. His cattle, usually a restless sea of brown and white, huddled listlessly in the shade of the few gnarled cottonwoods that clung to life along the dry creek bed. The air hung thick with the metallic tang of dust and the faint, desperate scent of dying sage.
+
+A single crow, perched on a rusted fence post, offered a harsh, guttural caw, a mocking epitaph for the failing ranch. Zeke spat a stream of brown tobacco juice into the cracked earth. He was a patient man, hardened by years of working the land, but even his resolve was starting to fray at the edges. This drought, this creeping, insidious death, was unlike anything he'd seen in his sixty-three years. It wasn't just affecting his ranch; it was swallowing the whole damn valley.
+
+## Setting:
+
+**Beaumont Ranch, Harmony Gulch, Montana, 1937.**
+
+The ranch itself was a sprawling, but increasingly dilapidated affair, carved out of the harsh Montana wilderness. The main house, a two-story structure built from rough-hewn logs, stood sentinel against the relentless wind. A wide porch, once a place of convivial gatherings, now sagged under the weight of disrepair. Outbuildings, a barn, stables, a blacksmith shop, dotted the landscape, each bearing the scars of years of relentless use and neglect. The surrounding land stretched as far as the eye could see, a tapestry of dry grass, rocky outcrops, and the occasional struggling tree. The towering peaks of the Crazy Mountains formed a distant, majestic backdrop, a constant reminder of the untamed beauty and unforgiving nature of the land. Harmony Gulch, once a thriving community, was now a shadow of its former self, its dreams withered under the relentless drought. The general store stood boarded up, the schoolhouse silent, and the faces of the remaining residents etched with worry and desperation.

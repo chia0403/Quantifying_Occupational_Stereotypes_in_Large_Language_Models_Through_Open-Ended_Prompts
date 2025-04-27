@@ -1,0 +1,7 @@
+The sun beat down on Aisling Niamh O'Malley's shoulders as she squinted at the group before her. They were a motley crew, these tourists, milling about like sheep in the shadow of the imposing, ivy-choked walls of Dunloe Castle.  Aisling adjusted the microphone clipped to her collar, suppressing a sigh as she scanned their faces – blank stares, glazed eyes, the occasional telltale yawn.
+
+"Welcome, one and all," she began, her voice carrying across the sun-baked courtyard, "to Dunloe Castle! Built in the 14th century..." Aisling paused, noticing the sheer boredom radiating from her audience like a noxious cloud. This wasn't how she envisioned this tour going. She dreamt of igniting their imaginations with tales of daring knights, ghostly apparitions, and the castle's tumultuous history. Instead, she felt like she was talking to a flock of pigeons – easily distracted, indifferent, and quite frankly, uninterested.
+
+Dunloe Castle stood perched on a windswept hill overlooking the rugged Irish coastline. Its stone walls, weathered by centuries of storms and neglect, whispered tales of forgotten battles and whispered secrets. The castle grounds, overgrown with wild roses and ancient oak trees, held an eerie stillness broken only by the cries of gulls circling overhead. Aisling loved this place, its melancholy beauty resonating deep within her soul. But today, her enthusiasm seemed to be failing against the wall of indifference in front of her.  
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a electrician named Walter, who was well versed in the ancient and arcane art of drilling holes. One day while he was out, he ended up in the middle of a small country town. What he encountered there was an old lady in the town's hospital dressed in a poncho-like garment.
+
+And what she saw in him at that moment, she couldn't describe. Rather, she felt like she was a ghost trapped in a dark room of a room, where all her curiosity had been sucked up into the room. She had no idea if there was a way out.
+
+And the next time Walter had gone to the hospital, the same thing happened. At work, he was sent out to fix a plumbing problem in a building for a client, and was led and blinded by curiosity into a small, dark room where the whole world around him had crumbled away. And what he saw there, he couldn't describe. Rather, he felt like he was being eaten from the inside by an evil creature that wished to devour him whole. And as he fell face-first into her legs, he heard a deep, guttural cry, and what he saw there was one of its eyes, peering directly into his soul.
+
+As a profession, this is the definition of a monster. They hide out in dark places, like the sewers or places of the dead to find more victims, and when

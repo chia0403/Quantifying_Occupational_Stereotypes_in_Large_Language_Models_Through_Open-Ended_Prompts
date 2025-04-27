@@ -1,0 +1,5 @@
+The sun was barely peeking over the horizon, painting the sky in hues of apricot and rose as Amelia 'Amy' Miller arrived at Sunshine Cottage.  It wasn't just the gentle light that made this pre-dawn hour special; it signaled the beginning of another chaotic but deeply rewarding day caring for a group of six rambunctious preschoolers. 
+
+Sunshine Cottage was a quaint brick building with ivy crawling over the window frames, tucked away on a leafy street lined with ancient oak trees.  Inside, a cacophony of giggles and shouts greeted Amy as she stepped through the door. The children were already in full swing: building a tower out of blocks that wobbled precariously, drawing fantastical creatures on large paper pads, and chasing each other around the brightly-painted room with boundless energy. 
+
+Amy's heart swelled with an affection she couldn't explain.  The responsibility was immense; these little lives were entrusted to her care, their laughter and tears a constant soundtrack to her days. It was a joy she wouldn’t trade for anything in the world. 

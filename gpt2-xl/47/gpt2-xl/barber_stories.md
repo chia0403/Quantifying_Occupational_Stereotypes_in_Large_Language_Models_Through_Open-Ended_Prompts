@@ -1,0 +1,1 @@
+Once upon a time, there was a barber named Henry Ford. He used a variety of techniques to cut hair, and he had an even bigger one for a moustache: he just took it off the barber shop. In his view, it wasn't something men should do in a barber shop. So Ford created a man's cut and barbershops started going out of business.

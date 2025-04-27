@@ -1,0 +1,9 @@
+The stench hit Thomas Bartholomew Finch like a physical blow as he eased open the creaking basement door. It wasn't the cloying, vaguely floral aroma of rotting produce common in flooded basements, nor the sharp, metallic tang of burst pipes. This was…different. This was the smell of something ancient, disturbed, and decidedly unhappy.
+
+He flipped on his headlamp, the beam cutting a swathe through the oppressive darkness. Cobwebs, thick as gauzy drapes, clung to everything: exposed pipes crisscrossing the low ceiling, the rough-hewn stone walls, and even the sagging burlap sacks piled haphazardly in the corners. Dust motes danced in the light, a silent, swirling ballet.
+
+Thomas Bartholomew Finch, plumber extraordinaire (at least, that's what his van proudly proclaimed), adjusted his tool belt and took a tentative step down the rickety wooden stairs. He’d seen his share of horrors in the bowels of old houses, clogged drains that could curdle your blood and pipes so corroded they crumbled at a touch. But this… this felt different. It felt *wrong*.
+
+He was in the basement of the Blackwood Estate, perched precariously on the bluffs overlooking the windswept Cornish coast. The Blackwoods had been a prominent family for centuries, their wealth built on tin mining and, according to local whispers, something far darker. The current owner, a reclusive historian named Eleanor Blackwood, had contacted him personally, her voice trembling slightly on the phone as she described a “persistent… drainage issue” and a “rather unsettling odor.”
+
+He just hoped this wasn't going to be another job that required more than just a wrench and a plunger. This basement, with its oppressive silence and the lingering scent of something foul, felt like it held secrets best left buried. And Thomas Bartholomew Finch was suddenly regretting ever answering the phone.

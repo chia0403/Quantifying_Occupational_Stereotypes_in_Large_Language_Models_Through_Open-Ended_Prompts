@@ -1,0 +1,6 @@
+Rain lashed against the panoramic windows of Dr. Amelia Rose Hawthorne’s office, each drop like a miniature hammer striking the glass. The relentless downpour mirrored the storm raging inside her. It wasn't the deluge itself that bothered Amelia; she found solace in its rhythmic drumming, but rather the unsettling silence from her patient, Mrs. Evelyn Pierce, who sat slumped on the plush leather couch, staring into the swirling grey of the cityscape beyond.
+
+Amelia’s office was a sanctuary of sorts, tucked away on the 12th floor of a modern high-rise overlooking Chicago’s vibrant (though currently obscured by rain) skyline. The muted lighting and calming shades of blue and green on the walls were meant to create a haven for her patients, but tonight, they felt cold and sterile. Even the usual scent of lavender essential oil diffusing in the air couldn't quite mask the metallic tang of unease that permeated the room.
+
+
+Amelia had known Mrs. Pierce for months, treating her for acute anxiety and recurring nightmares. Evelyn was usually a vibrant woman, full of life and humor, but lately, a heavy veil of despondency had settled over her. Tonight, she had arrived without her usual sparkle, her eyes vacant and her voice barely a whisper. This silence, this profound lack of response, was what truly unsettled Amelia. 

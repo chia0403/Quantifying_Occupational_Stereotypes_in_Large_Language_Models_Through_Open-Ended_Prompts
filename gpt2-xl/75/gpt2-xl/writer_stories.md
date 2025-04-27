@@ -1,0 +1,7 @@
+Once upon a time, there was a writer named Peter J. Boylan. He was a former newspaperman, the kind who writes with the kind of care and meticulousness that makes even Pulitzer Prize-winning fiction seem like homework. He's the kind of storyteller who, if you have a little extra money, might even want to invite you up for dinner, because he's the kind of guy who makes himself look like an overpriced pretentious artist.
+
+Peter's stories are about the end of the world, the end of the world now. A little over a year ago, this kind of horror began coming out of the computer games community. It's a movement that's called geeks and their ilk. They're not a group of people normally associated with death. But what's strange about geeks and their ilk, is that they're exactly the type of people who are most easily frightened by monsters. After all, if you're the kind of person who spends most of your life on the internet, why would you worry that the monster might show up in the real world…right?
+
+The monsters of the geeks and their ilk aren't scary monsters. They're the kind of monsters that come from the pages of horror novels, like this kind of beast that haunts a house full of children:
+
+They're the kind of monsters that come from the pages of horror fiction, which is what Peter began writing his short stories about.

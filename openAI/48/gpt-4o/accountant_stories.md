@@ -1,0 +1,7 @@
+Title: **Balance Sheets**
+
+In the heart of downtown Denver, where the skyline intermixed with the rugged outline of the Rockies, Lewis Carmichael sat ensconced in his tenth-floor office, the golden hues of a setting sun casting long shadows across the neat rows of his meticulously organized ledgers. The building that housed Ward & Associates boasted floor-to-ceiling windows, affording Lewis a panoramic view of the bustling city below—an ever-shifting scene he found both invigorating and soothing.
+
+Lewis, a senior accountant known for his unwavering precision and a mind as sharp as a tack, found solace in numbers. They were predictable and steady, providing a stark contrast to the unpredictability of the world outside. His office was a testament to his organized mind: sleek dark wood furniture and walls lined with certificates and accolades, with a small cactus perched on the corner of his polished desk—a gift from his niece, a reminder to embrace life's unexpected prickles and blooms.
+
+As the hands of the clock inched closer to six, the familiar whir of the building's HVAC system clicked on—a comforting white noise that underscored the office's quietude. Lewis paused his final review of the quarterly report, slipping his tortoiseshell glasses off and leaning back in his chair, allowing the distant sounds of the city to wash over him like a tide. This evening, unlike most, held a certain weight in the air, a promise of something more than the routine halcyon calm of financial records and balance sheets.

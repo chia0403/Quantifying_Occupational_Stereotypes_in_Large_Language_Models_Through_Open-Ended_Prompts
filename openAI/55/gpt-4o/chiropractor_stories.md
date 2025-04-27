@@ -1,0 +1,9 @@
+Dr. Emily Rousseau stood beneath the vast canopy of oaks that lined Maplewood Avenue, their limbs arching above like the ribcage of some ancient, slumbering beast. This was her morning ritual, a quiet moment taken before the day unfurled its demands. The air, cool and crisp, bore the scent of impending rain, and wisps of fog clung to the earth, turning everything ethereal in the early light.
+
+Beyond the trees, nestled amongst the fading autumn colors, was her haven: the Maplewood Chiropractic Clinic. A quaint, red-brick building with ivy-covered walls and a small wooden sign swinging softly in the breeze. Its welcoming façade concealed the calm, dedicated energy within—Emily’s sanctuary and the place where she wielded her healing art.
+
+Inside, the clinic was a tapestry of warmth. Soft instrumental music played, harmonizing with the gentle trickle of a small indoor fountain. Shelves lined with anatomy books and fragrant herbal teas surrounded the reception area, creating an atmosphere of quiet knowledge and nurturing care. The reception desk was peppered with small, pot-bellied succulents, their serene presence lending a touch of green to the soothing beige décor.
+
+Dr. Emily Rousseau had always believed that healing was an intimate dialogue between the body and the soul. Each day, she embraced this philosophy, using her skills to untangle the intricate knots of tension and pain that her patients brought to her. Her hands, steady and confident, spoke the language of relief, and her calm gaze held the promise of understanding and support.
+
+As the first light of dawn crept through the windows, painting golden stripes across the hardwood floors, Emily took a deep breath, ready to begin another day of connection and care in Maplewood.

@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting for a story with a judge as the main character:
+
+**Opening & Setting:**
+
+The humid Louisiana air hung thick and heavy, a fragrant stew of magnolia and Mississippi River rot, as Judge Eleanor Ainsworth stepped onto the porch of her ancestral home, Bellefleur Plantation. The grand white columns, once symbols of unshakeable power and prosperity, now bore the faded scars of time and neglect, much like Eleanor herself. A chipped balustrade leaned precariously, and the paint peeled in angry flakes, revealing the weathered cypress beneath.  Inside, the echoing halls were filled with the ghosts of generations of Ainsworths – cotton barons, Confederate generals, and now, just her.
+
+Eleanor paused, inhaling the familiar scent of damp wood and dust motes dancing in the late afternoon sun. She hadn't been back to Bellefleur in nearly a decade, not since her mother's funeral and the subsequent agonizing decision to leave it under the care of a local caretaker. Now, a crumpled letter from that caretaker, filled with ominous warnings of encroaching developers and the impending collapse of the south wing, had drawn her back.  Leaving the comfortable order of her New Orleans courtroom, with its predictable arguments and quantifiable justice, felt like stepping back into a swamp filled with unseen dangers. She was here to save her heritage, to wrestle with the past, but deep down, Eleanor Ainsworth knew she was also running from something in her present.  Something she couldn't outrun forever.

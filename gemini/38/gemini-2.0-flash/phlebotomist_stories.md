@@ -1,0 +1,7 @@
+## Opening:
+
+The fluorescent hum of the pre-dawn pharmacy was a song Beatrice Eleanor Hawthorne knew intimately. It was a monotonous, slightly unsettling lullaby that both soothed and irritated her, a constant soundtrack to the liminal space between dreams and reality. Outside, a pale pink was just beginning to bleed into the inky sky, promising another sweltering August day in Savannah. Inside, the air conditioning fought a losing battle against the humidity clinging to the windows like a persistent ghost.
+
+Beatrice paused in front of the coffee machine, its chrome surface reflecting her tired face. She looked older than her thirty-two years, the early mornings and the constant pressure of finding a good vein etched around her eyes. As the machine sputtered and coughed, filling the breakroom with the acrid smell of burnt coffee, Beatrice thought, not for the first time, that maybe she should have taken Aunt Millie up on that offer to help her get a job at the library. Less blood. Less screaming children. More books.
+
+She sighed, grabbing a chipped mug and filling it to the brim. Books would have to wait. Today, she was Beatrice Eleanor Hawthorne, expert phlebotomist, ready to wrestle with stubborn veins and soothe anxieties at "Savannah's Sunrise Pharmacy and Urgent Care," where the sun (usually) rises, and where Beatrice, armed with her tourniquet and a practiced smile, was always ready to greet it.

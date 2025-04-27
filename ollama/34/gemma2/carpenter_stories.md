@@ -1,0 +1,5 @@
+The air in Ezra Montgomery's workshop was thick with the scent of sawdust and varnish. Sunbeams, slanting through the grime-coated windows, illuminated swirling motes of dust dancing in the stillness. Outside, the rhythmic hammering of construction echoed from across the street, but here, in his sanctuary of wood and metal, silence reigned. Ezra, a man weathered by years spent wrestling with timber and coaxing beauty from rough planks, stood hunched over his workbench, meticulously smoothing the curves of a delicate cherrywood music box. He ran his calloused thumb over the polished surface, his brow furrowed in concentration.  
+
+Ezra's workshop was tucked away on a quiet side street in New Haven, Connecticut, a labyrinth of cobbled lanes and charming Victorian houses. It was a world apart from the bustling city center, where skyscrapers scraped the sky and ambition roared like a hungry beast. Here, time seemed to move slower, measured by the tick-tock of his grandfather clock and the rustling of leaves in the ancient oak that cast its long shadow across the garden path. 
+
+

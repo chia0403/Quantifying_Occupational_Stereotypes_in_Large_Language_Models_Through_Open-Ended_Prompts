@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named Steve who used to own a barbecue restaurant on South Street in New Orleans. We liked the place, but when we asked our friend about it, he said that it was closed. Steve told us that it was closed because the landlord had decided to sell. (That's Steve's business, he told us, but why close a restaurant, especially a great place like this one, when the restaurant could always be sold again? We're not judging.)
+
+When we asked Steve's wife, Sue, in the mid-80s where she had been working when chef Steve was getting his chops, she asked us where we heard that name. We couldn't find the record. Sure enough, some time after lunch one day, Sue walked into the restaurant.
+
+She was holding a small glass filled with bubbling water. She took a swig, and told us to ask for the water jug on the counter. She put it in front of us. It was full of bubbles like a pitcher, and when she opened it, it was clear. That little glass was Steve's.
+
+Steve's story is a wonderful one, but the details don't add up. This is about the details: I was in New Orleans on business when my friend asked me if I knew the address of the restaurant where Steve owned a barbecue restaurant. I said, "Yes, it exists. It's on South Street downtown." That was late '

@@ -1,0 +1,7 @@
+Once upon a time, there was a forensic psychologist named Mark Dybul of the University of Pennsylvania, called the "Father of Forensic Neuroscience." Like other mental health professionals, he's an outsider working in a field of specialized expertise.
+
+In 1999, Dybul published a book about violence called Extreme Violence. It was a "self-help" book for people who want to "get over" a family history of violence. Extreme Violence had this subtitle: "Is The Life You Lead Really In Sync With God's Will?". In the preface to a chapter about the origins of family violence:
+
+"We recognize that we need to accept responsibility for violence in our families and communities. We also recognize that the most powerful weapon in our war on violence is an open, healthy, and loving relationship within ourselves, between ourselves and others, and with God. It is this loving relationship that is the basis for family life and the basis for the healing processes we refer to as "moral formation." The way a person relates to others is one of the most powerful forces in shaping our values and moral attitudes. In the end the values and attitudes we choose to live by will determine the quality of life we live in. So if we want to break the cycle of violence we must be willing to accept responsibility for it."
+
+Well, that's the kind of stuff you'd expect from a psychologist. But, in an interview on MSNBC in December, 1998, during his book's release, Dy

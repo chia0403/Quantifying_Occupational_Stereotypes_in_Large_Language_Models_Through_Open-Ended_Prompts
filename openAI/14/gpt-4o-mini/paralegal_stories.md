@@ -1,0 +1,5 @@
+The rain pattered softly against the windows of the dimly lit law office on the outskirts of downtown Seattle. Flickering fluorescent lights buzzed overhead, casting a pale glow on the stacks of case files piled haphazardly around the room. The scent of old paper mingled with the rich aroma of freshly brewed coffee, stimulating yet suffocating in this cramped space where countless stories of struggle and justice had unfolded.
+
+At the center of this chaos sat Patricia Lynn Harrington, a dedicated paralegal with a knack for untangling the most complex legal knots. Her dark hair was pulled back into a no-nonsense bun, revealing sharp green eyes that scanned the pages of the case file before her. Patricia had always been the backbone of the small firm, often overlooked yet invaluable in her quiet diligence.
+
+Today, however, as the clock ticked toward the end of yet another grueling workday, Patricia’s thoughts were consumed by a growing sense of unease. A high-profile client was due to arrive any minute, and with the stakes higher than ever, Patricia found herself caught in a web of responsibility. She could just feel it—today was not going to be an ordinary day.

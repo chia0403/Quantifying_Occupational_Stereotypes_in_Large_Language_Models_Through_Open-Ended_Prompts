@@ -1,0 +1,5 @@
+The rhythmic beeping of the heart monitor was Eleanor "Ellie" Hayes' metronome. It set the pace for her life, each pulse a reminder of the fragility she held in her hands every day. The air hung thick with antiseptic and the hushed whispers of worried families in Room 214, where the fluorescent lights cast an unsettling glow on the sterile white walls. Ellie adjusted her stethoscope, its cold metal familiar against her skin, and took a deep breath, steeling herself for the shift ahead. 
+
+The setting sun bled through the hospital windows, casting long shadows across the bustling oncology ward. Cancer was a relentless beast, devouring lives with an insidious grace, and Ellie had witnessed its brutality firsthand. Tonight, she felt it more keenly than usual, a knot of anxiety tightening in her chest. The faces around her, etched with fear and exhaustion, mirrored her own unease. In this chaotic symphony of suffering, Ellie was the conductor, navigating the delicate balance between hope and despair. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a physical therapist named Richard Ondaatje. Ondaatje was born in Jamaica, but his parents fled there when he was two years old. Because Ondaatje was born and raised in New York, his accent is distinctly different from most of the native Jamaican-Americans in his hometown. So when he went to New York University, we had to get another guy.
+
+Then, when he got involved in yoga and got a master's in physical therapy, we asked him: do you also have one? And, by the way, in Jamaica there are no health care professionals at all. So if you're getting a physical therapy appointment, you have to go to a clinic and have the doctor come to your house — which, as a kid, is pretty scary. And he said no, sorry. All he could do is give you a massage. But we kept calling. Finally he agreed to give me a massage.
+
+What about the rest of the day? That was a nightmare. As I said before, you have to work to survive. I worked in a car dealership by day, and after that I could do nothing at all.
+
+It turned out that when the people at the clinic asked, "OK, can you come do your massage for half an hour?" they didn't mean you could sit around in the afternoon waiting for a massage. They meant you had to get dressed, because your own parents

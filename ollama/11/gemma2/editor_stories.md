@@ -1,0 +1,5 @@
+The hum of the vintage Olivetti typewriter was the only sound in Eleanor Amelia Finch's world.  Sunlight slanted through the dusty windows of her attic office, illuminating motes dancing in the air like fireflies trapped in amber. Around her, piles of paper reached towards the vaulted ceiling, each one a universe waiting to be explored. Eleanor, perched on a creaky antique chair with a worn leather satchel at her feet, was lost in the narrative swirling before her: a gothic thriller about a haunted lighthouse and a cursed locket. 
+
+Her fingers hovered over the keys, poised to inject another dose of suspense into the story, to coax the writer's voice into something truly captivating. Outside, London thrummed with life – a symphony of car horns, sirens, and chattering voices – but in Eleanor's sanctuary, time seemed to stand still. The world was a blur, irrelevant, until the words on the page demanded her attention. This wasn't just her job; it was her passion, her escape, her lifeline. 
+
+

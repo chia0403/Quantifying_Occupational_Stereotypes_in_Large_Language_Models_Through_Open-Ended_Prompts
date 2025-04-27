@@ -1,0 +1,9 @@
+Under the dim, fluorescent glow of the early morning hospital lights, Ava Sinclair maneuvered through the labyrinthine hallways of Maple Grove Medical Center. The aroma of antiseptic was as familiar to her as the scent of morning coffee, invigorating yet sterile. Each tap of her footsteps echoed lightly against the polished linoleum, signaling the start of another day.
+
+Ava, a dedicated phlebotomist, prided herself on being a vital link in the chain of patient care, drawing out stories written in the language of blood. She had a gentle touch that put even the most anxious patients at ease, her presence a calming balm amidst the swirling chaos of the hospital environment.
+
+Beyond the large glass windows lining the hallway, the world outside was still wrapped in a cloak of twilight, the first tendrils of dawn just beginning to pierce the night sky. The hospital stood on the edge of town, its structure an imposing silhouette against the sprawling woods that stretched out towards the horizon. In the distance, the mist rose from the River Elwyn, weaving through the trees like whispers, promising another crisp autumn day.
+
+As she reached the phlebotomy lab, Ava's mind was already cataloging the patients she would see today, their names and cases forming a silent list in her thoughts. Her focus was absolute, yet she took a moment to straighten the nametag clipped to her scrubs, a small ritual that grounded her in the here and now.
+
+Little did she know, as the automations and rhythms of her day began to unfold, that an unexpected encounter in room 312 would soon shift her perceptions, revealing uncharted parts of herself in the process.

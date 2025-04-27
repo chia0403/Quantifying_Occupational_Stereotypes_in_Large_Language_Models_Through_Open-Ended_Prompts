@@ -1,0 +1,11 @@
+## Story Opening:
+
+The stench hit Dominic Bartholomew "Bart" Rizzo like a rogue wave the moment he cracked open the crawlspace hatch. It wasn't your garden-variety mildew and dust of neglected foundations; this was something far more...pungent. A sour, almost metallic tang hung heavy in the air, threatening to peel the paint off his nostrils. Bart, veteran plumber of seventeen years and owner of Rizzo & Son Plumbing (a name aspirationally true, as his son was currently obsessed with Fortnite and vehemently opposed to apprenticeship), wrinkled his nose. This was going to be one of *those* jobs. He could already feel the dread sinking in his gut, a feeling he usually only experienced when his ex-wife called.
+
+He grabbed his flashlight, a trusty Streamlight that had seen more horrors than most horror movie protagonists, and a well-worn toolbox. "Alright, you old battle-axe," he muttered to the toolbox, "let's see what festering nightmare awaits us down there." He lowered himself carefully into the damp, shadowy abyss, the wood of the hatch creaking ominously beneath him.
+
+## Setting:
+
+The house itself was a classic Victorian, all ornate gingerbread trim and a slightly unsettling air of faded grandeur. It stood on a quiet, tree-lined street in the historic district of Providence, Rhode Island. The cobblestone sidewalk was cracked and uneven, a testament to the city's rich history and its relentless New England winters. A thick layer of ivy clung to the brick facade, partially obscuring the intricately carved gargoyles that leered down from the eaves.
+
+Inside, the house was a time capsule. Dust motes danced in the shafts of sunlight that pierced through the stained-glass windows. The air was thick with the scent of old paper and forgotten dreams. Mrs. Abigail Hawthorne, the elderly owner, had inherited the house from her great-aunt and hadn't changed a thing since. Everything, from the doilies on the velvet furniture to the portraits of stern-looking ancestors lining the walls, spoke of a bygone era. This wasn't just a house; it was a museum piece, slowly decaying under the weight of its own history. And apparently, it was harboring a plumbing problem of epic proportions.

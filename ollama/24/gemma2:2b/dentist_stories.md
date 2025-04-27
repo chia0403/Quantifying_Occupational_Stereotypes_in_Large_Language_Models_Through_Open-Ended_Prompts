@@ -1,0 +1,6 @@
+The afternoon air in Bayville was thick with salt and the promise of rain.  Dr. Amelia Hayes adjusted her spectacles as she surveyed the bustling waiting room. Sunlight filtered through the stained glass window above the reception desk, casting kaleidoscopic patterns across the faded floral upholstery. Outside, a lone gull screeched overhead, its raspy call echoing through the narrow air-ducts that ran along the walls. It was a familiar symphony of Bayville's life – the mundane and the majestic, intertwined in a perpetual dance.  
+
+Amelia took a breath, steeling herself for another day among the anxieties of her patients, their teeth, and their dreams. She’d always felt drawn to the quiet precision of dentistry. The way she could meticulously dismantle the flawed, then rebuild them with care - it was a kind of art in its own right. Yet, there were days, like this one, that the sheer volume of human discomfort under the sterile glare of her tools was overwhelming. 
+
+
+Amelia looked up as a timid woman in her late sixties, clutching a worn purse and looking more than slightly nervous, walked into the room. The young man accompanying her seemed to be struggling with holding back his own anxieties.  Today's case would be challenging - a molar extraction for Mrs. Harris, whose teeth were already starting to resemble an ancient oak tree in need of pruning. 

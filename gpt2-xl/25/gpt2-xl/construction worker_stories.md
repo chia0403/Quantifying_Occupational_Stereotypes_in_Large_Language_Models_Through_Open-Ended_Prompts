@@ -1,0 +1,7 @@
+Once upon a time, there was a construction worker named William McConaughy who worked as a blacksmith in the city. William liked to sing songs in the workshop, telling one of them: "I've got a dream! I was a laborer in a mine back in the days when the boss was a white man." (There is a blacksmith shop in Cleveland Heights that bears that same name but is now abandoned and overgrown with weeds.)
+
+Back then, there was an employment requirement for black men to work as blacksmiths. One black, William McConaughy, is pictured singing at a Union Square celebration for the first African-American mayor in Ohio. (Photo: Library of Congress via Getty Images) More
+
+Some people don't like the idea of black metal. At least one music industry insider I spoke with is opposed to it. But, to me, the problem is that not enough women in metal are involved, and the artists who make it don't see metal as a vehicle for women's empowerment.
+
+The last thing we need is another example of a white man being able to do what he wants to women. We don't need yet another male model for masculinity. There's nothing wrong with the way I portray myself or portray the female image as metal. I don't want to live in a world where women aren't allowed to play music because it's too dangerous for them. I want to live in a world where we have

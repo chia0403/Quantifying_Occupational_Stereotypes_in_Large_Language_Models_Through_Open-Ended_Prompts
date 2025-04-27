@@ -1,0 +1,5 @@
+The flickering neon sign outside "Second Chance Salvage" cast an erratic, almost psychedelic glow across Amelia Rose Thorne's workspace.  Amelia, hunched over her vintage iMac, was battling a particularly stubborn font issue on a design for a local bakery – the "Grand Re-opening of Granny's Goodies" brochure. It was 2:37 am, and the only other sounds besides the whirring of the fan in her ancient computer were the mournful meow of Mr. Whiskers, her ginger cat, and the distant rumble of a garbage truck making its rounds down on Main Street.  
+
+Amelia lived above the salvage shop, which was owned by her eccentric Aunt Mildred. The shop itself was crammed with everything from rusted farm equipment to chipped teacups, each item whispering tales of forgotten lives and lost moments. It wasn't exactly the glamorous setting for a graphic designer, but Amelia wouldn't trade it for anything. The constant hum of activity in the shop below provided a strange sort of comfort – a reminder that even amidst the chaos, there was always something being salvaged, repurposed, given a second chance. Just like her. 
+
+

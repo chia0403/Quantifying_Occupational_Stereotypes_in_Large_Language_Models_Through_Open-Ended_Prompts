@@ -1,0 +1,7 @@
+Once upon a time, there was a guard named Caius, who kept watch over the gates of the Fortress of Mora. Caius looked down on everyone, and he was not a person to be trifled with. Though he had a reputation as being more concerned with his own personal safety, the Empire had been paying him to perform the duties assigned to him long before he served as a guard. However, when a mysterious thief had stolen a secret Imperial scroll and revealed the Imperial Guard's secrets, Caius felt that he must be able to solve this puzzle of the scroll's retrieval.
+
+With the aid of an Imperial mage named Aludra, Caius had determined two things: First, that the thief had been a young Imperial noble woman — perhaps more than that — and not some common smuggler. Second, that the thief had entered the Imperial City via a magical gate, opening the way to an abandoned crypt in the ruins of the fortress.
+
+The Imperial Guard knew that the Imperial Palace was in ruins, and many suspected a new traitor had returned with that information. Aludra had helped Caius identify that thief as Alid, a former member of the Imperial Legion.
+
+Once the thief was discovered, Alid was slain and a trail of blood leading to the castle filled the air, but the secret scroll Alid was carrying still had not been acquired. Caius had ordered that Alid's corpse be exhumed

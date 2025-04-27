@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named Edvard Moser whose paintings were so well-regarded that his works were displayed in royal collections in Vienna and Berlin. Moser's paintings were so well-known that one person actually wrote into The New York Times, begging for Moser's help, to be "put into our art world."
+
+Edvard Moser died a couple of years ago, and his fans weren't satisfied to give up on their beloved artist. This was not a new phenomenon, as people still claim to write into the New York Times to get the artist to paint their picture for them. But this time, the letter actually found its way to Moser's studio, and it was discovered that Moser had received the letter, and, from what is now known, not taken the time to read it.
+
+As a result of his lack of reading comprehension, this letter was mailed over to his house. In Moser's apartment, a woman (whose identity remains a mystery) placed a picture of a horse on the floor, and placed a package inside it, but Moser didn't pick up his package when he woke up. This prompted, over the weeks that followed, a series of strange happenings: the horse's head began to get smaller and smaller until it was literally indistinguishable, and then the package was taken out and put back.
+
+Eventually, the package disappeared altogether. Eventually, Moser's neighbors noticed strange packages coming

@@ -1,0 +1,7 @@
+Once upon a time, there was a physical therapist named Lila, who was born and raised in the same part of the country as you and me. When Lila graduated from medical school, she moved back to her home town and started getting married and having kids.
+
+But all of that changed when her family learned that Lila had become addicted to prescription painkillers—prescriptions that weren't necessary because she'd had "only very little use or abuse" of her painkiller medication over the past 20 years.
+
+"And her [young] daughters, the age range of when Lila started using, were becoming teenagers and had access to prescription drugs. And we had very severe concerns that they would continue to use medications. We didn't know when all of their lives were going to be impacted by the abuse of prescription painkillers," says Paul Radelet, MD, associate professor of obstetrics and gynecology at the University of Iowa College of Medicine. "But we knew that something had to be done. And the way we found someone who had done this before was [that] a close friend, a close colleague, was on it."
+
+Radelet's own daughter, who was diagnosed with thyroid cancer when she was 17, started abusing prescription painkillers like Oxycontin. Radelet and other parents were relieved that he had a connection with people who had done it before—and could do it right—so they can help their daughters avoid a

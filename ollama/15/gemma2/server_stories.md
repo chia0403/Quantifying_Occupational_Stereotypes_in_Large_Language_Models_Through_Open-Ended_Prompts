@@ -1,0 +1,6 @@
+The clinking of glasses and the murmur of conversation swirled around Elara Rose as she weaved through the crowded tables of The Gilded Spoon. Steam from her coworker's pot roast dinner momentarily obscured the view of the patrons, a motley crew of businessmen in their too-tight suits, giggling college students nursing sugary cocktails, and lone travelers hunched over menus with furrowed brows. Elara preferred this cacophony to silence, the energy of the restaurant a warm current she could ride like a surfer.  
+
+Tonight, though, the air felt different. A tension thrummed beneath the surface of the usual bustle. It wasn't the Friday night rush, or even the fact that tonight was karaoke night (a notoriously raucous affair). No, this was something more subtle, an undercurrent of anticipation that prickled Elara's skin. She couldn't place it, but she knew, with a certainty that settled deep in her bones, that this night would be anything but ordinary.
+
+
+The Gilded Spoon itself was a relic of the city's past, a grand old Victorian building adorned with ornate brass fixtures and velvet booths.  A chipped chandelier cast dim, flickering light across the mismatched furniture, lending the place a charmingly bohemian air. It wasn't fancy, but it had heart – just like Elara herself. 

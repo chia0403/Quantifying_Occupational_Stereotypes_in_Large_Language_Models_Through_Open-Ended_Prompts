@@ -1,0 +1,8 @@
+The fluorescent lights hummed above Eleanor Penelope Thistlewick's head like a swarm of agitated bees, casting a sterile glow over the worn linoleum floor of her office.  Paperclips clinked as she sifted through student files, each one containing the anxieties and aspirations of teenagers navigating the treacherous waters of adolescence. The scent of stale coffee lingered in the air, mingling with the faint whiff of lavender hand sanitizer, a desperate attempt to mask the underlying aroma of teenage angst.
+
+Eleanor sighed, pushing back her mousy brown hair that perpetually threatened to escape its bun. Another day, another wave of existential crises and college application woes. She yearned for the days when guiding students meant helping them choose electives or plan their prom dates, not dissecting their mental health charts and debating the merits of online versus in-person learning during a global pandemic.
+
+But she was dedicated. Eleanor Thistlewick, with her kind smile and penchant for sensible cardigans, was the anchor of Northwood High's guidance department. She believed that every student deserved a voice, a champion, someone who saw beyond their test scores and GPA to the complexities simmering beneath the surface.  
+
+
+She paused, her gaze settling on a file labelled 'Marcus Bennett'. A familiar pang of worry tightened her chest. Marcus was a quiet boy, often lost in his own world, his creativity manifesting in intricate drawings that spoke volumes about his unspoken struggles. Today's appointment was crucial. Marcus had been referred to the school psychologist for a possible diagnosis, and Eleanor knew she had to be there for him, offering a reassuring presence amidst the uncertainty. 

@@ -1,0 +1,5 @@
+The scent of lavender shampoo and dampness hung heavy in the air, clinging to the worn canvas chairs like memories of countless haircuts. It was a familiar smell for **Cassia Sinclair**, her hands already slick with conditioner as she prepped the unruly brown locks of Miss Emily's granddaughter, Poppy. 
+
+The salon, "Sinclair's Snip," had been in Cassia's family for generations, its faded floral wallpaper whispering tales from bygone eras.  Outside the shop window, a sliver of twilight bled across the sky, turning the cobblestones into glittering mosaics and casting long shadows that stretched out like reaching arms. It was 1938, and the town of Oakhaven hummed with a mix of old-world charm and simmering change - a change Cassia could feel in her bones.  The whispers on the street about a new kind of city coming to their doorstep, one built on steel and glass, felt like a storm brewing just off the coast. 
+
+Cassia glanced at Poppy, her small face framed by auburn curls that defied all attempts at order. Her eyes, wide and bright, held a stubborn glint –  a reflection of Cassia’s own when she was younger. 

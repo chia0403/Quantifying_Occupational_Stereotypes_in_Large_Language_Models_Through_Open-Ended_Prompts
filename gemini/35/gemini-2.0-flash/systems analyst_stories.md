@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting with a systems analyst main character:
+
+**Setting:** The fluorescent lights of the "Data Harmony" server room hummed a monotonous tune, battling the perpetual low thrum of cooling fans. Condensation beaded on the metal pipes snaking across the ceiling, occasionally dripping with the insistent rhythm of a leaky faucet. The air, chilled to a meat locker's temperature, reeked faintly of ozone and dust bunnies that thrived despite the rigorous cleaning schedule. Rows of blinking servers lined the walls, their silent processing power holding the fragile digital lives of millions of users.
+
+**Story Opening:**
+
+The emergency page had woken Amelia Chen-Rodriguez from a dead sleep at 3:17 AM. She’d fumbled for her phone, her fingers thick with sleep, dread curdling in her stomach. Three AM calls were never good news. Now, standing in the gelid air of the Data Harmony server room, Amelia, Senior Systems Analyst, wished she could have stayed in the blissful ignorance of her dreams. The primary database server, the bedrock of the entire company’s operations, was unresponsive. A blinking red light on its console screamed malfunction. Her breath fogged in front of her as she quickly assessed the situation, the digital equivalent of cardiac arrest staring her in the face. “Okay,” she muttered to herself, the word a thin whisper lost in the server room’s drone. “Don’t panic, Amelia. Just another Tuesday, right?”

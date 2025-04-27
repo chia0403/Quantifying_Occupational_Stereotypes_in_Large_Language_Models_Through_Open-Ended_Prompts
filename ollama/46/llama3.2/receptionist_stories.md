@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the small town of Willow Creek, casting a warm orange glow over the quaint streets, Emily Joy Thompson settled into her chair at the front desk of the local law firm, Wilson & Associates. The soft hum of the fluorescent lights above cast an eerie ambiance as she mechanically sorted through the day's mail, her fingers moving with practiced ease.
+
+The old building had been a fixture in Willow Creek for generations, its stone facade bearing witness to countless trials and tribulations. As Emily worked, her gaze drifted out the dusty windowpane, watching as the sun dipped below the horizon, casting long shadows across the deserted streets. It was moments like these that Emily felt the weight of her own story, one she'd been keeping hidden behind a mask of professionalism.
+
+With a sigh, she refocused on the day's tasks, her mind already turning to the familiar routine ahead: answering phones, scheduling appointments, and dealing with the occasional disgruntled client. But as she reached for the pen that lay at the edge of her desk, her fingers brushed against a crumpled piece of paper – an old note that had been tucked away, forgotten in the chaos of Emily's life.
+
+The words scrawled across the page sent a shiver down her spine: "Meet me at midnight. Come alone."

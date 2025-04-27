@@ -1,0 +1,11 @@
+**Title: Beneath the Starlit Sky**
+
+**Setting:** The small coastal town of Harborside, known for its rugged cliffs and sandy beaches, bustles with life as summer tourists flock to its shores. The sun dips low on the horizon, painting the sky in hues of orange and pink, casting a warm glow over the town’s iconic lighthouse. On the other side of the beach, nestled among swaying palm trees, stands the Harborside Healthcare Center, a modest but bustling facility that has served the town faithfully for decades. The hum of the ocean waves complements the sounds of laughter and conversation from families enjoying the summer evening, but inside the healthcare center, the atmosphere is a blend of urgency and care, illuminated by bright fluorescent lights and filled with the scent of antiseptic.
+
+**Opening:** 
+
+As the clock struck six, Maria Elizabeth Carter slipped on her scrubs, the cool material a welcome contrast to the warmth permeating the air outside. She took a moment to smooth her dark curls, pulling them back into a tidy bun, a ritual that calmed her nerves before the night shift began. The last rays of sunlight streamed through the window, casting a golden haze over her small, cluttered break room. The walls were adorned with cheerful drawings from the children she often cared for, and the whiteboard bore reminders of the important meetings and patient updates that marked her days.
+
+Maria had always known that being a registered nurse wasn't just a job; it was a calling. On her first day at Harborside Healthcare Center five years ago, she had felt the weight of responsibility and the profound impact of her role. Now, as she prepared to step into the chaos of the emergency room, her heart raced not with fear, but with the excitement of making a difference. Tonight, the seaside town thrummed with life, but she was ready, her hands steady and her spirit resolute. 
+
+Little did she know that the night would bring challenges she had never anticipated, forever altering her understanding of compassion and courage.

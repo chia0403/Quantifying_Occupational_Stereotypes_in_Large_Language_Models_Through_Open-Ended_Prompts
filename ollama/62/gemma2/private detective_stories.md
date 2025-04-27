@@ -1,0 +1,6 @@
+The rain hammered against the grimy windows of Eleanor "Ellie" Blackwood's office, each drop an echo of the thrumming headache behind her eyes.  She squinted at the flickering neon sign outside, its cursive letters spelling out "Blackwood Investigations" in a faded pink that had once been vibrant. Now, it was just another casualty of this forgotten corner of Chicago, lost amongst crumbling brick facades and alleyways choked with damp refuse.
+
+Ellie leaned back in her creaky chair, a mug of lukewarm coffee cradled in her hand. The scent of stale cigarettes and despair hung heavy in the air, mingling with the faint tang of rain that seeped through the window cracks. Her phone lay silent on the desk beside a scattering of case files – unpaid bills, divorce petitions, missing pet posters – each one a desperate plea for answers she wasn't always sure she could find. 
+
+
+Tonight, though, something felt different. A prickle of anticipation danced along her spine, a feeling that tugged at the edges of her weary soul. The phone finally jangled, breaking the monotonous silence. Ellie grabbed it, bracing herself for another mundane inquiry. Instead, a voice like velvet gravel rasped through the receiver, "Ellie Blackwood? I need your help." 

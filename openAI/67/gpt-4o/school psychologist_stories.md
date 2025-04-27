@@ -1,0 +1,13 @@
+Dr. Eliza Montgomery stepped out of her vintage, turquoise Volkswagen Beetle, its cheerful color standing in stark contrast to the overcast sky looming above. The vehicle was a relic from another era, much like the sprawling, ivy-covered walls of Elmwood High School she now approached. Nestled in the heart of Maplewood, a small town known more for its apple orchards and annual fall festival than educational innovation, Elmwood had been the center of its community for over seventy years.
+
+The school’s façade seemed to breathe history, its bricks weathered by time yet painted with the hopes and dreams of generations who had passed through its ornate doors. The faint scent of autumn leaves and distant wood smoke filled the air, signaling the onset of a cold snap that always seemed to surprise the unprepared southeastern Pennsylvania residents.
+
+Eliza adjusted her scarf, pulling it closer around her neck, and glanced at the hedgerows that bordered the staff parking lot. They were beginning to flare with autumn's vivid oranges and reds, a reminder of nature’s inevitable march through the seasons.
+
+Inside the school, the hallways buzzed with the familiar chaos of teenage chatter and the clattering of locker doors. Eliza walked briskly past classrooms where teachers were already attempting to corral students’ attention towards geometry and Shakespeare. Her destination was the counseling office, a cozy enclave painted in calming hues and filled with overstuffed chairs strategically arranged to put anxious students at ease.
+
+Her office, tucked at the end of the hallway, was a sanctuary of sorts, filled with eclectic treasures from her travels—a Tibetan prayer flag hung alongside diplomas, and an intricate dreamcatcher swayed gently near the window. Large bookshelves lined one wall, brimming with titles on child psychology, emotional intelligence, and the occasional mystery novel for those rare moments of downtime.
+
+Dr. Montgomery dropped her satchel on the plush chair by her desk and glanced at the day’s schedule with a practiced eye. Today promised a steady stream of sessions with students, each carrying burdens both large and small, some of which seemed troublingly familiar to her from her own turbulent high school years.
+
+As she settled into her day, Eliza noted the ever-present ticking of the antique clock perched on a shelf above her desk—a gift from her late mentor, symbolizing the relentless passage of time and the reminder that every moment spent with a student could be a step towards their healing and growth.

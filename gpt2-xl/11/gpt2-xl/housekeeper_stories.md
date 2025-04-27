@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Anna Smith, who lived in her own home (well, to be more precise, the housekeeper lived in the servants' quarters), but because there were just three rooms, she couldn't really afford to get married and have children. She just knew she wanted a child someday, and she had to go from moment-to-moment until she got to that moment. On that journey, she was visited by a fairy (a bit confused by the way the housekeeper was treating Anna, so they had to leave). But after telling her, Anna couldn't believe it: "you're not really a fairy, are you?", that's when the fairy said: "Well, if you are… " and vanished.
+
+"I thought… That fairy was real", Anna heard herself asking; her mind was spinning and telling her that there was something missing, that something was missing. She couldn't identify it, she didn't know the name of the creature, but everything she saw and read at dinner tables with everybody seemed to be calling out, "Anna, Anna, is there a real fairy?"
+
+Anna wondered, in a very sad way: "maybe… There is a fairy?"
+
+So, after some time, she decided that no one needs to ask her again (she didn't feel comfortable enough to ask that again, she was too freaked out), and it was at that moment her first idea came

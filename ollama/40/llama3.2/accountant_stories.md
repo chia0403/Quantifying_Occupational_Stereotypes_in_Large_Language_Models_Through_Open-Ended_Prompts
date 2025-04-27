@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The rain-soaked streets of downtown Seattle gleamed like polished onyx as Emilia Alexandra Rodriguez stepped out of her office building and onto the sidewalk. The towering skyscrapers that lined the street seemed to close in around her, casting long shadows that stretched across the wet pavement like skeletal fingers. It was a chilly autumn evening, and the air was crisp with the scent of damp earth and decaying leaves.
+
+Emilia, a 32-year-old accountant at a mid-sized firm on the city's financial district, pulled her soggy hair back into a ponytail as she gazed out at the rain-soaked streets. She had spent the better part of the day hunched over a spreadsheet, wrestling with tax returns and financial reports for one of the company's biggest clients. Now, she was eager to leave the drudgery behind and head home to her cozy apartment in Capitol Hill.
+
+As she walked, Emilia's eyes scanned the crowded sidewalk, taking in the sea of umbrellas and raincoats that seemed to stretch on forever. It was a typical Seattle evening - grey, wet, and miserable - but Emilia felt a thrill of excitement coursing through her veins. She had a feeling tonight was going to be different.

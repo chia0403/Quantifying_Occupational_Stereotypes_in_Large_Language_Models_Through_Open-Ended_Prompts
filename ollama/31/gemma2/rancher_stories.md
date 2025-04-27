@@ -1,0 +1,6 @@
+The wind whipped across the sagebrush plains, biting at Amelia "Amy" Cartwright's face as she squinted out over her herd. The Arizona sun beat down relentlessly, turning the dust to shimmering haze that danced on the horizon. Amy adjusted her worn Stetson and pulled her denim jacket tighter, the chill of the early morning clinging stubbornly despite the warmth promising a scorching day ahead. 
+
+Her ranch, Cartwright's Crossings, was a patchwork quilt of grazing land stitched together by barbed wire fences and dusty trails. Generations of Cartwrights had wrestled this land into submission, battling drought, dust storms, and predators to carve out a life in the unforgiving landscape. Now, with only her loyal Border Collie, Scout, at her side, Amy felt the weight of that legacy pressing down on her shoulders. 
+
+
+The cattle lowed softly, their rust-colored coats blending seamlessly with the reddish earth. The rhythmic grazing was punctuated by the rasping whine of a distant hawk circling high above. A sense of calm settled over Amy, despite the tension knotting in her gut. She knew she had tough decisions to make, choices that could determine the fate of Cartwright's Crossings and everything it represented to her family. 

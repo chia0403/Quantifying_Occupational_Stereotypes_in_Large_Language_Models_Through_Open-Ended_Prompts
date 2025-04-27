@@ -1,0 +1,5 @@
+Rain lashed against the flimsy glass of Miss Pennyworth’s tiny apartment door. Inside, Evelyn “Eve” Miller, Probation Officer with the city’s infamous Caseload 34, fought to keep her trench coat from becoming a waterlogged mess. The air hung heavy with the scent of stale cigarettes and something vaguely floral – a potent combination that made Eve's head throb slightly. This was Pennyworth’s territory; a grimy corner of the city where hope seemed to have abandoned the residents long ago.
+
+Eve tapped impatiently on the door, hoping for some semblance of grace from Miss Pennyworth. The elderly woman rarely opened her door at all, and even when she did, it felt more like an assault on Eve's nerves than a welcome exchange.  Pennyworth was notorious in the probation department - known for being as stubborn as a mule and as unpredictable as a tornado. Eve had been assigned to this case after months of waiting, each day feeling a little heavier with the weight of another person's life teetering on the brink of collapse. 
+
+"Miss Pennyworth?" Eve’s voice was barely a whisper above the incessant drumming of rain.  

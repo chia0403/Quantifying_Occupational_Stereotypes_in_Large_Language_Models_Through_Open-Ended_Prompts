@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named Tim Burton. He was a very talented artist, but didn't really enjoy directing and had a ton of ideas he wanted to pursue, but it wasn't a natural thing for him to do, because he was too busy making movies. It's always good when you get the ability to make things, whether you want to or not. Tim really was a gifted artist, but it turned out he's not really into making movies.
+
+Then came Tim Burton, and suddenly he wanted to make movies. Actually, he was making pretty good movies before that. He did a little bit of voice-over work back in the '80s in animated movies. He did some animated pieces, and I believe he did a couple of movies as well. He had a little success with it, and then he discovered the directing business. "So, I want to direct the next movie for Tim Burton," he said, and Tim Burton said, "Let's do it!"
+
+The Burton years were really productive creative years for me. I did a couple of movies with him that became quite successful, and they were pretty creative movies. Tim has obviously done a lot of other interesting things to help get his name known so that he can get other interesting jobs.
+
+Then I have to say, one of my favorite movies of his, is The Nightmare Before Christmas. The Nightmare Before Christmas is my No. 1 movie of all time. He

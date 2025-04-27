@@ -1,0 +1,7 @@
+As the sun set over the vast expanse of Interstate 80, trucker Jackson "Hawk" Hawkins pulled his Peterbilt 389 into the dimly lit parking lot of the lonely truck stop on the Nevada-New Mexico border. The neon sign creaked in the gentle breeze, casting a gaudy glow over the rows of tired travelers and worn-out rigs. Hawk's eyes, red-rimmed from lack of sleep and the long haul, scanned the lot for any signs of trouble.
+
+He'd been driving for 48 hours straight, his GPS insisting he was still miles away from the Arizona border. But as he checked his watch for what felt like the hundredth time, he knew it was only a matter of time before his fuel light started flashing and his phone rang with another frantic call from dispatch. Hawk rubbed the stubble on his chin, feeling the weight of the open road ahead.
+
+The stop's diner, "Mae's Eats," beckoned to him like a beacon in the darkness, its promise of greasy food and stale coffee a siren's call for weary travelers. But as he stepped out of the cab, Hawk couldn't shake off the feeling that something was off. A nagging sense of unease settled in the pit of his stomach, like a warning from an old friend he'd rather not hear.
+
+Little did Hawk know, the night ahead would test his nerves and push him to confront secrets he thought he'd left behind on the open road forever.

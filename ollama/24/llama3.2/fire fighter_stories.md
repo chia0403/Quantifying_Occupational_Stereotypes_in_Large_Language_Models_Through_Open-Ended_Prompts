@@ -1,0 +1,5 @@
+As the sun set over the small town of Ravenswood, casting a warm orange glow over the quaint streets and homes, Firefighter Ethan Ryder Wilson stood outside the local fire station, his eyes fixed on the old oak tree in the town square. The tree, which had stood for generations, was now dying, its once vibrant leaves wilted and brown. It was a reminder to Ethan of the countless calls he'd made over the years, responding to everything from small kitchen fires to devastating warehouse blazes.
+
+Ethan's thoughts were interrupted by the sound of his radio crackling to life inside the station. "Engine 12, this is Dispatch," the voice on the other end said. "We've got a report of a structure fire at the old Miller place on Elm Street. Please respond with caution."
+
+Ethan nodded to himself, despite knowing he was miles away from Ravenswood, as he made his way back inside the station to grab his gear. He took a deep breath, mentally preparing himself for what lay ahead. This wasn't just another call; it felt like something was off.

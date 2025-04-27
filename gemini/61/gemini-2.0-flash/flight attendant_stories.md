@@ -1,0 +1,7 @@
+## Opening:
+
+The cabin lights dimmed to a soothing, twilight blue, a stark contrast to the blinding Miami sunshine they'd just left behind. Amelia Grace Carter, her smile automatically plastered on and unwavering despite the creeping fatigue, tucked the last complimentary blanket into the overhead bin with a practiced efficiency. She smoothed down her crisp navy uniform skirt, a tiny knot of anxiety tightening in her stomach. This transatlantic flight, the red-eye to Heathrow, always brought a fresh wave of nerves. Not because of turbulence, or unruly passengers – Amelia could handle both with the grace of a seasoned diplomat. No, it was the eight hours of enforced proximity to thousands of feet, hurtling through the inky black sky, that made her skin crawl.
+
+## Setting:
+
+The story opens aboard British Airways Flight BA207, en route from Miami International Airport (MIA) to London Heathrow Airport (LHR). The aircraft is a Boeing 787-9 Dreamliner, known for its advanced technology and increased passenger comfort. The interior is predominantly decorated in soothing blues and greys, creating a calming atmosphere. The air, meticulously filtered and pressurized, hums with the subtle vibration of the powerful engines. Outside, nothing but the endless, star-dusted blackness of the Atlantic Ocean stretches for thousands of miles. Inside, tucked in the galley near the main cabin, Amelia is subtly observing the passengers settling in, a small notebook in her hand, ready to anticipate their every need - and, perhaps, to notice anything amiss.

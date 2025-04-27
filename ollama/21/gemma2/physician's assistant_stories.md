@@ -1,0 +1,6 @@
+The air hung thick with the scent of antiseptic and anxiety in Dr. Singh’s bustling clinic. Amelia "Amy" Harper-Jones, her fingers tracing the worn grooves of her stethoscope, adjusted the mask clinging to her face with a practiced hand. It was just after lunch, a time typically reserved for emergencies and lingering anxieties. 
+
+She glanced at the wall clock, its red hands ticking mercilessly toward the end of her shift. Her stomach rumbled in protest, a reminder that she hadn't touched her packed lunch amidst the whirlwind of patients.  A young boy, his eyes wide with fear, clutched onto his mother’s hand as they were ushered into the examination room. Amy smiled reassuringly, hoping to ease the tension radiating from the pair. This was her comfort zone – the chaotic hum of a clinic, the urgent whispers, and the quiet victories when a worried brow eased and replaced with relief.  But today felt different, heavier somehow. 
+
+
+The city outside pulsed with its usual energy, oblivious to the anxieties playing out within Dr. Singh's walls. A symphony of traffic, distant sirens, and construction echoed through the open window, grounding Amy in the present moment. She inhaled deeply, reminding herself that this was her purpose -  to be a beacon of calm amidst the storm for those who needed it most. 

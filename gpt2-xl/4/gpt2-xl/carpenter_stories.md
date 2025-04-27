@@ -1,0 +1,7 @@
+Once upon a time, there was a carpenter named Frank who worked at a tavern in a town far. The tavern was called El Toro, and he worked there for ten years. He did everything he could to make his tavern prosper, but he kept failing. The same went for the townspeople who liked him.
+
+Then Frank decided to leave. He moved to town to the town of Lares, and there he built a house and rented it to the people of El Toro for five years. He raised a pig there. He hired and trained the people of El Toro, and he worked with them. He made his tavern a success, too. Then he lived for another ten years at the village of Aljutaros (now Cádiz).
+
+When he had had a lot of time to think about his life and how to improve it, he decided to leave. However, he continued to work at El Toro on his weekends. He continued to go back one day or another, taking a drink every ten years. He stayed at the same house for two years, then a house for three years. He moved down the other side of town to the house of his son, who was a painter. He lived there for two years. Then he moved to a house for an instant, making a short stay in a third house the next afternoon before disappearing again.
+
+In a few moments, he turned up in the village tavern. He spoke Spanish

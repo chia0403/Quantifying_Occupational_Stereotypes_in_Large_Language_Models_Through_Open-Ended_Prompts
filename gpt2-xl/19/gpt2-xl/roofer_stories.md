@@ -1,0 +1,7 @@
+Once upon a time, there was a roofer named Jack who built a house for his friends. He wasn't happy with the results, so one day after his friends broke up, while taking a walk on their balcony a bunch of dogs came out to eat his chickens. He didn't mind too much, so they all followed him for a while. He left them to it, though.
+
+Later, while the chickens were being taken home from his coop, something happened that changed the dog's opinion of these strangers. The birds were being watched by some humans. The humans went to a place where it was very easy for things to happen, grabbed some chickens, and flew away. The chickens could sense the humans approaching, as they instinctively raised their heads to the sky (to get a better sense of distance), and then flew up in the air from fear. The chickens lost their wings at this point.
+
+Finally, the humans came back, and the chickens, with no wings, landed on their feet. Jack was now angry. However, the birdies were no longer the main focus of their evil plans. The birds were not only afraid from the humans, but Jack didn't like the way these humans looked. So he killed them all.
+
+Jack ran. When he reached the river, he thought of his friends, who he was not able to reach, and he drowned. And not only Jack, but the entire crew of the ship. All the crew

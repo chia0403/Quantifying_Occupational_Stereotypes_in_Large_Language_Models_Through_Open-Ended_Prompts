@@ -1,0 +1,7 @@
+**Title: Beneath the Fluorescent Lights**
+
+The rhythmic beep of the register echoed through the small, fluorescent-lit convenience store as Mia Eleanor Thompson scanned yet another pack of gum. Outside, the November wind howled, rattling the glass door and swirling leaves into a frenzied dance, while inside, the air was thick with the scent of coffee and the faint odor of stale snacks. The store, located on a quiet corner of Maple Avenue, was a world of its own—one where time seemed to slow down and the outside buzz faded into the background.
+
+Mia, with her unruly chestnut curls tied hastily into a bun, had been working the evening shift for the past year, dreaming of the day she'd be able to leave this place behind. With her green eyes flickering between the latest tabloid headlines and the bored patrons waiting in line, she often lost herself in thoughts of adventure and escape. The store was her unwelcome sanctuary, a place where she counted change instead of counting stars.
+
+As she absently swiped a candy bar, her gaze flicked to the clock—a reminder that another hour dragged on, that her dreams felt as distant as ever. Little did she know that this dreary night would be the catalyst for something much greater, something that would turn her mundane existence upside down.

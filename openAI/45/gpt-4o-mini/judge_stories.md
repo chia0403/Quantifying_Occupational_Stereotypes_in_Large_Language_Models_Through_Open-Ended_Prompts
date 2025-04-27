@@ -1,0 +1,9 @@
+**Title: The Shadow of Justice**
+
+**Setting:** The courtroom of the historic Marwood District Courthouse, an austere building with towering pillars and dark wooden paneling, stands resolutely in the heart of the small town of Seraphine Falls. Sunlight filters through the high, stained-glass windows, casting colorful shards of light across the polished marble floor. The air is thick with anticipation as the townsfolk gather for a trial that has gripped the community—a case that promises to expose secrets buried deep within the town’s fabric.
+
+**Opening:**
+
+Judge Eliza Margaret Hawthorne sat with a quiet poise behind her imposing wooden bench, her gavel resting lightly in her palm. At fifty-three, her dignified presence commanded respect, while her sharp hazel eyes scanned the room, taking in every detail—the anxious whispers of the spectators, the nervous tapping of a pen by the defense attorney, and the heavy silence that enveloped the prosecution team. Eliza had presided over countless cases during her twenty-year tenure, but this one felt different; it was woven with the threads of betrayal and ambition, echoing with the whispered rumors that slithered through the streets of Seraphine Falls. 
+
+As she straightened her black robe, she could almost taste the tension in the air. Today, she would decide the fate of a man accused of crimes that unsettled the very foundations of this close-knit community. She inhaled deeply, grounding herself in the weight of her responsibility. Justice, she reminded herself, was not just about the verdict—it was about the truth that lay buried beneath the shadows of deception. The gavel would strike soon, but for now, silence reigned, and all eyes were on her.

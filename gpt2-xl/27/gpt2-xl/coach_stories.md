@@ -1,0 +1,7 @@
+Once upon a time, there was a coach named Billy Donohue, and there were people who liked the way he coached. One such person was Jack Kemp, who was also friends with the president and had worked under him the year before. Kemp didn't like the way Donohue coached, but he got tired of watching it, and he made a pitch to Bush to take over the team.
+
+Bush responded by saying, "You know what I'm talking about, Dick. I used to watch Donohue all through college. I played against him in the Olympics and I just knew him to be a hell of a coach, and I knew he was coming out to coach someplace. We'd talk, and you know what? If Donohue wants me to coach, I'll coach."
+
+Bush told Donohue that he'd be an excellent manager, and Donohue started in the outfield coaching Bush's nephew's Little League team; he also took to the position of field manager. After the team had played a series the next night and he was in the dugout, Bush heard a crowd calling, "Donohue to the mound!" and his eyes started wide with surprise. "We all know that's one of the greatest relievers to ever live, isn't it?" he told his nephew.
+
+When Bush was hired as Tampa Bay's manager, his first order of business was to have the Astros' former manager, Jack Morris,

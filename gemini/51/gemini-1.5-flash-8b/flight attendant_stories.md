@@ -1,0 +1,5 @@
+The fluorescent lights of the galley hummed, a monotonous soundtrack to Amelia "Amy"  Peterson's life.  The recycled air, thick with the scent of stale coffee and antiseptic, felt like a second skin.  Outside, the sprawling tarmac of Tokyo's Narita International Airport stretched into the twilight, a chaotic ballet of taxiing planes and hurrying figures. Amy, perched precariously on a stool, meticulously wiped down a tray, the rhythmic swish of the cleaning cloth a counterpoint to the persistent drone of the airport's announcements.  Her uniform, a pristine navy blue, felt stifling, a stark contrast to the vibrant energy she felt suppressed within.
+
+**Setting:**
+
+Tokyo Narita International Airport, late evening.  The tension of the bustling airport is palpable, despite the fading light.  The recycled air of the galley, the faint scent of jet fuel, the rhythmic sounds of the planes and the announcements – all combine to create a sensory environment that is both overwhelming and strangely hypnotic.

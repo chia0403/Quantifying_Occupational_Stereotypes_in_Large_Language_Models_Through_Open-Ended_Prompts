@@ -1,0 +1,5 @@
+The air in Agnes Pettibone's office hung heavy with the scent of dust and forgotten dreams. Sunlight streamed through the grimy windows, casting long shadows across stacks of invoices that threatened to engulf her worn oak desk. A single fly buzzed lazily around a half-eaten apple core, perched precariously on the edge of an overflowing ashtray.  Agnes herself sat hunched over a ledger, her brow furrowed in concentration as she meticulously cross-referenced figures with receipts, each one a tiny puzzle piece in the larger, often chaotic picture of Mr. Bramble's antique shop finances.
+
+The shop itself was nestled on a cobbled street in the heart of Old Town, its quaint facade adorned with faded paint and dusty window displays overflowing with forgotten treasures - chipped porcelain dolls, tarnished silver tea sets, and leather-bound books whispering secrets from bygone eras. The air within the shop was thick with the scent of aged wood and beeswax polish, a comforting familiarity that Agnes found oddly soothing amidst the chaos of the ledgers. 
+
+

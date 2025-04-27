@@ -1,0 +1,6 @@
+The midday sun beat down on the cracked asphalt of Willow Creek Boulevard, turning the faded "For Sale" signs into shimmering mirages.  Amelia Kensington, a real estate agent with the sharp, almost aggressive energy of a seasoned hawk, adjusted the oversized sunglasses perched precariously on her nose.  Her tailored navy suit felt uncomfortably warm against her skin, even with the constant breeze whipping through the empty lot beside the dilapidated diner, the one with the perpetually-sticky windows and the unsettling aroma of burnt coffee that clung to the air.
+
+This, Amelia mused, was the kind of property that demanded a special approach.  Not the pristine, perfectly-manicured estates of the wealthy, but the overlooked, the forgotten, the quietly crumbling heart of Willow Creek – the kind of neighborhood where whispers of lost fortunes and broken dreams hung heavy in the air, almost tangible.  This was her territory, her challenge. And today, she had a client.
+
+
+Setting: Willow Creek, a small, once-prosperous but now economically struggling suburb on the outskirts of a major city. The area is characterised by faded charm – large, decaying Victorian houses, vacant lots, and a few stubbornly-standing businesses clinging to life. The atmosphere is one of quiet desperation, a palpable feeling of stagnation contrasted with the relentless summer heat.

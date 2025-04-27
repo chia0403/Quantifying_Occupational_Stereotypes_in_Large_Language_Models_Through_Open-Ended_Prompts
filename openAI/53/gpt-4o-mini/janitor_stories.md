@@ -1,0 +1,9 @@
+Title: **Whispers in the Archive**
+
+In the heart of Grafton City, where shadows stretched long between the towering glass structures of the corporate district, lay a forgotten building. It was an unassuming edifice, its faded brick façade adorned with vines that clung desperately to the once-polished walls. The sign above the entrance read “The Historical Society of Grafton,” but few passed through its heavy wooden doors. Most residents forgot it existed, a relic left to the annals of time.
+
+Inside, the air was thick with the scent of aged paper and dust, swirling like the whispers of long-forgotten stories. Shelves crammed with forgotten tomes and antiques leaned under the weight of history, while the dim light cast an ethereal glow over the collection. Here, in this sanctuary of memories, worked Arthur Tremblay—a janitor by trade, but a historian at heart.
+
+Arthur, a man in his late forties with salt-and-pepper hair and perpetual ink stains on his hands, moved with purpose through the labyrinth of stony silence. He donned his faded navy blue uniform, marked by the logo of the society, a badge he wore with quiet pride. While others might see his role as menial, Arthur believed he played an essential part in preserving the richness of Grafton’s past. Each surface he polished and each corner he swept was a promise to keep the stories alive.
+
+As the clock struck the hour of midnight, the society hummed softly, illuminated only by the flickering lights of old lamps. Arthur paused in front of an ancient oak desk piled high with untouched documents and delicate artifacts, his fingers grazing their edges. He often lost himself in the tales woven through the pages—stories of heroes, villains, and ordinary souls who shaped Grafton through their triumphs and failures. Little did he know, tonight, one of those stories was about to unveil itself in a way he could never have imagined.

@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+As the sun rose over the small coastal town of Tidal Cove, casting a warm golden light over the sleepy streets and seaside shops, 32-year-old Alexandra "Lexi" Thompson was already hard at work behind the counter of her family-owned salon, Coastal Cuts. With years of experience as a cosmetologist, Lexi had built a loyal client base among the town's residents, who raved about her attention to detail and creative flair.
+
+The sound of waves crashing against the shore outside provided a soothing background hum as Lexi worked tirelessly to perfect a client's highlights. The scent of saltwater and citrus wafted through the air, mingling with the sweet aroma of hair products and the occasional whiff of yesterday's coffee. It was a familiar routine for Lexi, one that she'd grown up with and loved.
+
+Just as she finished the final touches on her latest masterpiece, the salon's phone rang, shrill and insistent. Lexi picked it up, expecting it to be a scheduling inquiry or perhaps a reminder about an upcoming appointment. Instead, the voice on the other end of the line sent a shiver down her spine: "Lexi Thompson? This is Detective Jameson from the coastal sheriff's department. I need to speak with you about your cousin, Emily...".

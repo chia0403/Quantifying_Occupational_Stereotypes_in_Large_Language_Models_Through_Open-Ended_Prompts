@@ -1,0 +1,7 @@
+The sterile scent of antiseptic and bleach hung heavy in the air, mingling with the faint whiff of lavender hand sanitizer from Amelia Grace Hawthorne's perpetually-pocketed bottle.  Outside the sliding glass doors of her treatment room, laughter echoed from the children's playroom, a jarring contrast to the tense silence within. 
+
+Amelia surveyed the mess before her – crumpled therapy sheets scattered across the floor, a half-empty water bottle perched precariously on the edge of the table, and an unidentifiable sticky substance smeared on the armrest of the reclining chair. This wasn't how she envisioned starting her Thursday morning.  Her patient, a cantankerous 82-year-old named Harold Jenkins, had been particularly resistant to his exercises, opting instead to unleash a tirade against the "idiocy" of modern medicine and the "uselessness" of occupational therapy.
+
+The setting sun cast long shadows across the room as Amelia sighed and picked up the crumpled sheets, her gaze drifting out the window towards the bustling city below.  New York City never seemed to sleep, its constant hum a comforting backdrop to the quiet drama unfolding within the walls of the St. Anthony's Rehabilitation Center. It was here, amidst the triumphs and frustrations, that Amelia found purpose.  But today, even the familiar comfort of her routine couldn't mask the weariness settling in her bones. Harold Jenkins had been pushing her buttons all morning, and she needed a break.
+
+

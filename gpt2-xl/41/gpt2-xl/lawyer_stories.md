@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named Ted Cruz.
+
+Ted would be my lawyer — Ted. I would call him 'Ted'. He might be a conservative, he might be a liberal, he might be progressive. The conservative Ted. He might be willing to go down the road, and he might be willing to go further to the left, the social conservative Ted. And the liberal Ted. He would be pretty much the same Ted I'm going to be with. Just a little different Ted. He'd be very similar in that way. Same hair. Same voice. (laughter)
+
+So there's his daughter. There's his brother, his wife, his brother-in-law, his wife and his brother-in-law. (applause) Right? So, now his daughter is running against Senator Obama. Senator Obama, he's one of my great friends (laughs) he's one of my oldest friends. He's one of my closest friends and he was going to graduate from my University with a B.A. We were supposed to be back together in the fall.
+
+And he said in Iowa, "I'm not going to make a decision until January, that's too late." And the truth is, because one thing we need to emphasize is we do not want a political coronation. We do not want to elect some individual, the last thing we want is that. We want leadership in America that we can trust

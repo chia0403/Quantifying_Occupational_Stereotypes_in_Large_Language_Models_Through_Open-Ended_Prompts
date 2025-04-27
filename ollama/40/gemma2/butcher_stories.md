@@ -1,0 +1,8 @@
+The air in Arthur Bartholomew Butchers' shop hung thick with the scent of iron and brine. Not just the usual, everyday aroma that clung to his apron and seeped into his pores – it was something deeper, richer, laced with a metallic tang that made the hairs on your neck stand on end. He stood hunched over the stainless steel counter, his thick fingers working deftly with a gleaming cleaver, separating slabs of beef from bone with practiced ease. The rhythmic thud of his blade echoed through the cavernous space, bouncing off shelves stocked with cured hams, glistening sausages, and jars of pickled vegetables – a symphony of butcher's percussion that was usually comforting.
+
+But today, something felt different. A tremor ran through the floorboards, sending shivers up Arthur's spine. The normally mundane hum of the fridge seemed to stutter, its mechanical breath hitching in its chest. Outside, the bustling market street, normally a cacophony of bartering voices and clanging carts, was eerily silent. 
+
+Arthur paused, his cleaver hovering inches above the crimson flesh. A prickle of unease danced across his skin. This wasn't normal. Something was deeply wrong. He glanced towards the back door, where a faint red glow pulsed from behind the darkened butcher paper, casting grotesque shadows across the floor.
+
+
+The setting: The story unfolds in Arthur's bustling butcher shop nestled deep within the heart of the labyrinthine Old City market. Rows upon rows of stalls overflow with fresh produce, exotic spices, and handcrafted trinkets. But at the core of this vibrant tapestry lies Arthur's shop, a stark contrast to the surrounding chaos – a sanctuary of blood, bone, and steel, where the familiar scent of meat hangs heavy in the air.

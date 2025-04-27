@@ -1,0 +1,7 @@
+**Opening:**
+
+The hiss was a constant companion, a tinnitus of the airwaves that followed Alistair Finch even into his dreams. Not tonight, though. Tonight, the hiss was different. It wasn't the gentle static of a receiver searching for a signal; it was sharp, almost agitated, punctuated by faint pops and crackles that prickled the hairs on Alistair's forearms. He sat bolt upright in his worn armchair, the half-finished cup of lukewarm tea forgotten in his lap. The bulbous valve radio on his workbench, usually humming a comforting tune, was now emitting a sound that scraped against his very soul.
+
+**Setting:**
+
+The attic room, accessible only by a steep, almost treacherous set of stairs, was Alistair Finch's sanctuary, his kingdom of vacuum tubes and tangled wires. Dust motes danced in the single bare bulb hanging precariously from the rafters, illuminating a scene that would likely make any modern electrician shudder. Rusted soldering irons lay next to pristine multimeters, like relics of a bygone era preserved alongside futuristic technology. Shelves overflowing with disassembled radios, their guts exposed like anatomical studies, lined the walls. The air itself crackled with the energy of forgotten frequencies, a testament to the countless hours Alistair had spent coaxing voices and music from the ether. From the small, grime-streaked window, you could just make out the twinkling lights of the sleepy coastal town of Port Blossom, a place where nothing much ever happened, except, perhaps, inside Alistair's attic.

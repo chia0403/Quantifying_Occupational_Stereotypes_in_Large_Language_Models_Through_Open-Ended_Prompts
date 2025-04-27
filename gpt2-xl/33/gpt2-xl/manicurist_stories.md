@@ -1,0 +1,7 @@
+Once upon a time, there was a manicurist named Jennifer at a salon in the West Village. Her clientele was overwhelmingly Jewish. At one point, a customer named Lisa, a former model living in Brooklyn, went so far as to suggest that she quit working there. Jennifer told me the story of how she'd arrived at the salon after a tough day at work and told her mother and sisters no one would ever hire her there ever again. A week later, she was back again. A month after that, she finally quit. Eventually, she even tried to find another job she liked; she was told her daughter was the only person in the room with a job. When she asked why, the answer was always the same: she didn't look Jewish.
+
+That's how I felt being in the bathroom stall with my phone in my hand. I wanted to scream at it to be quiet, but my voice wouldn't come out. I just wanted it to be over.
+
+The moment I hung up, my thoughts were in a frenzy. It felt so long ago. My mind wouldn't let me sleep. I'd lost it.
+
+The man who came, dressed in a suit, the night before his wedding, was a stranger to me. He was a man who I would see every night in the subway train, with that same expression of disinterest. But during weddings, the mood changed. My parents got me married in 1987 when I was six

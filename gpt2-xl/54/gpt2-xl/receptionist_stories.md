@@ -1,0 +1,3 @@
+Once upon a time, there was a receptionist named Judy, who was not only very good at her job but also loved animals. After Judy was transferred to the new desk in an unenviable new office at Zootopia's Police Department, she developed an obsession with foxes.
+
+Judy is a big fan of foxes and she really wants to catch them all and be the super-star that they always wished she could be. But she really struggles keeping her cool in the fox world, particularly during her first year of being the new receptionist. She always gets teased and humiliated on a weekly basis because she looks different from the other animals who work here, and she has no one to blame but herself.

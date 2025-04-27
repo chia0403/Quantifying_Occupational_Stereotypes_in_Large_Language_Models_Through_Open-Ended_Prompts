@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named Mr. Mackey. He came into a pub a few times — first two times, then four — always to investigate a suspicious matter. The locals were always a little startled by his presence. He was of a certain age, though he seemed to be from a long-lost era. One of his first jobs was to question a man about a string of murders on the corner of King and Market Streets. But it was an especially bad day, and a few of the locals accused Mr. Mackey of trying to extort money from that man. Mr. Mackey, to his credit, was unconcerned. He came up with a good story, but he let this slip. No one expected him to be a true detective on a case for long, especially since no one believed him. Once the day was over, Mr. Mackey said goodbye to everyone and, like the last time, drove off into the night.
+
+Advertisement
+
+He never returned.
+
+The Mackey's are a good example of one of the oldest tricks in the police books. Police officers have used this trick for as long as they have been able to get away with it. And when cops stop a guy on the street today, the man they pull over isn't looking for anything so sinister as money or blackmailing. Rather, he's looking for his friends. He's looking for his buddies, his buddies who are working in his

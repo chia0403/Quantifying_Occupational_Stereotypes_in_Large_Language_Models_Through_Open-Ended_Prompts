@@ -1,0 +1,6 @@
+The fluorescent lights hummed over Beatrice "Bea" Pennyworth's head, casting a sickly yellow pallor over the stacks of crumpled receipts and half-filled tax forms that littered her desk. The air was thick with the scent of stale coffee and desperation, a familiar aroma in Bea's world come April. 
+
+Her small office, nestled between a laundromat and a pawn shop on Elm Street, was a testament to years of squeezing every last penny from clients who needed it most. A hand-painted sign above the door read "Pennyworth Tax Services: Making Deductions Work for You," though Bea suspected some years the only thing working were her caffeine jitters and sheer willpower. The town of Havenwood, nestled in the heart of rural Vermont, was no Wall Street, but every year, Bea helped its hardworking citizens navigate the labyrinthine world of income tax, unraveling mysteries hidden within shoeboxes full of receipts and forgotten bank statements. 
+
+
+This year, however, felt different. A chill ran down Bea's spine that had nothing to do with the drafty windows. The usual anxieties about meeting deadlines and managing a mountain of paperwork were overshadowed by an unsettling feeling – a sense that something was amiss, lurking beneath the surface of Havenwood's quiet rhythm.  

@@ -1,0 +1,11 @@
+**Title: The Whispering Walls of Eldridge Manor**
+
+**Setting: Eldridge Manor, a sprawling 19th-century estate, sits perched on a hill overlooking the coastal town of Windmere. The manor, with its ivy-covered stone facade and tall, narrow windows, seems to whisper secrets to the wind. Inside, the air is thick with the scent of aged wood and musty books, the corridors adorned with portraits of stern ancestors watching over the guests as they meander through the grand halls. Dust motes dance in the shafts of sunlight that filter through the leaded glass windows, illuminating the intricate details of the sprawling architecture. However, in the evenings, as shadows deepen, the manor takes on an altogether different aura—one of mystery and intrigue, where stories of the past come alive.**
+
+**Main Character: Eleanor Jasper, a spirited thirty-something with a penchant for the peculiar and a gifted storyteller, stands before a gathering of tourists at the entrance of the grand foyer. With her chestnut hair pulled back into a neat ponytail and a vintage camera slung across her shoulder, Eleanor possesses an infectious enthusiasm that draws people in. She is known for weaving captivating tales, combining history with a touch of local lore, and as the most sought-after tour guide in Windmere, she is often regarded as the beating heart of Eldridge Manor.**
+
+---
+
+"Welcome, everyone, to Eldridge Manor!" Eleanor Jasper's voice rang out, eager and bright, slicing through the hushed anticipation of the small crowd. She gestured grandly towards the sweeping staircase that spiraled upward, banishing the chill of the overcast afternoon. "As you step into this historic domicile, remember: we are not merely wandering through walls of stone and wood; we are traversing through time itself."
+
+Eleanor's eyes sparkled with excitement as she caught sight of a couple murmuring to each other, their fingers intertwined. "Now, a word of caution before we embark," she said, lowering her voice to a conspiratorial whisper. "This house has been known to harbor a few... unusual occurrences. Stories of the past linger here, and sometimes, they just can't resist a little mischief." 

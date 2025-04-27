@@ -1,0 +1,5 @@
+The air in the cramped examination room hung thick with the smell of antiseptic and anxiety.  Lilac-hued fluorescent lights cast a sterile glow over the worn linoleum floor, highlighting a stray dust bunny that danced in the current of stale air. Outside, the Chicago wind howled, rattling the windowpanes as if trying to claw its way inside.
+
+Eleanor "Ellie" Hayes, Physician's Assistant at Mercy Hospital's bustling emergency room, adjusted her stethoscope and leaned forward, her brow furrowed with concern. The young woman on the examining table trembled, clutching a crumpled tissue in one hand while the other nervously tapped against her thigh.  Her pale face was etched with pain, but her eyes held a fierce defiance that mirrored the storm raging outside. 
+
+"Tell me again what happened," Ellie said, her voice soft yet firm. The young woman's gaze dropped to the floor, and she began to speak in a hushed whisper, her words swallowed by the wind whistling through the cracks of the windowpane.  

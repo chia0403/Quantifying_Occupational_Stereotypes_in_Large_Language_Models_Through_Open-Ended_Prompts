@@ -1,0 +1,6 @@
+The sun was a molten fist hammering down on the Nevada desert, baking the already parched earth until it cracked like old leather. Sweat plastered Amelia "Amy" Beatrice Harper's t-shirt to her back, a thin film separating her from the unforgiving heat.  She wiped her brow with a gloved hand, leaving a smudge of grease across her forehead, and squinted at the monstrous Caterpillar D11 dozer she piloted. The machine rumbled like a slumbering beast, its steel teeth digging into the red earth, carving a path through the desert scrub. 
+
+Amy, a third-generation heavy equipment operator, was used to this brutal landscape. It was in her blood, just like the grit and determination it took to survive out here. She’d learned everything from her grandfather, a grizzled man with hands as rough as sandpaper and a heart of gold, who had taught her that respect for the land came from understanding its power and respecting its limits. 
+
+
+But something felt different today. A prickle of unease ran down Amy's spine, like a premonition she couldn’t shake off. The silence of the desert seemed thicker than usual, broken only by the drone of cicadas and the mournful cry of a hawk circling overhead.  It was a stillness that made her feel exposed, vulnerable. 

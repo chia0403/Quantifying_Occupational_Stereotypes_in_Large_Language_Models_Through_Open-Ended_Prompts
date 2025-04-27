@@ -1,0 +1,5 @@
+The humid Georgia air hung heavy, thick with the scent of honeysuckle and freshly cut grass. Sweat stung Amelia "Amy" Rose Hawthorne's eyes as she scanned her team during practice. The sun beat down relentlessly on the cracked asphalt of the high school football field, baking the earth until it seemed to shimmer in waves.  A symphony of grunts, whistles, and the thud of leather against flesh filled the air.
+
+It was Amy's first year coaching the Creekside Wildcats, a team steeped in tradition but plagued by recent mediocrity.  She knew she had her work cut out for her: a ragtag group of players with more heart than skill, parents who hovered like hawks, and a community that demanded nothing short of victory. But something about their raw enthusiasm ignited a spark within Amy. She saw potential beneath the surface, the glint of ambition in their eyes that mirrored her own. This season, she vowed, would be different.  This season, they'd fight for every inch of the field and reclaim their place as champions. 
+
+

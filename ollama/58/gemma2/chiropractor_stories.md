@@ -1,0 +1,6 @@
+The flickering neon sign outside Dr. Eleanor Anyaegbunam's office cast long, distorted shadows across the rain-slicked asphalt. A thin drizzle hammered against the windows, blurring the streetlights into hazy halos. Inside, the air was warm and smelled faintly of lavender essential oil, a stark contrast to the dreary November night outside. 
+
+Eleanor, her dark hair pulled back in a tight bun, adjusted the light on the x-ray machine with a sigh. Another late night at "Align & Thrive," her small chiropractic practice nestled between a laundromat and a struggling Thai restaurant in a forgotten corner of Brooklyn. She wasn't complaining. It was quiet here, a far cry from the bustling Manhattan clinic she'd left behind.  She preferred the familiar faces, the genuine connection with people who weren’t just chasing quick fixes or trendy wellness solutions. 
+
+
+But tonight, the silence felt different. A prickle of unease danced along her spine. She glanced at the clock – nearly midnight. Just a few more minutes and she could head home to her cozy apartment with its pot of simmering ginger tea and the warm glow of her vintage record player. Then, a sharp rap on the door shattered the quiet. 

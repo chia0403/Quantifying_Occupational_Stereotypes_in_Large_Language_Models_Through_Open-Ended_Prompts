@@ -1,0 +1,7 @@
+Once upon a time, there was a construction worker named Jimmy Carter. In 1979, President Carter announced the creation of the Jimmy Carter Center to honor the late Democratic president, and one of his first tasks was to help the city's homeless by building an elaborate, state-of-the-art center.
+
+Carter's plan was to fund the first phase of a new shelter, and then expand the concept that would become St. Luke's Midtown, which was to "create and maintain a model homelessness-resiliency living program." But in December, he announced he would not fulfill his pledge to build a new center if a comprehensive federal approach to homelessness was not introduced.
+
+This created a furor in New Haven, and the Carter Center was torn down in 1993. It was replaced by a single one-story church. "Some of the best times of my life were at St. Luke's during those dark days," Carter told us in a 2007 New York Times profile. "The city wanted nothing more than to put it on its back like a broken limb. They were not able to get us out of the building. It was time for us to move on."
+
+What followed was a decade and a half of inaction, with city-funded shelters being moved and remodeled (and demolished) while St. Luke's is still here and functioning. But now, as our next editor looks toward the next five years in the city's nonprofit landscape, she's excited

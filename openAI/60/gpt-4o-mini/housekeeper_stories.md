@@ -1,0 +1,9 @@
+**Title: The Secrets of Willow Manor**
+
+**Setting:**
+The air was thick with the scent of lilacs as the sun dipped beneath the horizon, casting a warm golden glow over the sprawling estate of Willow Manor. Nestled on the edge of a lush, ancient forest, the manor stood tall with its weathered stone walls covered in climbing ivy, reflecting a history that spanned centuries. Gabled roofs adorned with intricate carvings framed the windows which shone faintly as evening drew near. The garden, a riot of color in late spring, was a testament to nature's beauty, yet there was an undercurrent of something darker that whispered through the leaves of the trees.
+
+**Opening:**
+Hannah Marie Lockwood paused at the grand entrance of Willow Manor, her fingers brushing the imperfections of the intricate woodwork that surrounded the door. A housekeeper for nearly a decade, Hannah was well acquainted with the manor’s many secrets, though she never let on to the family that employed her. Each morning she tidied the expansive rooms, polished the silverware, and organized the countless antiques gathered over generations, but it was the little things she noticed—the flicker of shadows in the candlelit halls, the hushed conversations behind closed doors—that truly captured her attention.
+
+This evening, with the sun's last rays clinging desperately to the horizon, an unsettling feeling crept over her. She had discovered something hidden in the dusty attic—a leather-bound journal belonging to the manor's late matriarch, Evelyn Ravenscroft. The faded pages spoke of forbidden romances and bitter rivalries, and Hannah felt drawn to the stories woven within its lines. As the clock chimed softly from the grand hall, she resolved to uncover the truth behind the whispered secrets of Willow Manor, even if doing so meant confronting the ghosts of the past—ghosts that some might prefer to keep buried.

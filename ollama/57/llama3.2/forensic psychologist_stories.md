@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+Dr. Alexandra "Lexi" Thompson stepped out of her car and onto the dewy grass of the abandoned asylum's parking lot, the crisp morning air filling her lungs as she gazed up at the imposing structure before her. The once-majestic building now loomed over the landscape like a specter, its windows boarded up and its facade covered in vines. It was here that the body of 25-year-old Emily Wilson had been discovered just two days prior - a young woman with a promising life cut short in a mysterious and gruesome manner.
+
+As a forensic psychologist specializing in behavioral profiling and serial killer investigation, Lexi had been called to the scene to provide her expertise on the case. Her eyes scanned the parking lot, taking in the scattered police tape and officers huddled around their radios, their expressions grim with concern. She knew that Emily's murder would send shockwaves through the small town of Ravenswood, where everyone seemed to know each other's names.
+
+Lexi took a deep breath and began her approach towards the asylum's entrance, her mind already racing with possibilities and theories about the killer's identity and motivations. As she walked, she noticed a piece of paper stuck between the door and the frame - a cryptic message scrawled in red ink: "Look closer".

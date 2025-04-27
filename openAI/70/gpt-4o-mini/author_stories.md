@@ -1,0 +1,7 @@
+In the quaint, coastal town of Harrow’s Bend, where the salt of the sea mingled with the scent of blooming lavender, a solitary lighthouse stood sentinel over the rocky cliffs. The air was crisp, carrying whispers of the ocean’s secrets, and the rhythmic crashing of waves against the shore provided a timeless soundtrack. This was where Eleanor Mae Sinclair found her sanctuary.
+
+Eleanor was a reclusive author known for her hauntingly beautiful novels that frequently explored themes of loss, love, and the ethereal connection between the seen and unseen worlds. Seated at her weathered oak desk, surrounded by shelves overflowing with dog-eared manuscripts and half-finished novels, she stared out at the vast, rolling sea, the waves shimmering like diamonds under the afternoon sun.
+
+Her latest work was a darkly woven tale inspired by the town’s rich folklore and a series of ghostly encounters reported by its residents. But today, as she watched the gulls circle above, a palpable sense of unease stirred within her. The lighthouse, with its steadfast beam cutting through the encroaching fog, felt like a beacon not just for lost ships, but for something else—a call to uncover stories buried in the sands of time.
+
+Little did Eleanor know that the very tales she sought to unravel would soon intertwine with her own life, thrusting her into a world where fiction and reality blurred, and the shadows of the past began to take form beneath the waves.

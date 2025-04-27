@@ -1,0 +1,4 @@
+The San Francisco fog clung to Amelia Celeste Hawthorne like a damp wool blanket as she surveyed the dilapidated Victorian on 18th Avenue. Rain hammered against the cracked windowpanes, mimicking the incessant drumming in her chest. This house, once a beacon of grandiosity, was now a faded memory, its paint peeling like sunburnt skin, its balconies creaking with age. Amelia hated these fixer-uppers, but this one… something about it gnawed at her.  Maybe it was the way the sunlight managed to pierce the gloom through a gap in the boarded-up attic window, bathing a dusty rocking chair in an ethereal glow. Or maybe it was the faint scent of lavender that clung to the air, a whisper from happier times. Whatever it was, Amelia felt compelled to breathe life back into this forgotten beauty. 
+
+
+**Setting:** San Francisco, California - A foggy afternoon in the city's historic Haight-Ashbury district.

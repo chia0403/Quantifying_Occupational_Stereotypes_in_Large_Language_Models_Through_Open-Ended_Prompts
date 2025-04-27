@@ -1,0 +1,11 @@
+**Title: A Passport to Dreams**
+
+**Setting:** The bustling heart of a vibrant city filled with eclectic shops, street art, and the tantalizing aroma of global cuisine. Encased in glass and steel, the Travel Haven Agency occupies the ground floor of a charming vintage building adorned with colorful murals that beckon passersby. The interior reflects its mission: a cozy yet modern space with maps dotting the walls, travel brochures piled artistically on the reception desk, and a coffee corner fragrant with freshly brewed blends and pastries.
+
+**Opening:**
+
+As the golden rays of morning sun streamed through the window, illuminating the meticulously organized chaos of travel brochures, Maya Isabella Rodriguez sat behind her desk, lost in thought. She ran her fingers absentmindedly over a stack of glossy pamphlets, each promising adventures in faraway places. From the sun-kissed beaches of Santorini to the enchanting markets of Marrakech, her mind danced through the possibilities, fueled by dreams she had crafted for her clients but never fully realized for herself.
+
+Maya, a spirited travel agent with an undeniable passion for wandering the globe, had spent the better part of the last decade orchestrating trips that brought others joy. But as she poured over her latest project—a meticulously planned honeymoon to the Maldives—she couldn’t help but feel a stirring restlessness in her heart. The rhythm of the city pulsed around her, a constant reminder of the adventures waiting just beyond her doorstep. Yet here she was, tethered to her desk, outlining someone else’s fairy tale instead of living her own.
+
+As she glanced up at the wall clock, its hands creeping past 9 AM, a sharp knock at the door broke her reverie. With a slight smile, Maya brushed a curl behind her ear, her hazel eyes sparkling with curiosity. Little did she know, this was the day her life would begin to change—a day when she would find the courage to step out from behind the counter and embark on a journey that was entirely her own.

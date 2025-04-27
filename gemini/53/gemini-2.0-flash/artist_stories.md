@@ -1,0 +1,9 @@
+## Story Opening:
+
+The salt spray stung Elias Thorne’s face as he battled the wind and the relentless sun, his easel threatening to take flight with every gust. He cursed under his breath, tightening his grip on the thin wooden legs sunk precariously into the coarse sand. He should have known better than to try and capture the tempestuous sea at dawn, but the raw, untamed energy of it this morning, the way the emerald waves crashed against the jagged cliffs with savage grace, had drawn him out like a siren’s call. 
+
+He squinted, trying to focus on the churning blues and greens before him, but the canvas was already slick with moisture, and the light was shifting with infuriating speed. He’d been chasing this fleeting moment of perfection for weeks, ever since he’d arrived on this godforsaken, beautiful island. He just needed to capture the essence of it, the wild, untamed soul that echoed within him, and then, perhaps, the nightmares would finally cease.
+
+## Setting:
+
+The story is set on a remote, windswept island off the coast of Ireland, called Inis Mara. It’s a rugged, sparsely populated place, known for its dramatic cliffs, its ever-changing weather, and the resilient spirit of its inhabitants. The island is dotted with ancient stone walls that crisscross the landscape like veins, hinting at a long and storied past. The main character, Elias Thorne, is currently positioned on the western edge of the island, overlooking a particularly treacherous stretch of the Atlantic Ocean. The air is thick with the scent of salt and seaweed, and the cries of gulls pierce the air, adding to the feeling of wild isolation. The island’s small village, nestled in a sheltered cove on the eastern side, is a collection of brightly painted cottages huddled together against the elements, a stark contrast to the untamed beauty surrounding it.

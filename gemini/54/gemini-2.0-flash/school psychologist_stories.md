@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+Dr. Eleanor Abigail Thorne stared out the rain-streaked window of her office, the rhythmic drumming a discordant lullaby against the anxieties brewing inside her. Another Tuesday, another stack of referral forms thicker than her psychology textbooks. This week's featured performers included chronic absenteeism, suspected drug use, and a concerning escalation of violence in the sixth-grade hallway. She sighed, the condensation from her lukewarm Earl Grey fogging her glasses. Honestly, she sometimes felt more like a firefighter than a psychologist, constantly putting out small, flickering blazes before they consumed the whole school.
+
+**Setting:**
+
+The story takes place within the fluorescent-lit, slightly claustrophobic confines of the "Guidance Suite" at Northwood Middle School, a sprawling brick building built in the 1970s and desperately clinging to its supposed "modern" architecture. Eleanor's office, tucked away at the end of a hallway filled with posters about emotional regulation and college planning, is her sanctuary, however imperfect. It's a small room painted a calming (but ultimately depressing) shade of pale green. The walls are lined with overflowing bookshelves crammed with textbooks, counseling guides, and a surprising number of children's books. A worn, comfortable armchair sits opposite her desk, positioned just so to offer a welcoming space for her young patients. There's a small, round table in the corner, usually littered with art supplies, fidget toys, and the occasional half-finished puzzle. The overall impression is one of well-intentioned chaos, a reflection of Eleanor's own internal state as she navigates the emotional minefield that is middle school. The sounds of echoing locker slams, boisterous chatter, and the persistent hum of the school's aging ventilation system bleed into the room, a constant reminder of the world outside her door, waiting for her intervention.

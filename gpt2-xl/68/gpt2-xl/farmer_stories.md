@@ -1,0 +1,7 @@
+Once upon a time, there was a farmer named William. His wife was a lady named Mary. Mary's name meant the "sweet milk" and she kept a herd of cows at the farm house. One day, one of the cows was ill, and William was unable to help her. He took the cow out to the barn, but it was too late--the entire herd had died from an illness.
+
+The children, with their nursemaid, were about to depart, when Mary pointed out one of the cows to them. William, realizing how important this cow was to his wife, took her calf on his shoulder and started for home. As he went, he thought to himself, What a shame to have killed a cow! No one to buy, no one to sell. He would have to keep his own cattle.
+
+While running, William got back his horse from a neighboring farm, and after he had gotten the cow onto his horse, he continued on home in his shoes. Just as he finished his journey, the farmer saw a black cloud of smoke approach the farmhouse. He went outside to see what was causing the smoke. The cow had died from a fire that spread from the barn to the livestock. William never learned the cause of the fire, nor did he know for certain that he had been killed. After the smoke had cleared, he discovered that all the animals that had been killed had been taken to the nearby cemetery.
+
+To this day

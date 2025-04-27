@@ -1,0 +1,5 @@
+The sun, a molten orange orb sinking into the horizon, cast long shadows over the construction site, turning the dusty earth into an ochre canvas for the approaching dusk.  Every other machine had gone silent – their metallic groans replaced by the chirping of crickets and the rhythmic hum of distant cicadas – except for one: the colossal yellow excavator, "Big Bertha," its hydraulic arms held steady as if awaiting command.  
+
+Inside the cab of Big Bertha, sat the 36-year-old behemoth of a man known simply as **Reginald “Reggie” Stone**. He was an absolute titan in his own right, six foot five and built like a bulldozer with thick calloused hands that knew every inch of a heavy machine. His face, weathered and creased by years under the harsh sun, held a stoic calmness that belied the storm raging beneath its surface.  Reggie’s eyes – wide and deep, like pools reflecting the vastness of the sky – scanned the site with a critical gaze, looking for anything amiss. The only sound was the low hum of Big Bertha's engine, a lullaby of steel and grit that had become a familiar soundtrack to his life. 
+
+

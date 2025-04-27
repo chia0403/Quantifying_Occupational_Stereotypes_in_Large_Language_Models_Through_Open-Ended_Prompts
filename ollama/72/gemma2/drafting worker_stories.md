@@ -1,0 +1,6 @@
+The whirring of the pneumatic tube system was the only sound that broke the silence in Drafting Room 3.  Amelia Beatrice Hawthorne, blueprints spread across her mahogany desk like a city map waiting to be built, barely registered it. Her pencil danced across the vellum, bringing to life the skeletal structure of a proposed high-rise apartment building – steel and glass reaching for the smog-choked sky of Neo-London. 
+
+Her brow furrowed as she scrutinized a detail: the ventilation shafts. They were too narrow, not allowing for adequate air flow within the building's core. A groan escaped Amelia’s lips, a small puff of frustration in the otherwise sterile room. Another impossible design pushed onto her by the overzealous architects. 
+
+
+The year was 2147. Neo-London, a sprawling metropolis built on the ashes of the old world, pulsed with a relentless energy. The towering metal and glass structures clawed at the sky, their inhabitants oblivious to the ever-present threat of resource scarcity and political unrest that simmered beneath the surface.  Amelia, however, wasn't interested in the grand spectacle of Neo-London. She found solace in the meticulous details, the logic, and the beauty of a well-drawn blueprint – a world she could control, a world she understood. 

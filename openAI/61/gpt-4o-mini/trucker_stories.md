@@ -1,0 +1,11 @@
+Title: "Highway Shadows"
+
+Setting: It was just past dawn in the sprawling plains of Nebraska, where the sun emerged slowly, casting a golden hue over the undulating fields of wheat. The endless curves of Highway 80 stretched through vast emptiness, punctuated by distant silos and the occasional rundown diner. The sound of the wind whistling through the cracks in the windshield harmonized with the low rumble of the diesel engine, a melody familiar to those who traversed the open road.
+
+Opening: 
+
+Jasper ‘Jace’ Mitchell peered out from behind the thick, glass shield of his cab, squinting against the rising sun as he adjusted his favorite trucker hat—an old camo piece, frayed at the edges but paid with pride. It sat low atop his head, a part of his rugged persona, with tufts of dark hair escaping from underneath. The vastness of the highway before him seemed both daunting and liberating, a reminder of the miles he’d travel before the day came to an end. A thick belt of coffee rested in the cup holder beside him, and the scent of freshly delivered freight filled the air, mingling with the faint notes of engine grease and leather.
+
+As a long-haul trucker for over a decade, Jace had seen his fair share of road adventures and misadventures. But that morning felt different; a sense of unease tugged at him. It wasn’t just the thrill of a new route or the anticipation of a fresh load. No, something deeper—like a warning whispering through the air—had settled over him as he took the on-ramp and merged onto the highway. The hum of the tires against the asphalt was a rhythm he knew well, yet today it felt like a drumroll, heralding an unknown journey waiting to unfurl.
+
+Adjusting his rearview mirror, he caught a fleeting glimpse of the vast stretches behind him—a line of emptiness leading to wherever destiny would take him. With a deep breath, Jasper ‘Jace’ Mitchell revved the engine, ready to tackle whatever lay ahead on this sun-drenched road. But as the yellow lines blurred past, he couldn’t shake the feeling that something—or someone—was waiting in the shadows of the asphalt, just out of sight.

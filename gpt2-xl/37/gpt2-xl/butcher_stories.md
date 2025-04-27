@@ -1,0 +1,7 @@
+Once upon a time, there was a butcher named Charlie, who loved to cook. While other boys got to play soccer, Charlie would watch football. That way, he could figure out if football was for him, if football players had brains, if football players had character. When he grew up, Charlie became a butcher and later a butcher trucker. One day, he was sitting in his truck. He began to think about what kind of meat he liked to eat. He liked meat from animals raised on organic farms. He also liked to look at pictures of his relatives, because he loved the way that they looked. One day, he saw a picture of his wife as a child.
+
+Charlie's father was a good man, and Charlie himself was raised to respect him as a father. But Charlie's mother was a bad man, a liar, a harlot. "She cheated on me when I was very young," he remembers. She was a prostitute, living with a man who, as it turns out, was a spy and a drunk. After a few years of this, Charlie left home to avoid his parents' arguments. He returned home, stayed at his mother's. At night, he watched her perform sexual acts on the neighbor who lived next door.
+
+When he was 20, Charlie tried the first time to commit suicide. They stopped him.
+
+Eventually, Charlie decided he was done being a butcher—and it's hard to believe that would have

@@ -1,0 +1,5 @@
+The sun beat down on Elias Thorne's neck, a relentless hammer against his already aching muscles. Sweat stung his eyes as he wrestled another steel beam into place, the metal groaning like a wounded beast under his effort.  Dust kicked up in thick clouds around him, obscuring the skeletal remains of what would soon be the city's newest skyscraper – The Zenith. Elias imagined it gleaming under the summer sun, a beacon of progress against the sprawling concrete jungle that was their world. But for now, all he saw was grime, exhaustion, and the relentless march of the clock.
+
+The setting was New Angeles, a sprawling metropolis perpetually choked by its own ambition. A city built on dreams and dust, where towering skyscrapers clawed at the smog-filled sky, and shadows stretched long and menacing in the alleys between them. Construction sites were everywhere, scars on the city's landscape, reminders of the constant struggle to expand, to build, to reach ever higher. Elias was just another cog in that machine, a nameless face amidst the swarm of workers who brought these giants to life.  
+
+

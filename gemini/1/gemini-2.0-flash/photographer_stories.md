@@ -1,0 +1,5 @@
+Okay, here's a story opening with setting and our main character, a photographer:
+
+**Story Opening:**
+
+The salt-laced wind whipped at the frayed edges of Anya Petrova’s scarf, stinging her cheeks as she peered over the crumbling stone wall. The lighthouse, a stark white finger pointing defiantly at the bruised sky, was exactly as she remembered it from her childhood – a sentinel against the relentless embrace of the Baltic Sea. But the village clinging to the cliffs below, Kiviõli, was fading, each year another house succumbing to the encroaching tide and the silent march of economic hardship. Anya tightened her grip on her battered Leica, its cool metal a familiar comfort against the biting chill. She had come back, after ten years away, to capture what was left, to document the slow death of a place she both loved and resented. The ghosts of her past whispered in the roar of the waves, each crash a reminder of the promises she made to herself, and the guilt she felt for breaking them. Today, she would start with the lighthouse, the last beacon of hope in a town consumed by shadow.

@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Tim Fenton. He had an amazing job, capturing stunning shots from the back of helicopters, hovering in low-flying helicopters in Iraq, and taking images of explosions from his bed. Not long before the war, he came across an incredible image of a man in a hospital bed in Baghdad who was giving a little boy his first ever glimpse of a helicopter. The photograph made its way around the world and was even featured in The Guardian.
+
+The photograph was actually just an incredible optical illusion brought on by an exposure time of just 1/50th of a second. The entire picture was a computer generated projection: The man and the child could not be seen by the naked eye. But Fenton saw what looked like two separate helicopters, the boy saw two images and he was instantly hooked. He decided to take a lot more pictures like that in front of the boy, and he spent the next 10 years taking them.
+
+Tim left the picture house in 1997 and went home to New Zealand. Tim has since become an acclaimed photographer again, but in fact Tim never left the photograph house in the first place. He has just changed the name to Tim Fenton Photographic Illusions. It's like if a Hollywood actor were to name his new reality TV show "What's My Face".
+
+Tim Fenton's latest project is called "No One Is Safe", a photo-visual diary of the Syrian Civil War that was recently

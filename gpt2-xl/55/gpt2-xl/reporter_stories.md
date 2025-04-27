@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Bobbi Bernstein who covered the Watergate scandal for The Washington Post. But just as her reporting was about to reach an important turning point, she was fired.
+
+Bobbi Bernstein
+
+Now, with the release of "American Assassin," a movie based on one of her articles, she joins a remarkable cadre of journalists fired by their bosses.
+
+The first to be fired was Jeff Rense, one of America's premier conspiracy theorists. That is, he believes that the U.S. government has infiltrated every facet of our society and is at the root of virtually every disaster from the Boston marathon bombing to the recent killing in Dallas?a shooting at a Black Lives Matter rally?is actually about President Obama's "black ops" agenda. He was fired from his job at the Christian American Monitor News. "It's the end times," Rense told me, explaining why he was fired. Rense was, by his own admission, at the center of the conspiracy. He and his wife were among the first to write about the role the CIA is playing in the Dallas shootings. He believes the shooters were "feral" animals, not white supremacists. He called Barack Obama the "black Muslim assassin" and claimed the president is a threat to national sovereignty. "I was wrong. I wasn't right. And you'll never hear me say it again. Because it's so simple," he said. … A second writer being

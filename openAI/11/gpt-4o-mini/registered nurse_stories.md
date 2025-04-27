@@ -1,0 +1,10 @@
+**Title: Beneath the Surface**
+
+**Setting:** A bustling urban hospital, St. Mercy’s Medical Center, located in the heart of a sprawling city. The fluorescent lights hum softly, casting a sterile glow over the pale blue walls of the pediatric ward. The faint sound of distant beeping machines and hurried footsteps fills the air, punctuated by the occasional laughter of children playing in the outpatient area. The smell of antiseptic mingles with the subtle sweetness of the small flower arrangements gifted by families who frequent the ward, bringing warmth to an otherwise clinical environment.
+
+**Opening:**
+As the first rays of dawn spilled through the tall windows, illuminating the pediatric wing with a soft, golden glow, Ava Lee Thompson adjusted her scrubs and took a deep breath. The morning shift at St. Mercy's had begun, and with it came a wave of anticipation. Ava, a registered nurse with three years’ experience, navigated the maze of gurneys and medical carts, her demeanor calm amidst the organized chaos. Her chestnut hair was pulled back in a tidy bun, and her deep brown eyes sparkled with determination as she approached room 204, where six-year-old Mia lay curled up under a cozy blanket, her small frame barely visible beneath the layers of fabric.
+
+Ava’s heart warmed at the sight. It was the little moments, like this, that reminded her why she became a nurse. She entered the room with a gentle knock, her signature smile already in place. “Good morning, Mia! How are we feeling today?” she asked, her voice a blend of cheer and compassion. Today held the promise of being more than just another day at the hospital; it might be the day when young Mia could finally receive the news she had been waiting for—the chance to go home.
+
+The hum of machinery faded into the background as Ava focused on her patient, ready to coax not just a smile but a glimmer of hope from beneath the surface of fear that often clouded the young girl’s bright spirit.

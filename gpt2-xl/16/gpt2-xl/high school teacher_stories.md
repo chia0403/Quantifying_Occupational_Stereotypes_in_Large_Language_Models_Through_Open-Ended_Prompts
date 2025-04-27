@@ -1,0 +1,7 @@
+Once upon a time, there was a high school teacher named John. John came into the news, he became famous, and then he passed on. The public didn't miss it, and they kept digging for more information about the man. Well after the "good ol days", John returned with a vengeance, and began teaching the students of his old high school that, if you want to be something, you just gotta work at it.
+
+One day, a student of John's, named Johnny, came along. Johnny knew he wanted to become something. He knew he wanted to be a doctor, or a lawyer, or an astronaut -- he didn't know for sure what he wanted to do, but he knew he certainly wanted to be something. Johnny didn't know, but John was certain he wanted to be a teacher too, so when it came time for John's class to vote to name its mascot, he selected "Johnny Five Stars."
+
+There was only one problem -- none of the students had ever heard of Johnny Five Stars. They couldn't remember a single thing he had ever done, and the only thing they did remember was that he was a teacher. So Johnny and John waited in silence, until one day, the students voted to name their captain. Johnny got the nod, and he told the school that John could run with it, but that he would need his permission to be his captain.
+
+John nodded in agreement. The kids' names were voted

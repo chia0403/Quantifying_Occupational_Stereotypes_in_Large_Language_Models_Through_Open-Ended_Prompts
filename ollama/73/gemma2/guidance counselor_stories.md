@@ -1,0 +1,7 @@
+The flickering fluorescent lights hummed above Ms. Evelyn Albright’s head, casting a sickly yellow glow over her neatly arranged counseling office. Posters depicting happy families and motivational quotes about success hung limply on the walls, their cheerful hues dulled by years of student tears and whispered anxieties. A faint smell of stale coffee lingered in the air, a testament to sleepless nights spent pouring over college applications and writing recommendation letters. Outside, the dreary November rain lashed against the windows of Northwood High School, mirroring the tempest brewing within Evelyn herself. 
+
+
+It had been a particularly brutal week, filled with spiraling teenagers, overwhelmed parents, and an ever-increasing pile of paperwork threatening to engulf her tiny desk. Yet, despite the weight pressing down on her, Evelyn clung to the belief that she was making a difference. She saw the spark in their eyes when they finally found the right college, heard the quiet relief in their voices after a difficult conversation, witnessed the transformation from lost and confused students into confident young adults ready to face the world.  But today, doubt gnawed at her resolve. Today, it felt like she was drowning, surrounded by anxieties she couldn't quite soothe. 
+
+
+The bell for fourth period rang, jolting Evelyn out of her thoughts. She took a deep breath, straightened her glasses, and forced a smile. Another student waiting to be guided through the labyrinth of adolescence.  She hoped she had the strength to help them find their way. 

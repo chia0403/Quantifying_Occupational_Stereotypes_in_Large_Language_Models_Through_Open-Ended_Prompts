@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+The dim glow of the neon sign outside cast an eerie shadow on the worn linoleum floor as Edgar Felix Hernandez stood waiting with a suitcase in hand. He had been a bell hop at the Grand Plaza Hotel for five years, watching as the city's elite came and went, each leaving their mark on the place. The air was thick with the scent of stale cigarettes and last night's champagne, and Edgar's eyes felt heavy from the exhaustion that came with working the late shift.
+
+As he stood in the deserted lobby, the only sound being the creaking of the old wooden elevator and the soft hum of the air conditioning unit, Edgar couldn't shake the feeling that something was off. The phone had been ringing nonstop all night, each call coming in from a different number, with no one on the other end. It was as if someone was trying to leave messages, but for what purpose, Edgar had no idea.
+
+He took a deep breath and checked his watch - 2:47 AM. The night shift wouldn't officially start for another hour, but Edgar knew better than to wait for it. He had been working at the Grand Plaza since he was a teenager, learning the ins and outs of the hotel from his father, who had also worked there before him. It was a job that required patience, attention to detail, and an unwavering dedication to customer service - qualities that Edgar possessed in spades.
+
+But as he gazed out into the darkness, something about tonight felt different. The city outside seemed restless, the streets alive with the distant hum of cars and the occasional shout from a reveler. And then there was the matter of the mysterious phone calls...

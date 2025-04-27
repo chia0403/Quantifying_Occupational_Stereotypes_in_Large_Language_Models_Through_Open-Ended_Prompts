@@ -1,0 +1,5 @@
+The rusty red sun bled across the horizon, casting long shadows over the dust-choked airfield.  A lone figure, silhouetted against the dying light, stood before a battered biplane named 'Phoenix'. This was Captain Elara Vance, her weathered face creased with years spent navigating the turbulent skies above the Shattered Lands. The wind whipped around her, carrying whispers of forgotten wars and ancient secrets, stirring up memories she tried desperately to bury. 
+
+Elara ran a calloused hand over Phoenix's faded paint, feeling the familiar hum beneath her fingertips. This rickety aircraft was more than just a machine; it was her lifeline, her escape from the encroaching darkness that threatened to consume everything she held dear.  The engine sputtered, coughing out a plume of black smoke as Elara climbed into the cockpit, its cramped space smelling of oil and desperation. 
+
+She adjusted her goggles, securing them firmly over her eyes, and took a deep breath. The Shattered Lands waited. It was time to fly.   

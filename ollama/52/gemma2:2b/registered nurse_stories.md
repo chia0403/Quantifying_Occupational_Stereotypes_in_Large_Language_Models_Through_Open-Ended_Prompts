@@ -1,0 +1,5 @@
+The salty air whipped Amelia's hair across her face as she stood on the observation deck of the Mercy Harbor hospital. Below, the waves crashed against the pier, churning whitecaps in the relentless storm. The wind moaned like a banshee, its mournful cry amplified by the echoing emptiness of the night. It was one of those nights that seemed to suck all the warmth out of your bones, leaving only a bitter chill and a deep sense of disquiet. 
+
+Amelia, RN on call for the night shift, clutched her black leather jacket tighter as she surveyed the wreckage below. A storm like this usually meant frantic calls from families who couldn't navigate the chaos or find their loved ones. But tonight felt different. Tonight, it felt like the silence spoke louder than any siren's cry. Tonight, something was brewing, a darkness that seemed to crawl out of the sea and settle in Amelia's gut.  
+
+**Amelia "Amy" Sinclair**, with her steely gaze and gentle touch, had dedicated her life to healing, yet tonight, she felt powerless against the unseen forces swirling beneath the surface of Mercy Harbor’s storm.  

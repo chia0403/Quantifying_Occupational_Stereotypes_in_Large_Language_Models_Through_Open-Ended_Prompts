@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Setting:** The year is 1888. London is shrouded in a perpetual grey, a mixture of coal smoke, fog rolling off the Thames, and the inherent melancholy of a city grappling with its own vastness. Narrow cobblestone streets wind like forgotten threads, leading to hidden squares and bustling market places. The air hangs thick with the cries of street vendors, the rumble of horse-drawn carriages, and the distant clang of metal from workshops. In the heart of Soho, nestled between a pungent butcher shop and a dimly lit pawn broker, stands a small, unassuming tailor shop with the name "Fine Fittings" etched in faded gold lettering above the door.
+
+**Story Opening:**
+
+The needle darted in and out, a silver flash against the dark wool of the coat lapel. Elara Thistlewick, her face etched with the unwavering concentration of a woman deeply absorbed in her craft, barely registered the rhythmic chimes of the Big Ben clock marking the hour of five. Outside, the November gloom was already deepening, turning the city into a labyrinth of flickering gaslights and looming shadows. Inside, however, the warm amber glow of Elara's oil lamp painted the shop in a comforting light, highlighting the neatly stacked bolts of fabric, the spools of thread in every imaginable colour, and the half-finished garments hanging patiently on mannequins.
+
+She inhaled sharply, a tiny prick drawing a bead of crimson from her fingertip. A curse, soft as the rustle of silk, escaped her lips. Frustration simmered beneath her calm exterior. This was her masterpiece, a bespoke coat for a particularly demanding, and undeniably wealthy, Lord Ashworth. Every stitch, every seam, had to be perfect. Her reputation, her livelihood, depended on it. And lately, that reputation felt as fragile as a silken thread snapping under pressure.

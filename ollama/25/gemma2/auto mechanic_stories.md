@@ -1,0 +1,6 @@
+The greasy tang of motor oil hung in the air like a thick fog, clinging to Amelia “Amy” Grace’s overalls and hair. Her knuckles were scraped raw from wrestling with a stubborn bolt on Mr. Henderson’s rusty Ford pickup, and her forehead was slick with sweat. She wiped it away with the back of her hand, leaving a streak of grime across her cheek.
+
+The setting sun cast long shadows across the cluttered workshop of “Amy’s Auto Angels,” casting everything in a warm, orange glow. Tools lay scattered like fallen soldiers on workbench scarred by years of use. A half-disassembled engine sat perched precariously on an old tire rack, its chrome parts glinting menacingly in the fading light.  A faded calendar hung crookedly on the wall, sporting a picture of a grinning mechanic holding up a gleaming prize-winning car – a far cry from Amy’s current project. 
+
+
+Mr. Henderson, his face creased with worry, shuffled back and forth nervously in front of his truck. He'd been driving it for over thirty years, its every rattle and groan a familiar comfort. Now, facing an engine rebuild at the twilight of its life, he felt a pang of loss that mirrored Amy’s own struggle to keep her father's legacy alive.  

@@ -1,0 +1,6 @@
+The air in the Oakhaven Library was thick with the scent of aging paper and dust motes dancing in the afternoon sunbeams slanting through the arched windows. It was Eleanor Beatrice Finch’s favorite time of day – the quiet lull before the after-school rush, when the only sounds were the rhythmic click of her antique typewriter and the rustling of pages turning elsewhere in the cavernous space. 
+
+Eleanor ran a gloved hand over the spine of a worn leather-bound volume, its title barely visible beneath layers of grime: “The Unseen Histories of Oakhaven.” It had arrived with the last donation – a peculiar collection of dusty journals and brittle maps from an unknown benefactor. Eleanor felt a familiar tingle of excitement; uncovering forgotten stories was what she lived for. 
+
+
+Oakhaven itself was a sleepy town nestled in the foothills of the Blue Ridge Mountains, its cobblestone streets lined with quaint shops and Victorian-era homes. The library, built in the late 1800s, was its beating heart – a haven for dreamers, researchers, and anyone seeking refuge from the bustle of everyday life. But lately, whispers of something strange had begun to circulate amongst the townsfolk: shadows flitting at the edge of vision, inexplicable occurrences, and stories passed down through generations about an ancient magic hidden within Oakhaven’s heart.  

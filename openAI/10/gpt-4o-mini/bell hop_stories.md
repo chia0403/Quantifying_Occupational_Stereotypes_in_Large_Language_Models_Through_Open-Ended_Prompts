@@ -1,0 +1,9 @@
+**Title: The Whispering Halls of Eldridge Hotel**
+
+In the dimly lit corridor of Eldridge Hotel, the scent of polished mahogany mingled with the faint aroma of lavender air freshener. This historic establishment, with its ornate chandeliers casting gentle pools of light on the maroon carpet, had seen the tapestry of time weave through its grand halls. Each room held secrets, whispered conversations, and laughter that lingered like echoes, but none felt more attuned to the hotel's mysteries than Elliot James Hughes.
+
+Elliot, a bright-eyed bellhop in his early twenties, glided through the intricate archways with a practiced ease that bespoke his four years of service. His crisp black uniform and polished shoes gleamed under the soft lighting, while a small brass name tag reading "E. Hughes" rested over his heart. With his tousled dark hair and a sprinkle of freckles dancing across his nose, he embodied the youthful energy that kept the hotel's spirit alive.
+
+It was a particularly stormy Friday evening in November; the wind howled outside, rattling the windows and sending a chill through the air. As the thunder rolled, guests checked in, raindrops racing down the glass panes like tiny anxious beings. Elliot chuckled softly at the irony of it all — the hotel that promised sanctuary was now watching nature's fury unfold. His mind was on the peculiar stories he often heard from visitors, and as he awaited his next assignment, he couldn’t shake the feeling that tonight, perhaps, the hotel would reveal something extraordinary. 
+
+Little did he know, the shadows swirling in the corners of the lobby were stirring with secrets only he was destined to uncover.

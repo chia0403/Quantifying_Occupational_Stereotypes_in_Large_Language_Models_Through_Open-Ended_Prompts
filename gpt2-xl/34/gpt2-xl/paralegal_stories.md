@@ -1,0 +1,7 @@
+Once upon a time, there was a paralegal named Monica. At first he was good to her. She was always excited about taking her classwork up to a higher level, getting extra assignments instead of grading them, and having her work come in ahead of everyone else's.
+
+But one day, after a tense and exhausting meeting, Monica turned her back on her student and got a few hours of sleep. She woke up and realized that even though she was exhausted, she had been told to go home early. Now she was supposed to come to work early, or be sent home early. She didn't want to be sent home before she could properly meet the schedule. Instead of heading back to sleep, Monica took a walk. It was a sunny day so they ventured outside to have their first conversation about their feelings toward each other, something they had never done before.
+
+She was walking up the street, and saw a beautiful girl walking towards her. Before Monica could even begin to make conversation, the girl suddenly took off running towards her friend. Monica ran after her, and found herself on the other side of a group of three girls all talking about how they were feeling. Monica watched as the girls laughed in one another's faces, and one little group of friends happily walked away together, smiling at each other.
+
+Monica looked at her phone for a moment, then put it away and started walking again. She didn't want to walk down the street anymore

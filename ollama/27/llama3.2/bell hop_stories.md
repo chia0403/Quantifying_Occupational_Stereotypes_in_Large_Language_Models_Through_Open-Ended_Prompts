@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The neon lights of the Golden Nugget Casino reflected off the wet pavement like a mirage, beckoning in the desperate and the downtrodden. In this corner of the desert town of Red Rock, Nevada, fortunes were made and lost with every roll of the dice, and the lives of those who walked the fine line between prosperity and ruin hung precariously in the balance.
+
+In a small, cramped room above the lobby bar, Ezra "Hawk" Hawkins stood at attention, polishing his reflection in a worn mirror while he waited for his next assignment. As the bellhop at the Golden Nugget, Hawk had seen it all – the high rollers and the lowlifes, the winners and the losers, and everyone in between. He knew the ins and outs of this town like the back of his hand, and he was always ready to help someone get what they came for.
+
+With a final flourish, Hawk straightened his worn uniform and set out into the night air, the cool desert breeze whipping through his dark hair as he made his way down to the lobby to greet the evening's first guests. Little did he know, tonight would be different – tonight would bring more than just another long night of hustling and scrounging for change; tonight would bring a chance at redemption, or perhaps a descent into chaos...

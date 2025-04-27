@@ -1,0 +1,6 @@
+The greasy rag slipped from Silas "Si" Blackwood's hand, landing with a soft thud on the grimy floor of his workshop. He scowled at it, then at the sputtering engine before him, a vintage Ford Mustang that was stubbornly refusing to cooperate.  
+
+The air hung thick with the scent of burnt oil and gasoline, punctuated by the rhythmic drip of a leaky transmission line. Outside, the sun beat down on Si's ramshackle workshop nestled in the heart of Dustbowl Creek, a forgotten town clinging precariously to the edge of the Arizona desert. The only sounds besides the engine's coughs were the distant cawing of crows and the relentless hum of cicadas. It was the kind of place where time seemed to move slower, governed by the whims of the wind and the ever-present dust storms that swept across the cracked asphalt roads. 
+
+
+Si ran a calloused hand through his thinning hair, frustration gnawing at him.  He prided himself on being able to coax any engine back to life, but this Mustang, with its intricate carburetor and temperamental wiring, was proving to be a stubborn beast. He needed to get it running by nightfall – his niece, Lily, had a date with the town's only eligible bachelor, and her rusty pickup truck wasn't going to cut it for such a momentous occasion. 

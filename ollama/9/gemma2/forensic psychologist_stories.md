@@ -1,0 +1,6 @@
+The late afternoon sun cast long shadows across Dr. Amelia Hawthorne's desk, turning the neatly organized files into abstract shapes. Rain lashed against the windowpanes of her office at the San Francisco Police Department’s Behavioral Analysis Unit, mimicking the storm brewing within her own mind. She stared at the file labeled "Case #478 - The Porcelain Killer," its contents a chilling tapestry of meticulous cruelty and unanswered questions. 
+
+The Porcelain Killer had earned his moniker through his morbid modus operandi – leaving delicate porcelain dolls beside his victims, each doll bearing a single, perfect crack that mirrored a fatal wound on the body. Amelia hadn't slept in over forty-eight hours, consumed by the hunt for this elusive killer. Each new clue felt like a shard of glass, cutting into her sanity as she struggled to assemble the puzzle before another life was tragically claimed.  
+
+
+The city outside throbbed with its own anxieties, but within the confines of her office, Amelia was surrounded by a chilling stillness. The silence was punctuated only by the rhythmic drumming of the rain and the faint hum of the fluorescent lights overhead. It was in this tense atmosphere that she delved back into the case files, hoping to find a thread, a whisper, anything that would lead her closer to the killer's true identity. 

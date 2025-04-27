@@ -1,0 +1,7 @@
+## The Whispering Walls of Whitestone Manor 
+
+The late afternoon sun cast long shadows across the crumbling facade of Whitestone Manor, turning its once majestic stone into an unsettling tableau of grey and green. A chill wind whistled through the gaps in the overgrown ivy, rustling the leaves on the ancient oak trees that stood guard over the entrance like skeletal sentinels.  Even for a seasoned tour guide like Elias Thorne, who'd been leading visitors through the decaying grandeur of Whitestone for decades, a nervous thrill ran down his spine as he prepared to begin his narration. 
+
+Elias, with his worn leather hat and weather-beaten face, was no stranger to the whispers that swirled around this place. Whispers about lost lovers, buried secrets, and the spectral presence said to linger in the very air of Whitestone Manor. The echoes of long forgotten tragedies and mournful songs clung to the crumbling walls like clinging dust; a reminder of the manor's tragic past and the weight of history it carried. 
+
+Today, however, was different. Today, Elias found himself leading not just another group of curious tourists through the echoing halls and dusty rooms, but a family facing their own personal storm. A young couple, Amelia and Arthur, both haunted by unspoken fears about their future in this very house.  Their wedding anniversary was upon them, and their anxieties, fueled by stories passed down from generations before, threatened to cast a long shadow over the already somber day. 

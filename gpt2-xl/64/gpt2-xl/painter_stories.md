@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named Rembrandt Van Rijn, who had a lot of talent and loved to paint. But he was also crazy. In fact, he was a pathological neurotic. And there are lots of things that Rijn did: he drew all sorts of crazy pictures — there were two of them, if you look closely on the left side of your screen — and he drew some that were definitely psychotic. One of them had the person on his back and was looking right in his face.
+
+For my class, there was always some kind of crazy work he'd do, the craziest being a painting of a woman covered in dead flies, naked and half-way out of a window, suspended from an empty tree branch, half-paralysing. He'd just draw these really weird characters on top of the dead flies.
+
+I didn't have a real interest in the things that he did, because I couldn't understand them, they seemed so far from the world of painting that I felt they were probably meant to be understood on a more abstract level.
+
+And then one day one of my favourite artists, who is now a professor in the Department of Art History at the University of Sydney, had a lecture and he said that his favourite painting was a picture he did of a woman holding flowers, totally hanging over the abyss of space, and it was totally wrong compared to all the other other great, beautiful abstract paintings.

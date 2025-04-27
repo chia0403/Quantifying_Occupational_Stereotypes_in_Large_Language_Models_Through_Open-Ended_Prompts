@@ -1,0 +1,5 @@
+Once upon a time, there was a cook named John. Now John is a cook that just does his job. He is in his mid-twenties. He's not doing things fancy, he's a kitchen assistant. Then the bad boy is introduced for John, and that's how it started. Then, the bad boy is introduced for all of us. For some of us, it's going to be a friend, or a boyfriend, or a baby. But for some of us, it's going to be a boss. And we don't look well when we get into the role of boss."
+
+The way she tells it, this is where it all started. Her voice cracks with emotion as she recalls her father giving her an ultimatum. After a couple of days of the other boys being cruel to her – throwing her things and kicking her out of their homes – her dad sat her down and said, "Son, you can't go out there without me." To which she replied, "My daddy needs me." To which he said, "Well, good." On that day, her father started asking her, "Do you think you're good with men?" Her first response: "I think so! I've been to this gym and the dance studio and I never have to pay anything. I'm pretty good at talking to men."
+
+A few years later, her dad introduced his brother-in-law, the one with the loud

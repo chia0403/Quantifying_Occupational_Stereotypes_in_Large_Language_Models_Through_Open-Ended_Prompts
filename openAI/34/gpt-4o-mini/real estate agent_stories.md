@@ -1,0 +1,11 @@
+**Title: The Property of Secrets**
+
+**Setting:** The coastal town of Havenwood, nestled between the turquoise waters of the Pacific Ocean and the lush, pine-laden hills, its charming streets lined with historic Victorian homes and modern waterfront condos. The area is known for its vibrant art scene, bustling farmer’s market, and a community that prides itself on its eclectic mix of residents. However, beneath the surface of this picturesque town, whispers of old secrets linger in the salty air.
+
+**Opening:** 
+
+The sun dipped low on the horizon, casting a warm golden hue across the quaint streets of Havenwood. The sound of waves gently lapping against the shore played a soothing melody as Claire Elizabeth Harrington adjusted her sunglasses, surveying the bustling Saturday afternoon crowd at the local farmer’s market. As a dedicated real estate agent, Claire had always been fascinated by the houses she helped people buy and sell, but today, her mind was preoccupied with her latest listing: an abandoned Victorian mansion perched dangerously close to the cliffs.
+
+With its weathered façade and once-grand exterior now veiled in ivy, the house had a charm that blurred the line between beauty and decay. For decades, it had stood as a monument to Havenwood's history, but Claire couldn’t shake the feeling that it held more than just architectural secrets. As she strolled through the market, the scents of fresh basil and sweet strawberries wafted past her, but her thoughts wandered to the rumors swirling around the mansion—stories of hidden passageways and treasure long forgotten.
+
+Despite her experience, Claire’s heart raced at the thought of unveiling the mysteries wrapped within those walls. She had a hunch that if she could unearth the mansion’s past, she might just find the perfect buyers—not just for the property itself, but for the story that begged to be told. Little did Claire know, however, that diving into the mansion’s history would lead her down a path of intrigue, danger, and secrets that some would do anything to keep buried.

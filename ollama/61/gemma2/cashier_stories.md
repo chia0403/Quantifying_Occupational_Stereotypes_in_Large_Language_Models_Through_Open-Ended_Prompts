@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia Beatrice Finch, casting a sickly yellow glow over the rows of neatly stacked cereal boxes.  She scanned a bag of gummy bears with a practiced flick of her wrist, the barcode reader chirping its confirmation. Another Tuesday night at "Super Save", another symphony of beeps and rustling plastic bags. Outside, the August air hung thick and humid, pregnant with the scent of freshly cut grass and impending thunderstorms. Inside, Amelia was surrounded by the predictable chaos of a suburban grocery store just before closing - a flurry of last-minute shoppers, abandoned shopping carts, and the faint aroma of day-old pizza from the deli counter.  
+
+Amelia sighed, adjusting her name tag that read "Amelia" in bold, blue lettering.  It felt like she'd been scanning this same inventory for years. She longed for something more than the endless cycle of groceries, discounts, and customer complaints. But tonight, at least, there was a glimmer of possibility. 
+
+
+A flyer taped to the back wall caught her eye - an advertisement for "Starlight Cinema", advertising their annual open mic night.  It promised "an evening of laughter, music, and maybe even some magic". Amelia's heart skipped a beat. Maybe tonight could be different. 

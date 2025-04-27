@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The faint hum of fluorescent lights buzzed overhead as Tobias James Hawthorne knelt in the cramped utility room of the old brick building. Dust motes danced in the shafts of light spilling through a grimy window, casting a sepia tone over the scattered tools and spools of wire that lay cluttered around him. The odor of aging wood and neglect lingered in the air, masking the scent of the freshly cut wires and new materials he’d brought for the repairs. 
+
+Tobias wiped his brow with the back of his hand, his brow furrowed in concentration. He loved being an electrician; there was something deeply satisfying about coaxing life back into tired, flickering circuits. But this job was proving trickier than he’d anticipated. The old electrical system had many secrets buried in its tangled depths, and as he tugged on a stubborn wire, he wondered what hidden surprises awaited him in the crystalline darkness of the house’s past.
+
+Outside, the late autumn sun began to dip below the horizon, casting long shadows across the narrow street. It was almost time to call it a day, but something urged him to stay just a little longer. Perhaps it was the thrill of healing the unseen, or maybe the alluring mystery of the house that whispered promises of stories long forgotten. Whatever it was, Tobias felt a pull deeper than just professional commitment—it was as if the walls themselves were calling him to uncover their secrets, urging him to dig just a little deeper.

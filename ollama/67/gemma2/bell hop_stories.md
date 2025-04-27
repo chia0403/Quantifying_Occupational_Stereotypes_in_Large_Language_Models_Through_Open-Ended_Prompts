@@ -1,0 +1,6 @@
+The Grand Astoria Hotel thrummed with a low, constant hum of activity. It wasn't the roar of a bustling metropolis, but rather a symphony of hushed conversations, clattering teacups, and the rhythmic click-clack of heels on polished marble floors. The air hung thick with the scent of lilies from the lobby fountain and freshly brewed coffee wafting from the brasserie. 
+
+Amidst this orchestrated chaos stood Bartholomew "Barty" Quillington, his bellhop uniform a navy blue beacon against the sea of expensive suits and silk dresses.  His nametag, slightly askew thanks to an earlier encounter with a particularly boisterous dachshund, read simply: "Barty." He wasn't one for grand titles or introductions; he preferred to let his actions speak for him, which, in Barty’s case, usually involved deftly maneuvering luggage carts through narrow corridors and remembering the idiosyncrasies of each guest. 
+
+
+Barty scanned the lobby, his gaze settling on a woman with fiery red hair spilling out from beneath a wide-brimmed hat. She stood by the grand staircase, her frustration palpable as she struggled to hail a cab. A flash of sympathy sparked in Barty's eyes - he knew that feeling all too well. He adjusted his cap and took a deep breath, ready to dive into another day at the Grand Astoria.   

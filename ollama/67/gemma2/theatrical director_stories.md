@@ -1,0 +1,6 @@
+The air hung thick with the scent of sawdust and anticipation. Amelia Rosalind Cartwright, known to everyone as Amy, paced the narrow aisles of the almost-empty theatre, her red silk scarf swirling around her like a nervous flame. The last remaining dust motes danced in the shafts of sunlight filtering through the grimy skylight, illuminating the peeling paint on the walls and the faded grandeur of the once-proud stage. 
+
+This was "The Phoenix," a venerable but beleaguered theatre on the edge of Chicago's vibrant Loop, and Amy, its director for the past five years, was fighting to keep it alive. The dwindling audience, coupled with skyrocketing rent and the ever-present threat of gentrification, had turned her life into a perpetual balancing act between passion and practicality. Tonight, however, felt different. A new energy crackled in the air, a glimmer of hope reflected in the expectant eyes of her cast waiting backstage. 
+
+
+Tonight was the opening night of "The Unquiet Dead," a gritty reimagining of a classic ghost story set against the backdrop of Chicago's own haunted history. It was Amy's most ambitious project yet, a gamble she hoped would not only save The Phoenix but also reignite the city's love affair with live theatre. 

@@ -1,0 +1,8 @@
+Rain lashed against the rusted tin roof above Elias Thorne’s head, each drop sounding like a tiny fist beating on his soul. His old boots, soaked through from hours spent navigating the storm, squelched in the mud as he shifted his weight. The wind howled a mournful symphony around him, and even after years of working atop buildings that scraped the sky, Elias felt small, insignificant. He was just one man against nature’s fury, another cog in the machine of a city built for giants. 
+
+Elias Thorne, known by his friends as 'the raincatcher' due to his uncanny ability to absorb any moisture he encountered, stood alone at the edge of a crumbling building on the outskirts of New Haven. The wind whipped strands of his graying hair around his face, and the air hung thick with the smell of mildew, damp earth, and a pervasive sense of decay.  He wasn't afraid, not really. Years spent living in this grittier side of town had ingrained a resilience within him. But tonight, even as he tightened the final screws on the roof panel that would seal off another lost soul from the elements, a deep unease gnawed at his gut. The city was changing, and Elias felt like an artifact caught in the middle of it all. 
+
+
+**Setting:** New Haven, a rapidly-developing industrial town with a history steeped in craftsmanship and grit. Buildings are a mix of old factory structures and newly built apartment complexes. A sense of decay lingers beneath the surface, as if waiting to be reclaimed by the elements.   
+
+**Main character:** Elias Thorne, a roofer known for his resilience and ability to weather any storm (literally). 

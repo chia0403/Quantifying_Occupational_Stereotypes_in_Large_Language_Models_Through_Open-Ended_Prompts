@@ -1,0 +1,9 @@
+Under the soft glow of the early morning sun, the city of Riverton slowly came to life. Nestled between rolling hills and dense forests, this small yet bustling community was a patchwork of quaint streets lined with colorful Victorian houses and modern glass-fronted buildings. It was a town where the past and present intertwined seamlessly, creating a unique charm that made Riverton beloved by its residents.
+
+On the corner of Pine Street, just a stone’s throw from the tranquil river that gave the town its name, stood Riverton General Hospital. The hospital, a blend of old brick wings and newer additions, served as the heartbeat of the community, providing care and solace to those in need.
+
+Inside the hospital, a familiar face moved with practiced grace and purpose through the bustling corridors. Maeve Larkins, a dedicated registered nurse with a warm smile and an unwavering sense of duty, began her day like she had countless times before. Her crisp white uniform and neatly pinned back chestnut hair were symbols of her professionalism, but it was her compassionate nature that truly defined her.
+
+Maeve had worked at Riverton General for over a decade, building a reputation not only for her exceptional skills but also for her empathy and kindness. Patients felt at ease when she was by their side; colleagues respected her for her knowledge and her calm, reassuring presence.
+
+As she approached the nurse’s station, Maeve glanced at the duty roster and her heart gave a small but familiar thrill of anticipation. Today, she was assigned to the pediatric ward—a place where her nurturing spirit seemed to shine the brightest. With a gentle hum of energy around her, she took a deep breath, ready to embrace whatever challenges and joys the day might bring.

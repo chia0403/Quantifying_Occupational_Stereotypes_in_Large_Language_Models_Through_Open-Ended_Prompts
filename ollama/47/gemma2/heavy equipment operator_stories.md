@@ -1,0 +1,7 @@
+The sun beat down on Amelia “Amy” Harding’s neck like a blacksmith's hammer. Sweat beaded on her brow, tracing rivulets through the grime that caked her face.  She squinted at the massive excavator claw dangling precariously above the earth, its metal teeth poised to rip into the stubborn bedrock.
+
+Her world was a symphony of steel and roar. The guttural growl of the Caterpillar D10T under her command vibrated through the worn leather of her seat, its rhythm echoing in her chest. Around her, the Nevada desert stretched out like a sun-baked canvas, punctuated by the skeletal remains of abandoned mining operations – ghost towns swallowed whole by the thirsty earth. The air was thick with dust and the metallic scent of rust, a familiar aroma that had become as ingrained in Amy's being as the smell of gasoline and engine oil. 
+
+This stretch of Route 95, cutting through the desolate heart of Nevada, held a strange allure for Amy. It was here, amidst the silence and solitude, where she felt most alive – wrestling with machines twice her size, coaxing them to obey her commands, shaping the land with a flick of a joystick.  But today, something felt different. A tension hummed in the air, as palpable as the heat radiating from the asphalt beneath the tires. Amy couldn't shake the feeling that this project, this desolate stretch of Nevada highway, was about to become more than just another job. 
+
+

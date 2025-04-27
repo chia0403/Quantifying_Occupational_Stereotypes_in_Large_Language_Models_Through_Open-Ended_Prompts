@@ -1,0 +1,7 @@
+The air hung thick with the scent of mothballs and old money, a familiar aroma to Amelia Thorne, but one that never quite warmed her heart.  Her fingertips brushed against worn velvet curtains in the grand living room of Blackwood Manor, their faded pattern whispering of forgotten grandeur.  Amelia, a woman forged from the soot of coal fires and tempered by years of scrubbing floors, stood at the edge of a world she was trying to understand.
+
+The sprawling estate on the outskirts of London felt more like a tomb than a home. Every creaky floorboard echoed with unspoken stories, every dusty portrait whispered forgotten secrets.  Amelia, her worn apron clinging to her small frame like an old friend, had been entrusted with the care of Blackwood Manor and its myriad inhabitants – a task she approached with stoic determination and unwavering loyalty.
+
+Yet even Amelia, who knew the precise rhythm of dust bunnies' ascent and the precise angle for each windowpane, couldn't shake the feeling that something was missing. A thread of melancholy tugged at her heart like an unseen string, pulling her towards a truth she felt slipping away from grasp.   What secrets did this house hold? What tales were waiting to be unearthed beneath its suffocating silence?  
+ 
+Amelia took a deep breath and turned the knob on the door leading to the grand staircase, the echo of her footsteps resonating through the vast emptiness. It was time to begin unraveling the mysteries that lay hidden in Blackwood's very soul.  Her search had just begun. 

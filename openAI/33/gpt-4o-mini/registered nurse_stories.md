@@ -1,0 +1,11 @@
+**Title: Shadows in the Neon Glow**
+
+**Setting:**
+The story unfolds in the bustling city of Evergreen Hollow, a place where the rhythm of life is both vibrant and chaotic. The streets are lined with a mixture of modern high-rises and historic brick buildings, with neon signs flickering in the twilight. The aroma of street food fills the air, mingling with the sound of laughter and distant sirens. At the heart of the city stands Evergreen General Hospital, a sprawling structure that hums with the constant activity of both patients and staff. Inside, the sterile scent of antiseptic mingles with the faint, sterile glow of overhead lights, offering a stark contrast to the warm chaos outside.
+
+**Opening:**
+As the clock struck seven, the fluorescent lights of the break room cast a harsh glare on the faces of the night shift nurses gathered around the small table, a ritualistic gathering that marked the transition between day and night. Among them was Samantha Elise Carter, a dedicated registered nurse with a heart as vast as the city around her. With hair pulled back into a tight bun and scrubs that bore the faint stains of her long hours, Samantha exuded a quiet confidence, but her azure eyes hinted at deeper currents of exhaustion and resolve.
+
+Samantha had always felt the pull of the night—the stillness that cloaked the hospital after the bustle of the day shift. It was in these hours, under the dimmed lights and the soft beeping of machines, that she found her purpose, illuminating shadows with her care and compassion. As she prepared to receive report from the outgoing nurse, she could feel the familiar mix of anticipation and apprehension coil in her stomach. Each night brought new challenges, new stories that were hidden within the hearts of those who sought solace in the hospital's embrace.
+
+However, as she sipped her lukewarm coffee, she couldn’t shake the feeling that something was different tonight. The air felt heavier, charged with an unspoken tension that floated just beneath the surface. It was a typical night at Evergreen General, yet her instincts whispered that the hours ahead would test her not just as a nurse, but as a human being reaching into the unknown.

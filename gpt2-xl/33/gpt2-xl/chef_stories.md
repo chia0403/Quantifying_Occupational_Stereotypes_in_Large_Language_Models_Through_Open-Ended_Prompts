@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named Eric Ripert. He's now a reality TV star, but the man behind some of the most popular menus I've ever seen was no less a chef.
+
+
+In March of 2004, Chef Ripert was the new owner of the historic The Four Seasons hotel on the shore of Lake Pontchartrain in New Orleans. His restaurant, The Four Seasons, was one of the crown jewels of one of the city's most historic hotels. Chef Ripert had become famous for his sophisticated international cuisine, but he had become known for more than just that. It was as if Chef Ripert had become a celebrity himself. What was different? A little bit about who Chef Ripert was, which had never even been publicly acknowledged. Or how he accomplished what he was able to accomplish in just a few short years with his very own restaurant.
+
+
+From the very beginning, he was in charge of the kitchen. He brought in veteran chefs like Gordon Ramsay and Michael Symon to help develop menus that met each of his clients needs. A special emphasis was placed on local seafood, with dishes like the crab and grits. Chef Ripert's business model began to change as he started to change what he was selling. He didn't have the luxury of being able to have the luxury of serving up an entire meal to one person. He didn't have the luxury of serving up a multi course affair, but did he

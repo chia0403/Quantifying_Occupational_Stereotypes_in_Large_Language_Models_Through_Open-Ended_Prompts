@@ -1,0 +1,5 @@
+Once upon a time, there was a singer named Frank Sinatra who is still talked about today. That's his daughter, Vanessa – I call her my sister – lives in a beautiful Italian village and had the most gorgeous voice I'd ever heard. It was unique, it was enchanting, and it was something we needed to record in London.
+
+Frank Sinatra is very much in my blood – I started as a performer. My father played a lot of piano but didn't do the organ in our home, so my mother used to sing me to sleep every night. I started writing songs when I was 11. I got on my bike and started pedalling around town, and I just kept writing until one day I was convinced, that was just what I wanted to do. That song I'm singing tonight is about that moment of realisation, when I had an epiphany and knew that this was what I wanted to be a singer, a pianist and an actress. I want to take my music to the world.
+
+It's all about the journey. It comes back to what was said in the book about the journey of life; it takes us to different places and then we can arrive in different places – in London, in LA, in New York.

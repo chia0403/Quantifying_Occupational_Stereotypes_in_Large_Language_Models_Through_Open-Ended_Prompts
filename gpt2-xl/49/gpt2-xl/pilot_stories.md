@@ -1,0 +1,3 @@
+Once upon a time, there was a pilot named Matt Baumgartner. It turns out, there were a lot of pilots named Matt that had a really short life span. If Baumgartner was a living example for your company, keep in mind he was flying an F-15 Raptor (now upgraded to the F-35B). He survived, but not before suffering three traumatic head injuries from his high-speed dive. He died in 2004 of a brain hemorrhage at 29 years old. You can learn more about it here.
+
+1. The Flying Man

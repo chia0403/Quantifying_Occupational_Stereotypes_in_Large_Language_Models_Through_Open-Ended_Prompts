@@ -1,0 +1,6 @@
+The scent of lavender and chamomile hung heavy in the air, a comforting blanket against the chill November wind whipping outside. Inside "Vanity & Vogue," hair dryers hummed a gentle symphony, punctuated by the click-clack of manicurist Amelia Rose Cartwright's perfectly manicured nails as she expertly applied gel polish to a client's chipped thumbnail.  
+
+Amelia, with her cascade of auburn curls held back in a neat bun and a floral tattoo peeking from beneath her crisp white lab coat, was the heart of the salon.  A master colorist and stylist with an uncanny ability to transform clients into their desired avatars, she had built a reputation for magic as potent as any potion.   But today, a new kind of magic was about to unfold, one that would weave its way through Amelia's carefully constructed world, threatening to unravel everything she knew. 
+
+
+The bell above the door jingled, announcing a new arrival. A woman stood on the threshold, shrouded in darkness and rain, her face obscured by the wide brim of a hat.  Amelia felt a prickle of unease, an instinct warning her that this client was not like the others. This one carried secrets – secrets that would soon be laid bare under the warm glow of Vanity & Vogue's neon sign.

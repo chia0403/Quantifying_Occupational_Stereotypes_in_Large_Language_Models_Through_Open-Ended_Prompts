@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named Peter Pan in a small Irish town named Neverland. As he was flying home from a one-week vacation with his friends, the ship they were traveling on was attacked by pirates. Peter was one of seven kids who survived that shipwreck, and he became King of Neverland from the throne he had created for himself. Peter Pan had a lot of adventures with the young girls in Neverland, and in the episode "Peter Pan's Flight to Neverland," he even has a romance with a princess! (Though she seems to die shortly after their "kiss.") So, we've got a very romantic and endearing story that goes back to the very beginning of the show's run but never really got the time to end up as its own cartoon. (We know that it was intended as a TV movie in the '60s.)
+
+Advertisement
+
+6. The Littlest Pet Shop — From The Littlest Pet Shop of Horrors
+
+In the 1978 TV movie The Littlest Pet Shop of Horrors, the movie stars the voice of Peter, and if you can find a copy, this is one of the episodes of the series that features his voice. It was also the first TV movie to air in Britain after the show was canceled in 1983, back before we had The Critic. When Peter and the kids first find themselves on the lost island world of the Littlest Pet Shop, it's

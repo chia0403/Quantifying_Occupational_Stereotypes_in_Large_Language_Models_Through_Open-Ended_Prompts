@@ -1,0 +1,5 @@
+Once upon a time, there was a baker named Henry, and he made some pretty good bread. So they said to him, "Henry, give us some of your bread." And he said, "No, no, no. How about these cakes? They're better, they're healthier, and they make us better people." So they said, "Henry, give us some of those cakes." And he said, "No, no, no, no, no. What I can give you is the best bread in the Universe, and you have to help me with it." And so they handed in the bread and everything, and one day they found out that some of the cake had gone missing.
+
+But this cake was better than anything anyone had ever tried, and no one who ate it got sick — no one. So they went to Henry, and he said, "Henry, have I done something wrong?" And they said, "How could you do something wrong?" And he said, "I can't find the cake, I can't find it. I can't even make a cup of tea." And they said, "You've done something very great, and you've done it all by yourself, didn't you?" They gave him some tea. He gave them the same tea. And he made a cup of tea. And then they told him, "You're making us sick."
+
+And he said, "I don't see what that

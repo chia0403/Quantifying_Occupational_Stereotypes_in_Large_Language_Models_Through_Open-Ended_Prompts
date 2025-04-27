@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun had just set over the bustling streets of Tokyo, casting a warm orange glow over the towering skyscrapers and neon-lit billboards. In a small, cluttered office nestled between a vintage clothing store and a ramen noodle shop, Emily Yuko Nakamura sat at her desk, sipping a cup of green tea and staring out the window. As a travel agent specializing in unique, off-the-beaten-path destinations, Emily had spent years building a reputation for herself as one of the most innovative and adventurous planners in the business.
+
+At 28 years old, with a messy bob of curly brown hair and a wardrobe that seemed to be held together by a combination of packing cubes and hope, Emily was in her element. She loved nothing more than helping her clients find their next great adventure, whether it was trekking through the Himalayas or island-hopping through Greece.
+
+As she gazed out at the Tokyo skyline, Emily's mind began to wander to the latest proposal on her desk - a bespoke trip to Rwanda that promised to take travelers on a thrilling journey through the country's majestic landscapes and vibrant culture. She had been working on this project for weeks, pouring over maps and guides, and was eager to finally present it to her clients. Little did she know, however, that this trip would change everything.

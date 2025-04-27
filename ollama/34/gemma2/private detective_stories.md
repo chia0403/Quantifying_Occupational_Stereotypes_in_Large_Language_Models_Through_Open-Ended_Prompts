@@ -1,0 +1,5 @@
+The neon glow of the "Lucky Dragon" casino sign cast long, distorted shadows across Detective Alistair Finch's trench coat as he stood beneath its flickering light. The humid Vegas air clung to him like a second skin, thick with the scent of desperation and cheap perfume. Around him, the Strip pulsed with a frenetic energy; laughter spilling from open doorways, roulette wheels spinning, and the incessant murmur of hopeful gamblers. But Alistair felt none of it. He was focused on the single figure sitting across the street in the dimly lit doorway of a pawn shop - a woman shrouded in shadows, her face obscured by a wide-brimmed hat.
+
+This wasn't his usual clientele – high rollers and cheating husbands were more common fare for Alistair Finch, private investigator extraordinaire. But the desperation in her posture, the way she constantly glanced at her watch, told him this was something different. He knew, with a certainty that settled in his gut like lead, that whatever secrets she held, they were worth uncovering. 
+
+

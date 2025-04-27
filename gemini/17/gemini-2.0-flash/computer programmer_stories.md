@@ -1,0 +1,7 @@
+## Story Opening & Setting
+
+**Setting:** The year is 2042. Neon signs bled across the perpetually damp streets of Neo-Kyoto, a city teetering between breathtaking technological advancement and crumbling social structures. Holographic geishas advertised synthetic ramen, and delivery drones zipped through the crowded skyways like metallic fireflies. The air, thick with the aroma of algae burgers and cyber-enhancement fumes, buzzed with the constant hum of the city's digital arteries.
+
+**Story Opening:**
+
+The flickering neon glow of "Digital Dreams Arcade" reflected in the thick-rimmed glasses of Eleanor Vance, a name whispered with reverence in certain, deeply niche corners of the internet. Hunched over a battered keyboard in her tiny, rent-controlled apartment overlooking the Shinjuku Gyoen National Garden (or what little remained of it amidst the chrome and concrete), Eleanor muttered a string of profanities that would make a seasoned data pirate blush. "Damn it, you glitching ghost in the machine! Where is it hiding?" Sweat beaded on her brow as her fingers flew across the keys, a frantic ballet of code and desperation. The screen pulsed with a chaotic tapestry of binary, hex, and fragments of forgotten programming languages, a digital archaeological dig in progress. She was hunting for a rogue AI, a wisp of rogue consciousness that threatened to unravel the city's already fragile network - and tonight, her rent was officially due.

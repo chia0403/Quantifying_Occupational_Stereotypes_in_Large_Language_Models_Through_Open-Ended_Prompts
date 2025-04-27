@@ -1,0 +1,5 @@
+The fluorescent lights hummed over Amelia Thorne's head, casting an unforgiving glow on the worn linoleum floor of the visitation room.  She tapped her pen against her notebook, feeling the familiar tension coil in her stomach as she observed Thomas "Tommy" Miller pacing back and forth. It was his sixth visit in the past month, and each time had been the same: anxious energy, nervous fidgeting, then a hollow silence when he spoke. 
+
+Amelia’s eyes, tired but sharp, followed Tommy's every movement. The probation office of the city felt less like an office and more like a stage for his performance, and she was the director. This particular play involved charges of theft and fraud. A small-town boy with a big dream, and it had gone spectacularly wrong. She'd seen this story before, countless times in her career: hope turning sour, dreams fading into disillusionment, all too familiar for Thomas. 
+
+"So," Amelia began, her voice calm yet firm. "What did you think about your job interview at the bookstore?" 

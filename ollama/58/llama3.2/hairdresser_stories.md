@@ -1,0 +1,7 @@
+As the first light of dawn crept over the small town of Willow Creek, USA, Hazel Maeve O'Connor stirred in her cozy apartment above the vintage clothing store she shared with her best friend and business partner, Lily. The scent of freshly brewed coffee wafted from the kitchen, mingling with the soft hum of the radio playing an oldies playlist in the background.
+
+Hazel, a talented hairdresser in her mid-twenties with a wild mane of curly brown hair and a penchant for bright colors, stretched her arms overhead, arching her back in a languid yawn. She had spent the previous night lost in her own thoughts, replaying a heated argument she'd had with Lily over their shop's latest marketing strategy.
+
+As she swung her legs over the side of the bed, Hazel's gaze fell upon the framed photo on her dresser - a picture of her late grandmother, Agnes Maeve O'Connor, who had first taught her the art of hairstyling in their small Irish-American community. The memory of Agnes' warm smile and gentle hands sparked a sense of determination within Hazel, reminding her that she was more than just a talented hairdresser; she was a guardian of tradition and a keeper of secrets.
+
+With a newfound resolve, Hazel began to get ready for another busy day at "Locks & Love," the charming salon where she worked alongside Lily, creating hairstyles that not only made their clients look and feel beautiful but also told stories of their lives. Little did Hazel know, this particular morning would bring more than just the usual chatter and clippers...

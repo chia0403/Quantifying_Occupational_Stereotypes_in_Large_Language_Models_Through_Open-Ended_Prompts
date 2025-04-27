@@ -1,0 +1,11 @@
+**Setting: The small coastal town of Ember Cove is nestled between steep cliffs and the sprawling blue of the ocean. Known for its picturesque views and vibrant sunsets, it has always been safe from the raging wildfires that often threaten other parts of the country—until this summer. The air is thick with tension and the scent of smoke as the dry season sets in. The town's fire station, a weathered red building adorned with a large mural of a flame, stands at the edge of the harbor, where fishing boats bob gently in the water. Sirens and the distant sounds of waves crashing provide a constant backdrop to the lives of its residents, including those who protect them.**
+
+**Main Character: Firefighter Lucas Adriel Bennett, known for his unwavering courage and dedication to his community, dons his uniform, the fabric worn from years of service but still crisp and ready for action. With a mop of tousled dark hair and striking green eyes that mirror the sea, Lucas embodies the spirit of Ember Cove. He often finds himself torn between the calls of duty and the serene beauty of his hometown, where the weight of the looming wildfire hangs heavily in the air.**
+
+---
+
+As Lucas stepped out of the fire station, the warm sun dipped below the horizon, casting a fiery glow over Ember Cove. The ominous plume of smoke rising from the nearby hillside sent a shiver through him. Tonight, the stakes felt higher than ever before. With the vast stretches of dry brush waiting eagerly to ignite, the town's meteorologist had issued red flag warnings, and the rumble of approaching storm clouds set a foreboding tone.
+
+“Lucas!” a voice called out as he made his way to the engine. It was Carla Thompson, his partner, her dark hair pulled back in a tight ponytail, eyes sharp with determination. “You ready for the briefing?”
+
+Lucas nodded, though his stomach churned. The fire was spreading faster than anyone could’ve predicted, and with each passing hour, Ember Cove's tight-knit community clung to hope, praying for rain that never seemed to come. He felt the weight of their trust on his shoulders. Firefighter. Hero. Protector. Words he had grown accustomed to, yet as he climbed into the rig, he wondered if he was truly ready for what lay ahead. Tonight, it wouldn’t just be the flames they had to fight—it would be the very heart of his town.

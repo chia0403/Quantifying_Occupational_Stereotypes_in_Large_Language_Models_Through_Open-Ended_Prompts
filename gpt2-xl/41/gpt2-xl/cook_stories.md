@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named Sam, a boy who came from a village close to town – it seems like it's been a few million years. When he was 16, Sam's father had died, and he returned to live with his mother and his elderly father. Sam grew up in a village where "cooking means, basically, washing dishes," she said. And Sam liked it!
+
+It was a small place. There were barely more than a thousand people, making for a tight familial unit, but everyone was helpful, and everyone worked hard. It was the place for Sam to get away with his eccentricities – things like talking to himself, and creating a song out of the sounds of the dishes coming into the kitchen – although some people still looked upon something so unusual, and wondered if his antics were a side effect of his mother's alcoholism. But Sam liked these things. Because he loved working with his hands. And because when nothing was working, there was always the chance to eat!
+
+And once, Sam had made a meal without salt. He and his mother were sitting around the kitchen table, talking. He'd forgotten all about the salt. A single tablespoon of salt – the amount of salt needed for cooking a pot dish – was not hard to obtain, especially at the time. It cost him nothing and was readily available in most homes, yet Sam had neglected it, and made a delicious meal without it.
+
+When it came

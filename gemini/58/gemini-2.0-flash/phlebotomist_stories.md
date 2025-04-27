@@ -1,0 +1,8 @@
+Okay, here's a story opening and setting featuring a phlebotomist named Amelia Beatrice Hawthorne:
+
+**Setting:** The break room of St. Jude's Community Hospital in Harmony Creek, Iowa, a small town nestled in the rolling hills. The room is a cacophony of clashing beige and institutional gray. A microwave hums intermittently, battling for dominance over the muffled strains of country music emanating from a cheap, battery-powered radio. A notice board is plastered with outdated flyers for yoga classes, weight loss support groups, and a recurring plea for blood donations (ironic, considering where they all work).
+
+**Opening:**
+
+Amelia Beatrice Hawthorne stared into her lukewarm cup of instant coffee, its surface reflecting the fluorescent glare of the overhead lights. It was 6:47 AM, and the air in the break room, even at this early hour, already smelled faintly of disinfectant and quiet desperation. Outside, the Iowa sky was just beginning to blush with dawn, painting the fields in shades of pink and gold. Inside, however, it felt perpetually Tuesday. Amelia sighed, pushing a stray wisp of her auburn hair behind her ear. Today was Friday, but the weight of another endless shift, another parade of poked veins and anxious faces, pressed heavily on her chest. She closed her eyes for a brief moment, trying to conjure the image of those sun-drenched fields, the only reminder that there was a world of beauty beyond the beige walls of St. Jude's. She needed a damn vacation. Or at least a strong cup of something that didn't taste like instant regret. This day needed to be better than yesterday's, when she'd accidentally stuck Dr. Abernathy *twice* while trying to draw blood for his cholesterol check, and that was going to be a challenge.
+

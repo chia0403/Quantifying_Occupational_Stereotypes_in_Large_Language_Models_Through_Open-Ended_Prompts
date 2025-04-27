@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the diner, mirroring the storm brewing in Amelia "Amy" Thorne's stomach. She pushed back her chair, its squeak echoing in the empty space after the last customer had left. Outside, neon signs flickered and danced with each passing gust of wind, painting the world in a bruised orange glow. Across from her, nestled deep within his worn fedora, sat the old man who held the key to the missing journalist's case: Silas Blackwood, whose fingers traced patterns on the faded blue glass of his coffee mug. 
+
+The air hung thick with unspoken tension as Amy studied him.  He looked more weathered than a thousand storms himself – lines etched deep across his face like ancient scars and eyes like storm clouds swirling behind her own anxieties. "You're sure you haven't seen anything, Mr. Blackwood?" she finally asked, her voice rough from the dust motes swirling in the air.
+
+Silas looked up, his gaze piercing through years of neglect and unspoken grief.  “Don’t worry about what I saw," he rasped, his voice a dry whisper as if the wind itself had given him life. "You're the one who can make sense of it all.” 

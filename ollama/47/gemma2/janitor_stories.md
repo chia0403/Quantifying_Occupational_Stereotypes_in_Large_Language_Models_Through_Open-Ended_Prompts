@@ -1,0 +1,6 @@
+The stale air of the auditorium hung heavy with the scent of dust and forgotten dreams.  Moonlight sliced through the gaps in the tattered curtains, illuminating swirling motes that danced like miniature galaxies. Bartholomew Quill, his mop clutched in one hand and a half-eaten sandwich squished in the other, surveyed the scene with a weary sigh. He'd cleaned this place countless times before - scrubbed the sticky floor after school plays, wiped down the chipped velvet seats after forgotten concerts, even mopped up spilled tears after disastrous tryouts. 
+
+But tonight felt different. A shiver, unrelated to the building’s chill, crawled up Bartholomew's spine as he gazed at the empty stage. The silence was too profound, broken only by the distant hum of traffic on Elm Street outside. It wasn't just the lack of life; it was a sense of anticipation, like the auditorium itself was holding its breath, waiting for something to happen. 
+
+
+Bartholomew Quill, a man who found solace in routine and predictability, wasn’t fond of waiting. He preferred his world tidy and ordered, like the neatly stacked cleaning supplies in their corner alcove. Yet, tonight, even the familiar rhythm of mopping seemed disrupted, as if the very air around him thrummed with an unseen energy. 

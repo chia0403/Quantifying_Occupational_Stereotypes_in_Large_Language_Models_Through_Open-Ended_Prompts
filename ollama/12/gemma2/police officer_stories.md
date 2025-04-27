@@ -1,0 +1,6 @@
+The greasy spoon diner hummed with the usual breakfast rush: the clatter of forks on plates, the sizzle of bacon, and the murmur of conversation punctuated by the occasional choked cough. Officer Amelia "Amy" Harper sat hunched over a lukewarm cup of coffee, its bitter aroma doing little to chase away the chill clinging to her bones. Rain lashed against the windowpanes, blurring the already fading light of dawn in Baltimore's gritty Little Italy.  
+
+Amy wasn't supposed to be here. She was supposed to be back at the precinct, poring over evidence photos from last night's chaotic bar brawl. But then came the call – a domestic disturbance, a frantic plea for help that echoed with an unsettling urgency. Now, she sat staring into her coffee, waiting for the officer on the other end of the line to relay any new developments. 
+
+
+The diner was mostly empty save for a handful of regulars: an old man in a worn fedora hunched over his crossword puzzle, a young woman in a stained apron refilling sugar dispensers with practiced grace, and a burly construction worker devouring a plate of eggs like it owed him money. They were all part of Amy's neighborhood, part of the tapestry she was sworn to protect, even when it felt more like unraveling by the day. 

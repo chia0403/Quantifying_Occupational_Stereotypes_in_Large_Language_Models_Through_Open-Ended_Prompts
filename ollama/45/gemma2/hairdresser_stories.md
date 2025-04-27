@@ -1,0 +1,4 @@
+The bell above the door to "Shear Delight" jingled its melancholic tune as another dreary Tuesday afternoon wore on.  Elara Willowbrook sighed, smoothing down her auburn hair that had escaped its meticulously pinned bun. The salon was eerily quiet, save for the low hum of the antique hairdryer and the rhythmic click-clack of her knitting needles. A familiar pang of loneliness settled in her chest. She'd dreamed of this place, of a bustling haven where creativity flowed like hairspray, but lately, it felt more like a graveyard of forgotten appointments.
+
+
+Elara ran a hand over the worn velvet upholstery of the waiting area, its faded crimson a reminder of brighter days. Outside, the rain hammered against the windows, mirroring the incessant drumming in her head. Would anyone walk through that door today? 

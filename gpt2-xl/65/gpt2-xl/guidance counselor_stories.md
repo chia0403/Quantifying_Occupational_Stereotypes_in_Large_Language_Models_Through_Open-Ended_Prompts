@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named Karen Stempel. In her previous life, she was a counselor at a Christian university, and she made a vow as a young man: "If I ever find myself in crisis, I'm going to leave this world a better man than when I found it." Karen was determined to do her part: a former graduate student at one of the very best Christian colleges in Iowa, she was a popular speaker and author who specialized in helping women overcome their deepest fears of sex and intimacy.
+
+We learned that when Karen made that vow in the early stages of her journey, she was in her own private counseling. There was much she had to say about the challenges of sex, but she felt that there was little support available for such a problem. So as she became more and more distressed, her parents hired a divorce lawyer, and Karen was allowed to see the counselor he usually recommended—a psychologist named Mary Rizzo.
+
+Rizzo was both a counselor and a psychologist. The former had a firm belief in her profession and her research. The latter had a more conservative view of sex, and she was not as well know when counseling women as Karen. But Karen had become a fan of Rizzo's writing, and she asked to see her.
+
+When Rizzo gave Karen a copy of her book on "Fidelity," Karen was disappointed to find that it was actually a book on sexual morality,

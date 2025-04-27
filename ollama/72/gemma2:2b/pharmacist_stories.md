@@ -1,0 +1,5 @@
+The scent of lavender and antiseptic hung heavy in the air, a strange but comforting perfume within the sterile walls of Dr. Althea Thorne's pharmacy. It was late afternoon, the sun bleeding red across the sky like spilled wine, casting long shadows from the chipped paint on the windowpanes. The usual quiet hum of the neighbourhood had been replaced by the frantic whisper of a windstorm outside, one that rattled the ancient oak trees lining Maple Street.
+
+Althea Thorne, with her patient grey eyes and thick spectacles perched precariously on her nose, was usually unfazed by these late-afternoon storms. However, tonight, something felt different. The tension in the air, thicker than usual, made even the familiar calming rituals of dispensing prescriptions feel strained. She paused at the counter, the faint whirring of a fan the only sound louder than the storm's fury. 
+
+Tonight was no ordinary night. A new kind of fear hung over Maple Street.  A fear that whispered with every gust and crackle of thunder – a fear of the unknown. 

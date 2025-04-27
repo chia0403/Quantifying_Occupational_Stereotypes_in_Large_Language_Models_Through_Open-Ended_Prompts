@@ -1,0 +1,6 @@
+The chipped paint of the Miss Amelia Peabody's classroom walls whispered stories of countless art projects gone awry.  Crayon streaks snaked up the beige, a testament to the vibrant chaos that was, and always would be, kindergarten.  Sunlight, filtered through the dusty windowpanes, dappled the worn wooden floor where Amelia, a wisp of a woman with eyes that held the warmth of a thousand sunflowers, knelt beside a small, tearful child.
+
+The air hung thick with the scent of glue and unidentifiable art materials.  A cheerful, yet slightly manic, melody drifted from a brightly colored xylophone, a soundtrack to the day's unfolding drama.  Amelia’s nameplate, meticulously crafted from cardboard and rainbow-colored markers, proudly displayed her title: "Miss Amelia Peabody, Kindergarten Explorer."
+
+
+Amelia’s classroom, a tiny universe unto itself, sat nestled within a sprawling, century-old elementary school building.  The faded floral wallpaper and dusty globes lining the hallways seemed to sigh with the weight of years gone by.  Outside, the playground, littered with discarded building blocks and the half-eaten remnants of peanut butter sandwiches, was a miniature kingdom where imagination reigned supreme.  This was Tuesday, the second day of the week, and the air hummed with anticipation.

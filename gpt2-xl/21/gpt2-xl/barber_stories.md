@@ -1,0 +1,7 @@
+Once upon a time, there was a barber named Joe. Joe had no hair, and it was an embarrassment to his family to have his face seen in the mirror. When he died of old age, Joe's widow said, 'There is a special place in Hell reserved for him.'"
+
+A few decades later, in 1933, a German chemist, who had immigrated to the United States from the country of his forefathers, discovered in his laboratory that the chemical in hair color could be made artificial. It was an ingenious solution. The chemical in question was called 'blue', and was a mixture of ammonia and sulphuric acid. The product was named 'alkaline'. The chemist made the color artificially by mixing the acid with water and heating it-soak it in water, let it cool a bit-and then heat it a little more. It would be a very pale blue. This acid solution was later called 'aniline' and it was used in hair dye, ink, and the famous 'brownish-blue' shade that is commonly used in barber shop colors today.
+
+Joe, the original blue and blue tint
+
+Joe's widow's widow, the 'Mrs. Joe', became the first 'Mrs. American Blue' by painting the "Mrs. American Blue" hair dye on the back of a chair, which she kept in her living room. It is said that in her lifetime, a lot of black people used to

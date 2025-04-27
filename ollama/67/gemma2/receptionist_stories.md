@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia Beatrice Perkins' head like a swarm of agitated bees, their buzzing a constant backdrop to the rhythmic tap-tap-tap of her manicured nails against the polished oak reception desk. The air in the grand waiting room of "Aether Investigations" was thick with anticipation and the scent of stale coffee, courtesy of the perpetually lukewarm pot that sat on a side table like an unloved pet. Amelia sighed, adjusting the pearl necklace that felt more like a lead weight around her neck than a symbol of elegance. 
+
+It was another Tuesday at Aether, which meant another day of fielding calls from nervous clients, soothing frazzled spouses, and dodging awkward questions from overly-curious children. Outside the expansive windows, the city sprawled beneath a sky the color of pewter, rain threatening to break loose any minute.  Inside, however, the only storm brewing was in Amelia's own soul, a tempest of boredom and quiet resentment that threatened to consume her entirely. 
+
+

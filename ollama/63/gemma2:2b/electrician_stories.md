@@ -1,0 +1,7 @@
+The fluorescent lights buzzed above Theodore "Theo" Reynolds' head, casting a sickly yellow pallor across the cluttered workshop. Rain lashed against the grimy windows, the steady drumming creating a rhythmic counterpoint to the whirring of his tools.  Theo, his calloused hands carefully holding a live wire, leaned back against the worn workbench, sighing heavily. He hadn't meant to take on another job this rainy season; Mrs. Henderson had been insistent about fixing her faulty wiring after the last storm left her with a nasty shock. But sometimes, you couldn't fight an unyielding tide of need, or the pull of familiar grease and sweat. 
+
+The workshop was his haven, a chaotic symphony of metal, wires, and flickering lights that seemed to hum in tune with his own weary heart. A worn toolbox lay open on the floor, its contents spilling out like forgotten dreams: broken circuit boards, rusted copper cables, and a half-written blueprint for an experimental light projector. It was a place where Theo found solace, a sanctuary from the ever-present chaos of the outside world. 
+
+Even the old dog snoring at his feet seemed to understand the weight of silence that hung heavy in the air, punctuated only by the rhythmic clanging of metal on metal as Theo went about his task. The storm raged outside, but within these walls, a different kind of storm was brewing: the storm of a life lived on the edge of electricity and its promise of light. 
+
+

@@ -1,0 +1,11 @@
+Title: **Beneath the Steel Sky**
+
+Setting: The sun hung low over the rugged terrain of the Rocky Mountains, casting long shadows across the vast expanse of a logging site. The air was thick with the scent of freshly cut timber, mingled with the earthy aroma of the forest. Towering pines loomed like sentinels, their needles swaying gently in the crisp autumn breeze. Heavy machinery rumbled in the distance, a symphony of steel and power blending with the sounds of nature. Dust swirled up from beneath the treads of a colossal bulldozer as it carved a path through the underbrush, its once-pristine yellow paint now splattered with mud and forest debris.
+
+Main Character: Harrison Jacobson
+
+Opening: Harrison Jacobson adjusted his hard hat and wiped the sweat from his brow as he climbed into the cab of his trusty bulldozer, affectionately dubbed “Bessie.” The machine had been his partner in crime for nearly a decade, and today was no different. With a gentle hum, the engine roared to life, and the vibrations coursed through his body like an electric charge. Harrison had always found solace in the rumble of heavy equipment and the rhythm of work. Here, beneath the expansive blue sky, where mountains stretched out like ancient giants, he felt a sense of purpose. 
+
+As he pushed forward, the ground beneath Bessie’s massive treads surrendered to his will, revealing hidden roots and stone as he expertly navigated the rugged terrain. But today, an unsettling quiet hung in the air, as if the forest were holding its breath. Harrison's instincts, honed from years on the job, prickled with a sense of unease. There was something in the wind, a whisper of change that he couldn’t quite place. With a glance out the window, he caught a flicker of movement among the trees—something that barked sharply against the tranquility of the day. 
+
+Harrison’s heart raced as he shifted the gear into motion, ready to face whatever uncertainty the day might bring. After all, life in the heavy equipment trade was rarely predictable, and sometimes the most profound stories began with a single twist of fate.

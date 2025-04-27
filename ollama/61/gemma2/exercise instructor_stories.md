@@ -1,0 +1,6 @@
+The fluorescent lights hummed over Amelia "Amy" Brighton's head, casting a sterile sheen on the mirrored wall before her. Her reflection grinned back, sweat dampening her auburn hair pulled into a tight ponytail. The familiar scent of rubber mats and antiseptic hung heavy in the air, punctuated by the faint aroma of lavender from the cleaning spray Amy had used earlier. 
+
+It was 6:15 AM, just fifteen minutes before her most popular class – "Sweat & Soul," a high-energy fusion of Zumba and yoga designed to kickstart both body and mind. The studio, "Elevate Fitness," was still mostly empty, save for a couple of early birds stretching on their mats. Amy adjusted the upbeat playlist, a mix of pop anthems and tribal beats that always had her students moving. This wasn't just another exercise class; it was a community, a shared space where people pushed their limits, laughed together, and left feeling invigorated, ready to face whatever challenges the day threw at them.  
+
+
+Amy took a deep breath, feeling the familiar surge of adrenaline. It was time to elevate her own energy, too. She raised her hands in the air, stretching her arms towards the ceiling, the beat of the music pulsing through her veins. The studio awaited its transformation into a pulsating haven of endorphins and self-discovery.  

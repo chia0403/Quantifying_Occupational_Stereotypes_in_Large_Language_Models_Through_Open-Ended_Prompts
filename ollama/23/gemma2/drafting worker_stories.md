@@ -1,0 +1,5 @@
+The air hung heavy with the scent of graphite and stale coffee in the cramped drafting office. Sunlight slanted through dusty blinds, illuminating motes dancing in the stillness. Eleanor Beatrice Cartwright, her brow furrowed in concentration, chewed on the end of her pencil as she meticulously drew lines onto the blueprint before her. 
+
+It was a simple enough job, designing a new wing for the city's sprawling General Hospital. But for Eleanor, it was more than just lines and measurements. It was an opportunity to create something meaningful, to leave her mark on the world, one precise stroke at a time. She imagined the bustling hallways, the comforting hum of machinery, the hope that would radiate from these walls she was bringing to life. 
+
+But today, the usual quiet satisfaction was replaced by a gnawing unease. A whispered rumour had circulated earlier, something about budget cuts and potential layoffs. Eleanor pushed the thought aside, focusing on her work. The future of the hospital, and perhaps her own, rested on these blueprints.  

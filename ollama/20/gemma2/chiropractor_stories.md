@@ -1,0 +1,6 @@
+The rhythmic tap-tap-tap of Dr. Eleanor "Ellie" Blackwood's knuckles against her patient's spine echoed through the small, wood-paneled office. Sunlight streamed in through the dusty window, illuminating motes of dust dancing in the air and highlighting the faded posters advertising local yoga classes and chiropractor seminars. The air hung thick with the scent of lavender essential oil and liniment, a familiar aroma that Ellie found strangely comforting.
+
+Her practice, nestled on a quiet side street in Asheville, North Carolina, was far removed from the bustling city center. Surrounded by towering oaks and dogwood trees, it felt like a sanctuary, a place where worries could be kneaded out of tight shoulders and anxieties released with a gentle crack. Ellie had loved this space since she first opened its doors five years ago, finding solace in the rhythm of her work, the quiet connection with her patients, and the simple beauty of her mountain home.  
+
+
+But today, something felt different. A tremor of unease thrummed beneath Ellie's usual calm demeanor. It wasn't just the lingering scent of cinnamon from the herbal tea she'd brewed earlier – a strange, metallic tang lingered in the air. 

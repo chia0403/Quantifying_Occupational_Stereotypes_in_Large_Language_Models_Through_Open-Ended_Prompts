@@ -1,0 +1,7 @@
+Once upon a time, there was a veterinarian named Mr. Pert. He spent his days on a farm caring for hogs, cats, birds and sometimes puppies, all in the hopes of raising the healthiest family of animals, and helping them survive the harsh conditions in his small, rural home.
+
+One day, as he was getting ready to give a kitten a bath, he discovered that the young child was a bit curious and would jump up on his hands. As a caring veterinarian, he wanted nothing to do with the child and was disappointed that he didn't know where he came from. So, he gave the boy a simple task: to feed himself instead.
+
+He took the child out to the barn, and when he was doing so, the child looked around and noticed a small house. He looked inside and saw a strange man working. Then, he asked the stranger a question. "Do you know where I came from?" The man nodded. "I don't know who you are, but I just want you to teach me how to live. I'll give me back my life." That was when the story comes into life.
+
+After receiving advice from his friends on how to "educate" the boy, the strange man, whom the story refers to as Mr. Pert, put the dog in a box inside the home and took the box outside to put it outside in the open. However, when the boy came back home, he

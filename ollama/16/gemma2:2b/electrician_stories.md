@@ -1,0 +1,5 @@
+The air hung thick with the smell of ozone and sweat in the cramped space beneath the floorboards of Mrs. Henderson's Victorian home.  Rain lashed against the sky outside, mirroring the turmoil within Samuel "Sammy" Blackwood. He was surrounded by tangled wires, buzzing transformers, and the faint hum of his trusty multi-tool, yet none of it calmed the gnawing tension in his gut. He glanced up at the old ceiling, its dusty plaster flaking off like a sunburnt hide. The storm wouldn't break for days, leaving Sammy trapped with Mrs. Henderson’s temperamental wiring and an increasingly unsettling feeling of déjà vu.  
+
+**Setting:** A gloomy Tuesday afternoon in late October, nestled between two historic streets in the quaint seaside town of Oakhaven, Maine. 
+
+**Main Character:** Samuel "Sammy" Blackwood - A thirty-something electrician known for his stubbornness, sharp wit, and uncanny ability to fix anything that sputters with life (or occasionally, malfunctions with a deathly blue spark).  

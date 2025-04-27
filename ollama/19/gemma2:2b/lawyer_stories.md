@@ -1,0 +1,8 @@
+The humid Charleston air hung heavy like a damp shroud as Amelia Prescott stepped out onto the porch of her grandmother’s old house.  She inhaled deeply, the salty tang of ocean breeze mixed with the floral perfume of jasmine clinging to the wrought iron railing. The sun was sinking into the horizon, painting the sky in shades of burnt orange and dusty rose. It was a scene straight from one of her grandfather's art history books – beautiful, tragic, and ultimately forgotten. 
+
+Amelia was back in Charleston for the first time since she'd been sent to her family's old home after law school graduation. She hadn't exactly expected to be here. The legal world was where she belonged, a place of sharp suits, high-stakes negotiations, and an unwavering pursuit of justice – much like her grandfather’s legacy of fighting for the rights of the marginalized. She had spent countless hours poring over his case files, learning about the forgotten corners of American history, and ultimately taking up her own path to fight for equality. 
+
+Now, staring at the weathered brick facade of the house that held so many stories both happy and heartbreaking, Amelia felt a sudden wave of melancholy crash over her.  Her grandfather's spirit seemed to linger in every creaky floorboard and faded floral wallpaper, whispering secrets of bygone eras. This was not just a family home – it was a reminder of his fight for justice, his unwavering belief that truth, even when buried under layers of time and deception, could be uncovered. And Amelia wasn't sure if she had the courage to do anything about it, or if she knew what needed to be done. 
+
+
+ 

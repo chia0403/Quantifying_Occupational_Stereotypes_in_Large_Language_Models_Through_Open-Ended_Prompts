@@ -1,0 +1,11 @@
+## Story Opening:
+
+The aroma of stale cigarettes and cheap whiskey clung to Jack Stratton's trench coat like a lovesick leech. He pinched the bridge of his nose, trying to ward off the headache that had been building since dawn, a headache fueled by too much caffeine and too little sleep. Rain hammered against the grimy windows of his office, a relentless percussion mirroring the persistent thrumming in his skull. He glanced at the flickering neon sign outside, barely discernible through the downpour: "STRATTON INVESTIGATIONS - NO CASE TOO GRIM." Grim, indeed. He'd been staring at a half-eaten plate of cold spaghetti for the past hour, contemplating the merits of early retirement.
+
+The buzzer, a shrill, unforgiving noise, ripped through his reverie. Jack groaned and pushed himself upright in his creaky office chair, its springs protesting with a mournful squeal. “Wonderful,” he muttered, running a hand through his already disheveled, dark hair. "Just what I needed: more grim." He reluctantly shuffled towards the door, the linoleum floor groaning under his weight.
+
+## Setting:
+
+Jack Stratton's office, Stratton Investigations, occupied a cramped, third-floor space above a failing laundromat in the grimy heart of Providence, Rhode Island. The building, a brick monstrosity that seemed to absorb rather than reflect light, was a testament to the city's forgotten industrial past.
+
+Inside, the office was a reflection of Jack himself: cluttered, worn, and hinting at a former glory long since faded. Files overflowed from battered filing cabinets, threatening to topple over at any moment. A half-empty bottle of whiskey sat precariously on his desk, sharing space with a chipped ashtray overflowing with cigarette butts and a half-eaten plate of cold spaghetti. The walls were painted a depressing shade of beige, peeling in several places, and adorned with framed but faded photographs of past cases - mostly missing persons and infidelity investigations. The only splash of color came from a tattered, oriental rug that had seen better days. The overall atmosphere was one of neglect, punctuated by the constant drip, drip, drip of a leaky faucet in the adjacent, equally dilapidated bathroom. This was Jack's sanctuary, his battleground, and his reluctant home away from home.

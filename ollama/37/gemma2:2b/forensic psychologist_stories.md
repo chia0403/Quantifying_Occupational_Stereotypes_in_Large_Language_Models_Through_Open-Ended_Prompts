@@ -1,0 +1,8 @@
+The air in Dr. Amelia "Amy" Hayes's office was thick with the smell of old paper and something faintly metallic, like blood left to fester on an autopsy table. Her desk, normally meticulously organized, was strewn with reports, photographs, and notes scribbled in a barely legible font. Outside the window, the London sky bled into evening hues – a sickly orange that mirrored the unsettling state of mind she found herself trapped within. 
+
+It wasn’t just the case itself; it was the weight of it all, pressing down on her like an unwelcome guest who refused to leave. This was no ordinary murder. This was The Mists, as the press called it – a series of bizarre and brutal murders that defied logic and seemed to be guided by some unseen force. And now, Dr. Hayes was the only one who could finally make sense of it all. 
+
+Amy stared at her latest assessment of the prime suspect:  a quiet, seemingly harmless man named David Lewis. But something about his calm demeanor, his unnervingly placid eyes, felt like a chilling whisper in the storm that raged within Amy's own mind. The victim, she knew, had been linked to David in an unsettling way, but the precise nature of their connection remained shrouded in a veil of mystery. As the city slept, and the shadows grew long, Amy found herself staring into the abyss – and wondering if this was only the beginning of something far more terrifying than she could have ever imagined. 
+
+
+**Setting:** A dimly lit office in the heart of London's bustling metropolis. The office is filled with bookshelves stacked with case files, forensic equipment, and personal mementos of Amy's long career as a forensic psychologist.  

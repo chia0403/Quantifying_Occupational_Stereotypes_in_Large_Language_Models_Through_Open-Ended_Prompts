@@ -1,0 +1,6 @@
+The rhythmic thrumming of the heart monitor was the only sound in Dr. Eleanor Vance's operating room. It wasn't a comforting rhythm; it was a desperate plea, a frantic heartbeat begging for her skilled hands to mend its shattered symphony.  Sweat beaded on Eleanor's brow as she meticulously worked, her movements precise and swift despite the tension coiling in her gut. The patient, a young boy named Leo, lay pale and vulnerable beneath the harsh glare of the surgical lamps. His life hung precariously in the balance, teetering on the edge of a razor-thin line. 
+
+The operating room itself was a sterile battleground, bathed in the cold white light that cast long shadows across the gleaming instruments and stainless steel surfaces. The air was thick with the metallic tang of antiseptic and the hushed whispers of nurses rushing to and fro, their faces masked but eyes filled with anxious anticipation. Outside, the storm raged on, mimicking the tempest brewing within Eleanor's soul. This surgery, this tiny heart struggling for life, felt impossibly heavy.  
+
+
+Eleanor took a deep breath, her chest rising and falling in slow, measured puffs. She couldn’t afford to falter. Leo needed her now more than ever. 

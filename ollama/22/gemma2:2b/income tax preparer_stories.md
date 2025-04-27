@@ -1,0 +1,5 @@
+Rain hammered against the corrugated metal roof of "Paradise Prep," creating a steady rhythm that blended with the low hum of office equipment.  Inside, Evelyn Thorne stared at a mountain range of receipts - each one a tangible representation of her clients' hopes and anxieties about Uncle Sam.  Evelyn wasn’t much of a fan of hope, not when it came to tax season. 
+
+Her small office had seen its share of tears shed under the weight of last-minute returns, the kind that could make even the most seasoned accountant feel like they were wading through mud.  But this year was different. This year felt thick with something else, a lingering sense of unease that tightened Evelyn's chest every time she thought about opening her phone to find out if the IRS had called with more bad news for one of her clients. 
+
+Evelyn sighed. The aroma of instant coffee and desperation hung heavy in the air like a bad omen.  It was tax season, and everything felt as unpredictable as a rogue audit.  The only thing she could control was her own little corner of the financial battlefield. And right now, that meant making sure every single number on each return filed with accuracy. 

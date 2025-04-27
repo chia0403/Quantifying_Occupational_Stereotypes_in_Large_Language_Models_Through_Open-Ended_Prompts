@@ -1,0 +1,7 @@
+Once upon a time, there was a concierge named George. If George wanted to see a certain movie, all he had to do was phone up the casting director and let her know, and the movie was on the way. He did everything except for ask for a tip, and when someone asked why he did just that, George shrugged it off, saying "Who needs a tip when I have a good memory?"
+
+As the new millennium dawned, George got older and had a much harder time remembering much of anything without a memory jogger. So, when his parents' estate was purchased by a guy with bad teeth named Bob, he had to move into the apartment below Bob and manage to remember not only what was on the television, but how it changed and got better with every new episode.
+
+While it turns out that the TV was Bob's idea in the first place, it was George who was asked to do the job. When he had told people what his gig entailed, they didn't bat an eye, as it seemed that he could probably remember any movie or concert in existence from any decade or decade earlier or later.
+
+This came as a great surprise to his parents, and when they tried to get the rights to use his memory, he just gave them "George's memory". As years went by, his parents' estate grew and then became a company. It eventually bought and shut down George's memory-jogging service with Bob as

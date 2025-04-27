@@ -1,0 +1,7 @@
+**Title:** Shadows of Justice
+
+**Setting:** The story begins in the bustling heart of Chicago's legal district, where glass towers loom above the streets like sentinels of justice. The air is thick with the scent of fresh coffee from nearby cafes and the distant sound of honking horns. It’s a cloudy autumn afternoon, and the streets are dappled with patches of sunlight peeking through the buildings. In a sleek, modern office on the 12th floor of a towering law firm, the walls are lined with dark wood panels and shelves filled with legal tomes, their spines gleaming under the fluorescent lights.
+
+**Opening Paragraph:**
+
+Cassandra Marie Elwood sat hunched over her desk, the rhythmic tapping of her fingers on the keyboard punctuating the silence that enveloped her small cubicle. Files were spread out like a cityscape around her, each case a different skyline of hopes and despair, and she could feel the weight of them pressing down on her shoulders. As a paralegal at Hargrove & Associates, Cassandra was used to juggling multiple cases and crossing all the T's and dotting the I's, but today was different. The atmosphere buzzed with tension as whispers of an unexpected conflict echoed through the office. Cassandra glanced at the wall clock, its hands moving too slowly for her racing thoughts, and felt a prickling sensation as doubt began to creep into her mind. Could this be the case that finally pushed her to the edge, or would it be the one that set her on a path to uncovering the truth hidden in shadows?

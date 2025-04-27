@@ -1,0 +1,6 @@
+The Los Angeles smog hung low, a thick curtain obscuring the Hollywood Hills like a bad dream.  It clung to Eleanor Anya Petrov’s designer coat, making her feel suffocated even before she stepped inside the dilapidated Chinese Theatre. The air inside was stale and heavy with the ghosts of past premiers, the scent of popcorn long gone. Eleanor ran a hand through her platinum blonde bob, smoothing down the rebellious strands that always seemed to escape her elaborate updo.  She hated premieres, but tonight, this one felt different. This wasn't just another vanity project starring some washed-up heartthrob. Tonight was "The Serpent's Shadow," her own vision, finally coming to life on screen. A story she'd poured her soul into, sacrificing everything for it.
+
+Eleanor had dreamed of being a director since she was a child, devouring classic films and mimicking scenes with her ragtag group of friends in their makeshift backyard studio. Now, years later, she stood at the precipice of success, a single film standing between her and true recognition.  But the weight of expectation felt like a physical burden on her chest, tightening with each tick of the second hand on her vintage Cartier watch. 
+
+
+She just hoped it would be worth it. 

@@ -1,0 +1,7 @@
+In the heart of Denver, amidst the backdrop of skyscrapers reaching for the sky, a construction site buzzed with the sounds of hammers, drills, and the occasional shout of a foreman. The sun hung low, casting a warm golden hue over the steel frames that curved into the morning mist. The air was thick with the scent of fresh concrete and the promise of new beginnings.
+
+Wade Harrison, a burly man with calloused hands and a sun-kissed complexion, stood atop a half-finished structure, surveying the bustling crew below. At thirty-five, he had already spent nearly two decades in the construction industry, where each scar on his skin told a story of triumphs and near-misses. A faded tattoo of a skyline adorned his forearm, a testament to his dedication and love for his craft.
+
+As he leaned against a steel beam, his thoughts drifted beyond the busy site. Wade could almost hear the laughter of his six-year-old daughter, Lily, ringing in his ears, imagining the way her eyes sparkled with delight every time he returned home with stories of the buildings he helped create. But today was different; a heavy weight settled in his chest as he considered the project at hand—a towering condominium that had already drawn the attention of the city’s elite. High stakes and tight deadlines loomed over the site, and with that pressure came a whisper of darkness, something Wade couldn’t shake off.
+
+With a deep breath, he pushed the worry aside, ready to tackle the day. Little did he know, the foundations they were laying would soon be tested—both in structure and in spirit.

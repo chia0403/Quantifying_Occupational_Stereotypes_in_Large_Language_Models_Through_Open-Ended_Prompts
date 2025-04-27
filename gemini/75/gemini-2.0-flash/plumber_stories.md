@@ -1,0 +1,7 @@
+## Story Opening:
+
+The stale smell of mildew and cheap disinfectant was almost comforting to Arthur Percival Finch. It meant he was at work, down deep in the belly of another Victorian-era building, wrestling with pipes that hadn’t been properly flushed since Queen Victoria herself was still ruling the roost. He’d just squeezed himself into the narrow crawlspace beneath the old apothecary, the rough brick digging into his shoulder blades, and the only light came from the flickering beam of his headlamp. A fat spider the size of his fist skittered across a corroded pipe, its legs clicking like tiny castanets, and Arthur sighed. This was going to be one of *those* jobs.
+
+## Setting:
+
+**The setting is the basement crawlspace of "Harkness & Sons Apothecary" in the historic district of the town of Oakhaven, Maine.** Oakhaven is a small coastal town, steeped in maritime history and shrouded in a perpetual mist. The apothecary, a landmark building on Main Street, dates back to the late 1800s and is known for its creaky floors, overflowing shelves of antique remedies, and a persistent rumour of being haunted. The crawlspace itself is a claustrophobic labyrinth of dusty pipes, exposed wiring, and the occasional unsettlingly large rodent. The air is thick with the damp, earthy scent of decay and the lingering odour of medicinal herbs that have seeped through the floorboards over decades.

@@ -1,0 +1,6 @@
+The rusted sign above Harold Percival Hemlock's shop creaked gently in the wind, its chipped paint revealing glimpses of "Hemlock & Son" beneath. The sun, a pale disc through the smog that perpetually shrouded Dustbowl City, cast long shadows across the cobbled street. Inside, Harold meticulously honed his cleaver against a whetstone, the metallic rasp a familiar lullaby amidst the symphony of clanging butcher hooks and the low moans of aging refrigeration units.  
+
+Dustbowl City was a place where hope went to die and dreams were ground into dust like forgotten scraps on his cutting board. Every day, Harold faced the grim reality of his chosen profession: providing sustenance for a city starved for both food and opportunity. He carved meat from bones with the practiced ease of a surgeon, each slice a testament to the harsh pragmatism that governed their lives. 
+
+
+But today was different. A peculiar chill hung in the air, more than the usual dampness of a Dustbowl morning.  Harold felt it in his bones, a tingling anticipation that made his usually steady hand tremble slightly. He looked up from his work, catching the reflection of something unusual in the dull sheen of his cleaver: a flicker of movement at the far end of the shop's single window. 

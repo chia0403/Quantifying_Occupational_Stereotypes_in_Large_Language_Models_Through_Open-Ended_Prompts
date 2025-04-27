@@ -1,0 +1,5 @@
+The bell above the door tinkled its familiar melody as Barnaby "Barn"  Finchley straightened his starched apron. Another Wednesday morning in The Cutting Room, his little slice of heaven tucked away on Maple Street. Sunlight slanted through the dusty windows, illuminating motes dancing in the air and casting long shadows across the worn wooden floor. 
+
+The scent of bay rum and talcum powder hung heavy in the air, a comforting aroma that had become as much a part of The Cutting Room as Barn himself. He ran a hand over his neatly trimmed beard, adjusting his spectacles before glancing at the clock: 9:00 sharp. Time for day one of another week of snips, shaves, and shared stories. A familiar rumble echoed from the back room – old man Henderson was already there, regaling someone with tales of his youth. Barn smiled. It wouldn't be long before the place was buzzing, a symphony of clippers buzzing, razors humming, and friendly chatter filling the space.  Another day in the life of Barnaby Finchley, barber extraordinaire. 
+
+

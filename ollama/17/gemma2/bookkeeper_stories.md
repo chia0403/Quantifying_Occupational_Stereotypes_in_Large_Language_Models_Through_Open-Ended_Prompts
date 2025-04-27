@@ -1,0 +1,6 @@
+The scent of old paper and stale coffee hung heavy in the air, mingling with the faint tang of desperation that seemed to permeate Bartholomew Quince’s small office. Rain lashed against the grimy windows, blurring the already dim streetlights outside.  Bartholomew, his glasses perched precariously on the bridge of his nose, hunched over a stack of invoices, his brow furrowed in concentration. His ledger, its pages dog-eared and stained with coffee rings, lay open beside him like a battlefield, littered with scribbled figures and cryptic notes. 
+
+He was a man accustomed to order, to the soothing rhythm of debits and credits, yet tonight, chaos reigned. The accounts for Mrs. Hemmingsworth's bakery were in disarray – missing entries, suspiciously large deposits, receipts bearing no resemblance to their invoices. Bartholomew chewed on his pencil, feeling a knot of unease tighten in his stomach.  Something wasn’t right.  This wasn't just an oversight, this was deliberate. And the thought sent a shiver down his spine.  
+
+
+He lived for the quiet predictability of numbers, for the satisfaction of balancing the books and bringing order to the world around him. But Mrs. Hemmingsworth’s accounts had become a tangled mess, threatening to unravel the carefully constructed tapestry of his life. 

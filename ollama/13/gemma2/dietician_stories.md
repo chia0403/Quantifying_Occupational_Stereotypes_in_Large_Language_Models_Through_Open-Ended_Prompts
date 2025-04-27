@@ -1,0 +1,5 @@
+The aroma of burnt toast hung heavy in the air, mingling with the scent of jasmine tea brewing in Amelia Katherine Bellweather's meticulously organized kitchen. Her white ceramic coffee mug, emblazoned with the words "Fuel Your Body," sat steaming on the counter beside a bowl of glistening berries and a perfectly sliced avocado. Outside, the San Francisco fog had finally retreated, revealing a crisp autumn morning bathed in golden sunlight.
+
+Amelia sighed, pushing aside her breakfast – a simple quinoa porridge topped with chopped nuts and seeds – as she glanced at the email notification blinking impatiently on her laptop screen. It was from Dr. Henderson, head of oncology at the city's prestigious Grace Hospital. He wanted to meet, urgently.  A prickle of anxiety crawled up Amelia’s spine. This wasn’t unusual; Amelia, a registered dietician specializing in oncology nutrition, often met with doctors and patients facing difficult diagnoses. But something about Dr. Henderson’s urgency felt different, heavier. A cold knot tightened in her stomach as she imagined the conversation to come. 
+
+

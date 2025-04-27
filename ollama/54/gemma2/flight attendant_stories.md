@@ -1,0 +1,6 @@
+The humid Mumbai air clung to Eliza Amelia Kapoor like a second skin as she stepped out onto the tarmac. The Boeing 787, gleaming under the relentless sun, was her temporary home for the next twelve hours, a cocoon of polished metal and recycled air whisking passengers between continents.  Eliza adjusted the crisp white collar of her uniform, its starched edges pressing into her tanned skin, and inhaled deeply. Even amidst the cacophony of jet engines revving and baggage handlers shouting, there was a distinct scent: diesel fuel mingling with cardamom chai and the faint aroma of jasmine blossoms carried on the breeze. 
+
+This familiar cocktail of scents, sounds, and sensations always brought a sense of calm to Eliza.  It grounded her, reminding her that despite the frequent leaps across time zones and cultures, she belonged here, navigating the skies as part of this intricate, ever-moving dance of human connection. 
+
+
+Today, however, felt different. A knot of unease tightened in her stomach, fueled by a cryptic message from an anonymous source, received just hours before. It spoke of danger on board, a threat veiled in cryptic symbols and unsettling warnings.  Eliza dismissed it as the ramblings of a bored mind, yet the words lingered, casting a shadow over her usual anticipation for the flight. 

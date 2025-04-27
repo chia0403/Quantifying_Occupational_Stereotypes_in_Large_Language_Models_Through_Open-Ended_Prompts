@@ -1,0 +1,5 @@
+The air hung thick with the scent of peppermint and antiseptic in Dr. Singh's bustling dental practice. Sunlight slanted through the large windows, illuminating motes of dust dancing above rows of gleaming chrome instruments. Amelia "Amy" Rosewater, her name tag pinned proudly to her navy scrub top, surveyed the waiting room with a practiced eye.  A young boy clutched his teddy bear nervously, a middle-aged woman flipped through a magazine, and a tired father whispered soothing words to his teething toddler. 
+
+Amy adjusted her mask, smoothing down the crisp white collar of her uniform. It was a Wednesday morning, the busiest day of the week, and already patients were lining up for their appointments.  Her heart thumped with a familiar rhythm – a mix of anticipation and apprehension. Amy loved her job, helping people feel confident about their smiles, but some days the fear in her patients' eyes felt like a tangible weight on her shoulders. Today, it seemed, promised to be one of those days.
+
+

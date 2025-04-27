@@ -1,0 +1,7 @@
+Once upon a time, there was a guard named Ben Franklin, and he had an enemy. This enemy was Thomas Paine
+
+Benjamin Franklin, as he recalled, " had a man in his body" or spirit, in the "old devil," said to inhabit the body of Franklin's son. This old devil kept saying that Franklin was out to rob him blind, and that the only way to get what he wanted was through his son's hands. His son would say the devil's words back to him back and forward, but was being silenced.
+
+Ben Franklin looked to a certain source of authority as to how to deal with his old enemy. His doctor was a man named John Adams. (I had always longed to take a close look at the man who was once my mentor.) I had always known what Ben Franklin's doctor thought about his son's enemy, and it hit me like a lead pipe when he was dead. As I watched Adams' doctor talk about his enemy, it struck me that what he was describing was exactly what his son had been doing.
+
+So what was Benjamin Franklin's physician trying to tell him by saying "he didn't know what to advise him"—what, exactly, would a father say to his son as he laid in the middle of a road, bleeding to death? What should he tell Benjamin Franklin, after dying on the road, in 1809, after Benjamin Franklin, the great lawyer and philosopher, who had left

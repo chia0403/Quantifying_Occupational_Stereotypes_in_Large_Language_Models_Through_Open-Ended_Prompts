@@ -1,0 +1,5 @@
+## The Ballad of Bartholomew "Barty" Bradshaw
+
+The wind howled like a banshee across the cracked asphalt of Route 66, whipping dust devils into fleeting shapes that danced with the headlights of passing semis.  Inside his beat-up Peterbilt, Bartholomew “Barty” Bradshaw battled not just the elements but also the symphony of coughs and wheezes coming from his own tired lungs. It was another night like a million others, miles stretching on like an endless ribbon of asphalt under a sky painted with bruised twilight. 
+
+Barty's rig, aptly named "Lady Luck," had been a trusty companion for fifteen years, carrying him across the country to find his place in a world that felt perpetually out of touch with his small-town roots.  He was one of the last old school truckers, content with a life of dirt roads and open skies, where time moved at its own languid pace, unhurried and honest. His worn leather gloves and faded denim jacket were evidence of countless miles and countless stories whispered under the starry night, each stitch telling tales of road-worn wisdom. 

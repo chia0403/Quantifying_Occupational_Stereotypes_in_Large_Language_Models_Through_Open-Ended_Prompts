@@ -1,0 +1,7 @@
+Once upon a time, there was a real estate agent named Richard F. Lee. He spent his free evenings running, swimming and hanging out with his teenage son and two daughters — or "Lizzie and the kids," as he put it. He was also a great raconteur, a self-made man who enjoyed a drink every now and then, maybe a cigar, and perhaps a game of pool when the weather was right.
+
+One day, he was asked by someone who liked his stories to help build a swimming pool. Richard obliged them, but the job ended up being harder than he thought. As he remembers it, one of the builders he was working for came up with a few ingenious ideas on how to screw the steel parts together. When he tried it, not only did everything not fit, but there was a fire in the furnace while he was working. Then there were a number of other problems, not least the fact there was no electricity in view. Then came a number of hours of his work being in danger of being lost forever. Finally his supervisor, who had seen how upset his boss was, persuaded him to quit.
+
+Fifty years later, Lee doesn't really know why. For him, the pool was just a thing that he liked to play with his kids. The point is that he learned a lot about business and life and made some money with it. And that's it.
+
+"Business is going fine in my day

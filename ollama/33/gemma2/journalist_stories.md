@@ -1,0 +1,6 @@
+The air hung heavy with the scent of salt and decay in the docks of Port Haven. Rain lashed against Amelia Claire Blackwood’s trench coat, each drop drumming a rhythmic tattoo against the worn fabric.  She hunched deeper into her collar, the neon glow of a nearby fishmonger's sign casting an oily sheen on the cobblestones beneath her feet. This wasn't the glamorous world of high society she usually reported on for The Herald – this was rough and raw, a place where secrets whispered in the shadows and truth often drowned in the tide.  
+
+Amelia adjusted the strap of her worn leather satchel, its contents - notepad, pen, recorder, and a crumpled map marked with question marks - feeling reassuringly familiar against her hip. She squinted through the downpour at the ramshackle building across the street. The "Blue Lantern" tavern. A haven for sailors, smugglers, and whispers of something far more sinister. 
+
+
+Her contact, a man known only as "Crow," had promised information about the missing freighter, the “Sea Serpent.” A vessel vanished without a trace weeks ago, leaving behind nothing but speculation and mounting fear. Amelia knew this wasn't just another story; there was a current of darkness swirling beneath the surface of Port Haven, and she intended to find it. 

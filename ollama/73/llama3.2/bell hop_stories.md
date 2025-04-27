@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The rain-soaked streets of New Orleans were always at their most unforgiving on nights like these. The year was 1922, and the city was abuzz with the sounds of jazz and bootleggers, as the Prohibition era cast its long shadow over the metropolis. Amidst the revelry and debauchery, the Hotel Montaigne stood tall, a beacon of elegance and refinement in the midst of the city's seedier side.
+
+Inside the hotel's opulent lobby, where the ornate chandeliers refracted raindrops like diamonds, Bellhop Étienne "Et" LaFleur toiled away, his worn apron stained with yesterday's wine spills and last night's cigar smoke. A man of few words and a heart of gold, Et had been tending bars and doors for the Hotel Montaigne's discerning clientele for nigh on ten years, earning a reputation as one of the most reliable and discreet bellhops in town.
+
+As he methodically tidied up the lobby, his eyes scanning the empty spaces between the plush sofas and velvet curtains, Et couldn't shake the feeling that tonight would be different. The air was thick with an unspoken tension, like the city itself was holding its breath, waiting for something to happen. Little did Et know, this particular evening would prove to be one he'd never forget – a night that would change the course of his life forever.

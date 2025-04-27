@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The streets of Old London were always alive with the scent of woodsmoke, damp earth, and the subtle tang of wool. It was a chilly autumn evening in 1888, and the gas lamps that lined the cobblestone streets cast long shadows behind the market stalls and shopfronts. Amidst the bustling throng, Emilia Fanshawe stood hunched over her workbench, her needle darting in and out of the intricate folds of a bespoke suit jacket.
+
+Emilia's small tailor's shop, "Fanshawe & Co.", was nestled between a haberdashery and a bookshop on Fleet Street. The sign above the door creaked in the gentle breeze, bearing the image of a pair of scissors crossed over an embroidered needle. Inside, the air was thick with the scent of thread, leather, and the faint hint of musk from Emilia's prized collection of imported silks.
+
+As she worked, Emilia's mind wandered to the commissions that lay ahead – the wedding dress for Lady Harcourt's niece, a pair of fine trousers for the Duke of Somerset's son. The work would be grueling, but Emilia took pride in her craft, knowing that every stitch and seam told a story of its own. Little did she know, however, that this autumn evening would bring more than just the usual trickle of clients to her doorstep...

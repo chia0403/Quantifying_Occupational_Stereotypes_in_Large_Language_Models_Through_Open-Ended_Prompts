@@ -1,0 +1,7 @@
+Once upon a time, there was a cosmetologist named Micahel Sabin. As time went on, Micahel grew more and more annoyed with other business. He had seen to that. He began working as a bodyguard, and, because Micahel was never late for the job, was soon making more than enough money. And so he went into banking rather than continuing to practice law.
+
+Micahel's business began to get a little out of hand, so, with some financial assistance from his friends, he decided to make a go of it as a bodyguard. That, of course, resulted in another problem. Micahel made it a point never to go after his first target. He had too much respect for Micahel and the job had to remain sacred. So, when you're on the job, and don't kill the first person you see, you can sleep at night.
+
+Sometimes, however, you don't like sleeping at all, so you'll have to take matters into your own hands and try to find you own target. Then, if that doesn't come to the rescue, you can always fall back on Micahel's rule: Never target a bodyguard first.
+
+I don't know what went on in Micahel's time, but we're told it involved the worst, meanest, most brutal attacks a person can carry off against another human being. We also know that he didn't

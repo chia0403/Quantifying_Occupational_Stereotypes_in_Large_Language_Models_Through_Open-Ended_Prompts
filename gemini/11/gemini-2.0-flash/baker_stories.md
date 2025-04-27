@@ -1,0 +1,11 @@
+## Story Opening and Setting:
+
+**Story Opening:**
+
+The aroma of toasted hazelnuts and warm sugar hung thick in the pre-dawn air, a fragrant curtain shielding Eloise Astrid Beauregard from the biting chill creeping in under the bakery’s door. She hummed a wordless melody, her breath misting in the dim light filtering from the bare bulb above her head. At 4:00 AM, the world outside Beauregard's Bakery was still cloaked in a velvety black, punctuated only by the distant hum of a garbage truck and the faint glow of streetlights. But inside, Eloise was already knee-deep in flour, transforming the raw ingredients into something magical, something capable of chasing away the darkest of mornings.
+
+She peered into the rising dough, its surface bubbling gently like a sleeping creature. Today was Saturday, which meant the unforgiving rush of the weekend market was looming. The Croquembouche needed assembling, the macarons needed perfecting, and the goddamn pain au chocolat seemed to be staging a rebellion, refusing to laminate properly. Eloise sighed, a tiny puff of frustration that quickly dissolved in the sweet, yeasty air. She wouldn’t let them defeat her. Not today. Not ever.
+
+**Setting:**
+
+Beauregard's Bakery is tucked away on a cobblestone side street in the Marais district of Paris. It’s a small, unassuming shop with a faded blue awning bearing its name in elegant, gold lettering. The front windows, usually fogged with condensation, offer tantalizing glimpses of the golden pastries nestled within: flaky croissants, jewel-toned fruit tarts, and towers of delicate meringues. Inside, the space is cramped and perpetually warm, a testament to the ever-present oven. Worn wooden shelves line the walls, overflowing with baking supplies, cookbooks, and antique tins. The air is a heady mix of vanilla, butter, and the earthy scent of freshly ground coffee. At the back, a small door leads to Eloise’s even smaller apartment, a haven cluttered with books, sketches, and the remnants of late-night baking experiments. The neighborhood is a vibrant tapestry of artists, tourists, and long-time residents, all drawn to the Marais's charming atmosphere and hidden treasures, including the irresistible allure of Beauregard's Bakery.

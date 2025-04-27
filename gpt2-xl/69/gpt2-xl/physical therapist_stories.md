@@ -1,0 +1,6 @@
+Once upon a time, there was a physical therapist named Ben. Ben taught me to not lift weights, run and jump in places where I got hurt and not to over think things. Ben taught me to be a smart cookie and don't let your mind have all the fun. Ben taught me patience. Ben taught me the importance of understanding my body's limitations. Ben taught me to treat myself. Ben taught me that I am who I am and as long as I don't injure my body, I can never become anyone else. Ben taught me to be a woman and that I am capable of everything that the world gives me.
+
+"So I'm going to go and take a shower. It sucks."
+
+If you're anything like you, it probably does. I don't care if you're a woman, you're going to be frustrated with your body sometimes and you're going to have a hard time accepting your own limitations. I'm going to walk out of here and tell you that what you're feeling is normal and no one needs me to hold them down.
+ the way that my body works is a little tricky. it takes a couple of extra minutes to warm-up for the first 5min of sprinting, but it ends up being quicker that way. it's easier to catch and get back to your feet, it's easier to control my movement and in general, it's my favorite part of the workout. It's why I love running.

@@ -1,0 +1,5 @@
+The air hung thick with the scent of jasmine and acetone. It was one of those rare days in New York City where the humidity didn't seem to cling like an unwanted guest, but rather danced lightly on the breeze that swirled around Elena's nail salon. The setting sun cast long shadows across the worn linoleum floor, painting streaks of orange and pink against the chipped paint on the walls. 
+
+Elena, her name a whisper in the air as she worked with practiced efficiency on the manicurist's chair, felt a familiar sense of calm wash over her. For years, she had found solace in this little corner of Manhattan, surrounded by the soft clinking of metal against glass and the rhythmic tapping of nail polish bottles. 
+
+Tonight, however, there was something different. Tonight, the air crackled with an almost palpable tension that Elena couldn't quite place. It seemed to emanate from the woman across the salon, a newcomer named Amelia who sat nervously in her chair, fiddling with her hair and refusing eye contact.  

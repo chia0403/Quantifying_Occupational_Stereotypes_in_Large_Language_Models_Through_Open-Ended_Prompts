@@ -1,0 +1,9 @@
+The sun had just begun to set on the small town of Red Rock, Arizona, casting a golden glow over the dusty streets and worn-out buildings that lined the Main Street. It was a place where time seemed to stand still, where the air was thick with the smell of sagebrush and the sound of engines revving.
+
+In a nearby industrial park, the heavy machinery roared to life as the sun dipped below the horizon. The ground shook beneath the tires of massive bulldozers, graders, and excavators, their hydraulic arms swinging in perfect sync as they worked tirelessly to reshape the desert landscape. Amidst this cacophony of sound, a lone figure stood tall, his eyes fixed intently on the machinery before him.
+
+His name was Ryder Jameson Thompson III, but he preferred to be called Ryder - after all, his parents had seen fit to bestow upon him the more manageable middle name. As a heavy equipment operator, Ryder had spent years honing his skills and building a reputation as one of the best in the business. He took pride in his work, moving mountains of dirt and rock with precision and finesse that left even the most seasoned veterans of the trade in awe.
+
+Tonight was no different. The job was a big one - a sprawling new development on the outskirts of town, where high-rise condos and strip malls would soon sprout up like weeds in a parched garden. Ryder's rig, a hulking Caterpillar 350B, was the first to arrive on the scene, its engine rumbling as it backed into position beside the project manager's gleaming new catwalk.
+
+As the darkness deepened, Ryder's eyes locked onto the task at hand: shaping the very landscape of Red Rock itself. Little did he know that this job would change everything - for better or for worse.

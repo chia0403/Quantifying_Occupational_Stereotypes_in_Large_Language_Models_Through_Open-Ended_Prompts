@@ -1,0 +1,5 @@
+The scent of burnt toast hung heavy in the air, mingling with the aroma of freshly brewed coffee – a scent combination that Eleanor Vance, Registered Dietitian Nutritionist, found oddly comforting. Her small apartment kitchen, overlooking the bustling Chicago street below, was a haven amidst the city’s chaos. Sunlight streamed through the dusty window, illuminating the mismatched plates and mugs stacked precariously on a shelf overflowing with cookbooks. 
+
+Eleanor glanced at her reflection in the oven door, smoothing down her unruly auburn curls that always seemed to defy gravity. Today was a big day – her first solo nutrition consultation since leaving her corporate job at WellnessCorp. A knot of anxiety tightened in her stomach, but she quickly banished it.  She had worked too hard for this. It was time to build her own practice, one healthy meal and informed conversation at a time. 
+
+A shrill doorbell pierced the quiet morning. Eleanor's heart leaped. Her first client. This wasn’t just about food; it was about empowering people to take control of their health.  She straightened her navy blue blouse, took a deep breath, and opened the door.  

@@ -1,0 +1,7 @@
+Once upon a time, there was a groundskeeper named Dave, who worked at a construction site in Los Angeles, working on the restoration of his own home (which was in the process of being demolished). In all seriousness, he didn't have a very impressive resume. He just hung around, did some yard work and didn't get paid a dime, even though the construction company paid his rent and food. He just kept doing it, because he loved working there, even when the company closed.
+
+And somehow the work got a little more complicated, and Dave moved up to work the job of groundskeeper at the very expensive, very prestigious, private school of his choice, where hundreds of students came and went every single day. Here's where things get a little tricky.
+
+He had gone to a great university, where he majored in philosophy and minored in literature, and the school had just bought one of his courses, "The Meaning of Reality," from his home library. Dave was a professor at the school when he graduated, and then became an administrator, and now he's the vice-president of the company that's teaching his old course. And apparently the students really liked it. Because two and a half years later, the school's now paying every single student who passed the classes to teach it in their own homes, and they're making a mint.
+
+The reason that Dave was paid more than his coworkers is that he was so amazing, well-

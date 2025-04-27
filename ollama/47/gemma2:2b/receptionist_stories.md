@@ -1,0 +1,8 @@
+Rain hammered against the arched windowpanes, each drop exploding like tiny fireworks in the dim light streaming across Amelia's desk.  The air was thick with the scent of jasmine oil from the overflowing diffuser – an attempt by Mrs. Peabody, her boss and owner of "Amelia's Appointments," to create a comforting atmosphere.  It felt anything but comforting tonight. The storm mirrored the turmoil brewing inside Amelia - she had been staring at the single phone ringing on her desk for the last ten minutes, the caller ID blank and the voice on the other end refusing to leave a message.
+
+**Setting:** "Amelia's Appointments" was an old Victorian townhouse nestled in the heart of London's bustling Soho district. Its exterior boasted ivy-covered walls and antique brass door handles, while inside, exposed beams held up layers of history; plush armchairs draped in velvet whispered stories of past clientele, and the floorboards creaked with every step.  The faint scent of aged leather and pipe tobacco hung in the air, a reminder of the bygone era when this place was a bustling haven for society's elite.
+
+**Main character:** Amelia Thornton. A tall woman with unruly chestnut hair usually tamed by her signature side-swept bangs and bright green eyes that seemed to hold both kindness and an ever-present hint of melancholy.  She wore a crisp, navy blue uniform she never quite felt comfortable in, the rigid collar reminding her of all the things she was expected to be – efficient, polite, invisible.
+
+
+**Open:** "The phone rang again. Amelia's fingers trembled as she answered it, hoping against hope that the voice on the other end wouldn't break her heart." 

@@ -1,0 +1,5 @@
+The bell above the door to "Scissor & Soul" jingled its welcome as Eleanor Ophelia Butterfield surveyed the morning calm. Sunlight streamed through the stained-glass window depicting a triumphant lioness, bathing the rows of fuchsia armchairs in warm hues. The air held the faint scent of lavender shampoo and peppermint conditioner, a symphony for her senses that had lulled her into a peaceful state for countless mornings. Outside, the city hummed with its usual chaotic energy, but within these walls, Eleanor’s world was a sanctuary, a place where she could sculpt stories onto heads and mend frayed ends. 
+
+Today, however, something felt different. A prickle of anticipation danced on her skin, a feeling akin to that first flutter before a big performance. The air itself seemed charged, vibrating with an unknown energy.  Maybe it was the way the sunlight cast long shadows across the worn linoleum floor, or perhaps it was the faint scent of rain clinging to the breeze filtering in from the open window. Whatever the reason, Eleanor couldn't shake the feeling that something extraordinary was about to happen. 
+
+

@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting:
+
+**Setting:**
+
+The humid air hung thick and heavy, carrying the scent of jasmine and desperation. It was late July in Savannah, Georgia, and the sun was already beating down with merciless intensity, even at ten in the morning. Outside, Broughton Street bustled with tourists, drawn to the city's history and charm. Inside "The Gilded Shear," however, the atmosphere was cooler, both literally and figuratively. The shop was a sanctuary of sorts, a dimly lit haven filled with the soft whir of clippers, the lingering aroma of rosewater hairspray, and the hushed conversations that were the lifeblood of any good salon. Antique mirrors, tarnished with age, reflected the faded elegance of the building, a grand Victorian that had seen better days but still held a certain faded glamour.
+
+**Opening:**
+
+Beatrice Eleanor Dubois hummed along to the Billie Holiday song crackling softly from the vintage radio perched on the marble counter. The worn leather of her cutting stool creaked as she shifted, angling her body for a better view of Mrs. Abernathy’s unruly blonde curls. Beatrice had been taming Mrs. Abernathy’s hair for over twenty years, a weekly ritual that involved more gossip than actual trimming. But today, the silence felt unusually weighty, broken only by the gentle snip-snip of Beatrice’s scissors. Mrs. Abernathy, usually a fountain of neighborhood news, was unusually quiet, her face pale and drawn. Beatrice paused, her scissors hovering mid-air. “Everything alright, dear?” she asked, her voice laced with genuine concern. The clatter of a trolley being pushed along the brick street outside seemed to amplify the sudden tension in the room. Mrs. Abernathy finally met Beatrice’s gaze in the mirror, her blue eyes brimming with unshed tears. "Beatrice," she whispered, her voice trembling, "I think... I think I've seen a ghost."

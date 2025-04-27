@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named Claude Monet who got his start with oil on canvas. His works for the British Museum are now in the Smithsonian. Here is one from 1788:
+
+This has been framed and hung up. The painting, a portrait of Louis XVI, still has its original frames on which it was hung, and in fact appears to have been stored in those frames for the last eighty years. At any rate he was very fond of his, and used to be found sitting at one of the corners of one, and he gave them a wide berth because he could smell the glue that had formed on them.
+
+The glue had formed on them long ago, so Monet didn't actually touch them. It stuck to the canvas, but by the time Monet got around to hanging up these frames, they had long since been removed, by someone who happened to be interested in art. There's a story that he eventually hung the frame in the garden outside his home, a short distance from the French king's palace. There have been some rumors that he actually died and his remains were dumped out in the woods; I find this odd, so I'm going to let that rest for now.
+
+The glue stuck on the frame has disappeared—it was long gone! Monet went on to paint many more works, and in his later years he was a friend of the reigning monarch; Louis XVIII and Marie-Antoinette.

@@ -1,0 +1,7 @@
+## Story Opening:
+
+The scent of lavender and old money hung in the air, a heady perfume that Amelia Rose Hawthorne both loved and loathed. Today, it was leaning more toward the loathsome. She stood in the doorway of the drawing-room, her perfectly manicured hand resting on the ornate, gilded doorframe. The afternoon sunlight, filtered through the leaded glass windows, painted fractured squares across the dusty, crimson velvet of the room's furnishings.  It looked less like a drawing-room and more like a vampire's parlor, waiting for its century-long slumber to be broken. Amelia sighed, the sound barely audible over the rhythmic tick-tock of a grandfather clock that probably predated the American Revolution.
+
+## Setting:
+
+The setting is the dilapidated, yet stubbornly magnificent, "Bleakridge Manor" in the Hudson Valley, New York. Bleakridge Manor had been in the Van Derlyn family for generations, each one adding their own layer of ostentatious (and often questionable) taste to the sprawling estate. The house itself is a mishmash of architectural styles, ranging from colonial to Victorian, with a touch of "I saw it in a magazine and just *had* to have it" thrown in for good measure. Outside, overgrown gardens, populated by statues choked with ivy and crumbling fountains, swallowed the house in a verdant, unruly embrace. The overall atmosphere is one of faded grandeur, bordering on tragic neglect.

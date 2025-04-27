@@ -1,0 +1,6 @@
+The air in Amelia Beatrice Cartwright’s workshop hung thick with the scent of lavender and silk. Sunlight slanted through the dusty attic window, illuminating motes dancing in the golden beams that fell across her worktable. Scattered amongst spools of thread, buttons like tiny jewels, and snippets of fabric in every imaginable hue were sketches of dresses: elaborate creations sketched in charcoal on yellowed paper, each one a testament to Amelia's meticulous artistry. 
+
+Amelia, a woman whose age was as elusive as the time she seemed to spend lost in her world of stitches and seams, hummed softly as she carefully measured a piece of shimmering turquoise satin.  The rhythmic rasp of her shears, coupled with the gentle clinking of needles against pins, formed a familiar symphony in the quiet stillness of the old house perched on the outskirts of Bath. 
+
+
+Her fingers, worn smooth from years of handling delicate fabrics, moved with practiced grace as she began to shape the fabric, conjuring visions of gowns that would grace balls and soirees, each one a whispered promise of elegance and beauty. Outside, the cobblestone streets echoed with the distant clatter of carriages and the hurried footsteps of passersby, but within Amelia’s haven, time seemed to stand still, allowing her to lose herself in the quiet magic of creation.

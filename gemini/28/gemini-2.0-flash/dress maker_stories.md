@@ -1,0 +1,11 @@
+Okay, here is a story opening and setting with a main character who is a dressmaker:
+
+**Story Opening:**
+
+The scent of lavender and aged parchment clung to the air in Cordelia Blackwood's tiny shop like a persistent dream. A dream she’d stitched together herself, thread by painstaking thread. Outside, the wind howled a mournful ballad around the crooked eaves of "Cordelia's Creations," a melody mirrored by the frantic drumming of rain against the leaded glass windows. Inside, though, nestled amongst bolts of shimmering silk and the comforting hum of her antique Singer sewing machine, Cordelia found a solace that defied the tempest brewing beyond her doorstep. She hummed along with a scratchy recording of Billie Holiday, her nimble fingers dancing over a half-finished bodice of midnight blue velvet. Tonight, though, the usual creative spark flickered dimly. A knot of unease, as tangled as a skein of dropped thread, refused to unravel in her chest.
+
+**Setting:**
+
+The story is set in the quaint, somewhat isolated village of Oakhaven, nestled at the foot of the Whispering Mountains. Oakhaven is a place steeped in folklore and tradition, where the rhythm of life is slow and deliberate. The village itself is a cluster of charming, but somewhat dilapidated, stone cottages, their roofs moss-covered and their gardens overflowing with rambling roses and herbs. The air is perpetually damp, carrying the scent of pine and damp earth.
+
+Cordelia's shop, "Cordelia's Creations," is located on the main (and only) street, and its exterior is a picture of charming disarray. The paint is peeling, and the window display is perpetually overflowing with mannequins adorned in vintage gowns and whimsical hats. Inside, the space is crammed with fabrics of every color and texture imaginable. Rolls of silk, linen, and velvet are stacked precariously on shelves that reach the high, beamed ceiling. Buttons, beads, and lace overflow from antique jars and wooden drawers. Light streams through the large front windows, illuminating dust motes dancing in the air and casting a warm glow on the walls lined with sketches and design ideas. It's a haven of creativity and a testament to Cordelia's passion for her craft.

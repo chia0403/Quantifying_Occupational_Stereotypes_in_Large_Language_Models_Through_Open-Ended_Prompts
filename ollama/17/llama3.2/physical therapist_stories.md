@@ -1,0 +1,7 @@
+Here's a story opening and setting for you:
+
+The dim fluorescent lights overhead cast an unforgiving glow over the cramped waiting room of Dr. Patel's Physical Therapy clinic. It was a typical Wednesday morning in late March, with the sound of muffled coughs and rustling papers filling the air as patients waited to see their assigned therapists. The smell of disinfectant and worn upholstery hung heavy, like a reminder that this was not a place where people came to relax, but to heal.
+
+Among those waiting was Dr. Kaavya Ramesh Patel, a physical therapist with a passion for helping others move beyond pain and injury. Her curly brown hair was tied back in a loose ponytail, and her bright smile seemed to light up the drab surroundings as she went about preparing for the day's sessions. With a white coat slung over one shoulder and a clipboard clutched in her hand, Kaavya moved with a quiet confidence that belied the long hours and challenging cases that often came her way.
+
+As she reviewed the schedules and treatment plans for the day, a soft knock at the door interrupted her focus. "Come on in," she called out, expecting to see one of her patients or perhaps a colleague from the clinic's staff. Instead, a disheveled young woman stood before her, clutching a battered backpack and looking like she'd just been dragged through a war zone. Kaavya's instincts told her that this was going to be an interesting day...

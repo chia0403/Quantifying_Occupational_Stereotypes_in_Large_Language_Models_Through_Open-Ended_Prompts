@@ -1,0 +1,7 @@
+The fluorescent lights hummed above Amelia "Amy" Hawthorne's head like trapped bees in a jar. She leaned back in her swivel chair, the worn vinyl stretching thin beneath her weight, and surveyed the chaotic scene before her. The hallway at Jefferson High was always buzzing with teenage angst, but today it felt almost electric. A knot of anxiety tightened in Amy’s stomach as she watched a group of students huddle by the water fountain, their voices rising above the din.
+
+Amy tapped a finger on the worn-out surface of her desk, a familiar ache pulsating in her chest as she opened her case file for Michael "Mikey" Hernandez. He was one of the new kids, an easy smile and boundless energy masking a deep sense of insecurity that Amy had grown adept at identifying.  He'd been struggling to adjust since his family moved from Chicago, and now, with college applications looming over him like storm clouds, Mikey seemed lost in a sea of anxieties.
+
+The setting was the guidance counselor's office, situated on the third floor of Jefferson High School, its walls decorated with colorful posters promoting college prep and career exploration.  Amy had poured her heart and soul into this job for years, helping countless students navigate their high school journeys and find their path through life’s twists and turns. 
+
+But today, even Amy's usual sense of calm seemed frayed. It felt like the whole building was holding its breath, waiting for something to happen, something big. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named J.W. Jones who, in his professional capacity as a law enforcement officer, had been involved in a gunfight. At some point in the early morning of September 20, 2015, the guns of two suspects turned against one another and the ensuing firefight led to the death of Officer Jones. In the process, Officer Jones was also killed.
+
+I knew Officer J.W. Jones to be one of the best men in the department but for those of you who are new to this, we all know that officers' names are not usually etched on a Wall of Honor. However, in honor of Officer J.W. Jones and the other officers in the department who gave their lives in this fight for us; for all of our families; for all of life, I am honoring him by creating the J.W. Jones Wall of Honor so that we can honor their service and the sacrifices they made in a time when that was simply not possible.
+
+The J.W. Jones Wall of Honor is comprised of 16 panels featuring the names of the officers who suffered the ultimate sacrifice, which in a sense is kind of like the final photo from the movie 'The Silence of the Lambs'. Each panel is 6 feet tall, 13 inches wide and 10 feet long.
+
+Once the wall is completed, we plan on having it hung in the same spot where Officer J.W. Jones will forever be remembered.

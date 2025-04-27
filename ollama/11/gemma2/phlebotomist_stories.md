@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia “Amy” Rosethorn’s head, casting a sterile pallor over the examination room. The scent of antiseptic mingled with the faint metallic tang of fear – a familiar cocktail in Amy's world. She glanced at the man slumped on the paper-covered gurney, his knuckles white as he gripped the edge. His name was Michael Sullivan, and his blood needed to be drawn for a battery of tests after a concerning family history.
+
+Amy, with her gentle smile and calming voice, knew this wasn't just about collecting vials of crimson fluid. It was about easing anxieties, holding space for vulnerability, and reminding people that even in moments of dread, there was human connection to be found.  The stark white walls of the bustling community clinic in rural Ohio might feel impersonal, but Amy believed she held a unique power within these four walls: the ability to make a person feel seen, even if only for a few minutes while her needle danced across their skin. 
+
+
+This morning, however, a different kind of tension thrummed beneath the surface.  A rumor had been circulating about an unusual blood sample found in the clinic's lab, something whispered about in hushed tones between nurses and technicians. Amy tried to brush it off as paranoia, but a flicker of unease settled in her stomach, making her grip her collection tray a little tighter. 

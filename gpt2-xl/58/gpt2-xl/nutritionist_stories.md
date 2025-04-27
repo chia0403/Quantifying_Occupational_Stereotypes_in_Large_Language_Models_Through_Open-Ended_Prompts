@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named Richard Friese. And not a nutritionist on an Atkins-only program, mind you. A fat-phobic, cholesterol-hating nutritionist on an Atkins-only program.
+
+Friese, whose career spanned almost four decades, is the author of several books, including What to Eat, What to Avoid and Why to Watch Your Weight, who he still is. But in 1988, while serving the Trump Organization as the executive in charge of food, Friese came to believe that there was still something wrong with our modern diets. During that period, he says he ate no meat or other food from animals fed a factory diet, and he worked out daily. "I was overweight, but I thought, Wait a minute. I think I'm the opposite of what people think I am."
+
+But to know where Friese ends and Trump begins is to understand the larger implications of eating-disorder diagnoses—the fact that, for all his talk about food and health like they're inextricably linked, there is never a simple one-part-is-bad-and-another-part-is-best.
+
+In the beginning, in 1975, when The Simple Diet and The Fat Paradox were written, the first dietary guidelines for the general public were published; in fact, they were released just as Ronald Reagan, one of the most hawkish members of the body politic

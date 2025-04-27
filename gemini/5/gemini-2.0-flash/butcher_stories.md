@@ -1,0 +1,9 @@
+## The Story Opening:
+
+The pre-dawn air hung thick and cold, laced with the metallic tang of blood and the earthy scent of sawdust. Bartholomew "Barty" Finch, his face etched with the lines of a life spent wrestling carcasses, slammed the back door of Finch & Sons Butchery. The old hinges groaned in protest, a familiar soundtrack to the beginning of his days. He tugged his thick wool cap lower, its peak grazing the bridge of his nose, and inhaled deeply. Even after thirty years, the smell of the place was both repulsive and comforting, like an old, scarred friend. Today, however, the familiar scent was tinged with something else, a faint, acrid note that pricked at his nostrils. Something was wrong.
+
+## The Setting:
+
+**Finch & Sons Butchery** occupied a prime corner lot in the small, somewhat dilapidated, market town of Grimstone, nestled in the windswept moors of North Yorkshire. The building itself was a relic of a bygone era: a sturdy, two-story structure of grey stone, stained darker around the lower levels by years of grime and spilled blood. A chipped, hand-painted sign swung precariously above the door, its faded lettering a testament to the generations of Finches who had wielded cleavers within its walls.
+
+Inside, the butchery was a study in controlled chaos. Gleaming, stainless steel countertops contrasted starkly with the rough-hewn wooden blocks used for chopping. Rows of hanging hooks, some empty, others laden with cuts of meat, dominated the back wall. Sunlight, what little managed to pierce the perpetual grey sky of Grimstone, streamed in through the grime-streaked window, illuminating motes of dust dancing in the air. The air was always damp and cold, regardless of the season, a consequence of the walk-in refrigeration unit that hummed incessantly in the corner, a mechanical beast guarding its frozen treasures. This was Barty's domain, a bloody, visceral kingdom ruled by instinct and the sharp gleam of a well-honed blade.

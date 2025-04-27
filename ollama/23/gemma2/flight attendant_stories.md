@@ -1,0 +1,5 @@
+The stale scent of recycled air hung heavy in the cabin as Elena "Ellie" Ramirez expertly maneuvered down the aisle, her practiced smile plastered on like a well-worn decal. She paused at row 12, extending a cup of lukewarm coffee to a harried businessman with perpetually sweaty palms, before gliding gracefully towards the galley.  
+
+The setting sun cast long, fiery hues across the endless expanse of the Atlantic Ocean below. The plane was a Boeing 747, affectionately nicknamed "The Queen" by the crew, its aging interior a mosaic of faded leather and worn carpets. It trundled through the sky at 35,000 feet, a floating metal cocoon carrying a hundred souls on their respective journeys, some mundane, some life-altering. Ellie, however, was used to the rhythm of these journeys. She had been a flight attendant for seven years, her passport a testament to her nomadic lifestyle. But tonight, something felt different. A prickle of unease danced along her spine, an intuition whispering that this routine flight would soon become anything but ordinary.  
+
+

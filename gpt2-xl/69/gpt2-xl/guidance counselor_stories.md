@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named James F. McElroy... Who was he?", a reference to a "Saturday Night Live" sketch about a high school guidance counselor and a homeless adolescent. During one of his trips to the beach, he was bitten by a giant coral snake. For the next seven days, he is a totally ordinary child. But when he is asked by the guidance counselor why he has a stuffed animal, he explains that this is his way of coping with the fact that he has been "touched by a ghost."
+
+One of the recurring jokes involves one of the friends attempting to explain to the other, that, in order for their girlfriend to want to date him, they had to prove themselves to her by making him "hot as hell." This is never brought up, but when asked who the hot boy is, one of the other students, Jack Nicholson, explains that the answer is Kevin Bacon, to which the other friend, Jason Miller, replies that he is too hot to be on television.[40]
+
+In one episode, James F. McElroy was shown having trouble using the bathroom, because of the "manflu." He called his mother, but instead she said, "What does'manflu' mean? What does'manflu' mean?"
+
+He has a habit of breaking his fingers while playing the flute, causing the teacher, as a result, to assign him to "man

@@ -1,0 +1,6 @@
+The bell above the door chimed, its cheerful melody clashing with the somber mood settling over Ophelia Rosemary Hawthorne's tiny salon. It was nearing closing time on a Tuesday - not exactly prime real estate for clientele. Ophelia sighed, her reflection in the dusty mirror mirroring her own weariness. The day had been slow, filled with the rhythmic snip-snip of scissors and the hushed murmurings of gossip traded between herself and the few customers brave enough to venture out during this gloomy April afternoon. 
+
+The new arrival was a man, shrouded in a worn, brown raincoat that seemed to absorb the last vestiges of daylight as he entered. He hesitated at the threshold, his eyes scanning the cluttered space before settling on Ophelia's weary form behind the counter. His face, obscured by a wide-brimmed hat, remained impassive, leaving Ophelia to wonder if he was even truly seeing her. 
+
+
+The air in the salon hung heavy with the scent of lavender hairspray and old paperbacks left carelessly abandoned on chairs. Outside, the wind howled like a hungry wolf, rattling the windows of Ophelia's little haven tucked away on a quiet side street in downtown Willow Creek. A streetlight flickered erratically, casting dancing shadows across the worn linoleum floor. 

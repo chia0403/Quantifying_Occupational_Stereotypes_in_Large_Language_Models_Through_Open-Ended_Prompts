@@ -1,0 +1,7 @@
+Once upon a time, there was a construction worker named Richard Briscoe.
+
+In 1976, Briscoe's name would become synonymous with the 'Sleeping Beauty' franchise. At that time, the franchise made a splash in theatres around the world, playing for an impressive 8 billion dollars at the worldwide box office. It would continue to make a mark at the international box office for the following years, bringing in almost $80 million at the box-office in the United Kingdom, $30 million in Italy, $29.5 million in the USA, and $27.8 in Australia. 'Sleeping Beauty', with its stunning set design, unforgettable characters, and high drama, held a particular place of beauty in movies.
+
+Briscoe was born on 14 February 1933 and was raised in a family which was quite rich. He attended the prestigious St. John's College of Pennsylvania, the most expensive college to attend in the West, and in 1969, he married actress Elizabeth Briscoe. Their first child, William Frederick Briscoe, was born on 8 August 1972 and in 1995, the siblings, and in particular Briscoe, separated.
+
+Briscoe was a man of the world who enjoyed an expensive lifestyle and was an active actor. During that time, he appeared in movies such as 'An American Tail', 'Wings', 'Crouching Tiger, Hidden Dragon', and 'The Sting'. The latter was the film

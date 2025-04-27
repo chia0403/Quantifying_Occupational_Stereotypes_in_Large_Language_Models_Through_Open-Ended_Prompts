@@ -1,0 +1,5 @@
+Once upon a time, there was a groundskeeper named Mr. Bill. He was so bad at his job that there wasn't even room to move. He was so dispirited all the time that no one bothered to come and check up on him. At one point he didn't even know how to tie his shoemaker's laces. Well, he did his best. But eventually he'd had enough. And it came to a horrible end. This little incident was recorded, and all of your friends are going to hear it.
+
+Your name is going to be on the news. It's going to be seen by all of the rich girls of your town. They're going to be impressed by your talent, your dedication, and your hard work. You're going to be promoted, rich, and married. That's what you're going to do. You're going to get to the point where you can retire. But, when you do, at least someone will remember you.
+
+That's why those people in the back yard keep feeding the lawnmower to Mr. Bill. Because they care about him. They won't let him waste away like he has in the past – because, in their eyes, the past is never coming back.

@@ -1,0 +1,7 @@
+The humid Georgia air hung thick and heavy over Savannah, clinging to Amelia “Amy” Blackwood like a second skin. The cicadas buzzed their monotonous symphony in the overgrown pecan trees lining Bull Street, a soundtrack to the city's slow simmering heat.  A bead of sweat trickled down Amy’s temple as she adjusted her holster – a habit born from years of navigating Savannah’s underbelly, where charm and danger often danced hand-in-hand. She squinted through the glare at the dilapidated Victorian house across the street. Number 314, the last known address of Jackson Hayes, her newest probationer.
+
+
+Jackson was a wild card – a talented artist caught up in a web of petty theft and bad decisions. Amy had seen his case file: graffiti murals that turned heads, whispered tales of stolen jewels, a burning talent stifled by recklessness. Today, she had to determine if Jackson’s probation was worth the effort, or if he was destined to become another statistic in Savannah's cycle of crime and punishment. 
+
+
+Taking a deep breath, Amy stepped out of her car, the asphalt sizzling beneath her shoes. The faint smell of jasmine mingled with something less pleasant – stale cigarettes and the ever-present scent of decay that permeated the historic district's forgotten corners. This was where she thrived, in the shadows between order and chaos, navigating a world where second chances were rare, but sometimes, just sometimes, worth fighting for. 

@@ -1,0 +1,11 @@
+**Title: Beneath the Cracked Surface**
+
+**Setting:**
+The rain drummed steadily against the windowpanes of Maplewood High School, a brick building nestled in a sleepy town where the trees whispered secrets and the streets felt like they had been stitched together by generations of laughter and tears. Inside, the air was thick with the scent of damp paper and chalk dust, punctuated by the occasional burst of laughter or the distant murmur of a class in session. The faded blue lockers lined the hallways, their metal doors adorned with hastily written notes and old photographs, each one a tiny glimpse into the lives of the students who roamed the halls.
+
+In a quiet corner of the school, an office painted in mellow pastel shades provided refuge for those seeking guidance. A small bookshelf sagged under the weight of worn psychology texts, and a colorful tapestry of children's artwork brightened the walls—each drawing a reminder of the young lives being shaped inside these four walls.
+
+**Character Introduction:**
+Meet Dr. Eliza Lorraine Carter, a compassionate school psychologist in her early thirties with warm hazel eyes that sparkled with understanding. With her wavy chestnut hair pulled back in a loose bun, she epitomized calm amidst the chaotic environment of adolescence. Her desk was a carefully organized mess of case files, colorful sticky notes, and a steaming mug of chamomile tea—her trusted companion during many late-night sessions of paperwork and reflections.
+
+Dr. Carter had a way of making each student feel seen, whether it was through a gentle question or a reassuring smile. But beneath her nurturing exterior lay a relentless drive to uncover the often-hidden struggles of her students. Today, though, a tension brewed in the air, a feeling that something was amiss. The rustle of papers was punctuated by the unmistakable sound of muffled sobs drifting from the next room, calling to her like a siren's song. Little did she know that behind that door lay a secret that would unravel the very fabric of her beloved school.

@@ -1,0 +1,9 @@
+## Story Opening:
+
+The clatter of the diner was a low, constant hum, punctuated by the occasional screech of a chair leg against the linoleum floor and the gruff orders barked from behind the greasy counter. Outside, the rain hammered against the windows, blurring the neon glow of "Rosie's" into a hazy, melancholic wash. Eleanor Vance, clutching a lukewarm cup of coffee, watched the water streak down the glass, each drop a miniature, distorted reflection of the town of Havenwood. It was a fitting reflection, she thought, because nothing in Havenwood was quite as it seemed.
+
+Eleanor shivered, drawing her threadbare wool coat tighter around her. She’d been chasing this story for weeks, a whisper of corruption that had clung to her like the damp chill seeping into her bones. The locals, tight-lipped and suspicious, had offered her nothing but wary glances and half-truths. But Eleanor Vance, investigative journalist for the *Metropolitan Gazette*, was not easily deterred. Tonight, she was hoping, would be different. She was meeting her only lead, a nervous old man named Silas, and she had a feeling he held the key to unlocking the secrets of Havenwood. If he even showed up.
+
+## Setting:
+
+The story opens in **Rosie's Diner**, a classic American diner located on the outskirts of **Havenwood, a small, isolated town nestled in the Allegheny Mountains of Pennsylvania.** The diner is a haven for truck drivers and locals alike, characterized by its worn vinyl booths, chrome fixtures, and the lingering smell of bacon grease and cheap coffee. The weather is a **torrential downpour in late October**, contributing to the town's already gloomy atmosphere. Outside the diner, the surrounding landscape is a tapestry of dense forests and rolling hills, giving Havenwood a feeling of both isolation and potential danger.

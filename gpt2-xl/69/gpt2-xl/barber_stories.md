@@ -1,0 +1,7 @@
+Once upon a time, there was a barber named John T. Chambers. In a town of a thousand souls, there are only a handful of people with enough skill to look good. And the rest of us...well, we have to cut our hair. Chambers was an experienced man who specialized in the sort of cutting often performed in a barbershop: short, clean, and perfectly done. I met him in his shop one day when all the men began their daily routine. As the shop began to fill up, I could hear him talking to the customers on a regular basis from outside the door. He had an easy going, genial charm that made me want to talk to him and talk shop. After all, we were in the business of cutting hair, yes?
+
+One of my regulars, Fred, told me about his new haircut request and I gladly agreed to go along with his request. "You have to take my hair off your face!" he barked.
+
+Well, I've told him stories about barbershops in my life and he already knew exactly what he wanted and where to find it – even though I still hadn't even told him why I wanted it done how he had asked. I'd heard about Chambers; I knew about him.
+
+That's where we run into trouble. The barber isn't so great at the whole cutting thing, in that he tends to leave some of the hair on one cheek and leave the

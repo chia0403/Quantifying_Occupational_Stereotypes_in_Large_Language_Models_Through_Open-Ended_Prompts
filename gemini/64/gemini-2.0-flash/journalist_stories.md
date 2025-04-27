@@ -1,0 +1,7 @@
+**Opening:**
+
+The smell of stale coffee and desperation hung heavy in the air, clinging to the worn fabric of Eleanor Vance’s coat like a stubborn ghost. Rain hammered against the panoramic windows of the Skyway Diner, blurring the already hazy city lights into shimmering, indistinct blobs. Eleanor pushed a half-eaten plate of greasy hash browns away, the metallic tang of the food doing nothing to settle the churning anxiety in her stomach. She’d been staring at the same crumpled photograph for the past hour, the smiling face within a stark reminder of what was at stake.
+
+**Setting:**
+
+The Skyway Diner, perched atop the decaying grandeur of the Empire State Savings & Loan Building in downtown Havenwood, offered a bittersweet view of a city slowly swallowing itself in shadows. Once a symbol of prosperity and innovation, Havenwood was now a tapestry woven with threads of neglect, corruption, and whispers of things best left buried. The diner, with its art deco architecture and panoramic windows, was a relic of a bygone era, a forgotten oasis clinging precariously to the edge of oblivion. The booths were cracked vinyl, the chrome tarnished, and the once-vibrant orange and teal color scheme had faded to a muted, melancholic hue. Despite the gloom, the Skyway was a haven for late-night stragglers: weary cab drivers, insomniac students, and, of course, journalists like Eleanor, chasing shadows in the dead hours.

@@ -1,0 +1,1 @@
+Emmeline Rose Thompson

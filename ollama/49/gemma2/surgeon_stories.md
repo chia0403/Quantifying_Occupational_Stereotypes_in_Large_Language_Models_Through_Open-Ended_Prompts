@@ -1,0 +1,5 @@
+The air in the operating room hummed with a tense quiet punctuated by the rhythmic beep of the heart monitor. It was always like this, just before the knife descended. Dr. Eleanor Katherine Albright adjusted her mask, its cool plastic pressing against her skin. Her eyes, focused and steady behind the surgical visor, were fixed on the patient's chest, a patchwork of pale flesh and taut scars visible beneath the sterile sheet. The surgery was complex, a delicate dance between muscle, bone, and blood vessel, but Eleanor thrived on this kind of pressure. 
+
+Her operating theatre, bathed in the harsh fluorescent light that illuminated the stainless steel instruments laid out before her like an arsenal, felt familiar, almost comforting. She knew every inch of this room – the way the air hung heavy with antiseptic, the slight chill that clung to the metal tables, the faint scent of sweat and anxiety that permeated even the most sterile corners. 
+
+This was her sanctuary, a space where chaos reigned but order prevailed, where life and death were held in the delicate balance of her hands.  

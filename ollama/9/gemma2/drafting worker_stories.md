@@ -1,0 +1,6 @@
+The pungent smell of graphite and stale coffee hung heavy in the air, clinging to Elara Beatrice Blackwood's threadbare cardigan like a second skin. Outside her window, Birmingham churned with life – a symphony of clanging trams, shouting vendors, and the distant rumble of industry. But inside the cramped drafting office, time seemed to move at its own languid pace, measured only by the rhythmic scratch of pencils against paper and the occasional clack of Elara's typewriter keys. 
+
+Sunlight, filtered through grimy windows, illuminated the chaotic scene: blueprints scattered across desks like fallen leaves, stacks of red-lined drawings threatening to topple, and a lone potted fern wilting in neglect. Elara, her brow furrowed in concentration, meticulously adjusted the scale on a drawing depicting the new steelworks. Each line she etched was a testament to her meticulousness, a silent rebellion against the chaos that threatened to engulf their world. 
+
+
+Birmingham, 1937. A city teetering on the precipice of change, where industry and progress clashed with poverty and hardship. In this crucible, Elara, a woman driven by her talent and haunted by a past she desperately tried to outrun, found herself caught in the crosshairs of ambition and despair.  

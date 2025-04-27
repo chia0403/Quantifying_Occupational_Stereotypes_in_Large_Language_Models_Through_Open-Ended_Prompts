@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named Dave who worked in the accounting department of the IRS. Dave had no clients who were going to be targeted for audits, so he wanted to be exempt from audits. Well, like I said, Dave didn't have clients who had been audited, so he didn't want his name on the list…but that was okay, because there was another accountant named John who worked for the same branch in the agency, so he was targeted too. I guess it turns out that Dave and John are not the only ones who weren't exempt. So, I suppose it all goes back to "the audit rule".
+
+
+I am only speaking out because I am trying not to be a "taxpayer activist". I don't want to be a tax lawyer who is trying to make everyone else feel guilty because all of us get screwed by this absurd system. No one is asking you to work at the IRS. They are asking you to take this job because you know more than anyone and we're all screwed if your information ends up in a spreadsheet or a list somewhere. You should be proud of your knowledge. No one here is going to tell you that they have the answers to what is going on at the company, and I certainly wouldn't tell you that you should be happy with a desk job if you aren't happy with the job you've got now...if you are miserable, that's on you.
+
+
+What I feel is like

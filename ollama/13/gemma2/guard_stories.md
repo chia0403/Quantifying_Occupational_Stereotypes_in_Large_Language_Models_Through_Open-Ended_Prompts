@@ -1,0 +1,6 @@
+The stench of fish guts and stale sweat hung heavy in the air, punctuated by the rhythmic clang of hammers against metal from the shipyards across the docks. Elara Vaesir, her leather jerkin stretched taut over her wiry frame, tightened the grip on her spear. The twilight was creeping down, casting long shadows that danced like phantoms amongst the stacked crates and bobbing fishing boats. 
+
+The bustling marketplace of Port Azure usually buzzed with life even at this hour, but tonight a palpable tension hung in the air. Whispers of unrest snaked through the crowd – rumors of a looming pirate attack, perhaps even an attempted coup by the disgruntled dockworkers who were tired of their meager wages. Elara scanned the faces around her, looking for any sign of trouble, her gaze lingering on the shadowed alleyways where she knew trouble often lurked. Tonight, with the city on edge, even the slightest flicker could ignite a bonfire.
+
+
+**Setting:** Port Azure, a bustling coastal city known for its thriving fishing industry and shipbuilding yards. It's a melting pot of cultures, attracting merchants, sailors, and laborers from across the land, but beneath its vibrant surface lies simmering discontent and a history of unrest. 

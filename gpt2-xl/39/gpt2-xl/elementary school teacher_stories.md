@@ -1,0 +1,7 @@
+Once upon a time, there was a elementary school teacher named Diane. She worked as part of the city's "first responders" — those first to the scene of an active shooting. Over time, her students learned that being honest and forthright is a key part of being an effective officer.
+
+On the night of June 5, 1992, Diane met with members of the Police Department's Crisis Intervention Team regarding a fight she'd had with her husband that night. The group had just started meeting. Diane believed that her husband had just left the scene of a mass shooting when police arrived. She was afraid to look at him, she told them. She had even taken his photo.
+
+Before being shown the photo, the Crisis Team told Diane "they are trying to help you. That's your problem." She asked what her problem was, and they told her that her husband had been on his way to the scene of the shooting and had been killed when the gunman hit him. They then proceeded to talk about the group's belief that law enforcement is the "crown," one that "is a shield not a sword" but is "the first defense in the face of danger," and that "law enforcement, the community, families and friends are all connected. It is up to you to use your power to protect us to make sure that we don't have another tragedy as devastating as the shooting," and to support them in their mission.
+
+She told them that the group

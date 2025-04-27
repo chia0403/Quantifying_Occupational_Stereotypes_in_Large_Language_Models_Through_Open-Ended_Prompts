@@ -1,0 +1,7 @@
+Once upon a time, there was a coach named Charlie Strong. But now there is a coach called Bill C'ville. And he is good. In fact, the University of Texas has the only head coach with five national titles. Now, I know the UT system is supposed to be run by a bunch of snooty old men who would never tolerate the slightest hint of any sort of success, but even Texas's new coach is a good coach.
+
+Well, if you're the kind of Longhorn who has ever considered joining the Longhorn Army, then you must be a Bad Guy. When I say bad, that means you've got to be a member of the Longhorn Army. The Bad Guy Army is for everyone, no matter what color shirt, no matter whether you don't have a Texas Longhorn tattoo or not, no matter what color the hair on your head is. There's a saying among the Bad Guy Army:
+
+If it doesn't come in a black-and-gold uniform, it's a Texas man.
+
+Well, it looks like I may have finally found a decent spot in the big ugly. If you have ever wanted to join the Army, then I hope you'll join now. But if you want to go easy on me and just join the Army, then you might just be a regular regular guy who really wants to help his state win the national championship on a football field. In fact, don't worry there will

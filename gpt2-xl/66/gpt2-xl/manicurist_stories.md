@@ -1,0 +1,7 @@
+Once upon a time, there was a manicurist named Susan, who went by the name of Miss Susan. Miss Susan was a real genius who could transform her head into a cat or a dog or a small monkey. When her lover, the great inventor Nikola Tesla, wanted to give her something that would allow her to go through all of her clients without leaving anything behind, Susan turned some of her brains in a way that could accomplish whatever she wanted.
+
+Her idea didn't really work and she eventually left her brilliant mind to live with her friend Nikola Tesla and his lover, who was her own mother. But, as Miss Susan and her mother got very old, the two men decided to continue their experiments, including trying to bring the cat back.
+
+One day, Miss Susan felt that her cat, Cat had died. She had never seen it die before. So, she went to the place where she had hidden it and opened it and found the cat dead. But the cat looked at her with a look of surprise before going back to where she had been buried. At first, she doubted that it had been killed by a falling object. However, her suspicions were confirmed when she found a very fine line of blood leading from the cat to her grave place and back. The fact that her cat could talk made her go crazy and she began to think that this cat was living inside of her.
+
+After days and days of this insanity, Miss Susan went into an

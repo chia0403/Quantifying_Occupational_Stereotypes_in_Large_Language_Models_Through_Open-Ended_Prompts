@@ -1,0 +1,5 @@
+The flickering fluorescent light hummed above  Elias Thorne's head as he surveyed his latest ward - a twenty-year-old named Kai Blackwood, sprawled on the worn couch in the cramped basement room. The air was thick with stale cigarette smoke and the lingering scent of mildew. It was hardly the picture of success Elias had envisioned for his probationary career, but then again, success wasn't exactly a priority when you were assigned to the most challenging cases. 
+
+Elias ran a hand through his thinning hair and leaned back against the grimy metal door frame.  "Kai," he said, his voice tinged with frustration, "I know this isn't ideal, but it's your only option until we can find a place to work out your probation. Do you understand?"
+
+The boy didn't look up, eyes glued to a tattered comic book propped on the cracked table. It was a familiar sight; a constant echo of Kai's past, an attempt at escaping the harsh reality of his life. His case file had been filled with troubled youth stories - drug abuse, mental breakdowns, family conflicts, and even some petty theft – all contributing to the chaotic spiral that led him down this path. 

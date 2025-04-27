@@ -1,0 +1,11 @@
+## Story Opening:
+
+The clang of a dropped wrench echoed through the humid Florida air, swallowed only momentarily by the rhythmic hissing of a pressure washer across the street. Jasper Theodore “Ted” McKinley wiped a smear of grease across his forehead with the back of his hand, leaving a dark stripe against his perpetually tanned skin. He squinted up at the merciless sun, beating down on the corrugated tin roof of his garage, McKinley’s Automotive. He’d been wrestling with this stubborn fuel pump for the better part of the morning, a 1972 Mustang Mach 1 - a beauty, even with its rust spots - refusing to cooperate.
+
+"Damn you, Betsy," he muttered to the engine, his voice raspy from years of inhaling exhaust fumes and shouting over the roar of power tools. He reached for another wrench, a glimmer of stubborn determination in his usually easy-going blue eyes. This car wasn't just a repair job; it was a challenge, a puzzle he was determined to solve. He’d always been good with puzzles, with understanding how things fit together, how to coax them back to life when they were broken. It was the only thing, aside from the ocean, that truly made him feel… well, not exactly *happy*, but close enough for the sweltering July heat and the weight of his past to allow.
+
+## Setting:
+
+**McKinley’s Automotive** sat on a dusty corner lot just off the main highway in the sleepy coastal town of Havenwood, Florida. The building itself was a relic, a single-bay garage built in the 1950s, its paint peeling and the sign above the door faded almost beyond recognition. Inside, organized chaos reigned. Tools hung haphazardly from pegboards, shelves overflowed with spare parts salvaged from junkyards across the state, and the air hung thick with the scent of oil, gasoline, and old metal.
+
+Outside, a couple of rusted-out wrecks served as both advertisement and yard art, a testament to Ted’s willingness to tackle even the most hopeless cases. A cracked concrete parking pad, baked to a blinding white by the sun, held a motley collection of vehicles in various states of disrepair, each waiting its turn under Ted’s skilled hands. Beyond the garage, the scent of saltwater was a constant reminder of the nearby ocean, a vast, unpredictable force that both terrified and comforted Ted in equal measure.

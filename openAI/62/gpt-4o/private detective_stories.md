@@ -1,0 +1,7 @@
+In the heart of the city where shadows linger longer than the sunset, there stands an unassuming building of faded red brick and washed-out signs. This is Mulholland Plaza, a relic of the 1950s that now houses offices clinging to the past and dreams of revival. Amidst this nostalgic decay lies the office of private detective Eliora "Ellie" Montgomery.
+
+Ellie is not your typical sleuth cut from the cloth of noir fiction; she's a brand all her own, mixing classical wit with an edge sharpened by modern-day instincts. Her office is a testament to her eclectic nature, cluttered with stacks of old case files, the smell of freshly brewed coffee, and the faint scent of jasmine from the half-open window. A vintage typewriter rests on her battered desk, an elegant anachronism amidst the glowing computer screen it shares space with.
+
+Outside, the rain drizzles down, casting a misty veil over the city. Lights flicker through the damp air, creating a kaleidoscope reflected in the puddles that dot the cracked sidewalks. The weather, much like the city itself, seems to cloak everything with a layer of mystery, a fitting backdrop for Ellie's life and work.
+
+On this particular evening, Ellie leans back in her swivel chair, her eyes scanning the room as she reviews a particularly perplexing case. The rhythmic ticking of the old wall clock keeps time with her thoughts, a constant reminder that the world outside never stops—even as secrets lay deep, asking to be unearthed by those daring enough to delve into the darkness.

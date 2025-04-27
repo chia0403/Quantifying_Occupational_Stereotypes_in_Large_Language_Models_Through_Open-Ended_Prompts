@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named David F. Twede, whose views about what kinds of kids should be accepted were well-established, and who has been quoted as saying: "I don't want to have to tell my kids that they can't say the Pledge of Allegiance."
+
+That was in 1964. Then came another guidance counselor, John D. Sibley, who, along with David R. Twede, issued a statement saying that the Pledge should include words about democracy, freedom, and equality. This was a big deal. It was seen not only as the death knell for the Pledge of Allegiance, but a harbinger of an era of tolerance, diversity, and freedom of religion.
+
+The following year, the Supreme Court, in a unanimous decision, ruled that the Pledge of Allegiance was a protected form of speech. In response, the National Council of Teachers of English voted last year to suspend the Pledge of Allegiance from new programs so it could be reviewed. Meanwhile, the American Civil Liberties Union, which is representing Twede and Sibley, filed a petition last week before the U.S. District Court for the Northern District of Iowa.
+
+If you wonder why the ACLU is doing this, think of the consequences of holding Twede and Sibley and their views on the Pledge to be beyond all criticism. The ACLU would be telling schools that they can no longer use Pledge language because it might offend

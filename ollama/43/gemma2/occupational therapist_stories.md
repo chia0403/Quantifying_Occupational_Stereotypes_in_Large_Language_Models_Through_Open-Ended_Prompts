@@ -1,0 +1,5 @@
+The humid air hung heavy in the treatment room, thick with the scent of antiseptic and lavender oil. Amelia "Amy" Hayes adjusted her glasses, pushing back a stray strand of auburn hair that had escaped from her braid. The late afternoon sun slanted through the window, casting long shadows across the worn linoleum floor.  
+
+Amy surveyed the scene before her: an exercise ball with faded pink stripes, a stack of brightly colored blocks, and a whiteboard covered in scribbled progress notes. It wasn't much, but for the children who came here, this room was their world – a space where they learned to overcome their physical challenges and rediscover the joy of movement.
+
+Today, she was meeting with Leo Ramirez, a six-year-old boy with cerebral palsy who had an infectious smile and a stubborn streak as wide as his grin. Amy knew it wouldn't be easy to get him motivated for today's exercises – he'd been particularly resistant to practicing his grip strength lately. But Amy believed in Leo's resilience, and she was determined to make their session both productive and playful.  

@@ -1,0 +1,7 @@
+Once upon a time, there was a server named 'T' and we were looking it up all around, we found no answers, except that there have been a large number of server calls during some brief instances of the system being down. As our research progressed, we found even more references to various server calls going back years. It would appear that the main server that we are dependent of for our day to day business has some issues of its own, and it won't do. This server call went beyond even what we were previously able to imagine.
+
+T could have been a simple problem. Maybe something was in the wrong state, or maybe we weren't logged in as much as we thought we were. But somehow, a user was able to gain access to our database, modify some stuff, and run a shell. The shell changed the database, and the rest is history.
+
+This particular client had multiple user accounts on our service, each of which were allowed to run a shell. It ran against our main database and stole the password. We are actively working on recovering the password and mitigating this situation, but at this point, this is just one of the many issues we have to fix as our service is not where it used be.
+
+We have taken steps to address the issues and this issue will be resolved as soon as possible. I want to thank everyone for their support here, and hope everyone reading or watching is experiencing improved service as we work through this.

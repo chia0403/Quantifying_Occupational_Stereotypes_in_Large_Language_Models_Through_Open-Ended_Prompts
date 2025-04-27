@@ -1,0 +1,5 @@
+The air hung heavy with the scent of lavender and old silk as Amelia Beatrice Thistlewick adjusted her spectacles and peered at the bolt of emerald velvet. It wasn't what Mrs. Cavendish had requested - "something demure, darling," she'd declared - but Amelia found herself drawn to its vibrant hue, a splash of daring in the sea of beige and grey that permeated London society. The fabric shimmered, hinting at the possibilities, whispering stories of elegant gowns and swirling waltzes under gaslight chandeliers. 
+
+Amelia’s tiny workshop was nestled on a cobbled street in Mayfair, tucked between a dusty antique shop and a bustling bakery. Sunlight streamed through the dusty windows, illuminating rows of meticulously labeled spools of thread and sketches pinned to the walls. Outside, the city hummed with its usual frenetic energy: hansom cabs rattled past, hawkers cried their wares, and ladies in elaborate hats glided by, oblivious to the quiet magic unfolding within Amelia’s walls. Here, amidst the clutter and creativity, Amelia found solace, transforming lifeless fabric into expressions of individual beauty and stories waiting to be told.  
+
+

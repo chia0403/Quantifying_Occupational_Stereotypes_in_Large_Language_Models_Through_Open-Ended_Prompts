@@ -1,0 +1,7 @@
+Once upon a time, there was a plumber named "Jack." Jack worked as a plumber in a poor neighborhood, where the only people he worked with were poor people. He wore red overalls, had a brown mustache and a mustache and a beret and always had a cigarette dangling from his mouth. One day, while Jack was working on the floor of his home, an alligator came barging out, and Jack ran out of his home and jumped into the swimming pool with it. After jumping into the pool with the alligator, Jack was pulled up by its tail, just like his name is spelled, "Jack."
+
+What the alligator was to Jack, the internet was to Trump.
+
+For the past month–the entirety of the Republican Primary–there has been a constant undercurrent of vitriol being spewed by the "Alt-Right" on the web. Whether it's from white nationalists, white supremacists, or Alt-Right enthusiasts, the media has largely ignored the hate speech that is being spewed on the internet and has instead chosen to focus on the violent events that were occurring on the streets of Charlottesville, Virginia. But that is not the real story here; it's just the part that was reported and reported favorably. But what is truly behind the online hate being spewed against a diverse collection of people from all walks of life?
+
+That is the question that this article will answer; how internet activity and the alt-right

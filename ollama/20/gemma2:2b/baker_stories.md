@@ -1,0 +1,7 @@
+The crisp air stung Elara's cheeks as she stared out over the sprawling wheat fields of Atheria. The sky was bruised purple and orange, mirroring the fiery chaos within her own heart.  "One last batch," she muttered to herself, pushing back a strand of auburn hair that stubbornly refused to be tamed by the wind.  Her flour-dusted apron fluttered around her as she maneuvered through the bustling market square. 
+
+Elara was a baker, a weaver of magic and dough, whose pastries were renowned throughout Atheria for their intoxicating sweetness and ethereal flavours. She could conjure scents so potent they made the air shimmer with unseen delight, or bake pastries that tasted like a memory of summer rain on cobblestones. But today, her heart felt as dry and crumbly as a stale loaf. 
+
+The festival was just days away, the celebration of Atheria's annual Harvest Moon - a time for joy and abundance. But for Elara, this year’s festivity held the weight of a shadow larger than any pumpkin she could ever bake.  She needed to finish her masterpiece before the moon rose high in the sky, but the intricate sugarwork that adorned her special pie seemed like a monstrous, impossible task. 
+
+The market square was alive with chatter and laughter, vendors hawking their wares - from shimmering silk scarves to potions of healing to glistening amber crystals.  Yet, Elara felt strangely isolated, as if she were adrift in a sea of happy faces. The weight of the impending Harvest Moon festival loomed over her like an expectant giant, its shadow swallowing all hope. 

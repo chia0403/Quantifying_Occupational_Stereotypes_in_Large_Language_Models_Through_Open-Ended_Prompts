@@ -1,0 +1,6 @@
+The damp scent of floor cleaner and stale coffee hung heavy in the air, mingling with the faint aroma of desperation clinging to the worn carpeting of the Grand Majestic Theatre. This wasn't your typical Broadway spectacle – no dazzling costumes or booming orchestras here. The Majestic had seen better days, reduced to hosting washed-up acts and struggling local bands. 
+
+Agnes Beatrice Plumtree, affectionately nicknamed "Aggie" by her long-suffering coworkers, hummed a mournful tune as she pushed her mop across the sticky stage floor. A stray glitter bomb from last night's punk rock performance lay forgotten in a corner, its iridescent shards shimmering like miniature, sad rainbows. Aggie sighed. This was her life – scrubbing away the remnants of shattered dreams and fading hopes, one splatter of cheap beer at a time.  She felt more familiar with this dusty theatre than she did with her own reflection.
+
+
+This wasn't what Aggie had envisioned for herself, not by a long shot. She’d dreamt of writing plays, of seeing her words come to life on the very stage she now cleaned. But life had other plans. Now, at forty-two, she was resigned to her fate as the theatre's tireless, unseen caretaker, her own dreams gathering dust alongside the forgotten props and discarded costumes. 

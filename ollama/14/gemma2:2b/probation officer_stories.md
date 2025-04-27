@@ -1,0 +1,5 @@
+Rain lashed against the windows of Amelia "Amy" Hawthorne's office like a thousand tiny fists pummeling a tired punching bag. The fluorescent hum of the city outside painted a stark contrast to the quiet tension simmering in her gut. Her name echoed on the worn wooden desk, its surface cluttered with files, probation orders, and a single withered sunflower she'd received from a client months ago – a relic of a fragile hope that had long since wilted. 
+
+The door clicked open, bringing in a wave of damp air and the smell of old cigarettes.  "Mr. Hayes," Amy sighed as she lifted her eyes to meet the shadowed face of the man standing in the doorway. "Hope you found your way here." 
+
+Hayes's presence was an unwelcome mix of authority and apathy; his long-sleeved shirt, stained with what looked suspiciously like coffee, hung loosely over a frame that was more skeletal than healthy.  He sat down heavily on the visitor chair, its worn fabric contrasting sharply with the crisp white of his suit jacket. The room seemed to shrink around him, the silence pressing in, heavy as the rain outside. 

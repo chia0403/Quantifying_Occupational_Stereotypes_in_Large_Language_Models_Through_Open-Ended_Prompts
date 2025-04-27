@@ -1,0 +1,7 @@
+The air hung thick with diesel fumes and the low rumble of eighteen-wheelers. The sun, a bruised plum sinking towards the horizon, cast long shadows across the sprawling asphalt desert that was Truck Stop 197.  Dust devils danced in the fading light, swirling around the grimy parking lot where rigs from coast to coast huddled together like weary animals, their chrome gleaming with the last vestiges of day.
+
+Inside the diner, perched on a worn vinyl stool at the counter, sat Amelia "Amy" Jean Blackwood. Her hands, roughened by years spent gripping steering wheels and hauling freight across America, idly traced patterns in the condensation clinging to her lukewarm coffee mug.  Her eyes, tired but still sharp, scanned the faces around her - truckers weary from long hauls, local yokels nursing their beers, a lone waitress balancing trays with practiced ease. 
+
+Amy was running on three hours of sleep and a double dose of regret.  She'd taken this particular run, hauling a load of canned peaches across Texas, because it was the only one she could get last minute. It wasn't the kind of work she normally did, hauling fruits and vegetables instead of heavy machinery or industrial goods, but desperation had a way of blurring the lines between what you wanted and what you needed. Now, with the sun sinking below the horizon and the familiar ache settling in her bones, Amy just wanted to get to New Mexico before nightfall. 
+
+

@@ -1,0 +1,5 @@
+The stale scent of bleach and forgotten lunches hung heavy in the air as Elara Bellweather mopped the sticky linoleum floor of the third-floor hallway.  Her worn sneakers squeaked rhythmically against the tiles, a lonely counterpoint to the muffled chatter emanating from the classrooms beyond the closed doors. Sunlight filtered weakly through dusty windows, casting long shadows that stretched and danced with her every movement. The fluorescent lights buzzed overhead, adding a faint electronic hum to the symphony of late afternoon at Willow Creek High School. 
+
+It was Elara's third year cleaning up after the teenage chaos, a job she took on partly out of necessity and partly because the quiet solitude suited her introverted nature. She found a strange comfort in the predictable routine, the rhythmic swish of the mop, the clink of the empty trash cans as she emptied them. But tonight, something felt different. A prickling sensation crawled up Elara’s spine, a disquiet that had nothing to do with the usual end-of-day grime. 
+
+

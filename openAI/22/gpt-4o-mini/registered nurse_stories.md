@@ -1,0 +1,11 @@
+**Title**: **A Heartbeat Away**
+
+**Setting**: The Riverside Medical Center, a bustling urban hospital, nestled by the banks of the calm yet deceptive flow of the Willow River. The building, an amalgamation of modern architecture and retro charm, hums with the sound of machines, distant conversations, and the hurried footsteps of healthcare professionals. The sterile scent of antiseptic hangs heavily in the air, mingling with the faint aroma of coffee wafting from the nurses’ station. Outside, the vibrant hues of autumn paint the trees lining the river, a striking contrast to the clinical white and cool blue of the hospital’s interior. 
+
+**Opening**: 
+
+In the heart of the Riverside Medical Center, as the clock struck seven in the morning and sunlight began to stream through the large glass windows, the familiar sounds of beeping monitors and soft murmurs of concern filled the air. Margaret Elise Thompson, a seasoned registered nurse with a heart as warm as her brown eyes, was already in motion. Her scrubs—a seafoam green adorned with whimsical cartoon cats—were a stark contrast to the serious environment around her. The moment she stepped onto the ward, she was greeted by the chaotic ballet of medical life: a bleeping IV, a distant cry of a baby in the maternity wing, and the rushed voices of doctors conferring over cases.
+
+With a practiced ease, Margaret navigated the unit, her senses heightened by the promise of a new day filled with challenges. She took a moment to breathe in the scent of fresh coffee from the break room and glanced at the bulletin board plastered with thank-you notes from patients—each one a small victory woven into the fabric of her daily routine. Today would undoubtedly present its own demands, but for now, she focused on her first patient, Mrs. Wilkins, whose smile from last night had lingered in her mind like a warm glow. 
+
+Margaret paused outside the patient’s room, her hand resting on the cool metal doorknob, and mentally prepared herself for what lay ahead. Little did she know, the day would unfold in ways she could never have anticipated, reshaping not just her understanding of care, but her very connection to life itself.

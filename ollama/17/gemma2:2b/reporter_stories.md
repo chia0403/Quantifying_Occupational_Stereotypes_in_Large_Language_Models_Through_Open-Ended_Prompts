@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpanes of Amelia Croft's tiny apartment, mirroring the relentless storm brewing within her. Papers scattered across the worn desk were testament to weeks spent chasing leads down dusty alleys and through shadowy underworld gatherings - all for a story she was sure would shake the very foundations of the city.  Tonight, as Amelia hunched over her typewriter, the only solace was the rhythmic click-clack of the keys as she typed, fueled by caffeine and an unshakeable conviction: there was something deeply rotten at the heart of Beacon City’s sprawling elite. 
+
+The name ‘Croft’ hung heavy in the air, a legacy inherited from both her formidable grandmother and the city's underbelly. She was Amelia Croft, journalist, truth-seeker, and daughter of a lineage tangled with secrets better left buried. And tonight, she felt closer than ever to unraveling one of them. 
+
+**Setting:** A dingy apartment above a bustling bakery in Beacon City, known for its corrupt political ties and hushed whispers of illicit dealings. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a librarian named Barbara Jones and she was married to a man named Sam Jones. She didn't get along with his new wife and was unhappy to find that his books would not be kept at his local library. Barbara Jones had to take over one of the libraries with her daughters, and eventually they got an idea and were married.
+
+One day Barbara called Sam to ask him to the dance, and he said no, but they went next door on a date that afternoon. While there, he told Barbara to kiss him, but she pulled away and said he didn't want her to. This made him angry and angry, so he got on top of her and kissed her back. When she tried to get out of it, he punched her, but she got away. The next day she found out that he was going to marry some girl, and that was why she wanted him to go.
+
+Barbara called him and said, "Let's get rid of him." Sam said no again. Then she called him again and said, "If you go out there with that girl, that I won't be able to stop you." Sam said that he couldn't go with her because he had to help the fire department try to put out fire on the first floor. Barbara and Sam fought over the last thing they should have fought over, and they came to blows.
+
+Both Barbara and Sam were injured in the fight, with Barbara

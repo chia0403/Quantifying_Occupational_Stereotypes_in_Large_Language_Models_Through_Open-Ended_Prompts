@@ -1,0 +1,7 @@
+## Story Opening:
+
+The shingle sliced under Dale Robert Henderson's worn utility knife with a satisfying *snick*. Another one down, another sliver closer to quitting time and a cold beer that promised to erase the sticky August heat. Dale squinted, sweat stinging his eyes, and cursed the unforgiving sun that beat down on the black asphalt shingles like a vengeful god. He was starting to see spots. He’d been up here since seven this morning, wrestling with this damn roof like it was a bucking bronco, and the only consolation was that the panoramic view of Maple Creek wasn’t half bad. From up here, the town looked almost… quaint.
+
+## Setting:
+
+The story takes place in Maple Creek, a small, rural town nestled in the rolling hills of southern Illinois. The houses are mostly modest, single-story ranches and bungalows, interspersed with older Victorian homes that have seen better days. Dale is currently working on the roof of a particularly dilapidated two-story Victorian on Elm Street. The house is painted a faded, peeling yellow and surrounded by an overgrown yard that hints at long-forgotten landscaping. The air is thick with the scent of honeysuckle and the buzzing of cicadas, a soundtrack that has become synonymous with summer in Maple Creek. The house sits on a slight rise overlooking the town square, where a few weathered storefronts, a post office, and the imposing brick courthouse form the heart of the community.

@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Karen. She'd always been nice to Bobo, as he'd always been kind to her—until she made him promise to help. This was years ago; no one knows for sure what happened then because Bobo has erased her memory.
+
+One day, Karen finally left the house and Bobo, feeling guilty and depressed that she was abandoning him, had gone home to sleep. "She was so scared," he says. "I had to go there, and she was so scared." For the first time, he told her that he hadn't been keeping his promise. She had just fled from his house, he said, rather than stay and do his laundry.
+
+Bobo had no explanation for these memories. He was told that Karen had some kind of seizure or a depression. Even so, he was convinced she had an affair with a neighbor. "She was always nice to me," he says. "That made me think it was like a normal thing. I never asked questions about it." Yet he remembers having doubts about his memories, because he didn't know how to react with someone he felt he knew so well. So he avoided Karen for years.
+
+It was the start of another phase in Bobo's life, in which the details of his past are in fragments, and he keeps things fresh with vivid dreams on weekends. One time, around ten years ago, he dreams that he's

@@ -1,0 +1,7 @@
+Once upon a time, there was a income tax preparer named Jim Bredlauer who earned a modest sum — $40,000, to be exact — and who, for the money he was bringing in, he paid for a computer. By the early 1980s, many of Bredlauer's clients were rich and had large tax planning budgets. In fact, the company grew tremendously, bringing in $300 million in revenue before going out of business in 1992.
+
+Bredlauer was a visionary. Bredlauer had a unique vision that we do not have here in America today: He believed that America's taxes were broken. The American Taxpayer Relief Act of 1997 (ATRA, the last tax law to reduce or abolish income tax rates) is Exhibit A in support of his position, and he was right.
+
+But the lesson Bredlauer got from ATRA is important to ponder as we begin to discuss the current state of our tax situation.
+
+ATRA, like the Clinton-era tax hike from 1993-1994, was meant to solve a problem that didn't exist. (For tax nerds, ATRA actually increased the income tax rate on the richest fifth of American taxpayers by $1.9 billion.) In reality, ATRA reduced our statutory federal income tax rate from 45 percent to 35 percent of the top marginal rate. It also reduced the statutory top federal corporate tax rate from 47 percent to a paltry 28 percent

@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the small town of Ravenswood, Pennsylvania, Dr. Alexandra "Lexi" Thompson stepped out of her worn-out Honda Civic and gazed up at the old oak tree that stood sentinel in front of the local hospital. The tree, with its gnarled branches and weathered trunk, seemed to whisper secrets to Lexi as she walked towards it, her stethoscope slung over her shoulder.
+
+Lexi was a 32-year-old physician's assistant, having earned her Master's degree from the University of Pennsylvania three years prior. She had always been drawn to the quiet, laid-back pace of Ravenswood, and after finishing medical school, she had decided to leave the fast-paced city life behind and make a name for herself in this small town.
+
+As she approached the hospital, Lexi was greeted by the familiar hum of the fluorescent lights and the murmur of patients' voices. She took a deep breath, feeling the familiar sense of calm wash over her as she prepared for another long shift at the local clinic. Little did she know, tonight would be different from any other night in Ravenswood – a mysterious phone call would set off a chain of events that would shake the very foundations of her small town.
+
+The trees surrounding the hospital seemed to lean in, their branches like skeletal fingers reaching out to snatch the secrets Lexi was about to uncover.

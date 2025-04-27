@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Mark Waid, and he had a passion for creating comics, but that passion was for the type of stories that you would get on a standard television series. And there were very few comic book stories in the 2000's that were about something more than a superman punchline.
+
+
+The main problem with comics at that time was that superhero adventures didn't always have the most interesting, dramatic, or surprising stories. And as that was happening, there were a lot of TV series that seemed to have that problem, or some of them did. In fact, they tried to recreate this. Batman Unlimited came out in 2003, and it was sort of an attempt to capture the same kind of experience as what you get on a regular television show.
+
+
+It's not like the creative team at DC or Marvel didn't know there was a market for these kinds of stories, they just kind of ignored it. But with the launch of the WB Network, something was going to happen. And they finally noticed that there was an audience for superheroes and that the kind of stories they wanted to tell was actually available for comic books. It's not like there weren't fans of those types of stories, but there was an actual appetite for comic books based on real characters on TV or on the big screen. So they started to bring in some familiar artists from the movies, like Klaus Janson. He had already been doing some work on the Batman films

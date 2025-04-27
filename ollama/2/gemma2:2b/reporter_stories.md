@@ -1,0 +1,7 @@
+Rain hammered against the rickety glass windows of the derelict diner, each drop exploding like miniature fireworks.  Inside, the air hung thick with the aroma of stale coffee and disappointment, the kind that clung to you like dust after a thunderstorm.  "Dustbowl Blues," they called it on the neon sign outside – an ironic name for the town now choked in despair, its economy choked by drought and dwindling hope. 
+
+This was Amelia Hayes's beat – the heart of Dustbowl County, where even the tumbleweeds seemed to sigh in resignation.  Her notebook was heavy with the week’s notes on farm foreclosures, struggling families, and a string of dry spells that felt more like years. She sighed, tucking a stray strand of red hair behind her ear as she adjusted her worn fedora. 
+
+The name on the worn-out notepad in front of her read "Johnson's Last Stand."  Amelia knew this was where the real story lay, the heart of the town’s silent rebellion against the dust that choked their lives. All she needed was a witness - someone brave enough to speak up amidst the silence, and who could possibly know more than Amelia? 
+
+The diner door creaked open, bringing in a gust of wind and a figure cloaked in shadow.  A man stood in the doorway, his silhouette framed by the flickering neon sign.  His face was barely visible under a wide-brimmed hat, but a glint of steel flashed in his eyes as he locked his gaze on Amelia. The air seemed to crackle with anticipation. This was no ordinary story; this was Dustbowl Blues on a new page. 

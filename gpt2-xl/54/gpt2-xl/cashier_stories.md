@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named "Missy". Well, the "Miss" part is no longer correct; but I guess we still can count on her to be there with good intentions for whatever happens next.
+
+We all had a good laugh at this one.
+
+When I first started working the cash register at work, there was a man that was always in there. "Missy" was an assistant manager that worked there. "Missy" was always late and she always picked up the garbage. Well, we all had a laugh over it because "Missy" would never take responsibility for the garbage or pick it up. We all got so sick of "Missy" that we were ready to move on. One day, we all were at lunch and I got a bad headache that was so severe that I was in the bathroom for a while. "Missy" came in to see what was wrong and she saw me in the bathroom. She was upset and said to me "you look awful" and she went off to get a doctor. At that point, it was evident that "Missy" was never going to be the assistant manager that we wanted.
+
+One day, "Missy". had one of the biggest tears I have ever seen in a cashier's face. She cried so hard and so real for one night that she passed out as the other cashiers tried to console her. I still remember having to

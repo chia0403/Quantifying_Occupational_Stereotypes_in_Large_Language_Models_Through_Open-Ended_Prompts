@@ -1,0 +1,5 @@
+The midday sun beat down on Veronica "Roni" Hayes's windshield as she navigated the potholes of Southside Jacksonville. A bead of sweat trickled down her temple, ignored as she focused on the address flashing on her GPS: 1427 Maple Street - the home of  James "Jimmy" Thornton, a parolee notorious for his charm and penchant for breaking curfew. Roni wasn't naive; she knew Jimmy was probably already out on the town, playing pool at The Rusty Cue with whatever lucky ladies he could entice. But her job was to check, to make sure the rules were being followed, even if they felt more like suggestions to some of her clients. 
+
+Maple Street was a tangle of aging brick houses, their paint peeling like sunburnt skin. Roni parked her beat-up Chevy across the street from Jimmy's address, watching the rundown porch swing sway gently in the breeze. She checked her reflection in the rearview mirror - her hair, pulled back in a tight bun, threatened to escape its confines, and her dark circles hinted at another night of paperwork and sleepless worry. This job was demanding, but Roni believed in second chances. Maybe Jimmy was one of them. 
+
+

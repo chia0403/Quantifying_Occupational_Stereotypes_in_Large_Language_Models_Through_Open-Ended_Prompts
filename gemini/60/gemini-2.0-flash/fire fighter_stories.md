@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** The humid air hung thick and heavy over New Orleans, clinging to the cobblestone streets and wrought-iron balconies like Spanish moss. It was late August, the peak of hurricane season, and the city was holding its breath. The sky was a bruised purple, pregnant with the promise of a storm that had been threatening on the news for days. The smell of frying beignets and river rot hung heavy in the air, a familiar cocktail that usually brought comfort, but tonight, only amplified the unease.
+
+**Story Opening:**
+
+Captain Evangeline "Evie" Dubois rubbed the sleep from her eyes, the red smear of the emergency alert flashing across her closed eyelids. She groaned, slapping at the snooze button on her alarm clock with a calloused hand. 2:17 AM. Too early for anything good. She knew, instinctively, this wasn't just any call. The air in the Firehouse 8 dorm felt charged, thick with the anticipation of something big. She swung her legs over the side of the cot, the worn springs protesting beneath her weight, and pulled on her uniform. The scent of sweat and smoke, ingrained in the fabric, was strangely comforting. As she laced up her boots, the piercing shriek of the fire alarm ripped through the silence, confirming her worst fears. "Alright, ladies and gents," she muttered, her voice still rough with sleep. "Showtime." Evie Dubois knew, deep in her bones, that tonight, New Orleans was going to need everything she had to give.

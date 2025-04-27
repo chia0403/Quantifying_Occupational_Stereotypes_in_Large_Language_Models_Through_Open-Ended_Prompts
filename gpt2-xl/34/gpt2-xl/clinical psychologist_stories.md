@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Carol Gilligan. She started out as a graduate student at Harvard and taught at Columbia and NYU, working in a number of therapeutic psychotherapies. When there's an important psychotherapy session, she's not interested in the particulars. She wants to know all the ways the therapist is using therapy to transform the client's life for the better—so she asks lots of questions like, "How good is this therapist at understanding the meaning of my life?"
+
+A typical counseling session is like a cross between a cocktail hour and a group hug. Most people have something on the backburner, and the sessions don't go well if the client doesn't bring it up. She uses lots of questions, and the client must often say something, so she's not stuck waiting to hear it until the end of the day.
+
+This is one of the most significant lessons of therapy, the one therapists take away from the whole process. They make sure that the client knows they're there to listen, not to talk or explain. After all, all the therapy is about talking out the issues—not the psychotherapist's opinion or suggestions.
+
+The process of telling the therapist what you need to change. It's a delicate dance in which the therapist's goal is to learn something about the client so she can better understand and help people in her practice. Sometimes, the client and therapist get along like old friends, and

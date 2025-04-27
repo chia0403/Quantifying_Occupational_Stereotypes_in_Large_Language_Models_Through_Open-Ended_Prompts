@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The rain-soaked streets of Edinburgh seemed to stretch on forever as Amelia Isabella Wynter stepped out of her small flat and into the drizzly night air. A worn leather satchel slung over her shoulder, she gazed up at the moon, which was hidden behind a veil of grey clouds. The city's famous Old Town, with its crooked closes and narrow alleys, seemed to whisper secrets in the wind.
+
+Amelia Wynter, 32 years old, author of the critically-acclaimed "Tales from the Firth of Forth" series, had been working on her next novel for months. The story was a departure from her usual genre of historical fiction, a sweeping epic set in medieval Scotland that explored themes of love, loyalty, and survival. But as she walked towards the Royal Mile, the city's oldest street, Amelia couldn't shake the feeling that she was running out of time.
+
+Her publisher had been breathing down her neck for a new manuscript, and the pressure was starting to take its toll. The streets of Edinburgh seemed to be closing in around her, the shadows deepening as the night wore on. And then, just as she turned onto Parliament Square, Amelia caught sight of a figure watching her from across the street...

@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Alex Smith. There are many photographers with a similar name and the only reason there is such a wide variety is because people with the same name tend to share an obsession with the same subjects. Smith is a master of capturing the emotional experience of the people in the midst of their lives. It's his ability to bring to light the humanity in his subjects, making them real and human, that makes him so special. You can get a great sense of Alex Smith's style if you take a look at his work on Instagram. It's very raw. This rawness and honest aesthetic makes for some of the most beautiful stuff on Instagram, like his photo titled "Just another day with the baby on the beach"
+
+Alex Smith's Instagram
+
+I stumbled across Alex Smith because of his adorable photos of kittens. You see a lot of adorable-looking kittens on the internet, and Smith captures what I think is a very uncommon human reaction–love. There's something about that moment that is so beautiful to see. There are times I wish that I had more of a relationship with kittens. A picture or two wouldn't hurt!
+
+I was curious, so I decided to dig up a bit more information about Alex Smith, because I know that he is a person on the internet with a great sense of style. He's known for his work on the popular Vimeo channel Vimeo Kids, a channel specifically created for kids who love to

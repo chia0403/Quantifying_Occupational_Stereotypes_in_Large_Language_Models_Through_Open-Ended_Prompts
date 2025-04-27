@@ -1,0 +1,7 @@
+## Story Opening & Setting:
+
+**Setting:** The humid, sticky air of Savannah, Georgia in late July clung to everything like a damp shroud. Spanish moss dripped from the ancient oak trees lining Abercorn Street, casting long, wavering shadows that danced with the heat haze rising from the pavement. The cicadas buzzed their relentless summer symphony, a droning soundtrack to the slow-moving, almost lethargic rhythm of the city.
+
+**Opening:**
+
+Dr. Eleanor "Ellie" Caldwell stared out of the bay window of her practice, Caldwell Chiropractic, watching a tour group trundle past, their bright Hawaiian shirts a jarring contrast to the wrought-iron balconies and pastel hues of the historic houses. A bead of sweat trickled down her temple, stubbornly refusing to be absorbed by her carefully styled auburn hair. Business had been, to put it mildly, stagnant. It wasn't just the summer heat; something else was weighing on the city, a pervasive unease she could practically feel tightening the muscles of her patients’ backs and necks. Just this morning, old Mrs. Dubois, who usually practically skipped into her office, had confessed to sleeping with a rusty butcher knife under her pillow. Ellie frowned. Savannah was known for its ghosts and its charm, not for its rising tide of paranoia. The bell above the door jingled, breaking her reverie. "Alright, Ellie," she muttered, straightening her spine and plastering a professional smile on her face. "Time to crack some backs and maybe, just maybe, figure out what's cracking up this whole damn city."

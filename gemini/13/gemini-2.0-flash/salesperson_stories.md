@@ -1,0 +1,7 @@
+**Setting:** The fluorescent lights of the "Office Oasis" breakroom buzzed incessantly, a soundtrack to the stale coffee and quiet desperation that permeated the air. It was a Tuesday afternoon, the lull after the lunch rush and the anticipatory hum of the impending 4:00 PM slump. The beige walls were adorned with motivational posters featuring smiling stock photos and platitudes like "Teamwork Makes the Dream Work" (though no one had seen any actual teamwork in months).
+
+**Opening:**
+
+"Another one bites the dust," grumbled Bernadette "Bernie" Bloom, staring dejectedly at the half-eaten ham and swiss on rye in her hand. She swiveled in her plastic chair, the squeaking a counterpoint to the hum of the lights, and focused her gaze on the chipped Formica table. Across from her, Kevin from accounting was meticulously separating the pickle from his sandwich with the precision of a brain surgeon.
+
+Bernadette Bloom, a regional sales representative for "Innovative Office Solutions," had just received the dreaded email: Mrs. Henderson, the office manager at Nelson & Sons Law Firm, had opted for the competitor's ergonomic chair, a "bargain-basement monstrosity" as Bernie had eloquently put it to herself just moments before. This was the third deal to fall through this month, and the weight of her quota, like that half-eaten sandwich, was starting to feel unbearable. The dream, as the poster so cheerfully proclaimed, was feeling more and more like a nightmare.

@@ -1,0 +1,6 @@
+The scent of stale beer and desperation hung thick in the air of The Rusty Cog Theatre, clinging to the faded velvet seats and the chipped paint on the peeling walls.  Eleanor Persephone Bellwether, her dark hair pulled back in a tight bun that did little to tame its unruly curls, paced the cramped stage with the frantic energy of a caged lioness. Her eyes, usually sparkling with mischievous glee, were now narrowed, scanning the scattered props – a tattered feather boa, a plastic sword, and a deflated balloon animal clutched in the limp hand of a forgotten child's toy. 
+
+The rehearsal had been a disaster. The actors, a motley crew of aspiring dreamers and disillusioned veterans, were lacking their usual spark.  They mumbled lines, tripped over their own feet, and seemed utterly devoid of the passion Eleanor knew they possessed. Something was wrong, deeply wrong, and she couldn't quite put her finger on it. 
+
+
+Her gaze fell upon the single flickering light bulb hanging precariously above the stage, casting long, distorted shadows that danced across the worn floorboards. Perhaps it wasn't just the actors who were lacking in spirit. Maybe the theatre itself was feeling the pinch. It had been struggling for years, held together by sheer willpower and Eleanor's unwavering belief in its magic.  But tonight, even the air felt heavy with doubt. 

@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia Grace Carter, their pale glow reflecting off the sterile surfaces of the ICU. The air hung heavy with the antiseptic tang of disinfectant and the hushed whispers of concerned family members. Outside the tall windows, the city throbbed with life, oblivious to the drama unfolding within these four walls. 
+
+Amelia adjusted her stethoscope, its familiar weight grounding her amidst the chaos. A beeping monitor punctuated the quiet, a rhythmic pulse echoing the frantic beat of her own heart.  She glanced at the patient – Mr. Henry Lawson, a seasoned firefighter battling pneumonia and complications from a recent accident. His chest rose and fell with labored breaths, his pale face etched with pain. Amelia’s gaze softened; she had seen too many lives flicker in this ward.  But there was still a fire in Mr. Lawson's eyes, a defiance that mirrored the bravery he showed every day battling blazes. And Amelia, with her steely resolve and unwavering compassion, wouldn't give up on him. Not now, not ever. 
+
+

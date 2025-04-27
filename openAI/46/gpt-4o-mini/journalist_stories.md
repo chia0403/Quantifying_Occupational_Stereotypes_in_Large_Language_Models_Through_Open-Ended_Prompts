@@ -1,0 +1,11 @@
+Title: "Echoes of the Past"
+
+Setting: The story unfolds in the bustling streets of New Orleans, a city steeped in history and mystery. The air is thick with the scent of magnolia blossoms and the distant sound of jazz wafting from the lively bars along Frenchmen Street. Beneath the vibrant facade, however, lies a darker undercurrent—the remnants of a scandal that has burrowed into the city’s heart, casting long shadows over its past. The crumbling facades of old buildings tell tales of resilience and despair, with wrought-iron balconies adorned with colorful flowers, and flickering gas lamps that light the cobblestone streets at dusk. The humidity hangs heavily in the air, almost palpable, as the New Orleans summer drapes itself over the city like a warm blanket.
+
+Opening: 
+
+Samantha Elise Granger stood at the edge of Jackson Square, her reporter's notebook tucked under her arm, the pen in her hand itching to ink the story she had long chased. The golden glow of the sunset bathed the square, casting elongated shadows of the oak trees that had seen centuries of history unfold. A jazz band played a lively tune nearby, each note weaving its way through the chatter of tourists and locals alike. But for Samantha, the music felt like a backdrop to the whispers of another time—the unsolved mystery of a corrupt mayor, a scandal that had rocked the city two decades prior and seemed to echo through the alleys and bars she frequented.
+
+She glanced at the statue of Andrew Jackson, its proud figure overlooking the square, as if judging the city’s ongoing secrets. It was here, amid the vibrant clashes of culture and the haunting legacy of sorrow, that Samantha had decided to unearth the truth—a truth buried beneath the layers of denial and nostalgia. With each article she penned, she hoped to expose not only the past but the scars it left on the present, and the stories that begged to be told. 
+
+As the last rays of sunlight dipped below the horizon, she felt a familiar stir in her gut—a mix of anticipation and trepidation. In New Orleans, secrets had a way of revealing themselves when least expected, and Samantha was ready to peel back the layers, no matter how painful, determined to make headlines instead of merely reporting them.

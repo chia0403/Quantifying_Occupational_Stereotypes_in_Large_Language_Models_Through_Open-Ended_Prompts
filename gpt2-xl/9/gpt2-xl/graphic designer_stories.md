@@ -1,0 +1,7 @@
+Once upon a time, there was a graphic designer named Richard Bodeen. In 1972, he was told that he couldn't buy the copyright to a book of his design. The book was The World's Best Comics published by DC Comics, so the owner of the copyright said he wanted $2,500 for the book's use in comics. Bodeen had made a few drawings for Superman but he thought he was just taking what was already out there and had no interest in selling a single page of his work. Of course, the law didn't quite get his case.
+
+"I had no intention of ever doing the drawings again. I thought it was too silly," he told the New York Times in an article last year. "It was a nice bit of money, it could have been used to pay students at art schools, but as I say today the point wasn't really to get the picture in comics,"
+
+DC appealed the decision, so they were awarded the $2,500. That set them in a bit of a bind, because if he won they'd have to pay $1,000 every year until he gave up the copyright. So DC appealed the case to the Supreme Court, and won in 1976, giving Bodeen, and all other graphic designers, the sole copy of the copyright.
+
+It wasn't cheap or easy to protect a copyright. It wasn't quite the same as copyrighting a book because you owned the whole book

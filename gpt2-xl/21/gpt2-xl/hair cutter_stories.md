@@ -1,0 +1,7 @@
+Once upon a time, there was a hair cutter named David. He made a deal with Satan…and God to live as long as it was in his power. And thus he lived for 100 years. Not sure if David was a Jew or Christian, but I am sure he was a guy who was doing stuff he wasn't supposed to…
+
+David was the father of the bald guy…and now the bald guy is the dad of the bald guy. After a few years of this, Satan decided enough was enough, and he sent a demon named Bob on a quest to make David pay more attention the Lord…by making David's own soul suffer like he did. David had to stay in Heaven, the place he had been raised in, for all that time. He had to wear a crown, and dance and sing and all that fun stuff…and David had to stay in the house he'd grown up in.
+
+After being there for 100 years, David was now about to die. God decided that enough was enough. He sent his son Lucifer down to earth to kill David. But at first he didn't want to.
+
+A couple of thousand years before, some guys named God-Emperor and Man-Mother were looking for someone who was smart enough to be their next ruler...as their last one. No problem was too big for the kids who'd grown up to rule. David and the others were just as eager to be there, not just as

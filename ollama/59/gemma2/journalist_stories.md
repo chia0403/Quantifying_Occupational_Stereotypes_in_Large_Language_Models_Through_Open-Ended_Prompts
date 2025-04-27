@@ -1,0 +1,6 @@
+The flickering neon sign outside "The Rusty Bucket" cast long, distorted shadows across Amelia Harper's face as she hunched over her cigarette. Rain lashed against the corrugated iron roof, each drop exploding in a miniature burst of sound. Inside, the bar was a haven of smoky warmth, the air thick with the scent of stale beer and unfulfilled dreams. 
+
+Amelia took another drag, the acrid smoke burning a familiar path down her throat.  Her notepad lay open on the sticky table, the few scribbled notes illuminated by the dim light emanating from a flickering bulb above. Her story, the one that could make or break her career, was stuck. The source, a nervous man with bloodshot eyes and trembling hands, had promised juicy details about the city's corrupt underbelly, but so far, all she had were vague whispers and half-truths. 
+
+
+Amelia Harper, a reporter for the struggling "City Chronicle," needed this story to survive. Not just her career, but her life. The rent was due, her savings depleted, and the looming threat of eviction hung over her like a dark cloud. This interview, with this man, was her last chance. She had to find a way to break through the wall of fear he’d erected around himself, or she'd be left drowning in the city's storm, just like everyone else. 

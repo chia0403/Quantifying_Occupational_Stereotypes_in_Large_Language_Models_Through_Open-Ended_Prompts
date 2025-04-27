@@ -1,0 +1,9 @@
+Okay, here's a story opening, including the full name of the main character, their profession, and a setting:
+
+**Opening:**
+
+The midday sun beat down on the corrugated steel roof of "Sal's Salvage & Service," turning the air inside into a shimmering, greasy haze. Dust motes danced in the shafts of light that pierced through the gaps in the siding, illuminating the organized chaos that was Jasper "Jazz" Bartholomew's kingdom. A vintage Mustang, its chassis exposed like a patient on an operating table, sat center stage, its crimson paint dulled by years of neglect. Jazz, sweat beading on his brow and a smudge of engine oil gracing his cheek, wrestled with a rusted bolt on the carburetor, his brow furrowed in concentration. A blues riff wailed softly from the beat-up radio perched on a stack of tires, a counterpoint to the rhythmic clang of Jazz's wrench. He muttered to himself, a low growl of frustration, "Come on, you stubborn son of a…."
+
+**Setting:**
+
+Sal's Salvage & Service is located on the outskirts of Dustbowl, Oklahoma, a town that had seen better days. The landscape is flat and arid, stretching to the horizon in a patchwork of scrubland and struggling wheat fields. The garage itself is a sprawling, ramshackle affair. It’s a collection of mismatched buildings cobbled together over the years, a testament to Sal's (and now Jazz's) ingenuity and penchant for making do. Inside, every surface is coated in a fine layer of grease and grime. Tools hang on pegboards in meticulous order, each one bearing the marks of countless repairs. Spare parts, salvaged from wrecks and forgotten projects, overflow from shelves and bins. The air is thick with the scent of oil, gasoline, and the faint, underlying aroma of decaying rubber. Outside, a graveyard of rusted-out cars and trucks sits baking in the sun, a silent testament to the passage of time and the fleeting nature of mechanical glory.

@@ -1,0 +1,5 @@
+The humid Miami air clung to Judge Amelia Rodriguez like a damp shroud as she stepped out of her courthouse chambers.  Palm trees swayed lazily in the gentle breeze, their fronds rustling like whispered secrets. The aroma of salt and sunscreen mingled with exhaust fumes, creating an olfactory cocktail that was uniquely South Florida. Across Biscayne Bay, the skeletal remains of unfinished skyscrapers scraped at the perpetually overcast sky, a testament to Miami’s endless ambition and sometimes reckless pursuit of progress. 
+
+Amelia adjusted her tailored navy suit, smoothing down the wrinkles etched by years of long days and tense trials.  She couldn't shake the weight of this morning's case, a particularly vicious custody battle that had left both sides raw and bitter. It was cases like these that reminded Amelia why she took the job, why she donned the black robe every day - to seek justice, even when it felt elusive in a city where power often trumped truth.  But lately, a gnawing doubt had begun to fester within her. Was she truly making a difference? 
+
+

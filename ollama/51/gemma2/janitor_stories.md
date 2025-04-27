@@ -1,0 +1,5 @@
+The fluorescent lights hummed like an overheated hive, buzzing in Amelia "Amy" Davenport's ears as she mopped the linoleum floor of the third-floor bathroom. The pungent scent of disinfectant battled with the faint perfume of last night’s afterparty lingering in the air. Amy knew this smell intimately – a tapestry woven from sweat, spilled cocktails, and the desperation of late nights. It was the signature aroma of the Grand Blackwood Hotel, where she'd been the uncelebrated custodian for five years. 
+
+The hotel, a hulking Art Deco structure with faded grandeur, sprawled over half a block on Manhattan’s Upper East Side. Its once-gleaming lobby now wore the patina of time, its marble floors etched with countless stories whispered between businessmen and debutantes. Amy knew every crack in the walls, every creaky floorboard, every lingering ghost story told by the elderly bellhop, Mr. Henderson. But tonight, something felt different. A prickle of unease ran down her spine, like a cold draft swirling through the stale air.  
+
+

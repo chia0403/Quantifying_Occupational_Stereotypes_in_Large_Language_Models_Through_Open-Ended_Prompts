@@ -1,0 +1,8 @@
+The wind whipped around Sergeant Elara Brightshield’s face, carrying with it the sharp scent of salt and the distant cries of gulls.  She squinted against the glare of the midday sun reflecting off the turquoise waves of the Azure Sea, her gaze fixed on the horizon. Her post was at the far end of the Obsidian Pier, a long, black stone walkway that jutted out into the churning water like a skeletal finger. Beyond it lay nothing but endless blue, rumored to be home to mythical sea creatures and treacherous storms.
+
+Elara tugged the heavy collar of her crimson uniform tighter against the biting wind.  The fabric was worn thin from countless shifts guarding the city of Aerilon, its once vibrant red now faded to a dusty rose. The city itself, a bustling metropolis built on towering cliffs overlooking the sea, hummed with activity below. Merchants hawked their wares in the marketplace, children chased each other through the cobblestone streets, and artisans hammered at their forges, the rhythmic clang echoing across the water.
+
+But Elara wasn't interested in the city’s vibrant life. Her attention was solely on the horizon, where a haze of unnatural gray hung heavy in the air. It had been there for days now, growing darker with each passing hour. The whispers amongst the guards spoke of an impending storm, unlike any they had seen before. A storm that could swallow Aerilon whole.  
+
+
+Elara tightened her grip on the hilt of her silver-edged sword, her heart pounding in her chest. As a guard of the Obsidian Guard, she was sworn to protect Aerilon from all threats, be they land or sea. This storm felt different, however. It felt… sinister. 

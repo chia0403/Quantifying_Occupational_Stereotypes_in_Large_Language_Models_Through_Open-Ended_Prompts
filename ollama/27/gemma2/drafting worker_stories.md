@@ -1,0 +1,7 @@
+The air hung thick with the smell of chalk dust and stale coffee in the cramped drafting room of Blackwood Engineering. Amelia Beatrice Finch, her brow furrowed in concentration, meticulously traced the outline of a massive turbine blade on translucent drafting vellum. The flickering gaslight cast long, dancing shadows across the cluttered workspace, highlighting the sprawling blueprints spread across every available surface. A steady hum emanated from the whirring machinery just beyond the frosted glass windows, a constant reminder of the heart of Blackwood's operation - the colossal factory churning out gears and engines that powered the city.
+
+Amelia, however, found herself lost in a world of lines and angles, her pencil dancing across the vellum with practiced ease. She was known amongst her colleagues as "Steady Hand Amelia," a testament to her unwavering precision and meticulous attention to detail. But beneath the surface of her focused work, a simmering frustration brewed. 
+
+The new project, a colossal steam-powered crane for the burgeoning docks, presented an unprecedented challenge. It demanded innovation and creativity, pushing beyond the confines of conventional engineering. Amelia yearned to contribute something truly remarkable, to leave her mark on this city that pulsed with the rhythm of industry. But as the days bled into weeks, her ideas seemed to be swallowed by the bureaucratic labyrinth of Blackwood Engineering, stifled by the demands of deadlines and the weight of tradition. 
+
+

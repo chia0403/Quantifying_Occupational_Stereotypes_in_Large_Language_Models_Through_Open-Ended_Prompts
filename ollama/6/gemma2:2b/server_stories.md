@@ -1,0 +1,8 @@
+Rain hammered against the worn awning of "The Hungry Pelican," a symphony that had become as familiar to Amelia's soul as her own reflection in the chipped silver on her tray.  Her smile was practiced, etched over years of navigating the treacherous currents of customer expectations and kitchen chaos. Today, it was strained, mirroring the downpour outside. 
+
+Amelia’s name echoed through the bustling bar, a faint murmur lost in the roar of the night.  She was 'Amelie' to regulars - a comforting familiarity in this whirlwind of faces and fleeting conversations.   Her life at "The Pelican" wasn't glamorous; serving tables meant juggling plates and napkins like a tightrope walker under a relentless storm. But it was steady, predictable, and somehow, she found a strange, silent contentment within its chaotic rhythm. 
+
+Tonight, however, the usual hum of dinner rush held a different kind of urgency.  A storm wasn’t just outside; it was raging in Amelia's heart, fueled by a misplaced tip, an unanswered plea, and a sudden realization about the man who stood before her.  He looked like a drowned sailor, his clothes soaked to the bone, yet he carried himself with an air of hidden power that sent shivers down her spine. He was a storm in his own right, all sharp angles and shadowed eyes. A storm she couldn't understand, but one that threatened to upend everything Amelia thought she knew about life and love. 
+
+
+**Setting:** The Hungry Pelican - a classic, old-fashioned bar with worn booths, flickering neon signs, and a cozy fireplace.  The aroma of burgers and fries hangs thick in the air, mingling with the salty tang of sea air from the outside. 

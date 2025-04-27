@@ -1,0 +1,5 @@
+The neon sign outside "The Dusty Rose" hummed in the humid twilight, casting an anemic pink glow onto the deserted street. Rain pattered against the awning, blurring the already faded turquoise lettering that proclaimed 'Welcome'. Inside, the air hung thick and heavy, a mixture of stale beer and lingering tobacco smoke. 
+
+Barnaby Thorne, his calloused fingers tracing the rim of a chipped beer stein, sighed as he watched another lonely figure slink out the door with an empty purse. "Just another night in paradise," he muttered, his voice rough as sandpaper. A single strand of grey hair poked out from beneath his worn baseball cap. He was a seasoned bartender at 32 years old, and The Dusty Rose was about to be one more faded memory amongst the countless others that had passed through these doors over the decades.  
+
+Barnaby's eyes drifted across the room to the dusty shelves behind the counter. A lone bottle of amber liquid caught his eye - a bottle he hadn't seen in years, hidden beneath a stack of forgotten bottles. He picked it up with hesitant fingers, feeling a faint buzz in his hand as if the bottle was whispering secrets from a long-gone time. 

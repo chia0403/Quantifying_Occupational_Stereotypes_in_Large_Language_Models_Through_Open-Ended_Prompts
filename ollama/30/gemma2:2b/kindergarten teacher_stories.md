@@ -1,0 +1,5 @@
+The air hung thick with the scent of crayons and overcooked spaghetti - the familiar aroma of Mrs. Evelyn Hawthorne's kindergarten classroom in Sunnyville Elementary School. The afternoon sun cast long shadows across the vibrant mural of jungle animals that dominated one wall, its colours almost seeming to pulse under the heat. 
+
+Evelyn, a woman whose face was etched with years of laughter lines and endless patience, smoothed down her floral-printed dress, trying to ignore the chorus of squawks from the group of giggling five-year-olds who were playing "Monster Freeze" in the corner. Today was Friday, which meant the dreaded 'Story Time' ritual - a ritual Evelyn both dreaded and cherished. 
+
+As she walked towards the classroom door, her heart began to race. The storybook her assistant, Ms. Johnson, had entrusted her with this week held an air of mystery, a tale so strange it bordered on preposterous.  It was titled "The Whispering Woods" and contained illustrations that were both unsettlingly realistic and hilariously whimsical at the same time - two things Evelyn found hard to reconcile. 

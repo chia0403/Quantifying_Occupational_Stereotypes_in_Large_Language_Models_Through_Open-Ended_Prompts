@@ -1,0 +1,13 @@
+**Story Opening:**
+
+The dull thrum of the ultrasonic scaler vibrated in Dr. Eleanor Beatrice Ainsworth’s gloved hand, a familiar counterpoint to the silent scream bubbling in young Timmy Henderson’s eyes. Timmy, all of seven years old and missing his two front teeth, was currently engaged in a silent battle of wills against the cavity that dared to reside in his lower left molar. Eleanor hummed a jaunty tune, carefully avoiding eye contact with Timmy's increasingly anxious mother who was perched on the edge of the faux leather chair, gripping her handbag like a life raft.
+
+"Almost there, Timmy," Eleanor chirped, her voice artificially cheerful. "Just a tiny bit more, and then we can talk about the Tooth Fairy and all the treasures she leaves under pillows!"
+
+Truthfully, Eleanor was less concerned with the Tooth Fairy and more concerned with the encroaching shadow outside the window. It wasn't the weather – the sun shone blindingly bright, casting the normally cheerful waiting room in a bizarrely ominous light. It was… something else. A feeling of wrongness, a tremor in the air that had nothing to do with the vibrations of her equipment. She hadn't felt this unnerved since the time Mrs. Higgins swore her dentures were possessed by the spirit of her late husband, a story Eleanor had chalked up to grief and questionable floral arrangements.
+
+But this felt different. This felt…real.
+
+**Setting:**
+
+The story is set in the charming, albeit slightly faded, seaside town of Seabrook, Maine. Eleanor's dental practice, "Seabrook Smiles," is located on the ground floor of a Victorian-era building, a stone's throw from the salty, windswept beach. Inside, the office is meticulously clean and decorated in soothing shades of blue and green. Pictures of smiling, healthy teeth adorn the walls, interspersed with seascapes painted by local artists. The aroma of antiseptic and bubblegum-flavored fluoride hangs heavy in the air, a constant reminder of the business at hand. While aesthetically pleasing, Seabrook Smiles is starting to show its age, much like the town itself. The paint is peeling in certain spots, the chairs are slightly worn, and the waiting room magazines are perpetually outdated. Outside, Seabrook is a town that relies heavily on tourism, boasting quaint shops selling seashells and taffy, and offering whale-watching tours. However, underneath the veneer of seaside charm lies a close-knit community with secrets buried as deep as the ocean floor. The looming presence of the Atlantic Ocean, both beautiful and unforgiving, is a constant character in the story, shaping the lives and destinies of the town's inhabitants.

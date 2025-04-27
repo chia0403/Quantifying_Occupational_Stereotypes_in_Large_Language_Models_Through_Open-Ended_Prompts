@@ -1,0 +1,1 @@
+Once upon a time, there was a interior decorator named John who specialized in making elegant, practical furniture. Unfortunately, John was the only one to take advantage of his skills. He lost his skills just as their client base had evaporated, but his reputation is as glorious as the ones carved in the stone.

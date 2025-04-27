@@ -1,0 +1,6 @@
+The bell above the door tinkled like a nervous laugh as Elara Willowbrook surveyed her salon.  "Hair Haven," the neon sign proclaimed in faded pink lettering, mirroring the dusty rose hues of the floral wallpaper that clung desperately to the walls. Outside, a relentless August sun beat down on Maple Street, baking the pavement and turning even the shade from the old elm tree into a shimmering mirage. 
+
+Elara sighed, her breath catching slightly as the humidity pressed in like a damp wool blanket. Business had been slow lately, slower than usual even for this sleepy little town of Oakhaven. The regulars - Mrs. Henderson with her weekly perm, young Emily who insisted on streaks every shade imaginable, and old Mr. Thompson who just needed a trim but always lingered for a gossip session - they'd all kept their appointments, bless them. But new faces were scarce, and Elara's savings account was starting to resemble a barren desert.  
+
+
+She smoothed down her own auburn curls, the strands catching in the stray rays of sun that sliced through the dusty windows. Today was different though, she could feel it in her bones. A prickle of anticipation ran down her spine, like the first flutter of a butterfly's wings. Maybe, just maybe, someone new would walk through that door and change everything. 

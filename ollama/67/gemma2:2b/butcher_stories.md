@@ -1,0 +1,6 @@
+The air hung thick and heavy with the scent of salt and wood smoke in Old Town Butcher's Supply, the rhythmic clang of cleavers a constant counterpoint to the murmur of customers.  A fine mist clung to the cobblestone street outside as young Elias Thorne, his hands calloused but nimble, straightened up from arranging a fresh batch of sausages on a wooden rack. The shop, with its worn-out sign depicting a snarling bulldog and its cracked paint, was less a business than a family relic, passed down through generations of Thornes - each more adept at handling meat than the last. Elias, though young, already felt the weight of it, his grandfather's voice echoing in his head as he learned the secrets of ageing beef and the precise cut for a roast.  He was no stranger to the grime and sweat of a butcher's life but today, something shifted within him, a quiet unease creeping into his normally calm demeanor. 
+
+Elias adjusted his worn apron and glanced at the rain slicked window, a chilling premonition washing over him as he saw a shadowy figure standing on the other side. The figure was tall and slender, cloaked in a long grey coat that swallowed them whole, obscuring their face from view.  A single feather, black as night, rested at the corner of the figure's gloved hand - a strange trinket in the world of meat and marrow.
+ 
+
+

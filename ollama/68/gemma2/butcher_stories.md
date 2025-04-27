@@ -1,0 +1,5 @@
+The pungent scent of blood and brine hung heavy in the air, clinging to Elias Thorne’s worn apron like a second skin. Sunlight slanted through the grimy windows of "Thorne's Fine Cuts," illuminating dust motes dancing in the thick steam rising from the copper cauldrons.  Elias, his hands slick with beef fat, meticulously trimmed the silver sheen off a prime rib roast, humming a tuneless melody under his breath. 
+
+His shop, nestled on a cobblestone street in the heart of Oakhaven, was a relic of the old world - a place where time seemed to move at its own languid pace. The walls were lined with shelves stacked high with cured meats, jars of pungent pickles and homemade sausages bursting with savory aromas. A worn grandfather clock ticked in the corner, its chimes lost in the rhythmic clang of cleavers and the low murmur of Elias's contented humming.  But beneath the familiar comfort, a tremor of unease ran through Elias. His customers were scarce these days, their faces etched with worry, their wallets light. And whispers of strange happenings just beyond Oakhaven’s borders had begun to weave themselves into the fabric of everyday life. 
+
+

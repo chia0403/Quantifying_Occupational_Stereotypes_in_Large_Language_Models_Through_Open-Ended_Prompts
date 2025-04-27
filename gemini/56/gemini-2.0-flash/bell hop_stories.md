@@ -1,0 +1,15 @@
+## Story Opening:
+
+The stale scent of floral potpourri and regret hung heavy in the gilded lobby of the Grand Imperial Hotel, a scent Arthur Reginald Finch knew intimately after five years of polishing its brass fixtures and lugging its clientele's overstuffed luggage. He adjusted his crimson bellhop jacket, the gold braid biting into his neck despite the looseness he'd painstakingly achieved over the years, and swallowed a sigh. Another Tuesday, another parade of businessmen with wandering eyes and socialites dripping in diamonds that likely cost more than his entire existence.
+
+He watched Mrs. Van Derlyn, a woman whose wrinkles were as meticulously arranged as her pearls, complain to the harried desk clerk, Mr. Henderson, about the lack of complimentary champagne in her suite. Arthur knew damn well she’d already drained the bottle she’d “discovered” in the mini-bar and was angling for another. He was a bellhop, not a fool.
+
+The glass doors of the Grand Imperial swung open, admitting a gust of crisp autumn air and a woman who looked like she belonged in a black and white movie. She wore a simple, yet impeccably tailored, trench coat, its collar turned up against the chill. Her hair, a vibrant cascade of auburn curls, was slightly dishevelled, as if she’d just stepped off a whirlwind adventure. But it was her eyes, a startling shade of emerald green, that caught and held Arthur’s attention. They held a spark of something – curiosity, mischief, and a hint of something else he couldn't quite decipher. A flicker of hope, perhaps?
+
+He straightened his posture, smoothing down his already perfectly aligned jacket. This was the Grand Imperial. And he, Arthur Reginald Finch, was here to serve. He just hoped, for once, that serving wouldn't involve another complaint about lukewarm champagne.
+
+## Setting:
+
+**The Grand Imperial Hotel, New York City, October 26th, 1937.**
+
+The Grand Imperial stands as a beacon of Art Deco elegance amidst the bustling chaos of midtown Manhattan. Its towering facade, clad in gleaming white limestone and adorned with intricate geometric designs, reflects the ambition and optimism of a bygone era. Inside, the lobby is a symphony of polished marble, shimmering chandeliers, and plush velvet furnishings. The air is thick with the murmur of hushed conversations, the clinking of champagne glasses, and the occasional sharp command barked by a demanding guest. The hotel caters to the city's elite, offering unparalleled luxury and discreet service, making it a haven for socialites, tycoons, and even the occasional celebrity seeking refuge from the prying eyes of the public. Despite its opulence, a layer of weariness clings to the Grand Imperial, a subtle acknowledgement that even the grandest institutions are not immune to the changing times. The Great Depression may be fading in memory, but its shadows still linger in the worried lines etched on the faces of some of the staff, and in the occasional vacant suite. It is a place where appearances are everything, and secrets are carefully concealed behind a facade of impeccable service and unwavering hospitality.

@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting with a main character who works in emergency medical care, including their full name:
+
+**Story Opening & Setting:**
+
+The radio crackled to life, its urgent static a familiar prelude to chaos. A guttural voice, barely intelligible through the interference, barked out the coordinates: "Highway 17, mile marker 82. Vehicle accident. Multiple patients. Possible entrapment."
+
+Sergeant Elizabeth "Liz" Ramirez tightened her grip on the steering wheel of the ambulance, the engine roaring to life beneath her. A cold dread coiled in her stomach, a feeling she'd learned to ignore during her eight years as a paramedic with the Santa Cruz County Emergency Medical Services. Highway 17 was a serpentine stretch of road clinging precariously to the redwood-studded mountains that separated the city of Santa Cruz from Silicon Valley. Its blind curves and frequent fog made it a notorious death trap, and mile marker 82 was particularly brutal, a steep downhill hairpin known locally as "Devil's Elbow."
+
+The late afternoon sun struggled to pierce through the dense canopy of redwoods as Liz navigated the winding road. The air was thick with the scent of pine and damp earth, a stark contrast to the sterile smell of disinfectant that perpetually clung to her uniform. She glanced at her partner, young EMT-Basic David Chen, sitting beside her, his face pale under the fluorescent lights of the ambulance's interior. He was fresh out of training and still visibly rattled by the graphic nature of their profession. Liz gave him a reassuring nod. "Buckle up, David. Looks like we're going to have a long night." She could taste the metallic tang of adrenaline in her mouth. This was it. This was her job. And she had a feeling, a gnawing certainty, that this call was going to be different.

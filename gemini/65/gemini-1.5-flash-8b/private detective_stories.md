@@ -1,0 +1,5 @@
+The rain hammered against the corrugated iron roof of the derelict warehouse, a relentless percussion that mirrored the frantic pounding in Amelia "Ace" Cartwright's head.  The flickering neon sign of "The Rusty Nail," barely clinging to life, cast a sickly yellow glow on the slick, muddy floor.  Ace, her trench coat clinging to her like a second skin, hunched over a chipped Formica table, a half-eaten greasy sandwich abandoned beside a crumpled newspaper clipping.  The scent of mildew and stale beer hung heavy in the air, a fitting atmosphere for the case.
+
+**Setting:**
+
+The gritty, rain-slicked streets of Havenwood, a once-bustling port city now fading into decay.  Jagged edges of brick and steel buildings, interspersed with sprawling overgrown lots and boarded-up storefronts, formed a labyrinth of alleys and hidden corners.  The constant drone of distant traffic mingled with the insistent patter of the rain, a soundtrack to the city's slow, agonizing demise. This particular warehouse, a former supply depot, had fallen into disrepair, its rusted metal skeleton exposed to the elements, a tangible symbol of Havenwood's forgotten glories.

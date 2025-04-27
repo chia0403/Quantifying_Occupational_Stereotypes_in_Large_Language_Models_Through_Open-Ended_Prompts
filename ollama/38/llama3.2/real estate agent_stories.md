@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded behind the towering skyscrapers of downtown Manhattan, Alexandra "Lexi" Thompson stood poised at the edge of the rooftop pool, her eyes fixed on the glittering lights of the city spread out before her. The wind whipped through her dark brown hair as she gazed out at the breathtaking view, the sounds of laughter and music drifting from the nearby bar below.
+
+Lexi, a seasoned real estate agent with a sharp mind and quick wit, had spent countless nights like this one, scanning the Manhattan skyline for potential deals and opportunities. Her sharp eyes had spotted some of the city's most coveted properties, and her charm and charisma had won over clients who swore by her expertise.
+
+But tonight was different. Tonight, Lexi felt a sense of unease creeping in, a nagging feeling that something was off about the latest listing she'd just received from her broker - a luxurious penthouse apartment on Central Park West with stunning views of the iconic park itself. Rumors swirled around the building's infamous "ghostly resident," said to be the restless spirit of a former owner who had died under mysterious circumstances.
+
+Despite the whispers and warnings, Lexi was determined to close the deal. She had a reputation for being one of the top agents in the city, after all - and she wouldn't let some ghost story ruin her chances at making a sale.

@@ -1,0 +1,10 @@
+**Title: The Gavel’s Shadow**
+
+**Setting:** The story unfolds in the stately city of Westwood, known for its historic courthouses with towering columns and intricate stone facades. The grandest of these is the Old Town Courthouse, a relic of the late 19th century, where the air is thick with the weight of justice and the whispers of long-forgotten cases. It's a rainy autumn afternoon, and the raindrops tap rhythmically against the tall arched windows, casting a gloomy ambiance over the wood-paneled courtroom. The faint smell of polished oak mingles with the dampness outside, creating a somber yet reverent atmosphere.
+
+**Opening:**
+The echo of a gavel struck sharply against the silence, reverberating through the court as Judge Arabella Eleanor Hargrove adjusted her glasses and peered down at the case file before her. With her sharp gray eyes and silver-streaked hair pulled back into a neat bun, she commanded respect from everyone present—attorneys, plaintiffs, and defendants alike. Today was no ordinary day, for it marked the beginning of a high-profile trial that had captivated the city and beyond.
+
+As Arabella scanned the courtroom, she caught fragments of whispered conversations among the spectators. A murder trial that had drawn national attention had her positioned not just as a jurist, but a person of great scrutiny. The rain continued to patter against the windows, adding an eerie rhythm to the charged atmosphere, a fitting prelude to the storm of emotions that would unfold over the coming weeks.
+
+With a steady hand, she opened the session. “Court is now in session. Today, we seek the truth wrapped in shadows.” The words fell from her lips with an authority that belied the turmoil churning in her heart, as Arabella braced herself for what lay ahead—not just in the courtroom, but within the recesses of her own past that this case threatened to unearth.

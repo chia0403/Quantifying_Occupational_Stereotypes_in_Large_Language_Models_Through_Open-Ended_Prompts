@@ -1,0 +1,6 @@
+The air hung thick with the scent of eucalyptus and lavender as Dr. Amelia Rosewood adjusted her purple scrubs, her crisp white coat draped neatly over the back of her chair. Sunlight slanted through the dusty windowpanes of her small clinic, illuminating motes of dust dancing in the quiet air. Outside, the Texas heat pressed down on Harmony Springs, a town where time seemed to move at its own languid pace. Amelia hummed softly to herself, her fingers tracing the intricate carvings on the antique oak table that served as the reception desk – a relic from her grandmother's old apothecary shop, repurposed for this new chapter in their family legacy.
+
+Just then, the bell above the door tinkled, announcing the arrival of her first patient of the day – a young woman with tight shoulders and worry etched into every line of her face. Amelia’s heart warmed; she was ready to help alleviate not only physical pain, but also the silent burdens people carried within their bones. 
+
+
+This was her sanctuary: Harmony Springs Chiropractic. A place where she could use her hands, her knowledge, and her compassion to mend the fractures, both visible and unseen, that life often inflicted upon its inhabitants.   

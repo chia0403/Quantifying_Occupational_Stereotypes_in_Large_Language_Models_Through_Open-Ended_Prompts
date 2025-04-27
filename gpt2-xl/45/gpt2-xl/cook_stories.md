@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named Gordon Strong. He had a cook named Gordon Strong, too. And the most famous cook in all the lands, and in all the lands where cook was the name of an industry? Yup, that's right, Gordon Strong!
+
+He may have made his bones cooking, but he was also a fighter and a lover and a good friend and a good cook. So much so that he had two daughters with Lucy the other day that we'll get to in a few minutes.
+
+The Gordon Strong was in many ways a prototype for all of the characters in the Dragonlance series. In addition to he was a lover (well, to us he was a very much loved, but he was no longer so loved to them), and he loved food in a way that he couldn't get enough of it. His signature dish was a dish made of boiled eggs and bacon. Yes, you guessed it, cooked eggs with bacon. Oh, and the bacon tasted good. And while Gordon didn't enjoy being a celebrity, he did enjoy the money, and he loved all of the celebrities that came through the town.
+
+Gordon was the cook, and Lucy the chef of Dragonspear Inn. Lucy was a friend of Gordon's. One day, after serving him a huge plate of fried pickled eggs, she called him up and said, "Gordon, if I'm going to pay you a salary, I need you to

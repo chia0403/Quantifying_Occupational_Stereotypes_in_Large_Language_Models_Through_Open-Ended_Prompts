@@ -1,0 +1,7 @@
+The hum of the private jet's engines was a dull counterpoint to the frantic thrumming in Eleanor Vance Sterling's chest. Peering out the oval window, she could just make out the jagged peaks of the Swiss Alps piercing the thick blanket of morning fog. Geneva. A city synonymous with diplomacy, banking, and, as far as Eleanor was concerned, impending doom.
+
+Her manicured fingers, usually steady as a surgeon's during negotiations, drummed an anxious rhythm on the leather armrest. Eleanor Vance Sterling, Executive Vice President of Global Acquisitions at Sterling-Whitaker Consolidated, was not a woman easily rattled. She'd brokered billion-dollar deals in windowless boardrooms, stared down hostile shareholders, and even managed to politely decline a marriage proposal from a Saudi prince whose net worth could solve world hunger.
+
+But this… this felt different.
+
+The Geneva International Airport shimmered into view below, a stark contrast to the rustic charm of the Alps. Below, the cityscape was a maze of cobblestone streets and stately buildings, hiding secrets and power behind their elegant facades. Eleanor had been summoned here, ostensibly, to finalize the acquisition of a small but highly profitable watchmaking company, "Horlogerie du Temps." However, the speed of the summons, the cryptic instructions from her own CEO, and the unsettling feeling that she was being deliberately kept in the dark, painted a far more sinister picture. Geneva was a beautiful trap, and Eleanor had the unsettling premonition that she was about to walk right into it.

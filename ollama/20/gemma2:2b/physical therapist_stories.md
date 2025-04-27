@@ -1,0 +1,5 @@
+Rain hammered against the windows of Dr. Eleanor "Ellie" Cartwright's office, mirroring the storm brewing in her own heart. The scent of antiseptic hung heavy in the air alongside a faint, floral aroma that Ellie swore she used to get from the lavender-infused hand lotion she always kept on hand for her patients.  She stared out at the grey, relentless sky and felt like a lone lighthouse keeper struggling against an endless tide of despair. 
+
+Ellie was used to seeing people's pain – physical limitations, injuries, post-surgery struggles, even the weight of years etched onto their bodies. But tonight, she felt the storm's fury unlike anything else.  Her husband had been hospitalized, diagnosed with a rare and aggressive form of cancer that threatened to consume him. The prognosis was bleak, and Ellie's usual calm demeanor began to waver under the immense pressure. 
+
+**Setting:** A small, cozy office in a bustling city neighborhood. It’s filled with photos of her husband and children, reminders of happier times.  

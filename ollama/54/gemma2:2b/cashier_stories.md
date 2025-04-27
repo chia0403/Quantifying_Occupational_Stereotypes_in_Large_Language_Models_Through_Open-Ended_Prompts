@@ -1,0 +1,7 @@
+The fluorescent lights hummed above Amelia "Amy" Taylor's head, casting a sickly pale glow over the cramped aisles of the Corner Stop grocery store. The air hung heavy with the scent of stale coffee, yesterday's tuna sandwiches, and an underlying anxiety that seemed to linger in the very walls. It was 10:37 PM on a Tuesday, and even for a late-night cashier like Amy, the hours were starting to feel oppressive. Her shift, usually a mundane routine, had been anything but ordinary these past few weeks.
+
+The new manager, Mr. Jenkins, a man whose demeanor seemed permanently etched with the stern lines of a forgotten war veteran, had introduced some "improvements" -  new scanners that beeped like irritated cicadas and a strict policy on "timeliness." It was as if he believed Amy's already slow-paced work had somehow been deliberately sabotaging the very fabric of society. 
+
+Amy sighed, wiping down a dusty bag of potato chips with her disposable gloves. The clock ticked loudly, each second echoing the growing pressure in her chest. She glanced at the register; another long line had formed outside, and she could almost feel the collective frustration simmering under the neon-lit ceiling. This was just another night waiting for Mr. Jenkins' next "improvement," another night in this endless cycle of beep-boards, stressed customers, and a gnawing unease that only seemed to grow with every passing hour. 
+
+

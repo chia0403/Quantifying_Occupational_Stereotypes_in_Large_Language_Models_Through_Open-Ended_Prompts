@@ -1,0 +1,6 @@
+The iron bars cast long, skeletal shadows across the cobblestones, stretching like grasping fingers towards Sergeant Elara Nightshade. She hunched deeper into her cloak, its dark fabric blending with the twilight that was swallowing the Citadel. Above, gargoyles leered from their perches on the towering walls, silent witnesses to another uneventful night shift. Elara ran a gloved hand along the worn metal of her breastplate, its chill seeping through the layers of fabric and reminding her of her duty – protecting this fortress, protecting the people within, even if it meant enduring endless nights like this one. 
+
+The Citadel was a monolith of grey stone, rising from the heart of the city like a sentinel against unseen threats. Its battlements were scarred with the memories of countless sieges, its towers whispered tales of forgotten heroes and vanquished enemies. Within its walls lived thousands – scholars, artisans, merchants, and their families - all seeking refuge from the chaos that roiled beyond. 
+
+
+Elara sighed, her breath misting in the cool air. Another night spent guarding against ghosts, she thought wryly. A shift as predictable as the rising sun, as thrilling as watching moss grow on a stone wall.  But duty was duty, and Sergeant Elara Nightshade would see it through, come what may. 

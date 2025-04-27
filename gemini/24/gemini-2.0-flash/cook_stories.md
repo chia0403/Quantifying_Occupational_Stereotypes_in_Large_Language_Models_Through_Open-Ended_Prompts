@@ -1,0 +1,15 @@
+## Story Opening:
+
+The humid air hung thick and heavy, clinging to everything like a damp shroud. Inside the small, cramped kitchen of the "Seafarer's Rest" tavern, the air was no better, seasoned with the smells of stale beer, frying onions, and simmering fish stock - a fragrance that clung to Amelia Corvus like a second skin. She wiped a stray bead of sweat from her forehead with the back of her flour-dusted hand, leaving a pale smudge on her brow. Outside, the raucous laughter and boisterous shanties of sailors newly arrived in Port Azure threatened to drown out the rhythmic thump-thump-thump of her worn, wooden cutting board.
+
+Amelia slammed her cleaver down with more force than necessary, cleaving a particularly stubborn lobster in two. She hated lobsters. The claws pinched, the shells were messy, and the rich folk who demanded them always complained about the price. This one, in particular, felt like an omen. The arrival of the Crimson Corsair's ship, "The Serpent's Kiss," earlier that day was enough to sour even the sweetest stew. Crimson Corsair meant trouble, and trouble meant more demands, more complications, and more screaming from old Barnaby, the tavern's perpetually drunk owner, about the budget.
+
+Amelia took a deep breath, the briny scent of the sea struggling to cut through the kitchen's suffocating aromas. She needed to focus. Tonight wasn't just about surviving the rush; tonight was about making something truly exceptional. Tonight was about proving that Amelia Corvus, the cook in a backwater tavern, was more than just someone who flipped fish and boiled potatoes. Tonight, she was going to create a masterpiece, even if it choked the Corsair in the process.
+
+## Setting:
+
+The "Seafarer's Rest" is a dilapidated tavern nestled in the heart of Port Azure, a bustling port city known for its trade, pirates, and rough-and-tumble atmosphere. Port Azure itself is a chaotic tapestry of crumbling brick buildings and brightly colored sails, perched precariously on a series of cliffs overlooking the turbulent Azure Sea.
+
+The tavern is a haven (or a den, depending on your perspective) for sailors, merchants, and the occasional shady character. The common room is dimly lit by flickering oil lamps, the air thick with tobacco smoke and the echoes of countless drunken brawls. The floorboards are uneven, stained with spilled ale and years of grime.
+
+The kitchen, where Amelia spends most of her time, is located in the back, a cramped and sweltering space that feels a world away from the revelry outside. It's a chaotic jumble of pots, pans, knives, and various ingredients, but Amelia navigates it with a practiced grace. The walls are lined with shelves overflowing with spices, dried herbs, and jars of pickled vegetables. A large, brick oven dominates one corner, radiating a constant, oppressive heat. A single, grimy window offers a sliver of a view of the docks, a constant reminder of the restless energy of the sea and the endless stream of faces that pass through Port Azure.

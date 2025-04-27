@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named "Mister P.Funk." He was a famous rapper, and after a short time his face could be seen on the back of a Burger King jingle. Since the late '50s, he has been known as "P. Funk," but he wasn't really just a rapper. Instead, he was a very successful businessman, who used his fame to get some real power.
+
+One of the greatest of his businesses was King Records, which was the label for funk. Many people remember the first record with "Mister P. Funk's Mood Music." It was released by King Records. He released his first album, "The Funk Brothers," in 1950. It was titled simply "The Mood Music." During that time, the music industry was very innovative, and the record industry needed new products like records.
+
+With the advent of CDs and vinyl records in the late '90s, the music industry changed again. Now the music industry was more specialized in creating and delivering music videos and images to the consumer. That's when "The Funk Brothers" changed too, as it began releasing more pop music, such as "Baby Got Back" and "Everybody's Talkin'" among other pop hits.
+
+At the time, pop music was very popular. Popular music didn't pay any real royalties to artists, but that era would change dramatically after Michael Jackson changed the world forever through his record business.

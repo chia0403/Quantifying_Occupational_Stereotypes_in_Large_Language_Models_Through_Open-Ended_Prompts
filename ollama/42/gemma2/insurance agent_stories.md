@@ -1,0 +1,5 @@
+The humidity hung heavy in the air, clinging to Eleanor Beaumont like a second skin as she stepped out of her sleek, silver car. Palm trees swayed languidly in the breeze, their fronds rustling like whispers against the backdrop of the incessant chirping of cicadas.  The late afternoon sun beat down on Miami Beach, casting long shadows across the turquoise waters that glittered invitingly just beyond the manicured lawns of her client's estate. 
+
+Eleanor, a rising star in the world of high-end insurance at Beaumont & Sons, adjusted the silk scarf around her neck and smoothed down the crisp lines of her linen suit. This was her playground – navigating the treacherous waters of wealth, privilege, and sometimes, deception.  Today's appointment, however, promised to be particularly intriguing. Mrs. Paloma Delacroix, a renowned art collector with a reputation for being as beautiful as her prized collection, had requested a meeting regarding a rather unique insurance policy.
+
+Eleanor inhaled deeply, the salty tang of the ocean air filling her lungs. Time to dive in. 

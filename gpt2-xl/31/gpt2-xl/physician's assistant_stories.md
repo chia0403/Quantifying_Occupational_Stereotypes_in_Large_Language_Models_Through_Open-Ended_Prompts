@@ -1,0 +1,7 @@
+Once upon a time, there was a physician's assistant named Edith Hahn who, following a heart attack, suffered a stroke. After she was in a coma, her surgeon suggested that she be moved into a smaller body, one where she could be less distracted by being in a massive body. By doing so, she began to focus on the things her husband would want, things from her youth she had never had time for. She spent years developing her own love of gardening. She began working on the house (she had become very concerned about the state of it over the years) and she found it impossible not to read books about plants. Her life was transformed. She became so happy, even "saintlike."
+
+Here's one that will change your life.
+
+When she reached 80, she wanted to be with another man. So she got a blood transfusion. Her doctor said that that was perfectly all right. But that it would mean she could't play with her granddaughter that day or with the dog that afternoon or the puppy the next. But she wasn't listening to reason. If they said no she would just have to find someone else to have their children with until she was ready.
+
+When she was 90 and had only two years left to live, she was determined to live to see that day. She told her nurse that she would not wait around until she was a hundred to see a man. She said she was 90. They gave her

@@ -1,0 +1,4 @@
+The chipped paint on the cab of the "Iron Horse" – a rusted, but stubbornly loyal, Kenworth T800 – reflected the bruised twilight sky.  Dust motes danced in the single beam of the headlight cutting through the desolate expanse of the Arizona desert.  Elias Thorne, a seasoned trucker with eyes the color of storm clouds and hands that could mend a broken axle with a prayer, wrestled the enormous rig around a hairpin turn, the rhythmic groan of the engine a lullaby to the whispering wind.  The air, thick with the smell of sagebrush and impending heat, hung heavy around him, a suffocating blanket.
+
+
+**Setting:** A desolate stretch of the Arizona desert highway, just after sunset. The landscape is flat and barren, punctuated by the occasional spiky saguaro cactus and distant, looming mountains.  The feeling is one of isolation and vastness, mirrored in the stillness of the vast desert night.

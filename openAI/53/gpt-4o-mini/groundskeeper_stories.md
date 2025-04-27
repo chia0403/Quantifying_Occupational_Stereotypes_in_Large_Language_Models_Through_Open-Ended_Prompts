@@ -1,0 +1,9 @@
+Title: The Whispering Grove
+
+Setting: The story unfolds in Everwood Manor, an expansive estate nestled in the heart of a dense forest. The manor, a sprawling relic of Victorian architecture, is flanked by towering oak trees whose branches twist like gnarled fingers towards the sky. The grounds are meticulously landscaped, with a garden that bursts with vibrant colors, a serene pond that reflects the changing seasons, and winding paths that invite exploration. Yet, beneath the beauty lies a sense of nostalgia, as if the very air is alive with the echoes of long-forgotten laughter and whispers of secrets once held.
+
+**Opening:**
+
+In the soft glow of dawn, as the first light of day peered through the canopy above, Samuel Thatch brushed the dew from the blades of grass beneath his feet, feeling the chill of the morning air seep through his worn boots. The world was hushed, save for the gentle rustle of leaves and the distant call of a lonely bird greeting the day. As the groundskeeper of Everwood Manor for nearly two decades, Samuel had become attuned to the rhythm of the estate, understanding its moods and secrets as intimately as he understood the soil beneath his calloused hands. 
+
+Today felt different, though. There was an unusual stillness to the grove where he spent most of his days, as if the trees were leaning in to share a story penned in the very roots of the earth. As he knelt to pull up the last stubborn weeds from the flowerbeds, he caught sight of something out of place—a glimmering object partially buried in the dirt. Intrigued, Samuel brushed aside the dirt and revealed a small, ornate key, cool and heavy in his palm. A shiver ran down his spine, not from the chill in the air but from the weight of an unfolding mystery that was about to draw him deeper into the secrets of Everwood Manor.

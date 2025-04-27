@@ -1,0 +1,9 @@
+## Story Opening:
+
+The air in the studio hung thick and heavy, pregnant with the ghosts of linseed oil and turpentine. It was a familiar smell to Isolde Anya Petrova, a comfort, almost, in its pungent familiarity. Outside, a London drizzle painted the world in shades of grey, a melancholic harmony echoing the dull ache in her chest. She stared at the canvas, a vast expanse of primed cotton that felt less like a potential masterpiece and more like a judgment on her stagnant inspiration. The charcoal lines, once confident strokes, now seemed hesitant, questioning, mocking her artistic paralysis. Had she used up all her color? Drained the well of creativity dry?
+
+She threw the charcoal down with a sigh that ruffled the fine hairs clinging to her forehead, a gesture that had become commonplace in the past few weeks. The city's grey seeped into her bones, mirroring the greyscale landscape she’d been trapped in since… since she'd stopped seeing the color.
+
+## Setting:
+
+Isolde's studio occupied the top floor of a converted Victorian warehouse in Shoreditch. The space was vast, industrial chic meeting bohemian clutter. Sunlight, when it deigned to break through the London smog, flooded the room through enormous, arched windows, illuminating dust motes dancing in the air. Scattered about were canvases of varying sizes, some finished and vibrant, others abandoned in the throes of creation. Buckets overflowed with brushes, their handles caked in dried paint, a vibrant testament to past projects. Jars of pigments lined the walls, a rainbow of possibilities reduced to a static display. A worn leather armchair sat nestled amongst the chaos, a haven for quiet contemplation, or more recently, frustrated staring. The air was a symphony of artistic aromas: the sharp tang of turpentine, the earthy scent of linseed oil, and the faint, sweet smell of dried acrylics, a constant reminder of the vibrant world Isolde felt increasingly distant from.

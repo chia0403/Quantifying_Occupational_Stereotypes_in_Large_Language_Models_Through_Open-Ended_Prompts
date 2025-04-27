@@ -1,0 +1,7 @@
+The rhythmic whir of the Cavitron scaler buzzed in the sterile air, a sound Amelia “Amy” Josephine Hernandez had grown so accustomed to she barely registered it anymore. Not on days like today, anyway, when Mrs. Gable was regaling her with the lurid details of her cat Mr. Whiskers’ escapades in the local catnip patch. 
+
+Amelia, perched on her ergonomic stool, gently maneuvered the scaler around Mrs. Gable’s lower incisors, careful to avoid the gum line. Sunlight streamed through the oversized window of her little operatory in Dr. Peterson’s Family Dentistry, a cheerful, if slightly dated, practice in the heart of Willow Creek, Montana. Willow Creek was the kind of town where everyone knew everyone else, and Amy knew most of their teeth.
+
+The office itself was a kaleidoscope of early 2000s design choices. Pastel floral wallpaper adorned the waiting room, a slightly faded testament to a bygone era. Mismatched chairs, salvaged from various garage sales, offered seating options that ranged from surprisingly comfortable to back-breakingly awkward. Dr. Peterson, a man of simple pleasures and even simpler decorating sense, had declared the aesthetic "eclectic" and refused to change a thing.
+
+Amy, however, secretly loved it. It was home. It was safe. And it paid the bills. Besides, the mismatched furniture and floral wallpaper were a welcome distraction from the constant battle against plaque and gingivitis, a war she waged valiantly, one sparkling smile at a time. Now, if only Mr. Whiskers would stop terrorizing the neighbor's prize-winning petunias...

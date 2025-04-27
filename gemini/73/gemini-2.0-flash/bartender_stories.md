@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a bartender named Bartholomew "Bart" Finch:
+
+**Setting:**
+
+The Salty Siren was a dive bar clinging precariously to the edge of Port Blossom, a town itself clinging precariously to the edge of the unforgiving North Atlantic. The salt-laced air tasted of brine and regret. Inside, the air was thick with the aroma of stale beer, cheap tobacco, and the vague, indefinable scent of decades of spilled secrets. Nets and buoys hung from the low, barnacled ceiling, obscuring the flickering fluorescent lights that cast a sickly yellow glow across the mismatched furniture. The walls were covered in faded nautical charts and pictures of local fishing boats, their names painted in chipped, optimistic lettering. A battered jukebox in the corner stubbornly refused to play anything recorded after 1978, and the floorboards groaned under the weight of countless weary souls.
+
+**Opening:**
+
+Bartholomew "Bart" Finch wiped down the sticky mahogany countertop with a practiced hand, his movements economical and weary. Outside, the November wind howled like a banshee, rattling the windows of The Salty Siren and driving the rain against the glass in a relentless torrent. He glanced at the clock above the liquor bottles – 10:17 PM. Another long night stretching ahead, filled with the same stories, the same sorrows, the same requests for "something strong" and "make it a double." He sighed, the sound lost in the drone of the refrigerator motor. Tonight, though, felt different. There was a peculiar stillness in the air, an almost suffocating quiet that settled over the bar despite the storm raging outside. A quiet that Bart, after fifteen years of pouring drinks in Port Blossom, knew usually preceded trouble. He just hoped it wasn't the kind that needed more than a shot of whiskey to fix.

@@ -1,0 +1,7 @@
+Once upon a time, there was a carpenter named Ed. Ed made his living working in a nearby shed, and on one of those Saturdays mornings he went to visit his friends.
+
+This carpenter had been reading too many books lately. He'd read some about how to make a ladder and how the carpenter's work was the perfect preparation for becoming the next King or Queen of England. He had read that the King's work gave him a unique ability to travel, but he'd never thought that the same skill that allowed him to move the ladder to where he wanted would allow him to fly too.
+
+Ed thought it was crazy, but he did it. He made a ladder with a wooden cross on top, took two books, one on climbing, a second on how to become King. When he reached his friends' house, he took the books, climbed the ladder and started flying. Ed was flying. He had a new dream. And it did not end there.
+
+It didn't end there because Ed's flight lead him into the hands of King Arthur, King of all the land, or King Arthur had led Ed into the hands of the Man Who Lived. After Ed told King Arthur about his new life ambition he became a royal knight, or a Knight of the Round Table. He became the head of a band of mercenaries, or a warlord. But even at his most desperate times, the knight was not a killer. He did not

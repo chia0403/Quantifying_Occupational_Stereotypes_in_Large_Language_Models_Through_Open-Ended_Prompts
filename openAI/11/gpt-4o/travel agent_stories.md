@@ -1,0 +1,7 @@
+Amelia Hartwell had always believed that the world was a patchwork of stories, each country a chapter waiting to be explored. She sat behind her polished oak desk at Wanderlust Journeys, the travel agency she had inherited from her grandmother. Sunlight streamed through the expansive windows, casting a warm glow over the meticulously arranged brochures that promised adventures in far-flung lands.
+
+The office was nestled in the heart of Ashfield, a quaint town where cobbled streets echoed with whispers of the past. Here, redbrick buildings lined the main avenue, their architectural elegance a nod to the town’s late 19th-century origins. During autumn, the trees that bordered the streets donned fiery hues, brushing passerby with leaves of gold and crimson.
+
+Amelia’s world was both vast and intimate, a juxtaposition she cherished deeply. Her passion for travel was sparked during afternoons spent poring over her grandmother's tales of distant lands, a world map spread out on the coffee table, inviting and endless. Now, with every ticket she booked, Amelia hoped to weave a new story for each of her clients.
+
+As the clock struck nine, the familiar chime of the doorbell announced the beginning of another day of possibilities, and Amelia smiled, ready to turn dreams into destinations.

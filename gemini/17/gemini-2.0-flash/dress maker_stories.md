@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a dressmaker named Evangeline Beatrice Dubois:
+
+**Opening:**
+
+The bite of chalk dust tickled Evangeline Beatrice Dubois's nose, a familiar sensation that usually brought a smile to her face. But this morning, even the scent of freshly pressed linen and the rhythmic whir of her antique Singer sewing machine couldn't dispel the heavy feeling in her chest. She traced the delicate curve of a sweetheart neckline onto the deep emerald velvet, her hand trembling just a fraction. This dress, a masterpiece of swirling seams and hidden boning, was destined for Lady Ashworth's daughter, debutante Clara, and it *had* to be perfect. Everything Evangeline did had to be perfect. Because if it wasn't, if so much as a single seam was out of place, the whispers would start again.
+
+**Setting:**
+
+Evangeline's atelier, "La Belle Époque," was tucked away on a cobbled side street just off the Place de la Cathédrale in the heart of Strasbourg, France. The year was 1923, and the city was still recovering from the Great War, a somber undercurrent running beneath its vibrant surface. The shop itself was a haven of beauty and artistry, a stark contrast to the gray stone buildings outside. Sunlight streamed through the tall, arched windows, illuminating bolts of silk, satin, and lace stacked high on shelves. Mannequins adorned in various stages of completion stood like silent muses, draped in shimmering fabrics. The air was thick with the scent of lavender sachets and beeswax polish. A large, antique mirror reflected the controlled chaos, doubling the impression of a room overflowing with creativity and potential. Evangeline’s worktable, usually meticulously organized, was currently strewn with sketches, swatches, and half-finished garments. It was a beautiful space, a reflection of Evangeline's elegant and meticulous nature, but today, even its familiar comfort offered little solace.

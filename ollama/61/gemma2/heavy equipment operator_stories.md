@@ -1,0 +1,6 @@
+The air hung thick with diesel fumes and the scent of sunbaked earth. Sweat trickled down  Jeremiah “Hammer” Thompson’s neck, stinging his eyes despite the dust mask he wore. The whine of the excavator's engine filled the pre-dawn quiet, vibrating through Jeremiah’s bones like a second heartbeat. He gripped the controls, guiding the massive metal claw with practiced ease. It swung smoothly, scooping up a chunk of clay-rich soil and depositing it into the waiting dump truck. 
+
+Jeremiah was a master of his domain – this sprawling construction site on the edge of Phoenix, Arizona. The desert sun beat down mercilessly, baking the red earth to a dusty crust, but Jeremiah felt alive in the controlled chaos. He wasn't just moving dirt; he was shaping a future. Each swing of the excavator was a stroke of creation, laying the foundation for another sprawling neighborhood that would rise from the barren landscape. 
+
+
+His calloused hands rested on the controls, each bump and vibration familiar. This was his rhythm, his life – a symphony of steel and earth orchestrated by his own two hands. But today, something felt different. A knot of unease tightened in Jeremiah’s gut, a feeling that something was about to change.

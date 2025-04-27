@@ -1,0 +1,7 @@
+The scent of lavender and dust clung to Amelia’s worn apron like a second skin. Stepping over the threshold into the sprawling manor house, she felt the chill of forgotten lives settling upon her shoulders. It was almost dusk, painting the sky in fiery hues of orange and red, mirroring the chaos brewing inside the grand Victorian mansion on Northridge Road.
+
+Amelia knew this place better than she knew herself -  every creaking floorboard, every cobweb-draped corner, every dust mote swirling in the afternoon light.  Her name was Amelia Thorne, and for the last twenty years, her life had been intricately woven into the very fabric of this opulent home, tending to its whispers, secrets, and the ghosts that lingered within its walls. 
+
+The house belonged to the Van Derlyn family - a lineage whose legacy was one of whispered scandals and unspoken tragedies. Each month they returned from their travels around the world - Amelia's life became the metronome in this chaotic waltz of fortune and decay, as she kept the opulent home running like a perfectly oiled machine despite its disarray. 
+
+Tonight, however, there was a tension hanging thick as the velvet curtains draped across the ornate windows. The Van Derlyn children were back, their youthful rebellion flaring like tinder against the somber backdrop of history. And Amelia knew something had snapped - a silent discord within the mansion's very core.  

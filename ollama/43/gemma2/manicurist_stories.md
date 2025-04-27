@@ -1,0 +1,6 @@
+The air hung thick with the scent of acetone and jasmine. A faint hum vibrated from the neon sign outside, casting a sickly pink glow across Eloise Beatrice Beaumont's meticulously organized workspace. She adjusted her tortoiseshell spectacles, squinting at the intricate swirl of a French manicure she was perfecting on Mrs. Periwinkle, a woman whose life seemed as perfectly manicured as her nails.
+
+Eloise, with her auburn bun pulled tight and navy cardigan buttoned to the collar, exuded an air of quiet competence in "The Polished Petal," a nail salon tucked away on a side street in downtown Savannah. The city was alive with jazz music spilling from open doorways, the murmur of tourists searching for ghost stories, and the rhythmic clip-clop of carriage wheels over cobblestones.  But within the pastel walls of her salon, time seemed to flow differently, measured in the gentle scrape of files and the clinking of tiny glass bottles filled with shimmering nail polishes. 
+
+
+Eloise prided herself on being more than just a manicurist; she was a confidante, a therapist for chipped nails and broken spirits. The stories that spilled from her clients' lips as they sat beneath the warm glow of the lamps were as varied and colorful as the hues she applied to their fingertips. And today, a new story was about to unfold.  

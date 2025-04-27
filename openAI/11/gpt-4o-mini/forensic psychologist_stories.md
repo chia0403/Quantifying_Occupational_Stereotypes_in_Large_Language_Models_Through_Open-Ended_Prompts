@@ -1,0 +1,9 @@
+**Title: Shadows of the Mind**
+
+**Setting:**  
+The rain fell in relentless sheets over the city of Blackwood, a place where the architecture whispered stories of both grandeur and despair. Towering, soot-streaked buildings lined the streets, their windows reflecting the gloomy sky. Haunted by echoes of sirens and muffled conversations, the atmosphere was thick with a mix of anxiety and anticipation. In the heart of the city stood the Blackwood Criminal Justice Center, a stark concrete edifice that housed the forensics department and the offices of those who dared to traverse the murky waters of the human psyche.
+
+**Opening:**  
+Dr. Evelyn Marlowe shifted uncomfortably in the too-large chair, her fingers tapping an anxious rhythm against the metal armrest. The smell of damp paper mingled with the sterile scent of antiseptic in the small interview room where she now sat. As a forensic psychologist, she was accustomed to the grim realities of her work; however, this case felt different. Just hours earlier, she had been poring over the profile of a killer whose puzzle pieces were interwoven with the secrets of the city. Yet, it wasn’t the gruesome details of the crimes that plagued her thoughts—it was the disturbing realization that the perpetrator's mind mirrored the echoes of her own past.
+
+Evelyn, a woman in her late thirties with striking chestnut hair and piercing green eyes, was known for her keen insights and empathetic approach to those whose lives had veered into chaos. Yet today, in the oppressive stillness of the room, a heavy weight settled in her chest. It was almost as if the walls themselves were closing in, reminding her that some shadows are best left unexamined. As she glanced at the one-way mirror, she steeled herself for what was to come—a confrontation with madness that would challenge everything she believed about the thin line separating sanity from insanity.

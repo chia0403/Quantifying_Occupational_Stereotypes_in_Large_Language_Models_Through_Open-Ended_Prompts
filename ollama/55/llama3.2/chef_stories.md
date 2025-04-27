@@ -1,0 +1,7 @@
+Here's a story opening:
+
+The fog rolled in off the coast of San Francisco like a damp shroud, shrouding the city in a misty veil that seemed to cling to every stone and steel skyscraper. In the small kitchen of his family's famous seafood restaurant, El Pescador, chef extraordinaire Alexander Rafael García III adjusted his toque as he surveyed the morning's specials board. His dark hair was slicked back, revealing a smattering of stubble on his sharp jawline, and his bright brown eyes sparkled with a mix of creativity and exhaustion. It had been a long night in the kitchen, but Alejandro was already mentally preparing for the lunch rush, his mind whirling with the menu changes he'd made to the day's specials – and a few secrets he planned to unveil to his loyal customers.
+
+Alejandro's family had owned El Pescador since the 1960s, when his abuelo first arrived in San Francisco from the coast of Guanajuato. Over the years, the restaurant had become synonymous with fresh seafood and traditional Mexican cuisine, drawing in visitors from all over the world who were eager to taste the authentic flavors of Alejandro's homeland.
+
+As he began to prep for the lunch service, Alejandro couldn't shake the feeling that something was about to change – whether it was a new ingredient, a recipe tweak, or an unexpected guest, he had a sense that the next few weeks would be anything but ordinary in the kitchen and beyond.

@@ -1,0 +1,9 @@
+In the heart of the bustling city of Pontiac Grove, where skyscrapers clawed at the sky and the hum of traffic played an incessant urban symphony, Robert "Rob" Milton found solace at his drafting table. The workspace was a sanctuary of sorts, tucked away on the seventh floor of a timeworn brick building that smelled faintly of sawdust and coffee. Here, amidst the rhythmic scratching of pencils and the fine dust of eraser shavings, he could lose himself in the world of lines and angles.
+
+Rob was a drafting technician at Lamington and Trass, Architects—a firm renowned for its audacious designs and intricate blueprints. Each workday, as dawn's first light crept through the tall windows of the drafting studio, Rob would settle into his chair with a contented sigh, ready to transform vague concepts into tangible visions.
+
+The studio itself was a curious blend of old-world charm and modern efficiency. High ceilings were crisscrossed by exposed beams, and large, steel-framed windows cast squares of light onto the polished wooden floors. Long tables groaned under the weight of sprawling blueprints, while open shelves displayed an array of rulers, compasses, and protractors, all meticulously organized.
+
+Rob's station was nestled by a window that granted him a panoramic view of the cityscape. He often found inspiration in the ever-shifting patterns of sunlight and shadow that danced across the urban landscape. It was from this vantage point that he embarked on his daily journey through the realms of design, guided by little more than a keen eye and an unyielding passion for detail.
+
+As the city roared to life outside, Rob leaned over his latest assignment—a complex layout for a cutting-edge residential tower that promised to redefine the skyline. With a pencil poised delicately above the paper, Rob Milton began to draw, ushering in the day with lines that promised both function and elegance.

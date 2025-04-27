@@ -1,0 +1,9 @@
+## Story Opening:
+
+The air in the bar was thick with cigarette smoke and regret, a familiar cocktail for a Tuesday night. Leo Maxwell adjusted his fedora, the brim casting a shadow that hid the fatigue etching lines around his eyes. Rain lashed against the grimy windows of "The Serpent's Kiss," a dive so deep in the underbelly of San Francisco it practically touched hell. He’d been nursing a rye on the rocks for the better part of an hour, listening to the bluesy lament of a saxophone bleeding from the jukebox. He’d come here for the anonymity, the promise of being left alone with his thoughts. He should have known better.
+
+A shadow fell across his table, blocking the weak light from the flickering neon sign. He looked up, and a dame stood there, all curves and crimson lipstick. Trouble, plain as day. He sighed, the sound lost in the cacophony of the bar. Trouble, he was starting to think, was his only friend these days.
+
+## Setting:
+
+**San Francisco, California. 1948.** Post-war optimism was a shiny veneer plastered over a city riddled with hidden darkness. Corruption seeped into the cracks of the city's iconic hills, and the promises of a bright future felt hollow to those living in the shadows. From the opulent mansions of Pacific Heights to the gritty docks of Fisherman's Wharf, the city pulsed with a restless energy, a dangerous mix of ambition and despair. The fog, perpetually clinging to the Golden Gate Bridge, seemed to mirror the secrets that shrouded the city, whispering of lies and betrayals lurking just beneath the surface. This was Leo Maxwell's hunting ground, a labyrinth of intrigue and deceit where he navigated the murky waters of human nature for a living. He knew the city's hidden alleys as well as he knew the taste of cheap whiskey and the feel of a cold Colt in his hand. He was a product of San Francisco, a cynical romantic caught in a web of his own making.

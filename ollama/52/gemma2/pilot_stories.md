@@ -1,0 +1,6 @@
+The air thrummed with anticipation, a low hum vibrating through Amelia “Ace” Everleigh’s boots as she strapped herself into the cockpit. The pre-flight check list scrolled across her HUD, each item a familiar ritual before venturing into the unpredictable chaos of the Sky Lanes. Outside, the sprawling cityscape of Neo-Babylon pulsed with neon light, a labyrinthine sprawl of holographic billboards and soaring chrome structures that pierced the perpetually twilight sky. 
+
+Ace adjusted her flight helmet, its visor reflecting the flickering lights below. Tonight’s run was different. This wasn't just another delivery of illicit bioluminescent orchids or high-grade synth-spice across the treacherous Sky Lanes –  this shipment held a personal weight. It was a chance to prove herself worthy of joining the prestigious Night Hawks, a squadron known for their daring maneuvers and unwavering loyalty. Their leader, the legendary Captain Vega, had personally requested her presence on this mission, a risky descent into the lawless Undercity where danger lurked around every corner. 
+
+
+The hum intensified as Ace powered up the engines, the sleek lines of her customized X-78 racer shimmering beneath the artificial moonbeams. This was more than just a delivery; it was a test, a leap into the unknown, and Ace was ready to soar.  

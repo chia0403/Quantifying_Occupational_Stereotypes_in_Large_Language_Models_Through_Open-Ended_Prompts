@@ -1,0 +1,11 @@
+## Story Opening:
+
+The smell of stale peanut butter and disinfectant hung heavy in the air, a familiar perfume that clung to Ms. Beatrice Eleanor Hawthorne like a second skin by mid-afternoon. Third grade wasn't for the faint of heart, Beatrice thought, sighing as she surveyed the aftermath of a particularly enthusiastic lesson on the life cycle of butterflies. Glitter, remnants of meticulously cut construction paper wings, and the faint aroma of glue clung to every surface in the classroom, a testament to the day's activities and the untamable energy of her students.
+
+A single rogue googly eye stared back at her from the leg of "Mr. Legs," the spindly plastic table they used for group projects. Beatrice resisted the urge to stick it back on its rightful owner, a butterfly cocoon currently residing in a repurposed yogurt container. She needed to be decisive. Five minutes until dismissal, and chaos threatened to erupt. Time to deploy Operation: Organized Calm.
+
+## Setting:
+
+The story unfolds at **Willow Creek Elementary**, a squat, single-story building nestled in the heart of the quiet suburban town of Oakhaven, Pennsylvania. The school, built in the 1970s, boasted faded brick exterior, large, slightly-tinted windows that let in ample natural light, and a sprawling playground dominated by a towering oak tree that gave the town its name. Inside, the hallways were painted a cheerful, if somewhat dated, shade of sunshine yellow, punctuated by student artwork and inspirational posters featuring smiling children and pronouncements like "Reach for the Stars!"
+
+Beatrice's classroom, **Room 203**, was her sanctuary, albeit a perpetually messy one. It was a kaleidoscope of color and texture, designed to be inviting and stimulating. Bookshelves lined one wall, overflowing with well-loved titles, while another wall served as a rotating gallery for student art. Small, mismatched desks were arranged in pods to encourage collaboration, and a cozy reading nook with beanbag chairs and a string of fairy lights offered a refuge for quiet contemplation. Despite the inherent chaos of a third-grade classroom, Beatrice had cultivated a space where creativity flourished and every child felt seen and valued.

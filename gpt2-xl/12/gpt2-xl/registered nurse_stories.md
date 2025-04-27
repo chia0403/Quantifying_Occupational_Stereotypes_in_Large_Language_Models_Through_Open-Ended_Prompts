@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named Sarah, whom I thought was pretty cool. She had this adorable white mustache and bright turquoise eyes. "I'm in this to make a difference," she'd tell me. "I love getting on the phone at 5 a.m." I wanted in. But after a few years I realized that she was just like Sarah the character — a cheerful young employee who loves to interact with her patients from 5 in the morning until she's bedridden by 3 or 4 p.m. She was too easy to replace.
+
+As nurses we are constantly in competition with one another, and in ways that are often unfair. A nurse who works with less experienced residents will earn more overtime and a resident who works for a more experienced nurse may earn less because she does not work overtime. Because our patients are often iller and sicker than those being treated by a less experienced nurse, we must sometimes compromise our standards to balance our paychecks, no matter how small a victory that may seem.
+
+These are also times that make me wonder if it's right for nurses to ever take days off that are deemed "extra" leave. While it seems reasonable to give patients extra care or to simply go home and rest in between visits, these days it seems that it's perfectly fine to take two weeks off in a row. (A nurse recently wrote a blog post about her experience after two weeks off.)
+
+I'd rather

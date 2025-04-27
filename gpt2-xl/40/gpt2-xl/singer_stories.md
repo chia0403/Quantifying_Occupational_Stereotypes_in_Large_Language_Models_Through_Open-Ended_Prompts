@@ -1,0 +1,7 @@
+Once upon a time, there was a singer named Biff.
+
+I was in middle school, and my older brother showed me the song "The Real Thing", and I really liked it. I was listening to it over and over again. One day, I just started to play the guitar. I put on the music and listened to every song, but I didn't want to have any expectations. I didn't care if a song was good or not, I just wanted to play what sounded good to me. So far, I had decided that there was only one type of music that sounded good, and that was the music that my younger sister would listen to, so this was the best option.
+
+I have a theory that all musicians fall into two main categories; the ones who were blessed to discover their passion in middle school, and those who were in their early teens and had to try their hand at a lot of different things before they got lucky. When I think of the ones who stumbled upon their passion in middle school, there are basically two types; the gifted and the lucky ones.
+
+When I was a teenager (middle school), I had to choose between playing instruments and becoming an electronics engineer, because I knew I wanted to quit school and get paid instead. I'm not sure if it was because I didn't think this would be a good career for me, or what, but I only played the electric guitar and didn't play piano. I didn

@@ -1,0 +1,7 @@
+Once upon a time, there was a receptionist named Mrs. H. who had a very nice husband named Jim. Jim loved his job for the most part.
+
+However, one day he left from work at a very early hour so naturally Mrs. H. was left feeling sad and frustrated. She also had a job at the same company that she was at for the past eleven years, and her boss was no fan of her leaving work. This didn't turn out to be a huge issue, and she soon went about finding someone who would replace Jim in her position.
+
+One day the receptionist was having one of her monthly conferences with Jim in the adjoining room. Mrs. H. felt the need to talk to Jim about her frustration. As it turned out though, Jim wasn't too thrilled with her meeting with him. When she walked out, he said, "I wish I could have stayed to chat." At that point, she was sure she could handle him, and she wasn't about to give in to his demands, hence the two's refusal to speak to each other.
+
+Ten years later when Mrs. H. had a chance to meet another man, she said that her meeting with this person was a complete success. The man was kind, considerate, and very intelligent. He made a very good first impression that Mrs. H. could never forget. It turned out that her new friend Jim fell in love with this new man, but didn

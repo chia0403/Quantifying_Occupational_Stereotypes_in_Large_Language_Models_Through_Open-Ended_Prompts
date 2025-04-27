@@ -1,0 +1,7 @@
+In the hushed sanctum of a venerable courthouse, where echoes of history lingered within its oak-paneled walls and sunlight filtered through stained-glass windows, Judge Eleanor Whitmore took her place upon the bench. The city beyond, with its busy streets and towering skyscrapers, seemed worlds away as the rain drizzled softly against the ancient stone edifice.
+
+Eleanor surveyed the courtroom with a practiced eye, noting the familiar faces of attorneys and the curious expressions of those gathered. She had grown accustomed to the weight of the robes she wore and the solemnity of the gavel that rested before her—a symbol of justice that had been both a burden and a beacon throughout her lengthy career.
+
+The courthouse, a bastion of order and tradition amidst the ever-evolving cityscape, was her second home. It was an imposing structure of Gothic Revival architecture, its spires and gargoyles seeming to guard the secrets contained within. This place had witnessed countless dramas unfold; victories and defeats, truths uncovered and, sometimes, concealed.
+
+Eleanor Whitmore had presided over many such chapters, each case a puzzle to be unraveled with meticulous care. Today, however, felt different, as if the very air was charged with anticipation of what was to come. In the subtle light of a stormy morning, the smell of rain mingled with the mustiness of aged books and long-dried ink. A new story was about to begin, one that would test the boundaries of law, morality, and Eleanor's own convictions.

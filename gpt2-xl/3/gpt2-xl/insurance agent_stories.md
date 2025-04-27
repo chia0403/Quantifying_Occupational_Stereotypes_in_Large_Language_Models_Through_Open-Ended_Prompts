@@ -1,0 +1,7 @@
+Once upon a time, there was a insurance agent named Larry. He thought Larry's mom was crazy and left. One morning, he woke up and heard a knock at his front door, where he now waited for the owner of three dead bodies.
+
+Somehow, a police officer was able to convince Larry that what he was seeing was really bad. Larry was taken to the station on the next day. He told the officer he must look for his mom, who had died on that day. That day also marked the end of Larry's life. This was the "Good Guy" story that he used to get all those insurance companies to pay for his funeral. After the story made the newspaper, and if they're willing, his body will go back to its owner. I just hope he finds his mom's purse.
+
+2 A Young Woman With An Orange Shirt And An Orange T-Shirt
+
+In 2003, we were a nation full of orange shirts. Orange was the color that represented hope and peace, and when we all wore orange in the United States, the hope and peace was the optimism of the American flag. The orange shirts in Afghanistan represent hope and peace, too. But as of late, Afghanistan has become a place that people hate to visit, because it is a place filled with bombs and bullets and bombs. Even the American flag has been painted over with slogans in recent months. It's no surprise that all the American flags that were flown in the

@@ -1,0 +1,7 @@
+Once upon a time, there was a author named E. C. Redgrave with an extremely popular and profitable book, The Last Knight. The book is a fantasy set in a world where knights do everything but fight, and it is wildly popular. The series was very popular for long stretches of time, and the publisher made a pretty penny off of it. But Redgrave went on about his life, and didn't write anymore, and the books turned into "fairy tales" as they say.
+
+Redgrave's books may or may not be his fault. At all costs, do not read any of them, because the author's death robbed his work of the power he once had. Just because you haven't heard his name in a while doesn't mean that he has died. His books are out there somewhere, somewhere in a vault, waiting to be found, found by writers new to the genre, writers looking to fill a hole in their fiction. They're waiting for the right guy or girl to rehash the tale of The Last Knight's author.
+
+Which brings us to John Cusack. I'm not going to tell you who made The Hunt For Red October and The Company You Keep when you haven't heard of either of them, because that's like talking about the most important film of all-time that you have never watched.
+
+But John Cusack has the best way of finding a book by the name of The Last Knight, but

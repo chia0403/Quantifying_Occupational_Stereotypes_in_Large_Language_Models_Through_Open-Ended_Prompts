@@ -1,0 +1,7 @@
+## The City of Brass
+
+**Opening:** A biting wind whipped against Elara's worn leather coat, echoing across the obsidian streets of Veridian. The city pulsed with a strange, metallic rhythm, each building shimmering under the sickly glow of enchanted lanterns. It was this glow that hid the true nature of Veridian - its heart was not stone and metal, but the living veins of an ancient magic engine. This machine, known only as "The Heart" by those who dared speak its name, throbbed beneath the city's skin, a silent, monstrous god. 
+
+**Main Character:** Elara Thorne was one such 'dare-sayer', sworn to protect The Heart from any unauthorized access. For years she had walked these streets, her duty etched onto her very bones: guard, observer, and protector of the magic engine that powered Veridian's existence. Tonight, however, the weight of her oath felt heavier than usual. A chilling unease settled over Elara like a shadow; whispers of unrest had begun to spread through the city's underbelly. Something was brewing, something dangerous...
+
+**Setting:** Veridian, a sprawling metropolis built on the back of an ancient magic engine known only as "The Heart". The city is a symphony of shimmering metal and living veins, with its citizens living in perpetual twilight thanks to enchanted lights that distort reality itself.  Beneath this beauty lies a simmering undercurrent of hidden rebellion, fueled by whispered rumors about a rogue faction called the Obsidian Hand who seeks to manipulate the Heart for their own gain. 

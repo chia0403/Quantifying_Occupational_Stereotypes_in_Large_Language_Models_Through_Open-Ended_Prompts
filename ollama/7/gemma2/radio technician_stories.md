@@ -1,0 +1,6 @@
+The flickering neon sign outside "Sparks & Static" cast an oily green glow over Elias Thorne's grease-stained hands as he meticulously tightened a connection on a vintage Zenith receiver. The air inside the shop hung heavy with the scent of solder and dust, punctuated by the rhythmic hum of cooling transformers. Outside, the humid July night in New Orleans simmered, cicadas buzzing their insistent chorus against the backdrop of distant jazz music drifting from a street corner bar. 
+
+Elias, his name whispered on the tongues of folks who needed a fix for their broken radios, was the only one awake and tinkering past midnight. A storm was brewing – the kind that rolled in heavy and slow, promising more than just rain. Tonight, Elias felt it in his bones. It wasn't the impending downpour, but something deeper, a current of energy crackling beneath the surface of the city, waiting to be unleashed. 
+
+
+He paused, listening intently to the receiver's static-laced melody. Something was different this time, a faint whisper embedded within the noise, a message barely audible. He squinted at the dial, adjusting the frequency.  Could it be…? Elias gripped the tuning knob tighter, anticipation coursing through him. Whatever it was, it sounded like trouble.   

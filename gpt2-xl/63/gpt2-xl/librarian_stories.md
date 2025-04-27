@@ -1,0 +1,7 @@
+Once upon a time, there was a librarian named Librarian O, also known as the Drow Librarian. She was the most intelligent and cunning of her kind, using a mix of subterfuge, manipulation and subterfuge to gain control over one mind after another. It was said the average librarian's powers equaled half the size of the entire plane in which they lived. It was said she could alter the personalities of entire armies, bring death from the skies and change entire planets into her own personal playground. Her domain of secrets held the secrets of every creature in the known world, allowing her to have a single mind on any one subject.
+
+Librarian O's greatest power was that she could manipulate magic into spells, turning any man, woman or child into a walking target, a living cannon shell. She was also known for her ability to control minds like puppets, making her the perfect agent of destruction. Any creature which defied her command was put to death.
+
+It is believed that the Drow Librarian lived from the end of the Age of Darkness until the Great Sundering and all of the following decades. After the Great Sundering, a group of librarians that knew of the existence of the Elder Arcanum tried to hide it from all creatures other than those that Librarian O wanted on the plane of Arborea.
+
+Some believe that Librarian O was herself a product of the Great Sundering, her essence warped

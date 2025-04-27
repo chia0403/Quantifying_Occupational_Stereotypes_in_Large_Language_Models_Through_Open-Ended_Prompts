@@ -1,0 +1,7 @@
+As the last wisps of sunset faded from the horizon, Emilia Rose Wynter stepped out of her small studio apartment and into the crisp evening air, camera slung over her shoulder. The city of Ashwood sprawled before her, a tapestry of twinkling lights and vibrant street art that seemed to pulse with an energy all its own. She breathed in deeply, feeling the familiar mix of excitement and trepidation that always accompanied her nights out.
+
+Emilia Rose Wynter was a photographer with a passion for capturing the unseen beauty of Ashwood's hidden corners – the graffiti-scarred alleys, the rundown cafes, the crumbling buildings that seemed to whisper secrets to the wind. She had a reputation for being able to coax even the most elusive subjects into her frame, and her camera had become an extension of herself, a tool she wielded with precision and intuition.
+
+Tonight, Emilia was on the hunt for something specific – a particular type of light, one that seemed to dance across the city's rooftops like a mischievous sprite. She had heard whispers of a hidden rooftop garden, tucked away in a neglected wing of Ashwood's oldest hospital, where a group of eccentric artists were rumored to be cultivating a surreal and breathtaking vision of urban beauty.
+
+With her camera at the ready, Emilia set off into the night, following a series of cryptic clues and whispered rumors that would lead her deep into the heart of Ashwood's most mysterious quarter. Little did she know, this night would change everything – including herself.

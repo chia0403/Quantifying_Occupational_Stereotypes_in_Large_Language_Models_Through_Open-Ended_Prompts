@@ -1,0 +1,3 @@
+Once upon a time, there was a graphic designer named Mark Gruenwald. You know him. He's the guy who designed what is commonly known as the "hippie" T-shirt because of its resemblance to the infamous John Lennon-style beanie.
+
+Gruenwald is also pretty good at graphic design, so we figured he could help us create a poster featuring Mr. Gruenwald, but what we didn't yet foresee was that our own John Gruenwald was so passionate about the project that we would not have a poster that featured his face but one featuring Mark's picture instead.

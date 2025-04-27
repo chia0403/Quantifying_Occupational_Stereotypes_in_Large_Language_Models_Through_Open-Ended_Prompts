@@ -1,0 +1,7 @@
+Once upon a time, there was a farmer named Joseph. He had a nice yard with a barn and a nice chicken coop. He sold his cattle, too, just like everybody else. He bought a tractor. He put it on the road and began working on the farm. He started plowing his field and harvesting crops. When his tractor got tired, he took it off the road. He went up to the barn to get a drink of water; he found the tractor gone in a pile of hay.
+
+The little town called "Peoria" is on the west side of a big lake. The lake is too big for a tiny little boat to be a danger to the town. The people of Peoria bought three little boats.
+
+So there was a lake, big enough for a bunch of boats in it, with nothing in that lake for the boats to come in and be picked up by. The boats would go over and the little boats would float along the lake. The boats would come to the small town of Peoria and the people would load the boats onto the trucks going to the small town of Illinois. When the trucks got to Illinois, they would go to the Chicago St. Mary's Hospital and the people would unload the boats onto the trucks back. In a month or two there was nothing left in Illinois.
+
+Then about seven months after that, the farmers in Illinois saw there was a lot less grain left in the fields and the

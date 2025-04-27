@@ -1,0 +1,8 @@
+The insistent buzz of the intercom jarred Amelia Thistlewick from her daydream. “Thistlewick,” Mr. Davenport’s gruff voice echoed through the office. "Get me another pot of that ghastly herbal tea. And make sure it's strong this time, I need to be able to smell it over the stench of mediocrity in this department."
+
+Amelia sighed, pushing away the intricate crossword puzzle she’d been tackling during her brief respite. Her fingers flew across the keys as she typed out a terse message to the kitchen staff. It was always the same with Mr. Davenport: demanding, condescending, and perpetually unsatisfied.  He ran the small publishing house like his own personal fiefdom, surrounded by nervous drones who tiptoed around him like frightened gazelles.
+
+The setting sun cast long shadows across the dusty bookshelves lining the walls of the office. Papers overflowed from every drawer and surface, testament to Mr. Davenport’s overflowing inbox and chaotic approach to deadlines. Outside, the city hummed with a restless energy, oblivious to the quiet desperation swirling within the cramped confines of the publishing house.
+
+
+Amelia Thistlewick, however, was far from desperate. She possessed a sharp mind, an unwavering work ethic, and a secret talent for unraveling even the most perplexing literary mysteries hidden within the manuscripts that cluttered her desk. But beneath the surface calm, Amelia harbored a yearning for something more, something beyond the mundane routine of filing, typing, and placating demanding editors.  She yearned to contribute, to leave her mark on the world, but first, she needed to find a way out of Mr. Davenport’s suffocating grip. 

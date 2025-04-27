@@ -1,0 +1,9 @@
+## Story Opening:
+
+The salt spray stung Amelia Rose Thorne’s face, but she barely registered it. Her lens, a hulking piece of German engineering named Wolfgang (mostly because it was stubbornly reliable and refused to be rushed), was glued to the turbulent grey sea. The wind, a wild, untamed beast that felt personally offended by her presence, whipped strands of her auburn hair across her cheek, blurring the world to a swirling impressionistic painting of blues and whites. Still, she held her ground, bracing against the ancient stone wall of the lighthouse, willing the moment to unfold.
+
+She was searching for it, that flicker, that fleeting expression of the ocean’s soul. The moment when the waves clawed at the cliffs with a savage beauty, a raw, untamed power that spoke of centuries of secrets and storms. She’d been chasing it for three days now, spending hours clinging to this windswept precipice, Wolfgang her only companion. Patience, her grandfather used to say, was the photographer's best friend. Amelia just hoped her friend didn't get bored waiting.
+
+## Setting:
+
+The story is set on the Isle of Arranmore, a small, rugged island off the coast of County Donegal in Ireland. Specifically, Amelia is situated on the eastern side of the island, near the foot of the Arranmore Lighthouse, perched precariously on the edge of a craggy cliff overlooking the Atlantic Ocean. The landscape is characterized by dramatic cliffs, rolling green hills punctuated by patches of heather, and a constant, biting wind. The island’s small villages are nestled in sheltered coves, their whitewashed houses clinging to the coastline like limpets. The air is thick with the scent of salt, peat smoke, and the wild, untamed beauty of the Irish coastline. Arranmore is a place of stark beauty and weathered resilience, a place where the power of nature reigns supreme.

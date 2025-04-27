@@ -1,0 +1,5 @@
+The fluorescent lights of the "Little Explorers" preschool hummed, a monotonous soundtrack to the chaotic symphony of toddlers.  Amelia Cavendish, a whirlwind of a twenty-year-old with perpetually tired eyes and a smile that clung stubbornly to her face, navigated the colourful sea of tiny bodies.  Crayon-stained hands, sticky fingers, and the incessant babble of "more juice," "my turn," and "no!" bombarded her senses.  Today, however, the usual cacophony was punctuated by an unsettling silence.
+
+Setting:
+
+The Little Explorers Preschool was a brightly coloured, if slightly worn, building nestled in the heart of a bustling, yet surprisingly quiet, suburb.  Sunlight streamed through the large windows, illuminating the colourful play areas – a meticulously crafted miniature forest, a vibrant block corner, and a sensory room buzzing with colourful textures.  The air, thick with the scent of Play-Doh and spilled milk, hung heavy with the unspoken tension that often accompanied a particularly trying morning.  A faint, metallic tang, barely perceptible, hung in the air, an unfamiliar smell that prickled Amelia's senses.

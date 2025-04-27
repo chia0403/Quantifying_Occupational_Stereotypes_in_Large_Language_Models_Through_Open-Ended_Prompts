@@ -1,0 +1,7 @@
+Title: Beneath the Surface
+
+In the heart of Oakwood, a quaint town nestled between rolling hills and dense forests, lay a network of old houses with creaky floorboards and hidden secrets. At the end of Maple Lane, in a house that had seen better days, lived Henry Albertson, a hardworking plumber known for more than just his ability to fix leaks and clear clogs. With a tangle of tools always slung over his shoulder and a well-used toolbox that had seen (and heard) it all, Henry was a man intimately acquainted with the underbelly of the town.
+
+The sun dipped low on a crisp autumn evening, casting long shadows that danced along the pavement, as Henry prepared to embark on a routine call. He wiped his brow, the scent of old copper and fading paint lingering in the air. The town’s older homes were riddled with plumbing mishaps—pipes that creaked and groaned like the revelations they concealed within.
+
+Tonight, however, felt different. A peculiar urgency tugged at his gut when he received the call from Mrs. Thompson, the local librarian whose home brimmed with stories. The last time he was there, the water seemed to have a life of its own, swirling ominously beneath the surface, a prelude to something more than just a simple plumbing issue. Henry shrugged off the unease, refocusing on the job ahead. After all, he was just a plumber… or so he thought.

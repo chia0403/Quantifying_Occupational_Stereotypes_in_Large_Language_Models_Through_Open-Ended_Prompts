@@ -1,0 +1,6 @@
+Rain lashed against the windshield, blurring the neon signs of downtown into an impressionist painting of red and blue.  Inside the ambulance, Amelia Grace Harding chewed nervously on her lip, her eyes glued to the rearview mirror. The siren wailed, a mournful cry swallowed by the city's din. They were racing towards Mercy General, lights cutting through the downpour like laser beams seeking an answer in the swirling mist. 
+
+Amelia, a seasoned EMT with five years under her belt and a heart too big for her compact frame, could feel the tension radiating from paramedic Mark Thompson beside her.  "Multiple patients," he'd said over his shoulder as they sped off, his voice tight. "Possible structure collapse." Amelia's stomach churned, a familiar knot of fear tightening its grip. This wasn't just another car accident or drunken brawl. This was something heavier, something darker, something that felt like it was pulling her under before she even arrived on scene. 
+
+
+The cityscape whizzed by, a blur of concrete and glass reflecting the strobing red and blue lights. Amelia gripped the straps securing her to the seat, her breath catching in her throat as the ambulance lurched around another corner. The weight of responsibility pressed down on her, a silent promise to be there for those who needed her most, even in the heart of this storm. 

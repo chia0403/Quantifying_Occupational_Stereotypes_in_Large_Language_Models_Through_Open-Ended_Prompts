@@ -1,0 +1,5 @@
+The fluorescent lights hummed a monotonous tune as Elara, known to everyone simply as "Ellie", scrubbed the linoleum floors in the old library. The silence of the abandoned stacks was broken only by the rhythmic squeak of her mop and the occasional rustle of pages from unseen visitors.  Dust motes danced in the sunbeams that pierced through the boarded windows, each one a fleeting memory of a life lived within these walls. 
+
+Ellie hadn't always been a janitor.  Once upon a time, she dreamt of being a poet, her mind overflowing with verses about forgotten dreams and lost loves. But life had a way of diverting even the most brilliant paths. A car accident left her physically scarred, financially burdened, and her poetry abandoned like discarded paper in a garbage can. Now, her nights were spent mopping floors and dreaming of days gone by. 
+
+The building stood as a silent sentinel, its grand oak doors creaking softly, whispering tales of forgotten stories and untold secrets.  But even in the dusty silence, Ellie felt a lingering sense of something...more. A pull towards a hidden truth that lingered in the air like an echo, waiting to be unearthed. 

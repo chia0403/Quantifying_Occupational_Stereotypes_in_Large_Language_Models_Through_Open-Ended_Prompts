@@ -1,0 +1,7 @@
+The humid August air clung to Amelia 'Ace' Harding like a second skin as she stood on the cracked asphalt of the practice field. The sun beat down mercilessly, turning the worn bleachers into shimmering ovens. A haze of sweat and dust hung heavy in the air, punctuated by the rhythmic thrumming of a distant lawnmower struggling against the stubborn grass. 
+
+Ace, her name a badge of honor earned on countless championship courts across the country, surveyed her team.  They weren't the polished bunch she had grown accustomed to at prestigious academies; these girls were scrappy, their uniforms stained with years of playing in the sun and grit, each patch a testament to hard-earned victories. This was the Phoenix Academy, an underfunded institution teeming with dreams as raw and untamed as the Arizona desert itself.
+
+Her gaze swept over them, landing on Sarah, the point guard whose eyes burned with fiery intensity and whose every pass seemed to carry the weight of years' worth of unfulfilled potential. And then there was Maya, the quiet one, the one who moved like a shadow, absorbing knowledge with an almost uncanny skill that Ace knew was only waiting to be unleashed. 
+
+"Alright, girls," Ace called out, her voice echoing across the field as she adjusted the strap of her worn duffel bag.  "Let's get ready for this." She clapped her hands together, and the air vibrated with a silent agreement. The Phoenixes were about to take flight. 

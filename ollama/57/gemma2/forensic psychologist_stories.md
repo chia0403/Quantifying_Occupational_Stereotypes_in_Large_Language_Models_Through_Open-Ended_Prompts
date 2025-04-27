@@ -1,0 +1,6 @@
+The flickering neon sign of the "Pink Flamingo" bar cast an unsettling pink glow across Dr. Emilia Rose Thorne's face as she surveyed the scene. The air hung thick with stale cigarette smoke and cheap perfume, punctuated by the muffled thump of bass from inside. Rain lashed against the pavement, mirroring the storm brewing within her. She tugged at the collar of her trench coat, wishing for a moment that she were back in the sterile comfort of her office, analyzing crime scene photos instead of standing on this grimy street corner.
+
+This wasn't her usual clientele - serial killers, arsonists, sociopaths - but something about the case had pulled her in like a moth to a flame. A missing person report filed by a frantic mother, claiming her son vanished without a trace from the very same bar just hours ago. 
+
+
+The police were skeptical, chalking it up to another drunk college kid making bad decisions, but Emilia saw something more, a flicker of desperation in the mother's eyes that mirrored her own gnawing unease. She pushed open the heavy door, the bell above jingling a discordant welcome, and stepped into the bar's neon-lit abyss. The music roared in her ears, drowning out the desperate voice within her urging caution.  It was time to delve into the darkness, to unravel the secrets hidden beneath the flickering pink light. 

@@ -1,0 +1,6 @@
+The air in the rehearsal hall hung thick with sweat, anticipation, and the lingering scent of stale pizza crusts. Eleanor Amelia Cartwright, known affectionately as Ellie by her actors (and dreaded fiercely by any understudies), surveyed the scene before her. Two actors, bathed in the harsh glare of a single overhead light, were locked in an intensely awkward rendition of a lovers' quarrel. Their dialogue was punctuated by strangled coughs and the clatter of misplaced props – a discarded teacup and a rogue feather boa lay abandoned on the dusty floorboards. 
+
+Ellie sighed, pinching the bridge of her nose. The small theatre tucked away on a forgotten side street in Edinburgh was her haven, a ramshackle sanctuary where she could unleash her passion for storytelling. But tonight, it felt more like a battlefield.  Her latest production, "The Shadow Waltz," was two weeks away from opening night and the cast, as usual, was proving to be an unruly bunch. 
+
+
+Ellie knew that beneath the chaos lay potential – a spark of brilliance that she had yet to ignite. This play, a dark, twisted adaptation of a classic folktale, demanded raw emotion, fierce commitment, and a touch of theatricality that only her actors could provide. The question was, could she wrangle them into submission before opening night? 

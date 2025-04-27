@@ -1,0 +1,5 @@
+Once upon a time, there was a secretary named Linda. But then her boss got angry, because one of her subordinates called her a pussy every other day. Then there was the time they found out that she was cheating on her boyfriend... at work. Then there was the time she got yelled at because she forgot to turn off the bathroom light in the women's bathroom... in the men's bathroom, if I'm not mistaken.
+
+So then there was the time she asked her colleagues what to do if someone died in her office... and she said it didn't matter. You just had to stop them from dying. So that's when she realized she was never going to achieve true power. She just wanted to be treated nicely and feel sorry for herself enough that she wouldn't blow her top about it.
+
+Which brings me to my third lesson. I need to make some changes in my life. I need to stop being a nice person. I need to try to become powerful. Do you see where I'm going with this? It's almost a self-fulfilling prophesy. I need to make peace with who I am, and I need to become the person I most desire to become – and I need to start now.

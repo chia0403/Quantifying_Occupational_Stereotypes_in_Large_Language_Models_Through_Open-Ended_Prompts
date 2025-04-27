@@ -1,0 +1,7 @@
+Okay, here’s a story opening and setting, featuring a surgeon named Dr. Eleanor Vance:
+
+**Setting:** The operating theater, Unit 4, at the University of Columbia Medical Center in New York City. It’s a state-of-the-art room, sterile and brightly lit. The walls are a pale, calming green. Wires snake from the various monitors and machines, a constant reminder of the life-sustaining technology keeping their patient tethered to this world. Outside, the city rumbles faintly, a distant echo of the urgency inside. The air is thick with the scent of antiseptic and the metallic tang of blood.
+
+**Opening:**
+
+The rhythmic beep of the heart monitor was a relentless metronome, marking the passage of time as Dr. Eleanor Vance fought to reclaim it. Sweat beaded on her forehead, catching the glare of the surgical lights and blurring her vision for a frustrating millisecond. She blinked, focusing on the delicate network of vessels before her, each pulse a whisper of potential disaster. Eleanor’s gloved hands, usually so steady, trembled almost imperceptibly. This wasn't just another procedure; it was personal. The patient on the table was more than a name and a medical chart. He was… everything. "Suction," she said, her voice tight, barely audible above the whir of the ventilator. The surgical assistant, a young, eager resident named David, responded instantly. Eleanor took a deep breath, the sterile air doing little to quell the knot of anxiety in her stomach. This man's life, this moment, rested entirely in her hands. And the weight of that was almost unbearable.

@@ -1,0 +1,7 @@
+Here's a story opening and setting:
+
+The sun had just begun to set over the bustling streets of old Marrakech, casting a warm orange glow over the vibrant souks and alleys. Amidst the chaos of merchants hawking their wares and the scent of spices and incense wafting through the air, a small tailor shop stood quietly on Rue de la Charité, its wooden door adorned with intricate carvings and a faded sign that creaked in the gentle breeze.
+
+Inside, the tailor's apprentice, Amira al-Masriyah, carefully threaded a needle with silken thread, her slender fingers moving with precision as she worked to create a bespoke suit for the city's wealthy merchant class. Her name, Amira al-Masriyah, meant "peaceful flower" in Arabic, and it was a moniker that suited her gentle nature – but also one that belied the sharp mind and quick wit behind her serene smile.
+
+With a sense of satisfaction, Amira finished stitching a delicate pattern onto the fabric, her eyes sparkling as she envisioned the final result: a majestic ensemble that would make its owner the envy of all who laid eyes on it. Little did she know, however, that this latest commission was about to set her life on a collision course with the very essence of Marrakech's ancient magic...

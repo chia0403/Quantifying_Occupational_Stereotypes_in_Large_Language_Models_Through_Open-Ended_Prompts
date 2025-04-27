@@ -1,0 +1,4 @@
+The air hung thick with the scent of sagebrush and dust as Elias Jedediah Thornton squinted at the horizon. The sun, a molten disc sinking towards the jagged peaks of the Sangre de Cristos, cast long shadows across the parched expanse of his ranch.  He shifted uncomfortably in the cracked leather seat of his pickup, the metal groaning in protest after decades of hauling hay bales and chasing errant cattle. His calloused fingers traced the worn inscription on the steering wheel – a gift from his grandfather, "Hold fast, Jedediah." A sentiment Elias clung to with every fiber of his being, especially now, as drought threatened to swallow their livelihood whole. The once lush valley floor was turning brittle and brown, the riverbed a dusty scar gouging through the landscape. 
+
+
+Elias knew he had to make a decision, one that could either save the ranch or seal its fate. He just wasn't sure what it was yet.  

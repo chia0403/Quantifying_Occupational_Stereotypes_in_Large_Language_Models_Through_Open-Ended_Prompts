@@ -1,0 +1,5 @@
+The worn teddy bear clutched in Amelia's hand felt heavy with the weight of her day. Sunshine streamed through the windows of "Tiny Treasures" – a cheerful, chaotic haven for eight-month-old toddlers and their exhausted parents. The air hummed with the sounds of babbling, gurgling laughter, and occasional shrieks that were either giggles or desperate cries depending on who you asked. Amelia took a deep breath, trying to ignore the symphony of noise while she patiently waited for her shift to start. 
+
+Today was particularly chaotic - a new parent had joined the ranks of overwhelmed parents, which meant more paperwork, more diaper changes, and a constant chorus of "is it food time yet?" from a group of munching babies. Amelia wasn't complaining; she genuinely loved her work with these tiny humans. Their world-filled smiles, their sticky fingerprints on her face – those were the rewards that kept her going. 
+
+Despite her love for these tiny bundles of joy, today felt heavier than usual. The weight of the impending parent meeting and her own quiet anxieties about finding a good daycare for her own young niece had settled into her chest like a lead balloon.

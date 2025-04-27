@@ -1,0 +1,9 @@
+## Story Opening:
+
+The air hung thick and humid, a soup of salt, brine, and the faintest whiff of seal blubber. Amelia Beatrice Hawthorne squinted, wiping a bead of sweat from her brow with the back of her hand. Her fingers, already roughened and calloused from years of handling everything from barnacles to beaks, left a smudge of damp seaweed on her forehead. She inhaled deeply, the familiar, bracing scent doing little to soothe the anxiety churning in her gut. Today wasn't just any day. Today, the injured dolphin they'd rescued from a trawler net three weeks ago, whom they’d affectionately nicknamed "Skipper," was going back home.
+
+Amelia trusted her skills, trusted the team at the Seaview Marine Sanctuary, but there was always that sliver of doubt, that nagging fear that something could go wrong. She double-checked the latch on the massive transport tank one last time, the cold steel biting into her skin. The rhythmic splashing inside was reassuring, yet it did little to quell the tremor in her hands. She knew Skipper was ready. It was *she* who wasn't so sure.
+
+## Setting:
+
+The Seaview Marine Sanctuary perched precariously on the rugged coastline of the Olympic Peninsula in Washington State. The main building, a sprawling complex of weathered cedar and salt-stained glass, clung to the cliff face, offering breathtaking views of the churning Pacific Ocean. Inside, a network of interconnected tanks, research labs, and rehabilitation centers hummed with the quiet industry of dedicated scientists, volunteers, and animal caretakers. Outside, the jagged shoreline was a tapestry of tide pools teeming with life, interspersed with stretches of rocky beach and dense, rain-soaked forests. The air was constantly filled with the cries of gulls, the bark of seals, and the deep, resonant foghorn that echoed across the waters, a constant reminder of the wild and untamed power of the ocean.

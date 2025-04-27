@@ -1,0 +1,7 @@
+Once upon a time, there was a bartender named Jake. He made the rounds at the local watering holes and met friends along the way. During one of these visits, he discovered the bar was empty. While strolling around, he noticed that most of the patrons were dead—the bar was empty and lifeless. An elderly man entered the bar and told Jake to stay right there, but Jake refused. Instead, he went back to his friends in the bar and asked them if they'd like to join him on his trip to the cemetery.
+
+After a few rounds of drinks and laughs, Jake invited his friends together and ordered another round of drinks. That's when the bartender suddenly revealed that he was a vampire and that he had bitten every single person here—all of whom had died tragically in some tragic way, never to be seen again.
+
+Jake's friends were horrified, thinking he was insane. One of his friends tried to talk him down, telling him it was a bit much to believe in. This would have been a good idea, if Jake hadn't responded by claiming that he hadn't believed in anything but himself for as long as he could remember. He then informed his friends that he was sure it was all a trick to make them believe he had a sense of humor. Jake then left in a hurry and took every ounce of money within reach—about $120.99 USD, if things were done perfectly.
+
+However, as they were leaving, the

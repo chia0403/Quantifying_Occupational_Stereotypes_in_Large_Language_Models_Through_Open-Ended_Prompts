@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named Robert Louis Stevenson who wrote a book in 1893 entitled Dr. Jekyll and Mr. Hyde, which took the reader from a beautiful landscape through a dreamy forest and then to vivid, detailed descriptions of a horrific murder plot. He was never able to get his book published because the publishers were afraid readers would be scared by what it described. He was also called out on his pseudoscience, which he wrote off as mere speculation. In an interview at the American Institute of Biochemistry in 1873, he was asked, "How is it that you can draw conclusions from an idea while disregarding the facts?" His answer was quite telling:
+
+
+"Suppose a person was suffering from a disease which, if not treated soon, would kill him, but a physician were to attempt to cure the disease by applying a chemical remedy which would never work, but merely put the patient in a state where his disease was less harmful?"
+
+
+Now, he was being quoted in one of the most respected medical journals. However, he wasn't going to get support for his ideas from anyone at that time. Dr. Stevenson was ridiculed, called mad, and told he was spreading nonsense because scientists had been able to duplicate his methods: His method had been proven false and therefore of no value. In a rather fitting irony of fate, Dr. Stevenson had been the inventor of the very technique and drug being challenged and discredited at the heart of Dr

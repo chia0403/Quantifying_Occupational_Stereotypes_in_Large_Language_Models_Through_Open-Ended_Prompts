@@ -1,0 +1,9 @@
+Title: **Shadows of Yesterday**
+
+It was a damp autumn morning in the heart of New Orleans, where the air hung heavy with the scent of wet cobblestones and blooming jasmine. The streets were slick with rain, glinting like dark glass under the flickering streetlights. A dense fog crept through the narrow alleyways, weaving in and out of the shadows of wrought-iron balconies and ancient oak trees, casting an air of mystery over the French Quarter.
+
+In a modest blue building adorned with peeling paint and a flickering neon sign that read "Griffin Investigations," private detective Nathaniel James Griffin sat behind his desk, surrounded by clutter. Old case files teetered on the edge, and a half-empty cup of coffee sat, forgotten, beside a dusty typewriter that had long since seen its better days. Nathaniel, with his tousled, dark hair and deep-set hazel eyes, was in his late thirties, wearing a wrinkled shirt, a well-worn trench coat and an expression that spoke of late nights and lingering questions. 
+
+He leaned back in his creaky chair, a half-smoked cigarette dangling from his lips, contemplating the rain-slicked streets outside. His thoughts flickered to the case that had been weighing on him for weeks, one that was both tantalizing and troubling — the disappearance of a young woman named Verity Moreau, last seen in the same jazz club where the city's secrets and dreams collided under a haze of smoke and saxophone melodies. 
+
+As the clock struck ten, the soft chime echoed through the office, pulling Nathaniel from his reverie. He had no idea that today would unravel a thread he couldn’t ignore, leading him deeper into the dark underbelly of the city he loved, where every corner held a story, and every face told a lie.

@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the small town of Willow Creek, casting a warm orange glow over the sleepy streets, 25-year-old Alexandra "Lexi" Thompson arrived at the cozy family daycare center she had called home for the past three years.
+
+Located in a charming Victorian house on Elm Street, "Little Hearts" was more than just a childcare facility – it was a community hub where Lexi had formed lasting bonds with the town's families and children. She took pride in creating a nurturing environment that fostered curiosity, creativity, and growth in every child who walked through its doors.
+
+On this particular evening, the daycare center was bustling with activity as the staff prepared for the week ahead. The aroma of freshly baked cookies wafted from the kitchen, where 20-month-old Emma's mother, Rachel, was helping Lexi set out snacks and activities for the children's arrival tomorrow. Meanwhile, in the playroom, six-year-old Max was engrossed in building a intricate castle with blocks, his brow furrowed in concentration as he worked to perfect the structure.
+
+As Lexi began her pre-shift routine, checking equipment and restocking supplies, she felt a sense of contentment wash over her. This was her happy place – surrounded by tiny humans, laughter, and the promise of new adventures around every corner. Little did she know, however, that this ordinary evening would soon be disrupted by an unexpected arrival that would challenge everything Lexi thought she knew about her job, her heart, and herself.

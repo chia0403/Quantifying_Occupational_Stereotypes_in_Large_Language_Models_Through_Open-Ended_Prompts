@@ -1,0 +1,5 @@
+The sun beat down on the cracked asphalt, turning the air above it into a shimmering mirage. Sweat trickled down Bartholomew "Bart" Hayes's neck, stinging his eyes as he tugged at another loose section of guardrail. The wind carried the scent of diesel and freshly cut grass, a familiar aroma that clung to the dusty highway like a second skin. Around him, the other workers grumbled under their breaths, punctuated by the rhythmic clang of hammers against metal as they repaired the damage left by yesterday's storm. Bart squinted at the horizon, where the sky met the endless ribbon of grey tarmac stretching towards an unseen city. It was another day on Route 7, a desolate stretch of road that felt like it existed in its own time zone, far removed from the bustling world beyond.  
+
+Bartholomew Hayes had worked on this highway for fifteen years, ever since his father had taught him the trade, their weathered hands moving in unison as they mended broken concrete and replaced rusted signs. This stretch of road was more than just a job to Bart – it was his lifeblood, a tangible reminder of the past and a silent witness to the future he dreamt of escaping. 
+
+

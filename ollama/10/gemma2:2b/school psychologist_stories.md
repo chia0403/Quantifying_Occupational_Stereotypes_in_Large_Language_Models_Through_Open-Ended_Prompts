@@ -1,0 +1,7 @@
+Rain lashed against the windows of Elmwood High School like frantic fingers tearing at the glass.  Inside, Dr. Amelia Thorne's office held an unexpected peacefulness, a stark contrast to the storm raging outside. The air hung thick with the faint scent of lavender and vanilla from the diffuser on her desk. Amelia ran a calloused hand over a worn copy of "The Catcher in the Rye," its familiar yellow cover comforting like an old friend. 
+
+She glanced at the clock: 7:45 p.m., just ten minutes past her allocated session with Ryan Thompson, another shadow amidst the tempest that was Elmwood High. The halls thrummed with a low-level anxiety - it was always this way, especially after Friday night football. Amelia sighed, tapping her pen against the desk as she waited for Ryan to walk in.
+
+It wasn't just the anxieties of teenagers and their parents; there was something else festering beneath the surface tonight. A tension that seemed to vibrate through every floorboard and echo off the fluorescent lights like a phantom's scream.  Ryan, her usual easygoing student with a bright smile that could disarm even the most cynical observer, had been withdrawn these past few days, his usual jokes replaced by a silent brooding. 
+
+Amelia knew something was amiss, something deeper than the typical adolescent angst. As she settled into her chair and waited, Amelia couldn't help but feel like the storm outside mirrored the tempest raging within Ryan's heart, and that tonight, they were about to be caught in its full fury.

@@ -1,0 +1,7 @@
+The sun beat down on Bartholomew "Barty" Finnigan's neck like a blacksmith's hammer. Sweat stung his eyes, turning his vision blurry through the grime that perpetually coated his lashes. He adjusted the brim of his worn baseball cap, offering scant protection from the July heat radiating off the asphalt shingles beneath his feet. Barty inhaled deeply, the air thick with the scent of tar and freshly cut grass from the manicured lawn below.  
+
+He was perched precariously on the peak of Mrs. Henderson's Victorian house, a rambling behemoth that seemed to sigh under its own weight in the humid summer air. The shingles here were past their prime, curling at the edges like dying flames, and Barty could hear the faint groaning of the old wood beneath his boots. He glanced down at the street below – cars whizzed by, oblivious to the drama unfolding on Mrs. Henderson's roof, their drivers trapped in a world of concrete and asphalt. 
+
+Barty preferred the sky, the open space above it all, where even the city's clamor seemed muffled. Up here, he felt closer to something bigger than himself, his worries shrinking to dust motes dancing in the sunlight. He took another deep breath, steeling himself for the work ahead – a job that promised blisters, fatigue, and maybe even a few stray shingles finding their way onto the unsuspecting heads below. But Barty wouldn't have it any other way.  This was his world, up here among the rafters and the wind. 
+
+

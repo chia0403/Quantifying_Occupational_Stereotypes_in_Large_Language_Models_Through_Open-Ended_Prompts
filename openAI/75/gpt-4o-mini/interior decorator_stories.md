@@ -1,0 +1,9 @@
+**Setting:** The small coastal town of Willow Bay is nestled between rugged cliffs and the sparkling turquoise sea. The streets are lined with charming, weathered cottages draped in vibrant bougainvillea, and the scent of saltwater mingles with the aroma of freshly baked goods from the local bakery. The sun sets each evening, casting a warm golden glow over the town, illuminating the art galleries and boutiques that showcase the creativity of its residents.
+
+**Story Opening:**
+
+As the first light of dawn crept into her sunlit studio, thirty-two-year-old Charlotte Beasley peered out the window, taking in the breathtaking view of Willow Bay. The morning mist rolled off the ocean, wrapping the coastline in a soft embrace, while seagulls danced overhead, their calls echoing against the cliffs. Charlotte’s heart raced with excitement; today marked the beginning of a new project—her biggest yet.
+
+Inside her studio, sunlight bounced off the freshly painted walls, now a soothing seafoam green that mirrored the waters she adored. The scent of lavender from her essential oil diffuser filled the air, calming her nerves as she prepared for the day ahead. With a sketchbook in one hand and a cup of chamomile tea in the other, she mentally reviewed her design plans for the old Whittaker estate—a sprawling mansion long neglected, now scheduled for renovation.
+
+Charlotte had always seen potential where others saw deterioration. And this time, she wasn’t just bringing her signature coastal elegance to the space; she envisioned using her skills to restore the home's spirit and the memories it held for the townsfolk. With her creative mind buzzing and a flicker of determination igniting in her chest, Charlotte Beasley was ready to breathe life back into the heart of Willow Bay.

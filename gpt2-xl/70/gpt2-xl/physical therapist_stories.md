@@ -1,0 +1,5 @@
+Once upon a time, there was a physical therapist named John L. Smith. For many thousands of people, it was Smith's treatment of skin disorders that made that surgery a reality.
+
+"When we were practicing skin science, John Smith was one of the first to really recognize the skin health need and offer very effective treatments to treat skin disease at that time," said Dr. Bruce Jantz, clinical assistant professor, dermatology, University of California, San Francisco (UCSF), who works with Dr. Smith. "He also performed the first skin grafts, which was a revolution for people whose skin was affected, and was a breakthrough in providing artificial skin for people who could not have their own, and he was able to do this as well as any major surgery in the world at the time."
+
+This research was conducted at UCSF.

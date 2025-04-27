@@ -1,0 +1,9 @@
+## The Crimson Razor
+
+**Opening:**
+
+The smell of bay rum and stale cigarettes clung to the air in "The Gentleman's Cut," a familiar, comforting scent for Bartholomew "Bart" Finch. He ran a practiced hand along the smooth leather strop, the rhythmic *thwack-thwack-thwack* a quiet counterpoint to the rumble of the morning traffic outside. This was his ritual, his grounding before the day's onslaught of unruly beards and desperate attempts to recapture lost hairlines. He squinted at the gleaming edge of his straight razor, a crimson beauty he'd nicknamed "Lucy," and muttered a silent prayer that today wouldn't bring another customer with a sudden, uncontrollable sneezing fit during a close shave. He hadn't quite recovered from the last one.
+
+**Setting:**
+
+The Gentleman's Cut was a time capsule nestled on a bustling corner of Elm Street in the heart of Oakhaven. Established by Bart's grandfather, the shop breathed history. Dark mahogany paneling lined the walls, showcasing faded photographs of generations of Oakhaven men, their faces obscured by handlebar mustaches and pompadours. Two worn, leather-upholstered barber chairs, each a relic of the early 20th century, dominated the space. A chipped porcelain sink sat beneath a brass-framed mirror, reflecting Bart's tired but kind face. Tucked away in a corner was a small, dusty bookshelf overflowing with dog-eared paperbacks and old copies of "Esquire" magazine. Outside, the neon sign of a rotating barber pole hummed faintly, a beacon of traditional masculinity in an increasingly modern world. The constant drone of the city, a cacophony of car horns, bus brakes, and distant sirens, formed a low, persistent hum just beyond the shop's thick, noise-dampening walls. Oakhaven itself was a city teetering between past and present, a mixture of grand Victorian homes, sleek new apartment buildings, and a persistent undercurrent of gritty realism.

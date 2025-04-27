@@ -1,0 +1,5 @@
+The rain hammered against the Parisian rooftops, a relentless percussion that echoed the frantic rhythm of Amelia Dubois's heart.  The concierge desk, usually a haven of polished mahogany and quiet anticipation, felt claustrophobic in its soaked embrace.  Above the chipped porcelain figurines of Parisian landmarks, a thick fog of cigarette smoke clung to the air, a testament to the anxieties simmering beneath the surface of the elegant Hôtel du Soleil.
+
+**Setting:**
+
+The Hôtel du Soleil, a grand, if slightly faded, hotel nestled in the heart of the Marais district, Paris.  Its façade, once gleaming with ochre stone, now bore the patina of time and the subtle stains of Parisian living.  The lobby, though opulent in its faded grandeur, felt subtly damp and melancholic.  A low hum of conversation, punctuated by the occasional clatter of cutlery from the downstairs restaurant, was swallowed by the sound of the rain.  A grand, if slightly neglected, staircase wound its way upward, leading to the hushed corridors and hushed secrets of the hotel's numerous guest rooms.

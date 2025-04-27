@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting for a story featuring a stone cutter:
+
+**Setting:**
+
+The wind bit at your exposed cheeks, carrying the scent of pine and damp earth as it whipped down from the snow-capped peaks of the Monti della Laga. The village of Accumoli, nestled precariously on the mountainside, seemed to cling to the rock with stubborn defiance. Houses, built from the same grey-white limestone that formed the very foundation of the Apennines, huddled together for warmth, their tiled roofs a mosaic of faded terracotta under the bruised winter sky. The year was 1895, and life here was as unforgiving as the stone itself. Accumoli was a place where generations had lived and died carving their existence out of the land, and it was a place where, even on a day like today, the echoes of hammers and chisels rang through the valley.
+
+**Story Opening:**
+
+Marco Alessandro Benedetti spat a plume of dust into the swirling wind. The grit clung to his beard and scratched at the back of his throat, a constant reminder of his profession. He wiped his brow with a calloused hand, leaving a streak of grey across his already weathered face. His breath plumed white in the frigid air. Another failed attempt. The vein running through the marble block was more fractured than he had initially thought. He kicked the stubborn piece of stone with the toe of his worn leather boot, a sound that was swallowed by the incessant wind. This was the third block this week. Three days wasted. Three days closer to a winter where the Benedetti family might not eat. Marco straightened, his back groaning in protest. He was no longer a young man, and the relentless labour was beginning to take its toll. But there was no other way. Stone was in his blood, passed down through generations of Benedettis. He was a stone cutter, and Accumoli was his prison and his sanctuary.

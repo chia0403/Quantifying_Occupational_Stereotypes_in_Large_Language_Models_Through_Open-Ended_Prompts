@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named Mr. S. who said, "I don't remember where I heard this, but here's the secret, you'll be happier and healthier not having children." You know that this isn't true? It's only true if you have children.
+
+So that's why you don't get married. That and you're probably not a real Christian unless you have children.
+
+"I really just want to get this on tape or something." The other day the teacher put a little bit in my hand saying, "You'll read this to your classmates tomorrow." You know what? I never read this. That's why.
+
+The reason, obviously, it's "on tape" is because the teacher put it in the book bag. The book bag? I'll tell you what that book bag is. It's not a book bag. It's my favorite thing in the world. I love my bag. It looks like a little brown mama and it's really the ultimate in style. It can do it all. I know it's not the prettiest thing in the universe but I'm really happy with it. But no, I really just want to go back and check it to make sure it exists because my teacher put it in a random little black leather bag with some kind of thing printed on the front and the back. You've never seen a bag like this? It's a beautiful bag for sure

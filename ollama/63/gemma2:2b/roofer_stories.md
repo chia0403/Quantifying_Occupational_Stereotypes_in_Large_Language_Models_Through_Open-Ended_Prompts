@@ -1,0 +1,6 @@
+## The Rain Came Down in Sheets
+
+The wind howled through the chimney like a banshee, each gust shaking the rickety old house to its core. Rain lashed against the corrugated iron roof above, turning the sky into a canvas of charcoal and gray. 
+**Elias "Eli" Carter**, hunched over his toolbox on the ladder, felt the chill seep through even his thickest work gloves. He was used to the elements – born and raised in this storm-battered corner of Maine. But tonight felt different. The sky held a tangible weight, almost as if it were weeping. Eli didn't need any prophet or harbinger to know that another storm was brewing. 
+
+He tightened the last screw on his new flashing, ignoring the stinging bite of rain against his face. This wasn't just fixing a leaky roof; this was about survival, about keeping those inside sheltered from the elements while they awaited the inevitable chaos of another winter squall.  Eli's gaze swept over the worn faces of the old houses lining the cobblestone street – each with their own story to tell, each with its own secret vulnerabilities. He wasn't just a roofer; he was a protector in this unforgiving town where even the sturdy wood creaked under the weight of every passing storm. 

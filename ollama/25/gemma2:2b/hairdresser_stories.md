@@ -1,0 +1,7 @@
+The air hung thick with the scent of hairspray and lavender shampoo in Harmony's salon, "The Snip."  Sunlight streamed through the frosted windows, casting long, dancing shadows across the rows of chairs and mirrors. The hum of the clippers against a canvas head was a familiar soundtrack to Harmony’s life. Her fingers, calloused and nimble like willow branches, expertly teased out a tangle in a customer's otherwise perfect bob. 
+
+She ran her thumb over a strand of blonde that had stubbornly refused to settle, a silent plea for peace from the woman who usually wore it in a sleek updo. “No worries,” Harmony murmured, her voice gentle and soothing like a spring breeze, "We’ll get you sorted."  Harmony was no ordinary hairdresser; she possessed a quiet magic when it came to transforming tresses into dreamscapes. Her talent was legendary within this small town of Oakhaven, and the stories about her were whispered from salon floor to salon floor. She had honed her craft for years in various salons across the country, leaving behind a trail of transformed hair and grateful customers who swore by her touch. 
+
+But lately, Harmony's usual routine had been disrupted by an unsettling silence, a void where laughter and gossip used to dance. The usual chatter was gone. Even the cheerful jingle that announced new hairstyles on the door chimes was silent, replaced by a disconcerting stillness.  This week, Oakhaven seemed to be holding its breath. And Harmony, as always, felt it too. 
+
+

@@ -1,0 +1,6 @@
+Once upon a time, there was a baker named Mrs. Blumkin. It was her job, as the bakery's owner, to cater to the needs of all of their customers, with her speciality being a special brownie made from the skin of a white girl. This particular special brownie was the only one in existence, and since it was the only one that Mrs. Blumkin had ever made, and since it was the most magical and magical brownie, nobody expected it to last long. When it started slipping off her fingers, Mrs. Blumkin decided she had better stop it right then and there, before it caused a panic in the rest of the bakery. No one wanted to know that such a unique magical creation existed, or that their beloved owner, Mrs. Blumkin, was such an ordinary cookie-maker. But there is this little thing called a "black hole" in universe, and it pulled the universe so much we can't imagine it, and when it ran out its magic from a tiny little girl, and it just made one more.
+
+
+In your hands is a slice of love.
+
+Now, what this little piece of brownies has is a tiny shred of love. A shred of love that has the power to make you think you have the power to change the world and make the world a better place, maybe forever.

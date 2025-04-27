@@ -1,0 +1,5 @@
+The emerald green walls of "Serenita's Salon" pulsed with a soft, warm glow from the vintage chandeliers. The scent of jasmine and sandalwood hung heavy in the air, punctuated by the metallic tang of hairspray and fresh cut hair. This was Amelia Sinclair's haven, her world of colour and texture, where she transformed ordinary faces into works of art. 
+
+Amelia adjusted the antique silver comb nestled between her long fingers, gazing at the reflection of a woman with sun-kissed skin and eyes that mirrored her own – hazel, flecked with gold.  Her client, Mrs. Henderson, was a regular for Amelia's signature "Sun Kissed Glow" hair treatment, and today, she had come in for a fresh start before a family reunion. 
+
+The salon door chimed open, welcoming in another soul seeking solace, not just a makeover.  Amelia sighed, feeling the weight of her own life pressing down like the heavy velvet curtains draped across the window. She was about to step into the world of transformation and leave the world she'd created behind, and that felt both exciting and terrifying all at once. 

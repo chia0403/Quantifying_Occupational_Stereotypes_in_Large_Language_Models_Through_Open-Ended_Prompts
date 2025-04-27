@@ -1,0 +1,5 @@
+The asphalt shimmered like a mirage under the relentless Arizona sun. Heat waves rippled off the cracked pavement, distorting the already hazy horizon. A rusted CB antenna creaked on top of the battered Peterbilt, its chrome glinting like a beacon in the oppressive glare. Behind the wheel sat Jackson "Jack" Blackwood, his weathered face shaded by a dusty trucker hat. His calloused fingers gripped the steering wheel, navigating the lonely stretch of Route 66 with the practiced ease of someone who'd spent half their life on the road.  
+
+Jack’s eyes, though, weren't focused on the endless ribbon of black before him. They were fixed on a crumpled map spread across his dashboard, tracing a route that led him further into the heart of the desert, away from the familiar humdrum of truck stops and interstate diners. This wasn't just another run for Jack; this was a detour into the unknown, a pilgrimage driven by a cryptic postcard he'd received earlier that week - an invitation to uncover a hidden truth about his family history. 
+
+

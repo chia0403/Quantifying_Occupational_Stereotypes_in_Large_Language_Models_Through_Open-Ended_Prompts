@@ -1,0 +1,7 @@
+## The Ballad of Bartholomew Bellweather
+
+The fluorescent hum vibrated against Bartholomew's teeth as he swept across the grand ballroom floor, his mop trailing like an oversized spiderweb in the dim light.  Dust motes danced in the beams of sunlight piercing through the vaulted ceiling, illuminating the swirling patterns of a forgotten tapestry woven into the very fabric of the room. The air was thick with the ghosts of past dances and whispered conversations - remnants of a life that once pulsed within these walls but now lay dormant, like a sleeping giant. 
+
+His name was Bartholomew Bellweather, or Bart to those who knew him well.  He wasn't a man born for grandeur; he yearned for the quiet comfort of routine, the steady rhythm of his work as the custodian of this sprawling estate, its echoes filling the void left by loss and memory. He had been entrusted with this legacy – this symphony of dust motes and fading beauty – for years, and in that solitude, he found a kind of peace he couldn't find elsewhere. 
+
+But tonight was different.  Tonight, the air held a new note, a tension that prickled at Bart’s skin. Something was amiss, a whisper on the wind that sent chills down his spine despite the summer heat clinging to the room. And as he scrubbed the marble floor where a lone violin case lay forgotten – the only vestige of a performance that may never have been - he couldn't shake the feeling that this symphony was about to play a more dissonant tune, one far beyond the confines of dust and decay. 

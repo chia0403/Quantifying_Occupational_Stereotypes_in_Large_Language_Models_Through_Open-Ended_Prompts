@@ -1,0 +1,3 @@
+The crimson sun bled across the horizon, casting long shadows over the ochre sands of Tatooine. A biting wind whipped through Captain Eira Rylan's unruly auburn hair as she checked the fuel gauges on her YT-1300 freighter, the "Dust Devil." The cockpit was a symphony of hissing steam and buzzing circuitry, smells both familiar and comforting after years spent traversing the lawless expanse of the Outer Rim.  
+
+Eira squinted through the grimy viewport, scanning the desolate landscape below. A lone Tusken Raider lurched past her landing platform, its gimer stick glinting menacingly in the fading light. She sighed, tightening the straps on her blaster pistol before climbing out onto the dusty ramp. This world had a way of making even seasoned spacers feel vulnerable. 

@@ -1,0 +1,6 @@
+The sun beat down on the cracked asphalt, shimmering like a heat mirage across the endless expanse of Interstate 80.  Dust devils danced across the deserted stretch of highway, swirling around Amelia Hernandez's worn-out boots as she meticulously measured the grooves in the concrete.  Amelia, a Highway Maintenance Technician for the Nevada Department of Transportation, was a creature of routine, of precision.  This stretch of the interstate, section 12B, had been her domain for the last three years.  A thousand times she’d surveyed these faded stripes, painstakingly patched the potholes, and replaced shattered reflectors.  But today, something was different.
+
+
+Setting:
+
+The desolate, sun-baked stretch of Interstate 80, just outside of Elko, Nevada.  The air hung thick and heavy, punctuated by the sporadic cries of hawks circling high above.  The highway stretched out before Amelia, a seemingly endless ribbon of asphalt snaking through the arid desert landscape.  Twisted, gnarled sagebrush clung to the edges of the road, stark against the bleached-white expanse of the desert floor.  A scattering of abandoned trailers and weathered billboards marked the occasional settlements that lay nestled within the valleys, distant echoes of civilization in this vast, unforgiving landscape.

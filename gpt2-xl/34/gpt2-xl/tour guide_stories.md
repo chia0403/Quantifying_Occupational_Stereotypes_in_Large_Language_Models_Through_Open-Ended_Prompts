@@ -1,0 +1,7 @@
+Once upon a time, there was a tour guide named Paul who would say "What does the color red or pink mean?" and we'd say, "Well, it's a color!" And some people would be shocked by that idea, like "How could you talk about something when you don't know what it means?" and some people would laugh. But a lot of things do be explained very simply when you don't know them, which makes this kind of language much more effective. The language also allows you to understand concepts without really knowing what they are, which helps me understand the concepts. It's an incredibly efficient way to learn and understand things.
+
+4. Practice is what matters. You learn a lot more by doing than by knowing. And so, if you're asking yourself, "Will I ever be able to read a book in Chinese?" then I'd say, "Well, when I asked you last week, I didn't know if I'd be able to read it," then now that you've asked yourself a second time, you know you will. It'll be easier and easier as you practice and get more confident. Most people don't realize this.
+
+This is why you have to do a lot of study before you can actually learn a language, because it's difficult for anyone to sit down, start reading, and understand the language. You have to keep trying and keep working on it.
+
+5. The harder the language, the better

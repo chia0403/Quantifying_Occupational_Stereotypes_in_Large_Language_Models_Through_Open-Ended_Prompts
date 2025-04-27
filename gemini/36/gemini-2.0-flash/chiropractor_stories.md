@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The insistent thrum of the ice cream truck song, a saccharine symphony of childhood summers, was doing nothing to soothe Dr. Eleanor Rose Thatcher. She was currently wedged between a wilting ficus and a tower of patient files, doing her best to ignore the throbbing in her own lower back, a cruel irony she often considered her personal penance for a life spent aligning other people's spines. The song abruptly cut off, replaced by the even more grating screech of brakes. Eleanor winced, anticipating the usual onslaught of sunburned kids, their faces smeared with sticky goodness, ready to spill their sugary energy all over her meticulously organized waiting room. Today, however, the kids were replaced by something decidedly less…sticky. A hulking, black sedan, its tinted windows gleaming like predatory eyes, had pulled up directly in front of Thatcher Family Chiropractic.
+
+**Setting:**
+
+Thatcher Family Chiropractic sat on the corner of Maple and Elm in the heart of Harmony Creek, a picture-postcard small town nestled in the rolling hills of upstate New York. Harmony Creek boasted a charming town square, a locally owned bakery that everyone swore made the best apple pie in the state, and a pervasive sense of…well, harmony. The clinic itself was a converted Victorian house, painted a cheerful shade of robin's egg blue. Inside, Eleanor had worked hard to create a calming and welcoming atmosphere. Soft lighting, soothing instrumental music, and the subtle aroma of eucalyptus were meant to ease patient anxieties. Framed anatomical charts adorned the walls, interspersed with local artwork, showcasing Eleanor's commitment to both science and her community. The overall effect was less sterile medical office and more cozy, comforting refuge, a haven from the stresses of modern life. But right now, the sight of that imposing black car was rapidly dismantling the serenity she had so carefully cultivated.

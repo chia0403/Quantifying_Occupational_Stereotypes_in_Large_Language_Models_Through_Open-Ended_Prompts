@@ -1,0 +1,5 @@
+The rain hammered against Bartholomew Finch's windshield, each drop exploding like a tiny bomb on the slick asphalt.  He squinted through the deluge, wipers battling to keep pace with the relentless downpour. His office was a cramped, cluttered space above a laundromat in the heart of Willow Creek, a town whose charm had long since washed away, leaving behind faded brick facades and dreams turned to dust.
+
+Bartholomew, or Bart as he preferred, wasn't much for dreams. He was a pragmatist, an insurance agent who dealt in the tangible: risks assessed, premiums paid, claims filed.  His world was built on cold calculations and legalese, a stark contrast to the swirling chaos outside his window. But even Bart couldn't ignore the feeling that something was about to change. A storm wasn't just brewing in the sky; it seemed to be gathering within Willow Creek itself, a sense of foreboding he hadn't felt since the day the local mill closed its doors and swallowed the town whole. 
+
+The phone rang, jarring him from his thoughts. He picked up the receiver, the familiar crackle filling his ear. "Finch Insurance," he announced, his voice as flat and grey as the sky above.  

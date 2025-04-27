@@ -1,0 +1,5 @@
+The sun beat down on Amelia "Ace" Montgomery's neck like a blacksmith's hammer, turning her sweat-soaked bandana into a damp, clinging rag. Dust devils pirouetted across the cracked earth, kicked up by the ceaseless rumble of her Caterpillar D9 dozer. This was Ace's domain: the sprawling canvas of the Arizona desert, where she sculpted landscapes with steel teeth and molten fury. The air hummed with the rhythmic thrum of machinery – a symphony conducted by the clanging bell of Ace's phone nestled in her back pocket, vibrating incessantly with ignored calls from the foreman.  
+
+Ace didn't care. She was lost in the dance between machine and earth, carving a new path through the unforgiving terrain, one massive gouge at a time. A faint line of smoke on the horizon marked the edge of civilization – a cluster of prefabricated buildings housing her crew and a flickering neon sign promising "cold beer" that Ace knew she'd earn later. But for now, there was work to be done, and the desert called to her like a siren, its silence punctuated only by the growl of her machine and the whispering wind carrying stories of sun-baked dreams and forgotten gold mines. 
+
+

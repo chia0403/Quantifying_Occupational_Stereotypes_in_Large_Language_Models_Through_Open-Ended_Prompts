@@ -1,0 +1,5 @@
+The scent of bay rum and talc hung heavy in the air, mingling with the faint tang of pipe tobacco from old man Hemmings's corner seat. Sunlight streamed through the dusty windowpanes, illuminating motes dancing in the stillness of Arthur Bartholomew "Bart" Finchley's barbershop.  A worn red vinyl armchair sat waiting beside a gleaming antique barber pole painted in swirling stripes of crimson and gold, its rhythmic spin a hypnotic counterpoint to the ticking grandfather clock perched on a shelf behind the mirrored wall. 
+
+Outside, the bustling heart of Willow Creek hummed with pre-lunch activity: schoolchildren chattering their way home from school, ladies gossiping over steaming mugs at the corner café, and farmers hauling produce into the market square. But inside Bart's barbershop, time seemed to move at a different pace. A place where stories were exchanged as freely as razor blades, where problems were confided in hushed tones, and where the simple ritual of a haircut held a world of unspoken understanding. 
+
+

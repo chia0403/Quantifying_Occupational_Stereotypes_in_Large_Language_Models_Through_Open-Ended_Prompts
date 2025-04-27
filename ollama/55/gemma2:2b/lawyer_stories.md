@@ -1,0 +1,5 @@
+The flickering neon sign outside "Lucky's Tavern" cast a sickly green hue across Amelia Thorne's trench coat as she stepped inside. The air hung heavy with stale beer and the murmur of gossip, punctuated by bursts of drunken laughter and argumentative shouts. Amelia was anything but happy. Five years in San Francisco had taught her one thing: the city was built on secrets, each brick whispering a tale of ambition, betrayal, and everything in between. Tonight's case involved a woman named Evelyn Thorne, a name she shared with her client's late mother, and it felt like stepping into a forgotten part of herself.
+
+Amelia took a seat at a rickety table tucked away in a corner, the worn wood groaning under her weight. The amber liquid before her was lukewarm and tasted like disappointment. Across from her sat Evelyn, her eyes hollowed by grief, her hands shaking as she clutched a faded photograph. The picture depicted a woman with Amelia's own hazel eyes – an image of a life lost, a truth shrouded in legal jargon and whispers of deceit. 
+
+This case was more than just another courtroom battle; it was a family legacy wrapped in the city's shadows. 

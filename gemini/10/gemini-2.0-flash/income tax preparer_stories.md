@@ -1,0 +1,9 @@
+## Story Opening:
+
+The smell of stale coffee and impending dread hung thicker than usual in the air of "Ace Taxes, Honest and Affordable" this April 14th. Alfred "Alfie" Bertram Butterfield, a man whose life could be summarized as "beige on beige," slumped back in his faux-leather office chair, massaging the bridge of his nose. Another day, another mountain of W-2s and 1099s. Outside, the midday sun mocked the gloom within, reflecting brightly off the endless stream of cars crawling down Elm Street, each one likely containing someone with a tax headache of their own. Alfie sighed, a puff of air that stirred the dust motes dancing lazily in the sunbeam. He hated April. He hated taxes. And, if he were being brutally honest, he was starting to hate beige.
+
+## Setting:
+
+**Location:** "Ace Taxes, Honest and Affordable," a small, independent tax preparation business located in a strip mall on Elm Street in the sleepy suburban town of Willow Creek, Ohio.
+
+**Description:** The office is cramped and cluttered. Walls painted a drab, institutional beige are adorned with motivational posters that read more like passive-aggressive threats ("Success is Just Around the Corner!" - featuring a picture of a wilting cactus) than genuine encouragement.  A mismatched assortment of desks and chairs are crammed into the space, each piled high with files, forms, and half-empty coffee cups.  The air is thick with the scent of cheap coffee and photocopier toner.  Fluorescent lights buzz incessantly overhead.  A small waiting area, furnished with threadbare chairs and a stack of outdated magazines (mostly featuring home renovations and celebrity gossip), sits near the entrance.  Through the perpetually open doorway, the sounds of traffic and the tinny Muzak emanating from the nearby discount shoe store drift in, adding to the overall cacophony.

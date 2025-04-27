@@ -1,0 +1,5 @@
+Amelia Hartman inhaled deeply, the crisp mountain air filling her lungs as she stood on the tarmac of Juniper Ridge Airfield. The sun was just cresting over the jagged peaks of the Snowcap Mountains, casting a golden hue across the landscape. The airfield, nestled in a secluded valley, was a small but bustling oasis of activity amid the vast wilderness.
+
+The morning dew clung to the wings of her Cessna 172, which gleamed in the emerging light. It was a modest plane, dependable and sturdy, much like Amelia herself. She ran her hand along its fuselage, a reassuring ritual she never skipped before each flight. To her, this was more than metal and machinery; it was a trusted companion on endless journeys above the clouds.
+
+Amelia's mind was focused on today’s mission. It was the first supply run to Echo Creek, an isolated village deep within the mountains, cut off from civilization since the last of the heavy winter snows had started to melt. Flying had always been her escape, her sanctuary from the world below, but today it was also her duty.

@@ -1,0 +1,5 @@
+The morning mist clung to Bartholomew Thistlewick's boots as he trudged across the dew-laden lawn. The ancient oaks that lined Oakhaven Manor’s borders dripped with condensation, their gnarled branches reaching out like skeletal fingers against the pale dawn sky. A chill wind whistled through the overgrown roses, whispering secrets of forgotten summers and rustling the brittle leaves scattered upon the stone path. Bartholomew, his weathered face creased with years of sun and squinting at the horizon, adjusted his worn straw hat and inhaled deeply, savoring the crisp air and the earthy scent of freshly turned soil. 
+
+It wasn't a pleasant job, tending to Oakhaven's sprawling grounds – not after generations had let the manor slip into disrepair.  But Bartholomew found solace in the quiet routine, in coaxing life back into the neglected gardens and whispering encouragement to the wilting rose bushes. He was the last vestige of Oakhaven's former glory, a solitary sentinel guarding the secrets hidden within its moss-covered walls. 
+
+

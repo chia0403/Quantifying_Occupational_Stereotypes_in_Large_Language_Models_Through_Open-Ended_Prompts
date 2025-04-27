@@ -1,0 +1,5 @@
+The air hung thick with the scent of fryer oil and desperation.  Neon signs buzzed like angry wasps, casting an oily sheen over the sticky laminate tables of "Luigi's Pizzeria & Pasta Palace." The once vibrant red booths were faded to a dusty rose, resembling the blush on Elena Ramirez's cheeks as she braced herself for another rush hour. 
+
+Elena, her name tag pinned crookedly above her tight, grey uniform, surveyed the scene with practiced weariness. A gaggle of teenagers argued over pizza toppings, a middle-aged couple sat in tense silence over lukewarm pasta, and a lone businessman hunched over his phone, oblivious to the world around him. The bell above the door jingled, announcing the arrival of two new patrons – a burly man with a face like a thundercloud and a woman trailing behind him, her eyes wide with an unsettling mix of excitement and apprehension. Elena forced a smile, the muscles in her cheeks aching from overuse. This was just another Friday night at Luigi's, where dreams went to die, and hope simmered like the congealed grease in the fryer. 
+
+

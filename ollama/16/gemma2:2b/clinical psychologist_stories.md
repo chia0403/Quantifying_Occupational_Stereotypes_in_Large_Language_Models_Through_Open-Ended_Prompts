@@ -1,0 +1,5 @@
+Rain hammered against the corrugated tin roof of Dr. Amelia Vance's office, mimicking the erratic thrumming in her chest. Outside, the wind howled like a banshee, rattling the old oak tree that stood sentinel against the storm-tossed town of Oakhaven. Inside, however, Amelia was frozen in place, the weight of the day crushing her spirit.  
+
+Dr. Vance had seen countless cases in her years – the anxiety of first-time mothers, the crippling depression of veterans returning home, the whispers of infidelity that fractured families – but nothing quite prepared her for the case she now held in her hands. The file sat on her desk, its pages crisp and starkly white: a young boy named Lucas, orphaned after a fire claimed his entire family. A note at the top read simply "Unraveling," and Amelia's gut twisted with unease. 
+
+Oakhaven wasn't known for resilience; it was a town choked by secrets as thick as the fog rolling in from the bay every evening. And Lucas, at just eleven years old, was teetering on the precipice of unraveling himself – his childhood shattered, leaving him adrift in a sea of grief and anger. 

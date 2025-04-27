@@ -1,0 +1,8 @@
+The air in Stella Everbright's salon hung heavy with hairspray and the scent of lavender shampoo.  It was just past 7 p.m., twilight painting the sky in hues of burnt orange and bruised purple as the last client left, her curls tamed by the magical touch of "The Glamour Touch."  Stella had always enjoyed the quiet hum of a busy salon - the chatter, the rustle of fabric as she styled hair, the gentle clink of perfume bottles. Tonight, though, something felt different. The normally comforting air was charged with an unfamiliar energy. 
+
+She glanced at her reflection in the salon's antique mirror.  Her hazel eyes, usually filled with a warmth that could melt even the most hardened cynic, seemed to hold a flicker of something else – a spark of anxiety.  The usual calming rhythm of hair-styling was now disrupted by a strange tingling sensation, a faint hum in her fingertips.  She couldn’t quite place it, but a sense of anticipation, tinged with fear, prickled at the edges of her senses. 
+ 
+Stella Everbright, the acclaimed cosmetologist known for transforming even the most downtrodden into radiant beacons of beauty, felt a growing unease she couldn't explain.   Tonight, something was different. Tonight, magic seemed to be on the move. 
+
+
+**Setting:** Stella's salon is nestled in a quaint Victorian townhouse in a charming suburban town. The historic building boasts multiple rooms dedicated to specific services – hairstyling, manicures, makeup and even a small consultation room for personal styling advice.  The antique-style furniture adds a touch of timeless elegance, but the overall atmosphere remains cozy and inviting. 

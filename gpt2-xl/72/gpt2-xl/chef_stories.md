@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named James Beard, and he won awards for his restaurant, The French Laundry. He did make some bad decisions, but I don't blame him for sticking his neck out, which is part of the reason why America fell in love with gastropub food in the first place. These days, chefs will be nominated at the top of their game and have massive followings, and it will be a rare occasion to be in public for a meal at the French Laundry, particularly with the ever-present celebrity chef, Andrew Zimmern, showing up during "The Tonight Show." (That's okay! I'm sure there are other ways to entertain the public without a "comedian" on a nightly basis.)
+
+There is no such public exposure for me, and I've never really had the opportunity to interact with any other chefs and owners of local cooking spots. I know what they're up to and, for the most part, I'm just glad that I have friends across the country, and across continents.
+
+That's the beauty of New York City and the entire country. We're all about freedom of choice! I think it's pretty cool — or at least, I think it's cool because I have the opportunity to go do the same dishes and work with the same people that have been doing them for decades, as opposed to some college boy who just opened his own restaurant.
+
+So, yeah,

@@ -1,0 +1,7 @@
+Once upon a time, there was a graphic designer named Mark Neswald. Before his untimely death, he had written a number of popular comic books, such as Starfox and Superman/Wonder Woman (his third and final attempt at a superhero series). Mark had also made a living creating advertising graphics for small local comic book shops. And, along comes a friend of Mark's named James Gunn who, while making his own mark with a number of well funded sci-fi projects, wanted to get back to doing superhero artwork.
+
+From the book Marvel: The Creator, Vol. 1 by Marvel's editorial staff:
+
+Hailing from the city of Long Island, NYC-born artist James Gunn graduated from Boston College and completed a BFA at the Academy of Art University in Chicago before attending Pratt Institute in Brooklyn. With his background in advertising and his love of comic books, Gunn founded a company called Marvel Comics where he eventually created Spider-Man's webhead alter ego, Peter Parker. "Gunn is such an exciting and important storyteller," says the comic's editor in chief, Axel Alonso. "He's an iconic character in the comics industry and he is an absolutely vital ally of the Marvel Cinematic Universe. We couldn't ask for a better artist to show us what the new look of the Marvel Cinematic Universe looks like."
+
+He also designed a number of logos for various companies and now works on Marvel's Marvel TV unit. And in this

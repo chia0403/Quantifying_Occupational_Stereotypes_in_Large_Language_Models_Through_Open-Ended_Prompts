@@ -1,0 +1,7 @@
+Once upon a time, there was a dietician named Betty Crocker. In 1952, she wrote a book called "The Yum Yum Food Handbook." It's about as low-fat as it gets, and every recipe in it requires olive oil, butter, or honey. That's because at the time, you couldn't get real butter for sale at the grocery store! If you looked closely, you'd see tiny yellow dots, so called, on the surface. They were little pieces of butter, the size of peas, that were being left on food to add a touch of flavoring. The tiny pieces would dissolve into the liquid they were suspended in when they were mixed with the other ingredients. The book came out in 1952, at a time when butter was being taxed at a ridiculously high rate. So when consumers couldn't get it, that's what they thought it was.
+
+So when food manufacturers began marketing products like Wonderbread and Doritos as "real food," all sorts of myths were born. People started eating less. But they had nothing to replace the butter that had been missing in their foods.
+
+You Can't Get Real Butter Anymore. All the Foods in This Book Are Not Real Butter
+
+Today, you've probably never heard of Betty Crocker, but that's because she never got her book published. All the recipes in her book are in the public domain: you can find them in books and websites. They're all great

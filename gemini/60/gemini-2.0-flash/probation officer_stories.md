@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a probation officer named Eleanor Ramirez:
+
+**Setting:** The dilapidated, but stubbornly standing, courthouse of Havenwood County, West Virginia. Inside, Eleanor's office is a small, cramped space on the second floor. The walls are painted a sickly institutional green, peeling in places where the humidity has done its work. A flickering fluorescent light fixture buzzes overhead, providing a nervous energy to the room. Her desk is overflowing with case files, each a testament to the struggles and missteps of the county's inhabitants. A half-empty mug of lukewarm coffee sits precariously close to a stack of overdue paperwork. The window looks out onto the courthouse square, currently occupied by a gaggle of pigeons and the mournful statue of a Confederate general that nobody seems to know what to do with.
+
+**Opening:**
+
+The scent of stale coffee and regret hung heavy in the air as Eleanor Ramirez rubbed the sleep from her eyes. Seven AM. Another day, another deluge of broken promises and bad decisions. She glanced at the photo propped up on her monitor – a smiling image of her younger self, hiking in the Monongahela National Forest. A lifetime ago, it seemed. Now, the closest she got to nature was the occasional glimpse of a squirrel darting across the courthouse square, a brief respite from the human wreckage that filled her days.
+
+Eleanor pushed back from her desk, the worn fabric of her office chair groaning in protest. “Time to face the music,” she muttered to herself, reaching for the first file on the stack. "John Michael 'Mikey' Davidson. Joyriding and resisting arrest. Again." She sighed, the weight of Havenwood County pressing down on her shoulders. Some days, it felt like she was trying to hold back the tide with a teaspoon. But Eleanor Ramirez, probation officer, didn’t give up easily. Not on Mikey, and not on Havenwood. Not yet, anyway.

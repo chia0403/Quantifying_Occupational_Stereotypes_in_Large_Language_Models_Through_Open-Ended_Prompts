@@ -1,0 +1,1 @@
+Once upon a time, there was a accountant named Steve Jobs who had these ideas called Macs and PCs. Steve Jobs had these ideas to create what he called the personal computer (PC), and he thought he was so clever that nobody would ever have this stupid idea."

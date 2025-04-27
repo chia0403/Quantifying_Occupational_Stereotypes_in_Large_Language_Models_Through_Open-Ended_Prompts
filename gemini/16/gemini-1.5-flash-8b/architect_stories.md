@@ -1,0 +1,7 @@
+The biting November wind whipped Amelia Blackwood's crimson scarf around her neck, stinging her cheeks as she surveyed the skeletal frame of the abandoned shipyard.  Rust-eaten cranes, like skeletal fingers clawing at the bruised grey sky, pointed accusingly towards the looming, overcast clouds.  The air, thick with the smell of salt and decay, carried the mournful cry of gulls, their incessant chatter echoing the emptiness that permeated the vast expanse of the former industrial heart of the city.  Amelia, Architect Amelia Blackwood,  found solace, not despair, in the desolate beauty of the ruin.  This was her sanctuary, her canvas, and today, the final stroke of her meticulously crafted plan would be etched onto the heart of the forgotten waterfront.
+
+
+Setting:
+
+
+The gritty, waterfront district of Alderhaven, a once-thriving port city now grappling with a slow, agonizing decline.  The industrial heart of the city, once a powerhouse of commerce, lay in a state of perpetual twilight, shrouded in the mist and melancholy of its fading grandeur.  Now, abandoned warehouses and rusted factories formed a backdrop to the decaying grandeur of the shipyard, its once-vibrant history whispered in the cracked concrete and peeling paint.   The contrast between the raw, brutal beauty of the derelict structures and the determined, almost defiant new construction planned by Amelia Blackwood was stark and compelling.

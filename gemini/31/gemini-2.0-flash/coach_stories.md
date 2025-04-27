@@ -1,0 +1,11 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The smell of stale sweat and cheap disinfectant was as comforting as a warm blanket to Coach Alistair "Al" Finch. He inhaled deeply, the familiar tang filling his lungs, a small, tired smile playing on his lips. Outside, the October rain hammered against the corrugated iron roof of the Northwood High School gymnasium, mimicking the frantic rhythm of his own thoughts. His basketball team, the Northwood Knights, were down. Way down. Not just in the standings, where they languished near the bottom of the league, but in spirit. He could feel it radiating off them like a bad heat rash. Tonight’s game against their arch-rivals, the Crestwood Comets, was only the latest in a string of demoralizing defeats.
+
+He glanced at the bleachers, nearly empty save for a handful of die-hard parents huddled together under mismatched umbrellas, their faces etched with a mixture of hope and resignation. Alistair knew that if they lost tonight, more than just a game would be lost. It would be the hope that flickered dimly within the hearts of these kids, the belief in themselves, and perhaps even his own legacy as the coach who had once brought glory to Northwood High. Tonight, Alistair Finch had to find a way to reignite that spark.
+
+**Setting:**
+
+The Northwood High School gymnasium, located in the small, economically depressed town of Northwood, Pennsylvania, is a relic of a bygone era. Built in the 1950s, it boasts a faded wooden floor scarred with years of hard-fought games, peeling paint on the walls, and a scoreboard that frequently flickers and dies at crucial moments. The bleachers are splintered and uncomfortable, the lighting is harsh and unforgiving, and the echoing acoustics amplify every squeak of a shoe and frustrated groan. The trophy case in the hallway outside the gym is mostly filled with dusty participation trophies and faded photographs of teams from decades ago. It speaks of a time when Northwood was a thriving industrial town, when the Knights were a force to be reckoned with, and when hope ran as freely as the Allegheny River that borders the town. Now, both the town and its basketball team are struggling to survive, clinging to the faded glory of the past.

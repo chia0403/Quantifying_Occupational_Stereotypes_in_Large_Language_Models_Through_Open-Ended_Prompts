@@ -1,0 +1,1 @@
+Once upon a time, there was a graphic designer named James Molineux, who created a couple of beautiful book covers that helped launch my career. He has kindly kindly allowed me to publish these on the blog.

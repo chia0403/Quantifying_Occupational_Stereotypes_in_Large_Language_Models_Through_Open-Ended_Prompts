@@ -1,0 +1,13 @@
+**Title: The Whispering Bell**
+
+**Setting: The Grand Mirage Hotel, a lavish establishment nestled in the heart of a bustling metropolis. The hotel is renowned for its opulent decor, with chandeliers that glimmer like stars against the velvet skies and walls adorned with intricate gold leaf designs. The scent of freshly polished marble mingles with the subtle aroma of jasmine wafting from the gardens below. Each day, guests from all over the world pass through the grand double doors, sharing their stories and secrets.**
+
+**Opening:**
+
+As the first rays of dawn broke over the skyline, casting a golden hue across the polished lobby of The Grand Mirage Hotel, Jasper Harlan adjusted his crisp, navy vest and checked the brass bell that hung from his cart. A flurry of activity had already begun; the doorman tipped his hat to a departing couple, while the concierge orchestrated the day’s arrivals with an air of elegant efficiency. To the average guest, this place was a sanctuary of luxury, but to Jasper, it was both a stage and a holding cell.
+
+At just twenty-five, Jasper found himself caught between the exuberance of youth and the weight of unfulfilled dreams. Every day, he navigated the labyrinth of polished floors and plush carpets, delivering luggage and messages to guests whose lives seemed infinitely more glamorous than his own. He had a talent for reading people—the carefully crafted smiles, the fleeting glances, the whispers that drifted with the scents of gourmet coffee and fresh pastries. Each guest carried their own story, and Jasper often found himself wondering what secrets might be buried behind the silk curtains of their lives.
+
+Today, however, there was a strange energy crackling in the air. The usual hum of conversations and laughter had taken on an edge, as if unseen currents were shifting beneath the surface. As he pushed his cart towards the elevator, Jasper’s attention was drawn to a figure seated in the grand lobby—a woman in her late thirties with raven-black hair cascading around her shoulders like a dark waterfall. Her sharp eyes, the color of storm clouds, scanned the room with an intensity that sent a shiver down Jasper's spine. 
+
+He approached, instincts tingling with curiosity about the woman who seemed to command the very air around her. Little did he know, this encounter would unravel a tapestry of mystery that would lead him far beyond the gilded walls of The Grand Mirage and into a world where secrets whispered louder than the bells he so dutifully rang.

@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The neon sign creaked in the gentle breeze, casting a gaudy glow over the deserted streets of Ravenswood. It was a small town, nestled in the heart of the Appalachian Mountains, where time seemed to stand still and people knew each other's names. Amidst this tranquil backdrop, 32-year-old Jasper "Jazz" Thompson stood perched on a rickety ladder, his gloved hands crimping the wire as he worked to repair the flickering streetlights.
+
+As an electrician, Jazz had seen it all - from the mundane to the bizarre. He'd spent years perfecting his craft in the cramped workshops of Ravenswood's old-school electricians, learning the intricacies of circuitry and the art of troubleshooting. But tonight was different. Tonight, Jazz had received a mysterious call from the town's enigmatic mayor, requesting his presence at the long-abandoned Raven's Peak Mine on the outskirts of town.
+
+The mine had been closed for decades, its dark tunnels and shafts a source of local legend and whispered tales of ghostly apparitions. But as Jazz gazed up at the mine's crumbling facade, he couldn't shake the feeling that this job was about to become more than just another repair job - it was going to be a journey into the very heart of Ravenswood's secrets.

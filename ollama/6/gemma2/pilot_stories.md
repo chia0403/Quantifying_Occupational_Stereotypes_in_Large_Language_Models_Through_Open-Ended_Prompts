@@ -1,0 +1,5 @@
+The rusted metal groaned under Elara Valentina's boots as she clambered into the cockpit of the 'Stardust Siren'. The battered freighter, a patchwork of salvaged parts held together by hope and duct tape, seemed to sigh in protest. Outside, the crimson sun bled into the jagged horizon of Kepler-186f, casting long shadows across the dust-choked plains.  The air, thick with the scent of burnt hydrocarbons and alien flora, clung to her like a shroud. Elara adjusted the cracked visor of her helmet, the faint hiss of the oxygen regulator a familiar lullaby in this harsh environment. Her calloused fingers danced over the worn controls, bringing the Siren to life with a shuddering cough of its aging engine.
+
+Kepler-186f, nicknamed 'The Rustbelt' by weary travelers, was a harsh mistress. A desolate planet choked by dust storms and populated by scavengers like herself, it offered little but meager resources and an endless fight for survival.  But Elara Valentina wasn't afraid of a challenge. She was a pilot, born for the wide open spaces, and even The Rustbelt held a certain allure - a promise of adventure, danger, and perhaps, just maybe, something more. 
+
+

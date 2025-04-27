@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named Benoit Renoir. His name would inspire many a painting of men sitting around a painting table, taking in the beauty and atmosphere of Paris.
+And then there was also a woman named Marguerite Chéreau. She was a French woman, not a painter, but she left her stamp all over painting and became something of a legend in her own right as a result.
+ "That's a great picture. I love it. My mother does. You know what? Don't be shy. Can I have it?" 
+ My mother is probably the most famous painter of the 20th century. She's also the first woman to win a gold medal in a painting competition, at the age of 24 in 1911, which she did in the competition called the Salon de l'Éménagement. As an 18-year old, she made two pictures that were awarded the Palme d'Or Award at the same time, by the Parisian Art Society as part of its Centennial Exhibition that year.
+Her name was called on stage. But only those who knew her name knew that she was the youngest artist to win a first medal in a competition that was a little known to the public.
+And also: she was never painted by her father.
+Benjamin Chéreau was the husband of my grandmother's sister and was a painter. He had painted his own mother. However, they divorced due

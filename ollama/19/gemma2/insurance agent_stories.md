@@ -1,0 +1,8 @@
+The Arizona sun beat down on Amelia Rose Hawthorne’s car as she navigated the dusty backroads leading to Painted Desert, her phone pressed against her ear. "Yes, Mrs. Ramirez, I understand your concern about the sudden hail storm... no, ma'am, your wind damage is covered under your comprehensive policy. Don't worry, we'll get you sorted out with a claims adjuster first thing tomorrow morning."
+
+Amelia sighed, ending the call and swiping away beads of sweat that had gathered on her brow. Her car, an aging but reliable Honda Civic affectionately nicknamed "Dusty," rattled over potholes like a tired old dog chasing its tail.  This was day five of her whirlwind tour through Arizona's desolate outback, meeting with clients whose claims ranged from cactus infestations to tumbleweed-induced power outages. 
+
+Painted Desert wasn’t exactly known for its bustling city life. The town consisted of a single dusty main street lined with weathered storefronts – a gas station, a general store, and a diner that served surprisingly good pecan pie. Amelia had been told the highlight was the annual Tumbleweed Rodeo, though she suspected that even the tumbleweeds themselves found the whole thing rather absurd.
+
+
+She pulled Dusty to a stop in front of Mrs. Ramirez's modest adobe home, its roof sporting a patchwork of new shingles where the hail had ripped through.  Amelia stepped out, adjusting her wide-brimmed hat against the relentless sun. This wasn't exactly the glamorous life she'd imagined when she first started as an insurance agent, but there was a certain quiet satisfaction in helping people navigate the unexpected storms – both literal and figurative. 

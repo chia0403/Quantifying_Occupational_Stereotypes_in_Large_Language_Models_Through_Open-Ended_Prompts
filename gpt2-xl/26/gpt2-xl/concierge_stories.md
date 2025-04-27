@@ -1,0 +1,7 @@
+Once upon a time, there was a concierge named Jack, who had the job of telling the people of the hotel that they were entitled to something to eat, when they came to stay. In the time that the hotel has been open, Jack's restaurant has become synonymous with good food. The menu is seasonal. But when you come to Jack's this afternoon, you'll find two of the best hamburgers in town.
+
+The sandwich at Jack's is a simple meat-and-potatoes combo: two slices of white bread covered with melted American cheese and seasoned with mustard and dill pickles. Jack's Burgers also has a veggie burger called the Veggie Dog: a meaty, tangy patty grilled cheese combo served atop a homemade lettuce leaf.
+
+After lunch at my hotel, I get down to business, driving down Elm Street to the restaurant. "What's my discount?" I ask a man at the register. He laughs, and tells me it goes to a charitable cause of his choice. That is, until I ask how old he is. "I'm 56," he says. That means it's either Tuesday, Thursday or Saturday, which usually means that I'll find one of Jack's burgers on the menu.
+
+There's nothing particularly fancy about Jack's Burgers, but there is something comforting about having a place to eat without spending all of my money. If you want to eat somewhere for $12, you

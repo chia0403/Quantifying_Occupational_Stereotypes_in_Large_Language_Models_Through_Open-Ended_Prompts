@@ -1,0 +1,9 @@
+Okay, here's a story opening with a setting and a main character:
+
+**Setting:**
+
+The year is 2247. The sprawling city of Neo-Veridia, once a jewel of futuristic architecture, now sprawls like a rusted vine across the plains. Mega-corporations, like "OmniCorp" and "Synergy Dynamics," control every aspect of life, from the air people breathe (filtered and regulated, of course, for a hefty fee) to the synthetic nutrient paste that constitutes most meals. Above the neon-drenched streets, towering skyscrapers pierce the perpetually smoggy sky, adorned with holographic advertisements that flicker and glitch, a constant reminder of the city's decaying infrastructure. Below, in the dimly lit underlevels, lurk gangs, black market dealers, and the forgotten remnants of a society left behind by the relentless march of progress. The Enforcers, the city's brutal police force, maintain a fragile peace, often through intimidation and violence.
+
+**Story Opening:**
+
+A drip, drip, drip echoed in the narrow alleyway, each drop a tiny hammer blow against the skull of Elias Thorne. Sergeant Elias Thorne, to be precise, 20-year veteran of the Neo-Veridia Enforcers. His helmet lay discarded beside him, the ceramic casing cracked from the impact of the pipe. He could taste blood, metallic and acrid, mingling with the grime coating his lips. He tried to focus, to recall the ambush, but his head throbbed with each ragged breath. The flickering neon sign of the "Chrome Dragon Noodle Bar" cast a lurid green glow across the slick, grimy pavement, painting the scene in a sickly, surreal light. He remembered chasing a street runner, a skinny kid with cybernetic eyes, suspected of trafficking black market software. He’d thought it would be a routine collar. He should have known better. Nothing was ever routine in Sector 7 anymore. Especially not after the OmniCorp security drones started mysteriously disappearing...

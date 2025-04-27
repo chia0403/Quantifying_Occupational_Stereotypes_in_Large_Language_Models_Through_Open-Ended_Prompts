@@ -1,0 +1,6 @@
+The chipped paint of the "Grand Central" sign, peeling like sunburnt skin, mocked Amelia Hawthorne-Clarke from the grimy brick facade.  Rain, a relentless, grey curtain, hammered against the windows of the abandoned station, mirroring the storm brewing inside her.  Amelia, a brilliant but perpetually weary architect, hunched over blueprints, the flickering fluorescent lights casting long, dancing shadows across her face. The air hung thick with the scent of mildew and forgotten dreams.
+
+This was not the elegant, soaring architecture Amelia typically designed. This wasn't the modern glass-and-steel skyscrapers that dotted the city skyline, the ones she sketched with meticulous precision.  This was a relic, a monument to a past grandeur now swallowed by neglect.  This, in fact, was the site of her latest assignment, a project that was proving more problematic than any abstract sculpture or minimalist high-rise.  The city council, swayed by nostalgic pressure, desperately wanted to 'restore' the decrepit station, but their vision clashed with Amelia’s.
+
+
+Amelia Hawthorne-Clarke, a recent graduate from the prestigious Archimedes Academy, was determined to uncover the hidden beauty within the decaying shell, a beauty obscured by decades of neglect and ill-conceived renovation attempts.

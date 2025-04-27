@@ -1,0 +1,1 @@
+Once upon a time, there was a cashier named Gwen Cooper (and she was a woman). The store had a beautiful interior, which also included a pool; it's unclear if this is where they had sex, or the other way around.

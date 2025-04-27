@@ -1,0 +1,7 @@
+Once upon a time, there was a barber named Jerry. Jerry was a good barber who made his living at his barbershop. The only problem was, he was too good at his job and it cost too much to hire a new person to handle his business. It was decided that in order to reduce costs and increase revenue, Jerry would have to switch jobs so he would have some work for hire clients at the new shop. So Jerry decided to move, the new work for hire client would be the local pawn shop. In exchange for the inconvenience (and likely loss) of leaving his barbershop, he would get half of sales from that new shop. As you might expect, the pawn shop was not too happy with what came with the arrangement.
+
+
+Jerry did his fair share of shady deal-making with other barbers. One day, out of the blue, Jerry got an invite to a funeral. He was told that he would attend, and so he did. On the way there, however, it was revealed that Jerry was not at the funeral due to an emergency. After being told exactly where to look, it finally ended up that Jerry was the only person who attended the funeral. It was a very embarrassing moment because Jerry's barber buddy made quite a scene and Jerry had no choice but to stand there and hear the commotion.
+
+
+After the funeral, people started to gather for dinner. Jerry asked the man who had invited him where his

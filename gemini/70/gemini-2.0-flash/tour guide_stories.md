@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting for a tour guide character:
+
+**Setting:** The winding, cobblestone streets of Prague's Old Town, early evening in late October. The air is crisp and carries the scent of roasting chestnuts and Trdelník (a traditional chimney cake). Gas lamps flicker to life, casting long shadows that dance along the ancient facades of buildings. A light drizzle has begun, slicking the stones and reflecting the warm glow of the lights, making the city feel both romantic and slightly melancholic.
+
+**Story Opening:**
+
+"And here, ladies and gentlemen, is the Astronomical Clock," boomed Alistair Finley, his voice amplified just enough to cut through the hubbub of the evening crowds. He gestured with a flourish, his gloved hand encompassing the intricate medieval masterpiece. He wasn't exaggerating when he called himself a 'booming' tour guide - it was not just his voice, but his entire persona, a flamboyant blend of historical geek and ham actor. Tonight, however, even Alistair's carefully crafted exuberance felt a bit forced. The chill in the air seemed to seep into his bones, and even the sight of the Clock's hourly show – the procession of the Apostles – felt a little tired. Perhaps it was the endless stream of tourists, all with their identical selfie sticks and vaguely bored expressions. Or maybe, Alistair thought with a sigh hidden beneath a smile, it was just him. Another night, another group, another recitation of the same well-worn stories.

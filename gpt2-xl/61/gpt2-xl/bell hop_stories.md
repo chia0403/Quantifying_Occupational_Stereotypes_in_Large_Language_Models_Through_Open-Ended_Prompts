@@ -1,0 +1,7 @@
+Once upon a time, there was a bell hop named Shari Cooper. Shari and her husband, Josh, have been in the health and fitness industry for a very long time and over that time their focus has been on body transformation. What started as a hobby turned into something a bit bigger. Shari is always looking for ways to get better and her search for healthy methods of exercise led her to a local community of runners known as the Bellhops. For those not familiar with this organization, their mission is to provide fitness and health education to young children.
+
+The Bellhops are a group that has been with us since the beginning. They started back in 2002, after Shari's younger brother was injured and needed the attention of the kids in her care. After hearing about Bellhops from an old friend, Josh started participating in the activities – even when they were just for fun between classes. The boys soon learned the importance of a supportive environment in order to achieve their goals.
+
+Over time, the Bellhops has grown larger and more active. A few Bellhops members work in a restaurant, others are fitness coaches and trainers, and the rest work a variety of jobs to make sure the Bellhops are always in full gear. They are always striving to be just a little better in everything they do, whether that be physical fitness, nutrition, or anything else.
+
+"The Bellhops are something special in my life", Shari says. "It's an experience

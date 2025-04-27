@@ -1,0 +1,7 @@
+Once upon a time, there was a manicurist named Margo and a barber named Lizzie. Together they were the epitome of pure joy and together the two of them created a business selling manicures to all of the famous names and places in the world. They were successful and in a way, I am proud that they exist even though I know they will get robbed on the streets at least once in a while. Their business thrived and in the end, they were both robbed. This is the story of their story, and then a little piece about the owner and me.
+
+This is the story behind Margo and Lizzie's barber shop, The Barber Shop.
+
+For those of you that have read my other comics, you'll have noticed in many of them that I make fun of how it's easy to take life too seriously and that things that are just too hard to see can be made to seem easy. This was not so with Lizzie and Margo. The two of them would look at someone and immediately start laughing hysterically and sometimes break into song. They'd also tell the sad stories of their lives. They said it all the time and in true comedy form, it's always funnier the second time around.
+
+Margo was so funny, that she became the most popular character in the comic. She would be one of the first to tell the story of what happened to them. There would be a

@@ -1,0 +1,7 @@
+Dr. Eleanor Mae Sullivan sat in her cozy office on the third floor of the Maplewood Counseling Center, her gaze drifting past the rain-streaked window to the vibrant autumn trees that painted the landscape outside. The gentle patter of raindrops acted as a soothing backdrop—a sound she had come to associate with reflection and healing. 
+
+The walls of her space were adorned with calming artwork; soft, abstract pieces in blues and greens, each designed to evoke a sense of peace. On her desk, a brass lamp cast a warm glow over her notes and journals, which were filled with the stories of the clients who came seeking solace. Eleanor had dedicated her life to guiding others through their darkest moments, believing wholeheartedly in the power of empathy and understanding.
+
+Today, however, her thoughts were drawn not to her clients, but to a lingering feeling of unease that had surfaced since the arrival of a new colleague—Dr. Lucas Grayson. As she sipped her herbal tea, Eleanor couldn’t shake the sense that his charming smile hid a deeper, more complex reality. She had seen too many masks in her career, and the shadows of her own past were creeping in, urging her to tread carefully. 
+
+With the rain still falling outside, Eleanor took a deep breath, adjusted her glasses, and prepared for her first appointment of the day, unaware that the currents of her own life were about to entwine with those of her clients in unexpected ways.

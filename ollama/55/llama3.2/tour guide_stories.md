@@ -1,0 +1,7 @@
+As the sun began to set over the ancient city of Petra, casting a warm orange glow over the intricately carved facades and narrow canyon pathways, Amira Hassan al-Rashid adjusted her headscarf for what felt like the hundredth time that day. A native Jordanian and owner of "Petra's Hidden Gems," Amira had spent years perfecting her tour guides' skills, from the most obscure historical anecdotes to the best spots to capture a photo in front of the iconic Monastery.
+
+With over 20 years of experience leading groups of visitors through the ancient city's winding streets, Amira knew every nook and cranny, every hidden passageway and secret viewpoint. She took pride in sharing her knowledge with tourists from around the world, watching as their eyes widened with wonder at the majestic sight of the Treasury building or the sheer scale of the Monastery.
+
+Tonight was a special evening, however - Amira had been booked to lead a private tour for a group of influential dignitaries from across the Middle East, each of whom had requested a personalized tour that would showcase the unique history and culture of Jordan. As she checked her notes for the final time, Amira couldn't help but feel a thrill of excitement - this was going to be an evening to remember.
+
+But as she stood at the entrance to the Siq, the narrow canyon that led into Petra's heart, Amira's phone buzzed in her pocket with an unexpected text from an unknown number...

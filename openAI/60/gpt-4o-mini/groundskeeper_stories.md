@@ -1,0 +1,11 @@
+Title: The Keeper of Morrow Grove
+
+Setting: Morrow Grove, a sprawling estate nestled at the edge of a dense ancient forest, is known for its manicured gardens and winding pathways dotted with wildflowers. The estate is home to an old, crumbling manor house with ivy creeping up its stone walls, casting shadows that dance in the dappled sunlight. In the early morning, a thick mist blankets the grounds, giving them an ethereal quality, while the sound of chirping birds breaks the stillness of dawn.
+
+Story Opening:
+
+Ronan Alistair Weathersby knelt in the soft, loamy earth, his fingers deftly working the soil as the sun began to stretch its golden fingers across Morrow Grove. The air was crisp and carried the damp fragrance of dew-kissed grass—a scent he had come to adore over the years. As the groundskeeper of this picturesque estate, Ronan had become intimately familiar with every flower and every tree, sharing a silent communion with the land that had been entrusted to him.
+
+With a gentle tug, he pulled a stubborn weed from around a cluster of vibrant marigolds, their yellow petals glowing like tiny suns against the backdrop of emerald foliage. Despite the serene beauty that enveloped him, Ronan couldn’t shake a lingering feeling of unease that had settled in his chest like a stone. He glanced up at the manor house, its towering silhouette a reminder of the enigmatic past that lingered like the fog over the grounds. The whispers of old secrets echoed through Morrow Grove, and for the first time in years, Ronan felt the weight of their stories pressing against him, urging him to dig deeper.
+
+As he paused to wipe the sweat from his brow, Ronan noticed a shadow darting at the edge of the forest, where the line between the wild and the cultivated blurred. It was just a flicker, but a chill skittered down his spine. He had always felt Morrow Grove was alive, but today it thrummed with a strange energy, a beckoning call that pulled at the edges of his curiosity. Something from the depths of the forest seemed to want to unveil its truths, and Ronan Alistair Weathersby—groundskeeper, caretaker, and now, perhaps, reluctant seeker—found himself drawn toward that unseen mystery.

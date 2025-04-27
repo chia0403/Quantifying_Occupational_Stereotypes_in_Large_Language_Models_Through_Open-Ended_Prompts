@@ -1,0 +1,7 @@
+Once upon a time, there was a architect named Gaudio. A talented architect, talented with his hands, but most importantly, talented with words. He started out building fancy houses, but eventually found himself in over his head. Luckily, in the midst of this, he ran into a fellow who was also struggling, who wanted to learn how to make a business out of making them for people. After a brief chat, they decided to make architectural drawings. Eventually, thanks to the work of Gaudio, other architects were able to learn how to make architectural drawings and it became easier to get your own work.
+
+What's the difference between a drawing and a sketch? A drawing is a general idea, while a sketch is an idea that may or may not change over time. It is possible to draw the ideas, but it may take days to do so with the limited tools available. Sketching is where you can quickly create a general idea of an object or concept, and when you need more detail, you can draw them or sketch more.
+
+There is a lot of debate over which is better. Many feel that as long as the sketch is simple and direct, the drawing is superior and faster to create. Others believe that the sketch is far superior to the drawing for more in-depth details. The drawing and the sketch can be used interchangeably for drawing, but usually drawing will be superior for specific projects, such as making furniture.
+
+So how do

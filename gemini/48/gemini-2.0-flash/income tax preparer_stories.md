@@ -1,0 +1,5 @@
+The flickering fluorescent light of the Tax Time Express office hummed a mournful tune, a soundtrack to the impending doom that was April 15th. Dust motes danced in the stale air, illuminated by the glow of three computer screens displaying a dizzying array of forms, schedules, and regulations. Across from me, Mrs. Higgins, a retired librarian with a penchant for cat sweaters and an even stronger aversion to owing the IRS, was regaling me with the intricacies of her prize-winning zucchini crop.
+
+“And honestly, Beatrice,” she was saying, her voice a low rumble, “I just don't see why I have to pay taxes on zucchini. It’s practically a public service! I give them away to everyone!”
+
+Beatrice Eleanor Cavendish, income tax preparer extraordinaire (or at least, that's what she told herself on particularly brutal days), sighed inwardly. Another afternoon, another tale of woe disguised as Schedule C deduction advice. Beatrice, armed with her trusty calculator, her half-empty mug of lukewarm coffee, and the unwavering belief that she could find at least *some* deduction for Mrs. Higgins' prodigious zucchini, plastered on her most empathetic smile.

@@ -1,0 +1,8 @@
+The scent of antiseptic hung heavy in the air, a familiar comfort to Amelia Harper as she entered the therapy room. Sunlight streamed through the large windows, illuminating dust motes dancing in its golden rays. It was a typical Tuesday morning at Meadowbrook Rehabilitation Centre – bustling with nurses rushing between rooms, patients engaged in physical exercises, and the gentle clink of utensils against ceramic from the communal breakfast area. 
+
+Amelia, however, found solace in the quiet hum of routine. She adjusted her lilac-coloured scrubs and smoothed down the unruly curls that escaped her braid.  Her gaze fell upon the whiteboard where she’d meticulously charted Sarah Jenkins’ progress: "Fine motor skills improving - able to grasp small objects for 30 seconds.” Amelia smiled, remembering Sarah’s triumphant grin when she'd managed to successfully thread a needle last week. This was why Amelia loved her job – witnessing these small victories, the light returning to eyes that had once held only despair.  
+
+Today, however, a different kind of case awaited her. A new patient, Mr. Thomas Blackwood, arrived this morning. He’d been admitted after a severe stroke, his left side paralyzed and his speech severely impaired. Amelia had reviewed his file – a successful architect who lost everything in an instant. She felt a surge of empathy, knowing that his journey to recovery would be both physically and emotionally challenging. 
+
+
+  As she prepared for her session with Mr. Blackwood, Amelia took a deep breath, steeling herself for the unknown. This wasn’t just about rehabilitating muscles; it was about rebuilding a life, piece by painstaking piece. 

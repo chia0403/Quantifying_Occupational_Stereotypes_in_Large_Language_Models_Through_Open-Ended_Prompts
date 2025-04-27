@@ -1,0 +1,7 @@
+The humid August air hung heavy in the small, brick-walled office, thick with the scent of disinfectant and childhood memories. Amelia Hayes adjusted her glasses, squinting at the faded crayon drawing on the wall. It depicted a lopsided castle with one tower precariously perched atop the hill. "Remember this, Lily?" she asked softly, watching as a little girl in an oversized t-shirt and mismatched socks fidgeted by the door. 
+
+Lily barely looked up. She was focused on her red plastic hammer, tapping rhythmically against the worn floorboard of the room that was meant to be hers, "My castle," she mumbled, voice barely audible.  "But it's not finished." 
+
+It wasn’t just the unfinished castle; Lily's life felt incomplete too. Diagnosed with a rare condition at birth that affected her mobility, Lily had been confined to this small room within the sprawling rehabilitation center for over three years.  Amelia, a seasoned occupational therapist dedicated to helping children reclaim their independence, found it both heartbreaking and frustrating. 
+
+The setting was the 'Phoenix Project' - a local hospital specializing in childhood rehabilitation. It housed a motley crew of bright-eyed and eager patients, each with their unique set of challenges and dreams. Amelia, armed with her empathy and a toolbox overflowing with therapeutic strategies, tried to weave a tapestry of hope amidst the chaos. 

@@ -1,0 +1,5 @@
+The humid Georgia air hung heavy over Savannah like a damp wool blanket. Cicadas buzzed their relentless symphony from the ancient oaks lining Jones Street, casting long, wavering shadows in the fading sunlight.  Amelia Beatrice Finch, known to most as Bea, wiped sweat from her brow with a lavender-scented handkerchief, adjusting the brim of her straw hat. It was the kind of day that made even a seasoned Savannah native yearn for an ice-cold Sweet Tea and a porch swing. 
+
+Bea wasn't in the mood for southern hospitality, though. Today, she had a delicate situation on her hands: Mrs. Clementine Peabody, notorious for hoarding antique porcelain cats, claimed her entire collection had vanished overnight, leaving only a cryptic note penned in what appeared to be cat blood.  The police dismissed it as a prank, but Bea knew Mrs. Peabody well enough to suspect there was more to the story. A missing feline fortune and a bizarrely signed letter – this wasn't just another claim; this was the start of something much stranger. 
+
+

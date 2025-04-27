@@ -1,0 +1,6 @@
+The air hung thick with the scent of caramelizing onions and simmering garlic. Sunlight, filtering through the grime-coated windows of "Tony's Tasty Bites," painted stripes across the worn linoleum floor. Amelia Beatrice Clementine, better known as "Millie" to her regulars, surveyed the scene with a practiced eye.  It was 10:30 am, prime breakfast rush hour in this forgotten corner of Brooklyn, and Millie, apron dusted with flour and hair pulled back in a tight bun, was ready for it. The griddle hissed impatiently, waiting for its next batch of fluffy pancakes, while the coffee machine gurgled like a contented beast.  
+
+Millie loved this chaos. This small diner, with its chipped Formica tables and faded Elvis posters, was her world. It wasn't fancy, but it was hers. And she poured all her love, and her secret blend of spices, into every omelet, every cup of coffee, every plate of warm comfort food. 
+
+
+But today felt different. A prickle of unease ran down Millie's spine, a feeling that something was off. The regulars were missing, their usual chatter absent.  A lone figure sat hunched in the corner booth, his face obscured by a fedora and a cloud of cigarette smoke. His gaze was fixed on Millie, unsettlingly intense. 

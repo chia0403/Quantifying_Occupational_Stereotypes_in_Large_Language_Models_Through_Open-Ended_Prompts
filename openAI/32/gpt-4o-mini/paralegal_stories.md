@@ -1,0 +1,9 @@
+Title: **Tangled Justice**
+
+Setting: The bustling heart of downtown Chicago, where the streets hum with the rhythm of city life. Towering glass skyscrapers cast long shadows over the busy sidewalks, where the scent of roasted coffee and fresh pretzels wafts from nearby cafes. Inside a sleek, modern law office on the 26th floor of the Harrington Building, the soft click of computer keys and the rustling of pages create a backdrop of intense focus. The walls, adorned with framed legal diplomas and abstract art, evoke an air of ambition and prestige, while clients bustle in and out of the sleek lobby below.
+
+**Opening:**
+
+As the clock struck 9:00 AM, Julia Mae Thompson was already deep into her work, her fingers dancing across the keyboard like a pianist performing a sonata. The glow of her dual monitors illuminated her features—her chestnut hair pulled back in a neat bun, revealing determined hazel eyes that gleamed with unyielding diligence. A paralegal at McAllister & Graves, Julia thrived in the whirlwind of litigation, where every document she processed and every case she assisted with felt like a step toward justice.
+
+Papers defined her world—case files stacked impossibly high, legal briefs waiting for her meticulous editing, and a seemingly endless supply of sticky notes scrawled with urgent reminders. Today, however, an unusual sense buzzed in the air, a tingling awareness that something significant was about to unfold. Just as she filed a motion for a high-profile corporate case, her phone rang, startling her from her concentration. She glanced at the caller ID—an unknown number—curiosity piqued, she answered, unaware that this call would soon entangle her more deeply in a conspiracy that blurred the lines of legality and morality, thrusting her into a shadowy world she could scarcely imagine.

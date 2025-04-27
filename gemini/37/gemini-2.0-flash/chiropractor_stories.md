@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a chiropractor:
+
+**Setting:** The biting December wind whipped through the narrow streets of Port Blossom, Maine, tugging at the Christmas lights strung haphazardly between the clapboard buildings. A dusting of snow, more promise than reality, coated the cobblestone sidewalks, making them treacherous underfoot. The scent of salt air mingled with the sweet, heavy aroma of balsam fir emanating from the Christmas tree lot across from the harbor. The sky was a bruised, pre-dawn purple, promising another frigid day.
+
+**Opening:**
+
+The persistent chirp of his alarm clawed its way into Dr. Alistair Finch's sleep, a sleep already haunted by the ghosts of misaligned vertebrae and stubborn sacroiliac joints. He groaned, burying his face deeper into his threadbare pillow. Five-thirty AM. A ridiculous hour for anyone, let alone a chiropractor facing down another day of hunched-over fishermen, stressed-out shop owners, and the occasional tourist hobbled by too much lobster bisque.
+
+He slapped the snooze button with a weary hand, the action sending a jolt of pain shooting up his forearm. *Great,* he thought, battling the urge to simply stay put. *Maybe I'll diagnose myself with carpal tunnel and prescribe a week of vacation.* But Port Blossom didn’t exactly offer a roster of highly skilled back crackers waiting to take over. Besides, Mrs. Higgins was due in at eight for her chronic sciatica, and he knew she’d be in a world of agony if he canceled. Alistair sighed, the sound lost in the quiet of his small apartment above Finch Family Chiropractic, a practice started by his grandfather and grandfather before him. He hauled himself out of bed, the cold seeping through the floorboards and into his bare feet, and resigned himself to another day in the service of the spine. The spine, he thought with a wry smile, was a harsh mistress.

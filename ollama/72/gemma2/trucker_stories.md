@@ -1,0 +1,5 @@
+The sun bled crimson across the Texas sky, casting long shadows that stretched like restless ghosts across the cracked asphalt.  Dust devils danced in the abandoned truck stop parking lot, swirling around rusted beer cans and broken neon signs advertising "World's Best Coffee" – a claim likely true only in jest, given the state of most everything else in this forsaken corner of I-10.  Inside his beat-up Peterbilt, Jeremiah "Red" Callahan chewed on a toothpick, its splintering a counterpoint to the steady hum of the idling engine.  He squinted at the cracked screen of his GPS, tracing a route through towns with names that sounded more like curses than destinations: Dustbowl, Devil's Bend, Forgotten Hollow. 
+
+Jeremiah wasn't afraid of any of those places – he'd seen enough darkness in his forty years on the road to know that the real danger lurked not in deserted highways or dilapidated truck stops, but in the heart of man.  He just hoped whoever was waiting for him at the end of this lonely stretch of road wasn't a reflection of that darkness he knew all too well. 
+
+

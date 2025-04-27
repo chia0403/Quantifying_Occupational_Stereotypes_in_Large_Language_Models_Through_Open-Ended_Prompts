@@ -1,0 +1,8 @@
+The scent of antiseptic and chlorine hung heavy in the air, mingling with the faint metallic tang of blood. Dr. Amelia “Amy” Cartwright ran a calloused thumb across the chipped enamel of her dental instruments, feeling the reassuring weight of them even as she steeled herself against the grim sight before her. 
+
+Across the room, nestled into the dentist's chair like a fragile bird in a cage, sat Mrs. Hazelton, a woman whose face was etched with years and hardship. A lifetime of grinding teeth and clenched jaws had left its mark on both her smile and her expression, turning the once vibrant red of her lips to the pale gray of chalk.  
+
+The setting was a typical bustling dental office, but this was no ordinary clinic. This was the "Harmony Dental Center," nestled in a small town that felt more like a forgotten corner of time than any modern metropolis.  It wasn't fancy, it had a slightly faded paint job on the walls and a distinct charm reminiscent of the pre-modern era. The staff, however, were known for their quiet efficiency, their gentle hands, and an unwavering faith in the power of human connection to heal. Amy was one of them, her days filled with the rhythmic hum of drills and the comforting rasp of scraping away years of plaque. She'd chosen this path not out of a desire for wealth or fame, but out of a deep-seated desire to help others, to ease their pain both physically and emotionally. 
+
+
+**What story would you like to tell about Amy? Is it her past that is calling her into the world, or does something else drive her actions? How will this encounter with Mrs. Hazelton influence her day?**  

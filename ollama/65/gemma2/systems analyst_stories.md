@@ -1,0 +1,5 @@
+The flickering fluorescent lights hummed above Amelia Beatrice Sinclair's head, casting a sickly yellow glow across her cluttered workspace. Stacks of paper reports threatened to topple from precariously balanced stacks on her desk, competing for space with half-empty coffee cups and empty takeout containers. Outside, the monsoon raged, drumming a chaotic rhythm against the windows of the sprawling data center. 
+
+Amelia, a systems analyst at OmniCorp, squinted at the screen before her. Lines of code scrolled past in an unintelligible torrent, each one a potential clue to the anomaly that had been plaguing their core network for the past week.  A knot of tension tightened in her stomach. This wasn't just another bug; this felt different, insidious. Amelia pushed back her chair, stretching her stiff muscles and glancing at the clock – 3:47 am. She was running on fumes, but she couldn’t afford to sleep until she found the source of this problem. One wrong move could bring down their entire infrastructure, and with it, potentially the lives of millions who relied on OmniCorp's services.  
+
+

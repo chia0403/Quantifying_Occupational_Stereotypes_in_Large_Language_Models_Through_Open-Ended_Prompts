@@ -1,0 +1,6 @@
+The scent of lavender shampoo hung thick in the air, mingling with the faint tang of bleach and something vaguely floral that Elara "Ellie" Thistlewood suspected was her new client's attempt at masking their nerves. Ellie adjusted her glasses, peering at the woman in the mirror. She was a vision of anxious energy, hair plastered to her scalp like seaweed clinging to a rock after a storm. 
+
+The salon, aptly named "Thistle & Bloom," was tucked away on a quiet street lined with charmingly mismatched Victorian houses, each boasting its own unique personality. The building itself was a symphony of pastels - pale pink walls offset by turquoise window frames and a sunflower-yellow door that always seemed to radiate warmth. Inside, the air buzzed with a comforting symphony of conversation, snipping shears, and the rhythmic whirring of hair dryers. Sunlight streamed through the large front windows, painting the room in a soft glow. 
+
+
+Ellie knew this woman's nervousness stemmed from something more than just a haircut. She had been seeing flashes of it - quick glances at her reflection, a tightened jawline, a tremor in her hands as she reached for her purse. Ellie wasn’t sure what was going on, but she knew she could create a haven here, a space where anxieties faded and confidence bloomed. 

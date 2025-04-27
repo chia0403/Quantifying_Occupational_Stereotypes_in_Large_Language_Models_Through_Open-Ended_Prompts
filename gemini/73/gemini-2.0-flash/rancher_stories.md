@@ -1,0 +1,7 @@
+## Story Opening:
+
+Dust devils danced like playful spirits across the cracked earth, mocking the sweat that beaded on Jedediah "Jed" Calhoun's brow. The sun, a malevolent eye in the vast, cloudless sky, beat down on his weathered Stetson, turning the familiar landscape of the Bar C ranch into a shimmering, almost hallucinatory haze. Jed squinted, his gaze sweeping across the parched pasture, a canvas of brittle browns and faded greens. He could almost taste the disappointment, dry and gritty, clinging to the back of his throat. This drought, this relentless, unforgiving drought, was threatening to steal everything he and his family had built for generations.
+
+## Setting:
+
+The Bar C Ranch, nestled in the heart of the arid Texas panhandle, was more than just land; it was a legacy. Spanning over ten thousand acres, it was a tapestry woven from hard work, grit, and a stubborn refusal to surrender. The main house, a sprawling, single-story structure built of sun-baked adobe, stood as a testament to the Calhoun's resilience. A wide porch, shaded by a creeping wisteria vine, offered a small respite from the oppressive heat. Beyond the house, a collection of weathered barns, corrals, and outbuildings formed the working heart of the ranch. The air, usually thick with the smell of hay and livestock, now carried the scent of dust and desperation. In the distance, the faint silhouette of the Caprock Escarpment marked the horizon, a stark reminder of the unforgiving beauty and harsh realities of the land Jedediah Calhoun called home.

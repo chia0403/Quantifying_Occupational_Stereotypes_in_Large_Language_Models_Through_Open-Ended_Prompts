@@ -1,0 +1,11 @@
+## Story Opening:
+
+The rhythmic *beep* of the scanner was a metronome marking the slow, agonizing tempo of Amelia Grace Hawthorne's Thursday afternoon. At least the rain outside had finally tapered off, even if the sky still hung heavy and bruised above the strip mall. She glanced at the clock above register three: 4:17 PM. Just two more hours and she could escape the fluorescent purgatory of "Fresh Foods, Fresh Life!" and the relentless tide of coupons, cranky customers, and sticky toddlers clinging to overflowing shopping carts.
+
+Amelia sighed, pushing a stray strand of auburn hair behind her ear. She’d memorized every inch of this checkout lane: the chipped linoleum, the faded ad for "Manager's Special: Day-Old Donuts," the way the automatic hand sanitizer dispenser perpetually dispensed too much. She knew the prices of every item in the store, could identify produce blindfolded, and could differentiate between a Manufacturer's Coupon and a Store Coupon in her sleep. She even knew the secret ingredient in Mrs. Higgins's famous blueberry pie (it was lemon zest, and Mrs. Higgins, a regular, would deny it to her grave).
+
+But knowledge wasn't power in this place. It was just... repetition. And Amelia, with a stack of applications to various art schools gathering dust in her cramped apartment, felt like she was slowly being chipped away, one *beep* at a time.
+
+## Setting:
+
+The setting is a bustling, mid-sized grocery store called "Fresh Foods, Fresh Life!" located in a nondescript strip mall in the fictional suburb of Oakhaven, Pennsylvania. The time period is present-day. The interior of the store is brightly lit with harsh fluorescent lighting and features the standard layout: produce section at the entrance, followed by aisles filled with packaged goods, dairy, meat, and frozen foods. The checkout lanes are located at the front of the store, a row of identical stations staffed by perpetually overworked cashiers. The exterior of the store is plain and functional, with a large parking lot and a few scattered shopping carts abandoned near the entrance. The overall atmosphere is one of constant activity and a slightly frenetic energy, particularly during peak hours. Oakhaven itself is a typical American suburb, characterized by cookie-cutter houses, manicured lawns, and a general sense of quiet conformity.

@@ -1,0 +1,5 @@
+The stale air hung heavy in the courtroom, thick with anticipation and the scent of old leather and fear.  Rain lashed against the courthouse windows, blurring the city skyline into a watercolour mess. Inside, Amelia Thorne, her sharp jaw set beneath the weight of her trademark bobbed hair, felt the tension coil in her chest like a live wire. 
+
+Her client, a charismatic but troubled musician named Silas Blackwood, sat at the defense table with his usual impish grin plastered across his face.  A faded blue beret perched atop his unruly curls, and Amelia knew she’d only managed to win him over by promising him they could turn this mess into something beautiful – a story he could be proud of. 
+
+But as the prosecution's lead witness stepped onto the stand, their icy eyes locking with Silas' own, Amelia felt a prickle of unease crawl down her spine.  This wasn’t about music anymore. This was about power, control, and who held the pen that penned the ultimate melody - the fate of one man’s life. 

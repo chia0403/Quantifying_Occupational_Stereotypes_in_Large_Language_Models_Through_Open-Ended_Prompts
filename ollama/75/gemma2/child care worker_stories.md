@@ -1,0 +1,3 @@
+The fluorescent lights hummed above Amelia “Amy” Beaumont’s head, casting a sickly yellow glow over the chaotic scene before her. Toys were strewn across the floor like fallen soldiers, remnants of a fierce battle fought between giggling dinosaurs and brightly coloured blocks. The aroma of stale juice boxes and crayons hung heavy in the air, mingling with the faint scent of bleach that Amy desperately hoped masked the more unpleasant odours that sometimes permeated Little Explorers Daycare. 
+
+It was naptime, but only in name. A chorus of shrieks and whines punctuated the occasional thump of a small body against the wall, a symphony of chaos that Amy conducted with weary patience. Today, as always, felt like trying to herd kittens through a hurricane.  

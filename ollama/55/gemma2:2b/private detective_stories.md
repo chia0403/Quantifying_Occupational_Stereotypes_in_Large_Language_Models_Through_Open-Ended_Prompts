@@ -1,0 +1,8 @@
+Rain lashed against the cracked windowpane of Detective Elias "Eli" Thorne's office, each drop like a tiny hammer blow on the glass. The city, already shrouded in an oily haze from industrial smoke and fog, was being swallowed whole by the storm. Eli squinted at the handwritten note crumpled in his hand, the ink bleeding into the damp cardboard with alarmingly vivid detail. "Her last stop," it read, scrawled in a shaky hand. 
+
+He ran a calloused thumb over the faded image of the woman pinned to the top: Amelia Blackwood, all vibrant auburn hair and piercing green eyes that had been etched into his memory ever since he'd discovered her lifeless form on the back steps of her art studio last week.  His office in the ramshackle side of town wasn't exactly a glamorous den, but it was the closest thing to home Eli had left after losing everything with Amelia's death.  He couldn't afford a penthouse view, let alone a proper investigation team, and he certainly couldn’t pay his bills on grief.
+
+Eli glanced at the half-empty whiskey bottle next to the flickering gaslight, the only source of light in his otherwise desolate world.  Amelia's case was a tangled mess of conflicting witnesses, shady dealings with art collectors, and a whole lot of secrets that smelled like old money and desperation. The storm outside mirrored the turmoil within him – a churning sea of guilt, grief, and a stubborn refusal to let go until he found out what truly happened to Amelia. 
+
+
+He was alone. A lone wolf navigating the treacherous underbelly of the city, hunting down the truth amidst the wreckage of lives and shattered dreams.  

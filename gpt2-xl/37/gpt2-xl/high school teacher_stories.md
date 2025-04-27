@@ -1,0 +1,7 @@
+Once upon a time, there was a high school teacher named Mr. Green. One day, he was cleaning up the cafeteria when he saw a little girl getting picked up by one of your football players. When asked who the kid was, Mr. Green pointed to what he thought was the face of the kid. The little girl said nothing. Mr. Green, knowing that the kid was her best friend, pointed to the other guy. The kid repeated not a word.
+
+This happened a million times before Mr. Green noticed that she had tears in her eyes. It didn't take long before the kids from both teams started to cry. Mr. Green asked the girl what she was crying about. Her response was "my friend is missing."
+
+After some time, the whole mess was over. The coach came out and gave the kid a hug. Then they brought the girl back to the field with him. He stood there for a couple of seconds. Then, with a quick little twist of the ankle, he was gone. You'd think he was in the NFL. He was. He was a football player.
+
+A month later, the same story happened to another girl. This time, when Mr. Green asked the girl who her friend was, she said it was the football player's big cousin. He didn't say anything to anyone about that. You were just supposed to take it for granted that his friend was really the cousin he was talking about because that

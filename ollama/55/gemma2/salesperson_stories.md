@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Eleanor "Ellie" Beaumont like a swarm of irritable bees, casting a sterile glow on the rows of plastic-wrapped furniture in her showroom. It was another Tuesday at Furniture Fantastic, another symphony of clinking teacups and forced small talk with reluctant buyers. Ellie, however, wasn't your average salesperson. She wasn't here to hawk overstuffed couches or convince families they needed another dining set they couldn't afford. 
+
+Ellie was on a mission: she wanted to sell the truth, not just products.  Her showroom, tucked away in a forgotten corner of a sprawling shopping mall, wasn't about selling dreams. It was about selling stories. Each piece of furniture held a whisper of its past, a silent echo of lives lived and memories made. Ellie listened to those whispers, deciphered their tales, and helped customers find the pieces that resonated with their own stories, even if those stories hadn't been written yet. 
+
+
+The mall itself was a faded relic of a bygone era, its once-gleaming floors now scuffed and dulled, the food court smelling faintly of stale popcorn and forgotten dreams. Yet, Ellie found beauty in its imperfections, in the way sunlight filtered through grimy skylights and cast long shadows across worn carpets. 

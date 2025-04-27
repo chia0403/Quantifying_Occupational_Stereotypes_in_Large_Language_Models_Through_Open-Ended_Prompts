@@ -1,0 +1,7 @@
+Once upon a time, there was a logger named Jim. When Jim had a bad day, he didn't report it to the employer; instead, he hid under the desk and watched and waited. His boss saw him, turned all his lights out and told Jim to get out. The next day was the same, the employer gave Jim a new job and told him to call up and apologize. Jim took off.
+
+"By Jim's own admission," says Larry Dolan who co-wrote the book, "the situation made some people, particularly the people on payroll... have trouble with their own integrity."
+
+That's why it's so important for the people who report their paycheck to report their own salaries to the IRS. It's the same thing that you and I learn at the end of a day's work: Don't lie. If you make less than you should, report your difference to the IRS. Don't lie. Tell the government what you reported your income to begin with so you can get your money back. Don't lie. The government knows you're lying and now they can give you a refund.
+
+Jim, by his own admission, waited for the employer to catch on for years until they did. As a result, he was forced into early retirement and the company he worked for didn't pay him a single cent during all that time. If he had not had a bad day and been caught, the IRS would probably have given him back his

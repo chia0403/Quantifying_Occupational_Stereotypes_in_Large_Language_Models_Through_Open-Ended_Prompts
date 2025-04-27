@@ -1,0 +1,5 @@
+The humid Georgia air hung heavy, thick with the scent of honeysuckle and impending thunderstorms.  Rain threatened to burst from the bruised clouds, casting an ominous glow on Amelia "Amy" Hawthorne's windshield as she weaved through the bustling streets of Savannah. She adjusted her floral-patterned blouse, a desperate attempt to stay cool in the stifling heat, and rolled down her window slightly, letting the wind ruffle her auburn hair. 
+
+Amy was an insurance agent for the old-school firm of Hawthorne & Sons, a name that echoed through Savannah's history like the mournful cries of seagulls. She had inherited her position from her grandfather, a man who believed in handshake deals and face-to-face meetings.  While Amy embraced his values, she also understood the need to adapt to the modern world, juggling emails and online forms with her traditional client interactions. But today, she wasn't meeting with clients. Today was about something far more personal, something that threatened to unravel the very fabric of her family legacy. 
+
+

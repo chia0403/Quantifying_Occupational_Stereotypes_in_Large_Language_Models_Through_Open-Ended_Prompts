@@ -1,0 +1,7 @@
+The air hung thick with the scent of cheap perfume and stale cigarettes in the Grand Majestic Hotel lobby. It was July, hotter than Hades, even for this notoriously sweltering city.  A fat pigeon perched on the worn velvet railing of one of the many grand staircases, squawking a complaint at the heat. 
+
+"Another miserable day, huh?" A gravelly voice broke through the cacophony of distant traffic and the incessant chatter of guests. It was Mr. Arthur Bellinger III, a man whose name seemed to hold more weight than his actual stature, which was decidedly average.  He was already dressed in his crisp uniform, starched white shirt and navy bow tie, waiting for his next delivery of luggage. 
+
+Arthur's job as bell hop at the Grand Majestic wasn’t exactly glamorous. But he had learned that even in a world of polished mahogany and gilded smiles, there were hidden tales to be unearthed, stories buried beneath the dust of forgotten grandeur. It was this very thing that kept him going. His name was Arthur Bellinger III. Or “Artie” as his old grandfather called him, after an old cartoon character he used to adore. He couldn't help but feel a peculiar kinship with that little red-and-blue fella, especially when he saw the faded smile etched on every guest’s face like a ghost of forgotten joy.
+
+And it was Arthur’s job to deliver the stories, one suitcase at a time, to those who were willing to listen.  

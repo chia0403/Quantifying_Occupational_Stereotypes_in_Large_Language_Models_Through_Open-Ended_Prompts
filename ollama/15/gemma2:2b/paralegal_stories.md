@@ -1,0 +1,6 @@
+The air hung heavy in the cramped office, thick with the scent of stale coffee and yesterday's printer ink.  It felt even heavier than usual on Tuesday afternoon. 28-year-old Amelia "Amy" Wright chewed her lip nervously, her gaze flitting between the mountain of legal documents piled on her desk and the door that seemed to whisper secrets in the breeze coming through the cracked window. Her client's case was one she couldn't shake off: a young woman whose husband had suddenly vanished, leaving behind nothing but a cryptic note and a chilling silence that screamed more than words ever could.
+
+The setting was a bustling legal firm in the heart of Chicago.  Amy’s office was perched on the edge of the bustling downtown scene, just steps from a lively farmers' market with its promise of sunshine and fresh-baked pastries. Yet, the warm summer breeze seemed to carry the weight of this mystery, reminding her that it held more than just legal precedents—it held a life she desperately wanted to understand, piece by piece. 
+
+
+Her phone buzzed – a message from her boss, Mr. Davis. "Amy," he read in his gruff voice. "Something's up with the witness."  The tension in Amy’s shoulders tightened as she stared at the message. A witness who vanished? The case was already turning into a labyrinth, and now it felt like it had been thrown into a dark storm. 

@@ -1,0 +1,7 @@
+As the sun set over the bustling streets of downtown Los Angeles, casting a warm orange glow over the towering skyscrapers, Phoebe Alexandra Vasquez made her way to work at Community Blood Centers of LA. The scent of freshly brewed coffee wafted through the air as she stepped into the hospital's medical wing, where the sound of beeping machines and gentle murmurs filled the corridors.
+
+Phoebe, a skilled phlebotomist with years of experience under her belt, began to prep for another long day of collecting blood samples from patients. She donned her worn denim jacket, adorned with colorful patches from previous medical missions, over her crisp white scrubs. Her bright blue eyes sparkled as she surveyed the rows of refrigerators humming in the background, lined with blood bags waiting to be filled.
+
+As a child, Phoebe had always been fascinated by the intricate network of veins and arteries that crisscrossed the human body. Growing up in a low-income household, she had witnessed firsthand the struggles of accessing quality healthcare, particularly for those living on the margins of society. Her passion for helping others had led her to become a phlebotomist, working tirelessly behind the scenes to collect vital samples that would one day save lives.
+
+Little did Phoebe know, this ordinary day was about to take an extraordinary turn...

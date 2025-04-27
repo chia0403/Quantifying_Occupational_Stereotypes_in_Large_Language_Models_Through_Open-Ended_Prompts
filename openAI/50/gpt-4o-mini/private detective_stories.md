@@ -1,0 +1,9 @@
+**Story Opening:**
+
+The sun dipped below the jagged skyline of New York City, casting long shadows across the rain-slicked streets. Neon lights flickered to life, painting the asphalt in vibrant hues of pink and blue, while the hum of city life buzzed like a thousand whispers weaving through the night. In a modest office on the third floor of a crumbling tenement building, a lone figure sat hunched over a cluttered desk. The air was thick with the scent of stale coffee and the faint trace of old books, each one a silent testament to the countless mysteries that had traversed through this very space.
+
+**Setting:**
+
+The office belonged to Charlotte Eliza Graves, a private detective as sharp as the creased edge of her fedora, which now hung precariously on the corner of her desk. The walls were adorned with faded newspaper clippings, each one chronicling cases of betrayal, lost loves, and enigmas that had once captured the city’s attention. A dusty typewriter sat in one corner, a relic of the past, now mostly forgotten—its keys used only when the weight of electronic devices felt too heavy. A flickering desk lamp illuminated a tattered leather notebook, filled with a scrawl of observations, lead-ins to potential cases, and the occasional doodle that offered a glimpse into Charlotte's hidden sense of humor. 
+
+Tonight, however, the air felt different; it thrummed with anticipation. Charlotte had received an enigmatic phone call earlier that day, a cryptic request to meet at the old clock tower on the edge of Central Park. The voice on the line was deep but nervous, a stranger with secrets that dripped like shadows into the cracks of her familiar world. As the clock struck eight, she grabbed her trench coat and hat, ready to unearth whatever puzzle awaited her with the determination of a sleuth who had seen it all—but knew the night still had many surprises left to offer.

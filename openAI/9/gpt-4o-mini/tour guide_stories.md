@@ -1,0 +1,9 @@
+**Title: Shadows of the Ancients**
+
+**Setting: The ancient city of Petra, Jordan, a breathtaking blend of red sandstone cliffs and intricate rock-cut architecture, bathed in the warm hues of a setting sun. Dust swirls lazily in the air as the last tourists of the day begin to filter out of the archaeological wonder, leaving behind echoes of laughter and footsteps against the aged stone.**
+
+As the golden light cast long shadows across the Siq, a narrow gorge leading into the heart of Petra, Tahlia Amina Al-Masri stood at the entrance, her sun-kissed skin glowing with an electrifying warmth. With her wide-brimmed hat tilted slightly and a worn leather satchel slung over one shoulder, Tahlia was a living embodiment of the desert’s spirit. Her dark hair, braided elegantly, framed her curious hazel eyes that sparkled with the knowledge of the ancient world she loved so deeply. 
+
+“Welcome, everyone!” she called out, her voice echoing softly against the towering cliffs. Her small group of intrepid travelers turned, their excitement palpable as they gathered around her. “Tonight, we’ll delve into the stories behind the stones, uncovering secrets that many have overlooked in their rush to snap the perfect picture.” 
+
+With a smile that warmed the chill of the impending night, Tahlia gestured toward the intricately carved Treasury, its magnificent façade illuminated by the fading light. It was a gateway not just to a lost civilization, but to countless mysteries just waiting for her to unravel. Little did she know that as they stepped closer, the treasures of Petra would not be the only things that would come to life under the moonlit sky.

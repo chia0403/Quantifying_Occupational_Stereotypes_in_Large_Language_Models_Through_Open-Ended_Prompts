@@ -1,0 +1,9 @@
+Title: Shadows of the Past
+
+In the heart of downtown Boston, where the echo of footsteps reverberated off historic brownstone buildings and the scent of fresh coffee wafted through the crisp morning air, Dr. Amelia Brooks embarked on her daily walk to the University where she lectured on forensic psychology. The sky was a deep azure, the kind of blue that seemed almost translucent, and the autumn leaves crunched beneath her feet, a symphony of scarlet and gold. 
+
+Her mind, however, was as tangled as the vines of ivy that crept up the stately facades around her. Just weeks ago, the Boston Police Department had approached her to consult on a series of unsolved cases that seemed to defy logic. It wasn't her first foray into the field with active investigations, but something about this particular string of events felt different—hauntingly personal.
+
+Amelia, known for her razor-sharp analytical skills and an empathetic approach that could crack the toughest of facades, always welcomed a challenge. Yet, as she rounded the corner onto Charles Street, the unease that had been simmering beneath the surface surfaced with an unexpected intensity. The city she knew so well, with its cobblestone streets and gas-lit alleys, seemed cloaked in shadows she'd never noticed before.
+
+Her destination, the stately halls of Brigham University, loomed just ahead, its spires reaching toward the sky like fingers clutching secrets. Amelia paused for a moment, inhaling the cool air and studying the familiar yet somehow foreign scene before her, the weight of the city's secrets pressing ever more heavily upon her shoulders.

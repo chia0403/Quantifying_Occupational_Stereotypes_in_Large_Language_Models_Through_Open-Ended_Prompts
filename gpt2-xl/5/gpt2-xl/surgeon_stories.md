@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named Dr. Thomas M. Larkin, in a suburb of Pittsburgh. He noticed that patients with abdominal surgeries did worse after some time. He reasoned that the abdominal muscles were stretched by the operation, and that, more or less, they should have an easier time with their pain medicine.
+
+So, when Larkin was asked by the surgeons to do a new operation to do rectal cancer surgery, he added a twist to his usual procedure, which involves doing the operation outside of the patient's abdomen so as to create larger pockets of incisions so there's room for anesthesia to be administered in-between incisions. He called it the Larkin Rectal Laparoscopy, and it sounds like it was the first time that this idea ever came up.
+
+The idea was that, instead of doing the laparoscopy on a patient's abdomen, the laparoscopy would be done in the patient's rectum. The problem, of course, is that while the rectum is larger than a patient's abdomen, it isn't like the belly is (the colon-to-rectum distance averages 10 cm). So, the surgery was supposed to be much more difficult. In his new book, Larkin describes a "very ugly operation" in which his "patients often experienced pain that was intolerable."
+
+Eventually, doctors made Larkin's trick work for them, and it's probably why the procedure

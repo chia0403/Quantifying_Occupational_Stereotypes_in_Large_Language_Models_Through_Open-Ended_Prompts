@@ -1,0 +1,6 @@
+The humid Georgia air hung heavy with the scent of honeysuckle and impending rain.  Eliza Beatrice Hawthorne swatted at a persistent mosquito, her frustration mirroring the tangled mess of scarlet yarn snaking across her studio floor.  Sunlight streamed through the dusty windows, illuminating motes dancing in the golden beams and casting long shadows that stretched like living things across her canvas.  A half-finished portrait of a weathered old woman stared back at Eliza, her eyes – two pools of deep, knowing brown – seeming to judge the artist's current lack of inspiration. 
+
+Eliza sighed, pinching the bridge of her nose. For weeks, she’d been grappling with this piece, struggling to capture the essence of Mrs. Clementine, a local historian known for her sharp wit and even sharper tongue. The woman had seemed effortlessly captivating during their initial sittings – her stories tumbling forth like vibrant threads woven through time. But now, staring at the canvas, Eliza felt a gnawing sense of emptiness. Where was the spark? The story Mrs. Clementine held within?
+
+
+Eliza was trapped in a creative rut, and the looming deadline for the town's annual art exhibition loomed over her like a thundercloud.  

@@ -1,0 +1,6 @@
+The stale scent of burnt coffee hung thick in the air of Eleanor "Ellie" Hayes' office. It wasn't that she didn't like coffee; it was just that her mornings were perpetually rushed. Today was no different. Ellie, a woman forged from years of battling bureaucratic red tape and unruly clients, wrestled with the tangle of her auburn hair as she scanned through case files on her desk. Outside, a storm raged across Omaha, Nebraska, wind howling like a pack of feral dogs against the windows of the probation office building. Rain lashed against the glass, blurring the already bleak cityscape beyond. 
+
+Ellie sighed, pinching the bridge of her nose. The case file before her belonged to Damien Thorne, a young man she'd been assigned just last week. He was on probation for petty theft, but there was something about his eyes in their first meeting - a flicker of desperation beneath the defiance - that had set Ellie on edge. 
+
+
+She glanced at the rain-streaked clock. It was 8:57 am, and Damien's appointment was scheduled for nine. The storm wasn't letting up, and Ellie knew he probably wouldn't make it. He might be facing a court date if he missed his probation check-in, which would only worsen his situation.  

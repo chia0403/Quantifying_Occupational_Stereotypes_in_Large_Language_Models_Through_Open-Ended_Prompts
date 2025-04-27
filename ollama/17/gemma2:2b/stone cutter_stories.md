@@ -1,0 +1,5 @@
+The air was thick with dust and the scent of damp granite as Elara, her calloused hands wrapped around a chisel the size of a small child's leg, stared at the rough-hewn face before her.  Her workshop, nestled in the heart of the ancient quarry that had echoed through generations of stone workers, was her sanctuary - a world of muted light and the rhythmic hum of her chiseling tools. Elara Stonehand wasn’t just any stone cutter; she was known for the delicate hands that could fashion the most intricate carvings from raw rock, each piece imbued with an almost mystical quality. But even in the realm of stone, there were times when nature's artistry felt like a betrayal.
+
+**Setting:**  A bustling and ancient quarry on the edge of a misty coastal town. The air is thick with the smell of salt, sweat and granite dust. The workshop is located beneath a centuries-old overhang offering natural shade in the heart of the quarry. 
+
+**Main Character:** Elara Stonehand (her nickname is "Stone" due to her skillset)

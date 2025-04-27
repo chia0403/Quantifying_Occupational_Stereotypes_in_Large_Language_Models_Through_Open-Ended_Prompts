@@ -1,0 +1,7 @@
+As the first light of dawn crept over the horizon, casting a pale glow over the small town of Willow Creek, Registered Nurse Alexandra "Lexi" Thompson made her way to the hospital's staff room for her morning coffee and quiet moment of solitude. The smell of freshly brewed coffee wafted through the air as Lexi poured herself a cup, the steam rising to mingle with the early morning chatter of her coworkers.
+
+Lexi had spent the previous night on call, and despite getting only a few hours' sleep, she felt invigorated by the prospect of tackling another day of caring for the residents of Willow Creek. She took a sip of her coffee, feeling the familiar buzz of caffeine coursing through her veins as she gazed out the window at the sleepy town below.
+
+The Willow Creek Memorial Hospital was a small, rural facility that served as the only hospital within a hundred-mile radius. It was a tight-knit community where everyone knew each other's names, and Lexi had grown to love its quiet rhythms and quirky cast of characters. But on this particular morning, a sense of unease settled over her as she checked the overnight reports, noticing an unusual number of admissions – all with one thing in common: severe injuries.
+
+Little did Lexi know that today would be a day like no other in Willow Creek...

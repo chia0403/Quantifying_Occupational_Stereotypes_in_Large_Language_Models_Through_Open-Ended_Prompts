@@ -1,0 +1,5 @@
+Rain lashed against the corrugated metal roof of the old barn like a thousand tiny daggers. Inside, Elias “Dusty” Carter hunched over his toolbox, the flickering lantern casting eerie shadows across his face. He could hear the storm tearing its way through the valley, and the sound was almost a symphony in itself – a chorus of wind whistling through the oaks, torrential downpours echoing from the clouds overhead. 
+
+Elias didn't much like storms. The wind, the rain, the relentless pounding on the roof; it reminded him too much of his grandfather, who had always warned him about the “devil’s claws” that could tear a roof apart.  “They think they're strong,” Elias would mutter to himself as he tightened a bolt, "but they forget there are men like me, built for the wind." 
+
+He wasn't just any roofer; his family had been working on roofs in this valley for generations. The Carter name was synonymous with sturdy structures and dependable work. But tonight, with the storm raging around him, Elias felt a sense of unease he couldn’t shake off.  A feeling as if something else was stirring within the valley’s soul – something ancient, dark, and hungry. 

@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Story Opening:**
+
+The stale air of the undercroft hung heavy, a damp blanket woven with the scent of dust, mildew, and the faintest, most unsettling hint of decay. Sergeant Elias Thorne shifted his weight, the metal studs on his leather gorget creaking in protest. It was the dead hour before dawn, the sky outside still an impenetrable black canvas, and the only light came from the sputtering oil lamp fixed to the wall, casting dancing shadows that played tricks on his tired eyes. He’d seen things down here, things he’d never speak of, things that clung to the edges of his perception like cobwebs. Tonight, though, the silence felt different. It wasn't the reassuring silence of duty performed, but a taut, expectant silence, as if the very stones themselves were holding their breath. Elias felt a prickle of unease crawl up his spine. Something was about to happen.
+
+**Setting:**
+
+The setting is the subterranean levels of the Citadel of Aeridor, a formidable fortress perched atop the jagged, windswept cliffs overlooking the Sea of Whispers. Centuries old, the citadel is the seat of power for the King of Aeridor, and the undercroft serves as both a dungeon and a storage area for ancient relics, forgotten treasures, and things deemed too dangerous for the light of day. Think cold, damp stone passages, oppressive low ceilings, and a labyrinthine network of chambers leading to who-knew-what. The architecture is a mix of brutal functionality and decaying grandeur, hinting at a past of immense power now slowly crumbling. The air is always thick with the sound of dripping water and the distant roar of the waves crashing against the cliffs far above. The only light comes from strategically placed oil lamps, leaving much of the undercroft shrouded in perpetual darkness. The overall atmosphere is one of claustrophobia, mystery, and a palpable sense of dread.

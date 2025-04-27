@@ -1,0 +1,11 @@
+**Title: Adjustments of the Heart**
+
+**Setting:** The thriving coastal town of Seabreeze, known for its picturesque views and a vibrant community, where the salty sea air mingles with the aroma of freshly brewed coffee from local cafés. The streets are lined with quaint boutiques and bistros, and the sound of waves crashing against the rocky shore serves as a constant backdrop. Nestled among the colorful storefronts is a small yet inviting chiropractic clinic called "Seabreeze Wellness Center." It’s adorned with potted plants and large windows that let in plenty of natural light.
+
+**Opening:**
+
+Dr. Elisabeth Marie Walker leaned back in her swivel chair, the soft hum of the ocean breeze drifting through the open window, teasing her hair with the scent of salt and adventure. As Seabreeze awoke to another sun-drenched morning, Elisabeth flipped through the day’s appointments, her mind already racing with thoughts of her first patient. With each scheduled adjustment, she aimed to blend her hands-on expertise with a gentle, nurturing approach, believing that true healing started from within.
+
+The town had embraced her practice, and in the two years since opening the clinic, she’d become more than just a chiropractor; she was a trusted confidante to her patients, who often shared their stories of pain, resilience, and hope. Today was no different. Her mornings were filled with a variety of souls, each entering with a unique story that tugged at her heartstrings. Yet, beneath her calm exterior, Elisabeth carried the weight of an unhealed injury—one that had followed her from a relationship long gone.
+
+As the clock struck nine, the sun poured warmth into her clinic, illuminating the walls adorned with ocean-themed art and inspirational quotes about healing. She took a deep breath and pushed away the thoughts that lingered like a fog, focusing instead on her mission for the day: to help others adjust their lives, even if it meant excavating her own buried feelings in the process. Little did she know, though, that the universe had other plans, and the morning would hold an unexpected twist that would test both her skills and her heart.

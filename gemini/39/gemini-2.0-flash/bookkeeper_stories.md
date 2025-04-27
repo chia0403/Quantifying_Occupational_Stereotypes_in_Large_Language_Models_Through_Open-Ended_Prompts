@@ -1,0 +1,9 @@
+Okay, here’s a story opening and setting featuring a bookkeeper as the main character:
+
+**Story Opening:**
+
+The scent of mothballs and old paper clung to Agnes Margaret Plumtree like a second skin. It had been a constant companion for the better part of thirty years, ever since she'd traded in dreams of being a botanist for the predictable comfort of ledger sheets and balancing columns. This particular Tuesday, though, the familiar odor was a far-off solace. Agnes chewed nervously on her pen cap, the plastic groaning under the pressure, and stared at the offending number again. Twenty-seven dollars and thirteen cents. It simply *would not* reconcile. Twenty-seven dollars and thirteen cents that, in her meticulously organized world, felt like a gaping chasm threatening to swallow everything whole.
+
+**Setting:**
+
+The story takes place in the dusty, cluttered office of **'The Old Curiosity Shoppe'** in the small, sleepy town of Havenwood, nestled in the foothills of the Appalachian Mountains. The office itself is a tiny, windowless room tucked away at the back of the shop. The walls are painted a sickly, faded green and are lined with overflowing bookshelves crammed with brittle-spined novels, antique account books, and dusty pamphlets on everything from falconry to phrenology. Sunlight struggles to penetrate the perpetually drawn blinds, casting the room in a perpetual twilight illuminated only by a single, buzzing fluorescent light fixture hanging precariously from the ceiling. Agnes's desk is a sturdy, oak monstrosity, buried beneath stacks of invoices, receipts, and meticulously labeled files. A vintage adding machine, a relic from a bygone era, sits prominently to her right, its keys worn smooth from years of use. Outside the office, the faint tinkling of a wind chime and the murmur of browsing customers occasionally filter through, a reminder of the world beyond Agnes's self-imposed numerical prison.

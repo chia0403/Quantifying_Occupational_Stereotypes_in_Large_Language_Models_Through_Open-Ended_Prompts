@@ -1,0 +1,7 @@
+In the heart of the Scottish Highlands, where the air is fragranced with the earthy aroma of pine and heather, and mist clings to the rolling hills like whispered secrets, there lies the small village of Glencarron. Nestled between jagged peaks and sprawling emerald valleys, the village is a haven for wanderers and dreamers drawn by the promise of untamed beauty. 
+
+At the crack of dawn, as the first rays of amber sunlight break through the heavy, grey clouds, casting a golden hue over the crystalline waters of Loch Carron, one can find Ian McAllister preparing for another day’s adventure. As the village’s most revered tour guide, Ian has become a beacon for those eager to explore the wilderness beyond the village’s cobblestone streets. 
+
+With rugged determination and an encyclopedic knowledge of the local flora, fauna, and ancient folklore, Ian guides each of his tours through the sprawling landscapes, unraveling the history etched into every rock and stream. At thirty-five, with windswept auburn hair, kind eyes that mirror the sapphire lochs, and a voice that carries the lyrical cadence of his homeland, Ian McAllister is beloved by both locals and visitors alike.
+
+As he stands beneath the ancient oak that serves as the village's gathering point, unfolding the worn map that has journeyed with him through countless expeditions, a group of wide-eyed tourists begin to gather, eager to discover the stories hidden beyond the hills.

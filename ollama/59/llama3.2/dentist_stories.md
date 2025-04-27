@@ -1,0 +1,7 @@
+As the sun set over the small coastal town of Tidal Cove, Dr. Emily Marina Thompson stepped out of her quaint dental practice and into the crisp evening air. The sound of seagulls filled the air, mingling with the hum of the harbor's twinkling lights. With a deep breath, Emily gazed out at the turquoise waters, feeling the weight of another long day lift from her shoulders.
+
+Emily had always loved her life in Tidal Cove. She had grown up playing on its sandy beaches and exploring its hidden coves, and as a young dentist, she had returned to her hometown eager to put down roots. Now, at thirty-five years old, Emily was proud of the thriving practice she had built, where patients came not just for fillings and cleanings, but also for a listening ear and a friendly smile.
+
+As she made her way down the sidewalk, Emily's eyes scanned the bustling main street, lined with shops, restaurants, and galleries. She passed by the old fishing village, its wooden boats bobbing gently in the harbor, and continued on to the town square, where the iconic Tidal Cove Lighthouse stood sentinel. The setting sun cast long shadows across the cobblestones, illuminating the vibrant colors of the shops and homes.
+
+Tonight, however, Emily was not here for pleasure. She had received a mysterious phone call earlier that day, from an unknown number, with a cryptic message that had left her both intrigued and unsettled: "Meet me at the old lighthouse at midnight. Come alone."

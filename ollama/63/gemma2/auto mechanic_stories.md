@@ -1,0 +1,6 @@
+The air in Tony "Grease Monkey" Giordano's garage hung thick with the scent of motor oil and burnt rubber, punctuated by the occasional hiss of escaping steam from the radiator under his workbench.  Grime clung to every surface like a second skin, and fluorescent lights buzzed overhead, casting an anemic glow on the scattered tools and half-disassembled engines. It was a symphony of chaos, but Tony felt right at home amidst the controlled mayhem. 
+
+His hands, calloused and strong from years of wrestling with crankshafts and spark plugs, maneuvered deftly around a rusted carburetor, his brow furrowed in concentration. The clock above his workbench ticked relentlessly towards closing time, but Tony was far from finished.  A battered '67 Mustang, its once-proud cherry paint faded to a dull crimson, sat patiently on the lift, waiting for Tony's magic touch. He owed it to Maggie, her tearful pleas echoing in his ears: "Please, Tony, you gotta fix this. It was my dad's last gift to me." 
+
+
+Tony Giordano, his name whispered with respect and a hint of fear in the local mechanic community, wouldn't let her down.  He took pride in breathing life back into forgotten machines, giving them a second chance on the road. This Mustang, more than just another engine repair, held a story, a memory, and Tony was determined to see it roar back to life. 

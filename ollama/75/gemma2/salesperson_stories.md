@@ -1,0 +1,7 @@
+The midday sun beat down on Eleanor Pearl's shoulders, turning her silk blouse into a damp second skin. She tugged at the collar, hoping to catch a breath of air through the relentless humidity clinging to the Dallas asphalt.  
+
+The aroma of sizzling bacon and coffee wafted from the diner across the street, reminding Eleanor that she hadn't eaten since a stale bagel snatched from the conference room fridge that morning. A low growl rumbled in her stomach, but sales calls were more important than breakfast, even if it was past lunchtime. She adjusted the leather strap of her messenger bag, its weight reassuringly heavy with brochures and sample units.
+
+Eleanor Pearl, top salesperson at "SmartHomes," had a reputation for closing deals. Her charm was legendary, her knowledge encyclopedic, and her tenacity unmatched. But today, even Eleanor's trademark optimism felt frayed. This month's quota loomed like a monstrous shadow, and the only prospect left on her list was Mr. Bartholomew Finch – a notoriously gruff, tech-averse old man who lived in a rambling Victorian mansion on the outskirts of town. He was known to send salesmen away with nothing but a curt nod and a muttered warning about "getting off his lawn." 
+
+Eleanor took a deep breath, straightening her spine. She'd faced tougher challenges, she told herself. Mr. Finch wouldn't break her.  She was Eleanor Pearl, and she never gave up.

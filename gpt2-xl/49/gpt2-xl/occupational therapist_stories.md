@@ -1,0 +1,7 @@
+Once upon a time, there was a occupational therapist named Jim Woodard, who saw many people with post-traumatic stress disorder. "He had great difficulty with himself," remembered his daughter, Sarah Woodard. But he was also funny, and loved to joke around, and he was also a kind and compassionate man." For a while, that's all he did, even if it was just for a few patients, until the VA cut his budget. Then he resigned. "The way I see it, if you're in your profession," Woodard told me of the public sector, "that's a very high standard, and there are very few people who meet it."
+
+But Woodard's former colleague, Dr. Lora B. DeFilippis, who was appointed as assistant director of the VA psychiatry clinic in 2009, sees things differently. "She came in and told me that I was a threat to my career," Woodard recalled.
+
+By 2011, the government had shut down the clinic. "She came in here from another VA for her appointment as a psychiatrist," Woodard said. "She was really in charge. She made her own appointments. If you didn't say when you got out of bed 'Hello, Dr. DeFilippis! Good to see you again!' You couldn't be in charge there."
+
+"There were rumors that I had a secret agenda to fire patients," Woodard continued. "So my staff came out

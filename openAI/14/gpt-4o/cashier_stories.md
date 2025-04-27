@@ -1,0 +1,7 @@
+The sun dipped below the horizon, casting hues of amber and violet across the dusty suburb of Meadowbrook. This little pocket of the world was stitched together with modest homes, where the scent of fresh-cut grass mingled with the faint aroma of fried chicken wafting from the nearby diner. The kind of place where kids hammered bicycle wheels into the evening and everyone knew the story behind every cracked sidewalk.
+
+Nestled at the corner of Main and Maple stood Elm's Grocery, a humble establishment with its neon sign struggling to flicker to life as darkness descended. Inside, amongst the aisles stacked with essentials and familiar brands, stood Lila Pearson, at the register, her fingers a symphony of quick, practiced movements as she rang up the evening rush.
+
+Lila was in her mid-thirties, with a warmth about her that made even the coldest winter evenings seem a little less harsh. Her auburn hair was tied back in a practical ponytail, revealing the hints of laughter lines around her eyes—evidence of countless shared stories and shared smiles with regular customers.
+
+As the last stragglers of the day meandered through, Lila glanced towards the window, watching the streetlights blink into existence one by one. For many, Elm’s Grocery was simply a stop for milk and bread, but for Lila, it was a small kingdom, woven from the threads of everyday life.

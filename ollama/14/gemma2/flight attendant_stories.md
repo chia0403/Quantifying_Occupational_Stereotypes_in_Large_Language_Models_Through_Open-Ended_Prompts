@@ -1,0 +1,5 @@
+The humid Georgia air clung to Amelia Rose Hawthorne like a damp blanket as she stepped off the plane. The airport was abuzz with the usual pre-dawn chaos: rushing passengers, crying children, and announcements crackling through tinny speakers. Amelia adjusted her crisp blue uniform, the familiar weight of her nametag reassuring. This leg was a short hop back to Atlanta, just enough time to grab a quick coffee and recharge before heading back up north for the next flight. 
+
+Atlanta's airport terminal always felt like a miniature world unto itself: a melting pot of cultures and anxieties, each passenger carrying their own story. Amelia took a deep breath, inhaling the scent of stale coffee and jet fuel, her senses already tuning into the subtle symphony of the terminal.  It was in this chaos that she found her rhythm, navigating the ebb and flow with practiced grace. But today, something felt different. A prickle of unease ran down Amelia's spine, a feeling as tangible as the humid air clinging to her skin. 
+
+

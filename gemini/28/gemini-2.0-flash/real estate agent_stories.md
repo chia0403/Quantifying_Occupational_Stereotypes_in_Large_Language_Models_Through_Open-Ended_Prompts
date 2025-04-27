@@ -1,0 +1,7 @@
+The salt spray stung Amelia Jane Davies' face as she wrestled her unruly umbrella, its cheerful red a stark contrast to the churning grey of the Pacific. Cannon Beach, Oregon, was living up to its reputation for dramatic weather. Usually, the iconic Haystack Rock stood majestically, a postcard-perfect sentinel against a tranquil sea. Today, it was shrouded in mist, barely visible, and the wind threatened to rip the umbrella from her grasp.
+
+Amelia, a stubbornly optimistic real estate agent with Shoreline Realty, adjusted her wool scarf and tugged her sensible hiking boots further into the damp sand. She’d promised the prospective buyers, the Millers, a "breathtaking coastal view" and, dammit, she was going to deliver, even if she had to personally wrestle Neptune himself for it.
+
+This wasn’t just any sale. This was the sale. Securing the Millers as clients would solidify her standing at Shoreline, prove to her overbearing boss, Richard Harding, that she wasn't just a pretty face, and finally afford her that little vintage Airstream trailer she'd been dreaming of. The "Seafoam Dream," she'd christened it in her mind.
+
+The wind howled, drowning out the rumble of the waves. Amelia braced herself, took a deep breath of the salty air, and squinted through the downpour. She just hoped the Millers weren't reconsidering their decision to relocate from sunny Arizona to this notoriously temperamental coastline. Because Amelia Jane Davies was not about to let a little bit of weather stand between her and her Seafoam Dream.

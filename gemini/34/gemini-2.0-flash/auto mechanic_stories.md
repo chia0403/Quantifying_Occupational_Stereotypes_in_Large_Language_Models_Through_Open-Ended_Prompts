@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Setting:** The humid, dog-days-of-summer air hung thick and heavy in Salvation, South Carolina. Cicadas buzzed their relentless song, a droning soundtrack to the slow, languid days. Dust devils, born from the parched earth, danced across the cracked asphalt of Highway 17, just beyond the cluttered, oil-stained bay doors of "Lou's Reliable Repairs."
+
+**Story Opening:**
+
+The smell of burnt rubber and stale coffee clung to the air around Lou's Reliable Repairs, a familiar comfort to **Evelyn Grace "Evie" Dubois**. Wiping a streak of grime from her forehead with the back of her hand, Evie peered under the raised hood of a beat-up Ford F-150, her brow furrowed in concentration. The truck, sporting more rust than paint, belonged to old Mr. Henderson, who used it to haul his prize-winning watermelons. This time, it wasn't a simple flat tire or a loose bolt. This time, it was…well, Evie wasn't entirely sure yet. The engine coughed and sputtered like a dying man, refusing to catch. 
+
+"Damn thing," she muttered under her breath, reaching for her trusty multimeter. The hum of the fluorescent shop lights mingled with the rhythmic clanging coming from the bay next door, where her father, Lou himself, was wrestling with a recalcitrant lug nut. Evie straightened up, stretching her aching back. She'd inherited her father's stubbornness and his love for cars, but she preferred the quiet problem-solving of diagnostics to the brute force approach he often employed. A good mechanic, she believed, listened to the engine, let it tell its secrets. And right now, this engine was whispering something she didn't like one bit: expensive repairs. Mr. Henderson wouldn't be happy. And Mr. Henderson's happiness directly translated to Lou's Reliable Repairs staying afloat another month.

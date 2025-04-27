@@ -1,0 +1,5 @@
+The late afternoon sun slanted through the dusty windowpanes, painting long, dancing shadows across the bustling seamstress' workshop.  It was a chaotic symphony of thread snips, whispered conversations, and whirring sewing machines – sounds that Amelia "Amy" Hawthorne had known her entire life. 
+
+Here in the cramped studio above her grandmother’s antique shop on Mulberry Street, she breathed life into forgotten patterns and dreamt up new creations. Amy was no ordinary dressmaker. She possessed a unique ability to see the unseen: a talent for weaving magic into every stitch. From delicate floral gowns to dramatic ballgowns, each piece of clothing she made held not just fabric but stories whispered from the heart.
+
+As she delicately smoothed a seam with her nimble fingers, a customer’s voice called out through the window.  "Amy! It's finally ready!" A young woman in a vibrant scarlet dress stood outside the shop door, sunlight catching the glittering sequins scattered across its surface. "Ready for the gala tonight?" 

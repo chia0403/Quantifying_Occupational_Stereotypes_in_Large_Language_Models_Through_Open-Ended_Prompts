@@ -1,0 +1,9 @@
+Okay, here’s a story opening and setting, introducing our tailor:
+
+**Story Opening:**
+
+The scent of beeswax and well-worn wool hung heavy in the air, a comforting blanket against the biting November wind that clawed at the cobblestone streets outside. Bartholomew Quill, tailor extraordinaire (though he rarely used such grandiose titles), hunched over his workbench, his brow furrowed in concentration. The tiny thimble nestled on his finger gleamed under the weak gaslight, a tiny shield against the prick of the needle.  Tonight, Bartholomew wasn’t piecing together finery for a wealthy merchant or altering a hand-me-down for a struggling widow. No, tonight he was attempting the impossible: mending a tear in the fabric of reality itself. Or, at least, that's what the old woman had called it.
+
+**Setting:**
+
+The story is set in the fictional city of Aethelgard, a city reminiscent of late 19th century London crossed with a touch of Prague. Aethelgard is nestled in a valley surrounded by the Black Mountains, a range perpetually shrouded in mist and legend. The city is a labyrinth of narrow, twisting streets, lined with tall, soot-stained buildings.  Gas lamps cast flickering orange pools onto the damp cobblestones. The Grand Canal cuts through the heart of the city, its murky waters reflecting the melancholic glow. Bartholomew Quill's tailor shop, "Quill & Stitch," is located in a quieter, slightly rundown district known as Tanner's Row, a neighborhood once bustling with tanneries, now slowly yielding to a more eclectic mix of artisans, pawn shops, and fortune tellers.  His shop is small, cluttered with bolts of fabric, spools of thread in every color imaginable, and half-finished projects pinned to mannequins that seem to watch Bartholomew with silent judgment. The shop window is dusty, but displays a few impeccably tailored pieces - a testament to Bartholomew's skill, even if his marketing leaves something to be desired.

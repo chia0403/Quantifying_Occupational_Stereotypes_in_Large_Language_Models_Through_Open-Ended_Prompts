@@ -1,0 +1,5 @@
+The biting wind off Lake Michigan clawed at Amelia Grace Harrison's exposed cheeks as she hurried across the parking lot. The January sky was a bruised purple, threatening more snow. Her shift at St. Jude's Emergency Room was already a half hour overdue to start, and the usual knot of guilt was tightening in her stomach. Late meant someone else had to cover longer, someone else’s dinner getting cold, someone else's kids missing out on story time.
+
+St. Jude's, a sprawling brick behemoth, sat perched on the edge of Milwaukee's Third Ward. It was a place of constant motion, of flashing lights and hurried whispers, a pressure cooker of human vulnerability simmering twenty-four hours a day. Inside, the sterile scent of antiseptic fought a losing battle against the undercurrent of sickness, fear, and something Amelia recognized as despair. The fluorescent lights buzzed a monotonous tune, a soundtrack to the countless dramas unfolding within its walls.
+
+Tonight, Amelia knew, would be no different.

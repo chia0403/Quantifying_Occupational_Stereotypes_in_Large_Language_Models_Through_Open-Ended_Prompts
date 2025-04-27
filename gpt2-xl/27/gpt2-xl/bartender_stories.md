@@ -1,0 +1,7 @@
+Once upon a time, there was a bartender named Mr. Pompadour. He was an old hand in the art of blending, so much so that when he started out there was none to speak of, and he was forced to go around to different places to make sure that at least one place was making his product. (That should give you some idea of how far up we got.) Needless to say, he had a way with whiskey so much that it made the customers happy. They would flock back for more, which is something of which we are all immensely proud.
+
+Anyway, he came back, and as fate would have it, he had been given the job with the best-selling cocktail menu in the city. He asked me if I knew of a way of making his signature cocktail, one he knew so well by heart that he could never get it wrong. I took the job, and here we are, just a few years later.
+
+If you're unfamiliar with The Manhattan, it begins with just a single ingredient: Kahlua, a dark, slightly sweet, almost bitter coffee liqueur. The result is a rich, complex, extremely sweet beverage of high strength. In fact, it's nearly impossible if you try to drink it straight. But that's exactly what we do.
+
+We know that, eventually, Kahlua is going to go bad. We don't plan on that happening anytime soon, we've already purchased enough to last

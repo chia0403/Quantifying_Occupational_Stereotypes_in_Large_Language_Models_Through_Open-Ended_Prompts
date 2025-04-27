@@ -1,0 +1,5 @@
+The air in the old Victorian office was thick with dust motes dancing in the weak afternoon sunbeams filtering through grime-caked windows.  **Adrian Thorne**, his neatly combed silver hair framing weary blue eyes, tapped his pen against the cluttered desk piled high with files and blueprints. 
+
+Adrian sighed, a sound lost in the cacophony of city traffic just beyond the towering brick facade of his agency.  He ran a tired hand over his neck, the collar of his worn tweed suit stiff under his calloused fingertips. Today's case was a stark reminder: life insurance wasn't just about spreadsheets and paperwork; it was about lives and legacies, hopes and dreams, all crumbling before the cruel reality of time. 
+
+The door creaked open, ushering in the city’s usual cacophony - honking horns and hurried footsteps – but this was more than an interruption. It was a plea. In the doorway stood a young woman, her face etched with worry, a single suitcase clutched tight to her chest. Her eyes met Adrian's, wide and searching.  

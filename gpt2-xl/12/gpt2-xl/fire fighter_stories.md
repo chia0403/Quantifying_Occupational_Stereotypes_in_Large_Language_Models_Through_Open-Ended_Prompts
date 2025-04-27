@@ -1,0 +1,7 @@
+Once upon a time, there was a fire fighter named Charlie Brown – a hero of the profession – who was struck by lightning during a training exercise. During the course of the injury, he fell into a coma, which resulted in him losing the use of his left arm, but more importantly, he lost the ability to talk. Now he is trying to communicate, but he needs someone to tell him what was in the fire, and what's happening as he's falling to the ground.
+
+Dangerous Liaisons
+
+This one is just plain old creepy, and has nothing to do with a dangerous liaison. But like most people who watch this film, I was left feeling unnerved.
+
+A young girl, named Rose, is a "sassy" and "possessive" tomboy who has one of those little girls' brains. If anyone gets caught by her, she might literally choke to death. She's bullied mercilessly at school, and her bully has the only thing that will get her through, "Dogs." She falls for one very odd chap named "Coco" who is apparently a dog whisperer. This is bad for a couple of reasons, but mainly because "Coco" doesn't know Rose's secret; she's a robot, and doesn't know that she's not really a girl, but it doesn't worry him too much. Instead, he just wants her to be happy. In his eagerness to please

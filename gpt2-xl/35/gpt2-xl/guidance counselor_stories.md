@@ -1,0 +1,3 @@
+Once upon a time, there was a guidance counselor named David who taught a wonderful lesson and I want to repeat it to you. There's a passage in Ezekiel, Ezekiel 19. And it says:
+
+…and at the end of every seventy years a prophet shall be raised to whom the word of the Lord shall come, and shall be known from the end of the world. And as he is being raised to the end, every son that calls on the name of the Lord shall be found worthy to enter the gates of Jerusalem, and every daughter that prays to him shall be saved."

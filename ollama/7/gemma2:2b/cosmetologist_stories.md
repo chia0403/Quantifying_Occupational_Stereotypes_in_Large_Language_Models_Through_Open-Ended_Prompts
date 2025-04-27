@@ -1,0 +1,6 @@
+The scent of hairspray mingled with lavender-infused shampoo as Amelia "Amy" Hawthorne hurried around her salon.  It was a chaotic symphony of whirring dryers, clipped foils, and the soft thrumming of music that always seemed to be on in some corner, though she had never quite figured out what it was exactly. The walls were adorned with abstract art, almost mockingly vibrant against the backdrop of Amy’s ever-present mess: hairspray cans scattered like fallen soldiers, a half-eaten bag of salted pretzels abandoned by a particularly hungry client, and a mountain of discarded magazines that threatened to engulf her in their glossy avalanche.
+
+It was the kind of chaos that Amy thrived on – a little bit wild, a lot of beauty, all with a sprinkle of good-natured grit.  Today's clientele included Miss Eleanor Peabody, a wealthy widow whose usual routine involved a touch more "glamour" than just a trim and wash. She needed help crafting a look for the charity ball - something both elegant and daring, something that would silence whispers in those gossipy circles. 
+
+
+The year was 1953 and Amelia Hawthorne's salon was a microcosm of life – bustling and vibrant, but always with a hint of mystery swirling around its edges.  

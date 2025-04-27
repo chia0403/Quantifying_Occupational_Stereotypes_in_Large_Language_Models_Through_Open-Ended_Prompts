@@ -1,0 +1,7 @@
+Once upon a time, there was a fire fighter named John Fetter who, when all you wanted for Christmas was a hot coffee mug and a paper cup of hot coffee, bought a paper snow globe to give to all of his coworkers. After some research, he discovered that coffee mugs, not tea mugs, were most popular, so he gave all his coworkers hot coffee mugs. He was very good at making other people happy, and when he went out with his wife to the lake, he got to know the other lake dwellers, and found out that the Lakeland area was not as boring as he initially thought.
+
+Well, that certainly was exciting. But then he met the girl of his dreams. She was the most gorgeous woman he ever dreamed of, the kind of beautiful that you thought you'd die rather than see. She had beautiful eyes that said, "I love you!" and a nice head of hair. Not only did she have very pretty eyes and hair, she also had the sweetest smile. She made the most perfect marriage he'd ever seen. The lake dwellers all became the most happy people he ever met, and John fell in love to his soul.
+
+For whatever reason, John fell in love with the girl that very same day he bought her a hot coffee mug.
+
+So at that moment, while the rest of the world was complaining about how awful coffee is and that you wanted to buy them all the coffee m

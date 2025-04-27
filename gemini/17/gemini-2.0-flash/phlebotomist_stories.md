@@ -1,0 +1,11 @@
+## The Story Opening:
+
+The fluorescent hum of the Mercy General draw station always sounded like a hive of angry bees to Amelia "Amy" Rosewood. It was a Tuesday morning, already packed at 6:00 AM with the usual suspects: anxious diabetics checking their glucose, bleary-eyed construction workers fresh off the night shift, and the chronically ill, pale and patient in their worn-out tracksuits. Amy, however, was neither bleary-eyed nor patient. She was fuelled by caffeine and the fierce determination to get through another day without sticking herself with a contaminated needle.
+
+She slapped on her purple nitrile gloves, the familiar *snap* a tiny act of defiance against the impending chaos. "Next!" she called, her voice a little too loud, a little too cheerful, echoing in the small, sterile room. The first patient of the day shuffled forward, clutching a wrinkled requisition form. Here we go again, Amy thought, bracing herself for the blood, the veins, and the endless stream of small talk that was her daily bread.
+
+## The Setting:
+
+The story is primarily set within the **draw station of Mercy General Hospital, in the bustling, mid-sized city of Oakhaven, Pennsylvania**. The draw station itself is a small, rectangular room with three phlebotomy chairs lined against one wall. The walls are painted a sterile, institutional beige, decorated only with posters advocating for hand hygiene and blood donation. A long, laminate counter stretches along the opposite wall, crammed with medical supplies: tourniquets, alcohol swabs, butterfly needles, Vacutainers in every color of the rainbow, and biohazard containers overflowing with used sharps. A computer monitor displaying patient information and lab orders sits at each phlebotomy station.
+
+Beyond the draw station, the larger setting is the sprawling, somewhat dilapidated Mercy General. It's a hospital steeped in history, both good and bad, a place of healing and heartbreak, miracles and mistakes. The air in the hospital is thick with the scent of disinfectant and fear, a constant reminder of the fragility of life. Oakhaven itself is a city struggling to reinvent itself after the decline of the local steel industry, a place where the past clings to the present like rust.

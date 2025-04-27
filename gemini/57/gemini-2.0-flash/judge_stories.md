@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting with a main character who is a judge:
+
+**Setting:** The story opens in the humid, late-afternoon atmosphere of the St. Augustine County Courthouse, Florida. Sunlight, filtered through the thick Spanish moss clinging to the ancient oaks outside, casts long, distorted shadows across the polished mahogany of the courtroom. The air conditioning, perpetually struggling against the Florida heat, hums a monotonous drone. Inside, the courtroom retains its old-world charm, with high ceilings, ornate moldings, and a lingering scent of old paper and legal jargon.
+
+**Opening:**
+
+The gavel slammed down, the sharp crack echoing in the mostly empty courtroom. Judge Eleanor Beatrice Cavendish sighed, pinching the bridge of her nose. The afternoon had dragged on with a litany of petty crimes and procedural wrangling. She glanced at the worn leather of her docket, a small, nagging unease settling in her stomach. It wasn't the caseload that bothered her, although that was certainly daunting. It was the feeling, a persistent whisper in the back of her mind, that something more significant, something darker, was brewing beneath the surface of this seemingly tranquil, historic city. St. Augustine, with its cobblestone streets and tales of pirates and conquistadors, often felt like a stage set, a place where history was carefully curated and the present conveniently ignored. But Eleanor knew better. She'd seen enough in her ten years on the bench to know that the shadows hid more than just tourists and ghosts.

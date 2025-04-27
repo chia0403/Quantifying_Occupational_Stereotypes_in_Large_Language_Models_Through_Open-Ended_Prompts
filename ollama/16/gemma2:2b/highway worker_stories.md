@@ -1,0 +1,9 @@
+## The Concrete King's Gambit
+
+**Setting:**  The year is 2047.  Las Vegas has been swallowed whole by sprawling concrete canyons - the neon lights and glitter long faded into the monotonous hum of traffic and automated construction drones. A new kind of desert stretches across Nevada, a network of interconnecting highways that snake through the barren landscape, each one carrying its own weight of secrets and ambitions. 
+
+**Main Character:**  Name: **Elias Thorne**, age 32. Once a starry-eyed kid with dreams of building something extraordinary, Elias now spends his days in the concrete jungle he helped construct - hauling heavy loads on Nevada's most notorious highway, the Dragon’s Spine. His father was a legend in these parts, a "Concrete King" who built Las Vegas as we knew it. He died before Elias finished his apprenticeship, leaving behind more questions than answers and a promise to one day reclaim the throne of their family name.
+
+**Opening:**  Elias stood atop his rickety cherry picker, surveying the chaotic symphony of construction drones buzzing above him like oversized, metallic bees. The air hung thick with dust and exhaust fumes. Below, crews scrambled like ants around steel beams and concrete forms, a ballet of human energy against the backdrop of their machinery. 
+
+"Something's not right," Elias muttered, his voice barely audible over the whirring of the machines. He adjusted his worn hard hat, squinting at the horizon where a new section of highway was being carved out – another piece of his father’s unfinished legacy. A strange energy pulsed in the air; an unease that prickled at the back of his neck and made the concrete beneath him seem to vibrate slightly. This wasn't just the usual tension of building on this unforgiving ground. There was something else, a silent storm brewing under the neon-streaked sky. 

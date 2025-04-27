@@ -1,0 +1,7 @@
+In the heart of the quaint coastal town of Mariner's Bluff, where the sea met the horizon like a painter's gentle brushstroke, Amelia Hartley meticulously arranged her ledgers in the cozy corner office of Hartley & Associates. The office was nestled above a teashop and offered a panoramic view of the bustling harbor, a setting often remarked upon by her loyal clients who found comfort in discussing numbers while the scent of freshly brewed tea wafted through the open window.
+
+Amelia, with her chestnut hair tied neatly into a bun, had a reputation for precision that matched the rhythmic tide caressing the shoreline below. Her office, cluttered yet charming, was adorned with trinkets of her travels—a map from her trip to the fjords, a fossil from the cliffs of Dover, each piece a testament to a life lived through pages, both numeric and bound.
+
+It was dawn, and the soft golden light of the rising sun spilled into the room, scattering patterns across the well-worn oak desk. Amelia's mornings began with the same ritual; a cup of jasmine tea, the rustle of paper as she reopened the journals of local businesses, and the quiet ripple of satisfaction that came with balancing numbers just right, like the harmony of seashells in a gentle breeze.
+
+Today, however, the serenity would be but a prelude. For unbeknownst to Amelia, beneath the surface calm of both ocean and ledger, whispers of an enigma were beginning to stir—one that would call upon her meticulous skills not just in managing accounts, but in unraveling a mystery as deep and dark as the sea itself.

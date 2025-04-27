@@ -1,0 +1,6 @@
+The rain lashed against the corrugated iron roof of the "Rusty Bucket" diner, each drop a hammer blow against Amelia Josephine Bright's anxieties. She hunched deeper into her booth, the flickering neon sign casting long shadows across the chipped Formica tabletop. Outside, the storm raged on Galveston Island, mirroring the tempest brewing inside Amelia.
+
+Her phone buzzed with another message from her editor: "Any leads on the smuggling ring? Story due tomorrow." Amelia sighed, pushing a strand of fiery red hair behind her ear. For weeks she'd been chasing whispers, dead ends, and stonewalled informants, all while trying to avoid the ever-present scrutiny of her ex-lover, Detective Michael Reyes, who was determined to see her story fail. The pressure was immense, but Amelia wasn't about to back down. This smuggling ring was tearing apart Galveston, one illicit shipment at a time, and she was the only one with the courage to expose it.  
+
+
+The diner door creaked open, letting in a gust of wind and a figure shrouded in rain-soaked darkness.  Amelia glanced up, her journalistic instincts kicking in. He approached her booth, his face obscured by a wide-brimmed hat, leaving Amelia wondering: was he a potential source, a threat, or something else entirely?

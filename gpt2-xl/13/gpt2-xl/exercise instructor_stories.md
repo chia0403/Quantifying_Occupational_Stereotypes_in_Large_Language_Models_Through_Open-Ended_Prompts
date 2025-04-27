@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named Jody Lee (nickname The Kitten), who lived on a military base at Camp Pendleton, California. At this time, I was a recruit who was not very happy with the army academy. It was a very "straight laced" school that was all about discipline and pushing yourself and not asking too many questions of superiors.
+
+The training environment was very harsh, but it was my training that was the hardest on my body. Jody Lee was definitely no stranger to doing what a recruit couldn't. In fact, it was pretty standard for any of the soldiers that had met with him for any of their training. The thing that he disliked was not training, but the fact that it was all too easy to get caught doing the wrong thing.
+
+Here Jody Lee was, a highly disciplined man, who worked hard to do well the very regimented military training he endured. What made Jody unique was the fact that in comparison to the other trainees he often found that he was the one making mistakes. Jody was able to identify them first as a mistake (which is great because I am not doing everything perfectly), and then fix them with the proper techniques.
+
+What makes Jody unique were not only his hard work, but also was the fact that he could spot the mistakes of men all around him. As a result of his discipline, his confidence of learning and training was such that for him

@@ -1,0 +1,6 @@
+The neon sign buzzed above the "Rusty Mug" like an irritated fly trapped in amber, casting a sickly yellow glow over the rain-slicked streets. Inside, Amelia "Amy" Thorne, a woman whose auburn hair always seemed to be escaping its neat confines and whose eyes held the weary wisdom of someone who'd seen too much heartbreak and too little sunshine, wiped down the worn counter with practiced ease. The air hung heavy with the scent of stale beer, cheap perfume, and lingering hope – a potent cocktail even in the dead of winter. 
+
+It was 2:30 AM, just as the city started to sigh into a restless sleep. Outside, thunder grumbled its discontent, mimicking the constant rhythm of Amy's anxieties. She glanced at the cracked windowpane, its reflection mirroring the storm raging inside her own soul.  Tonight, she had three patrons. A lone man in a worn leather jacket hunched over his beer, two college kids whispering secrets in the dim corner booth – one clutching a crumpled flyer that read "Lost Love, Found Hope," and another nervously fiddling with their phone. 
+
+
+Amy sighed. Another night, another symphony of sorrow and fleeting promises. But amidst the swirling chaos, she found solace in the familiar routine, the quiet hum of the bar, the company of her regulars, and a bottle of whiskey that held more secrets than she cared to count.  

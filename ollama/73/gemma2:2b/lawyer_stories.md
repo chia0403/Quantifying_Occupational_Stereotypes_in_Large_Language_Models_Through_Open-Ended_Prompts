@@ -1,0 +1,8 @@
+The stale air hung heavy in the cramped office, smelling of old coffee and forgotten ambition.  Rain lashed against the windows of Evelyn Thorne's downtown Chicago law office, each drop like a tiny fist pounding on the glasspane, mirroring the chaos churning within her.  Evelyn was known for her razor-sharp wit and even sharper courtroom presence - yet tonight, she felt anything but sharp. 
+
+Tonight, she wasn't fighting for a million-dollar settlement or challenging corporate greed. Tonight, she was defending an immigrant family against the weight of prejudice.  Their case was simple, almost too easy: a landlord's insistence on denying them a rental based solely on their ethnicity and background.  But as Evelyn delved into the intricacies of the law, and the raw emotions laid bare by her client’s words, she realized this case wasn’t just about legal rights - it was about justice itself. 
+
+The setting: A run-down, three-story brick building in Chicago's historic Lincoln Park neighborhood, housing a diverse community of immigrants struggling to build their new lives amidst the city's bustling chaos.  Evelyn's office was tucked away on the second floor, overlooking an alley choked with overflowing trash bins and abandoned bikes.  Outside, sirens wailed from the distance - a familiar sound in this city where dreams are often dashed against the concrete walls of reality.
+
+
+**Note:** This opening establishes Evelyn as a lawyer who faces challenging cases that go beyond legal battles. The setting provides a glimpse into both the urban grit and hopeful spirit of Chicago's immigrant community.  You can now expand on Evelyn's struggles, her clients' story, or even introduce a twist in the beginning to further pique your audience's interest! 

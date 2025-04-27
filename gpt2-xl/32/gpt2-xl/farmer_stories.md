@@ -1,0 +1,7 @@
+Once upon a time, there was a farmer named Rumpelstiltskin, who went to live with a giantess named the Witch. Because he liked their company, the Witch had turned into a fish, and not quite human at that, but she lived as a little girl, and the two of them had a pretty decent time, as she had not been made of glass or metal or anything fancy like that, and she wasn't all evil. She was just a girl, and Rumpelstiltskin was happy with her. He even agreed to marry her. He had a ring with two diamonds on it, the size of peas, and she had a ring with two emeralds on it. A nice thing to have, he thought. I need a wife now.
+
+Some years later he was called away, and for a time his friends couldn't find him. One night they heard him singing to himself again in a swamp on the other side of the lake, and they went there to look for some answers. A long while went by, and all of a sudden there came flying through the air a little girl with a big white hat and a yellow ribbon. She was singing something very beautiful; she had a stringed instrument or something, and it was so sweet it made all the creatures in the swamp smile. "Isn't it wonderful?" the old woman said.
+
+Rumpelstiltskin didn't answer.
+
+The little girl

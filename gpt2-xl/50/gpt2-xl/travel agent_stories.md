@@ -1,0 +1,7 @@
+Once upon a time, there was a travel agent named Thomas. This kind of thing just went on… until all of the sudden, he started having the same problem with his customers; that they wanted to hire him to go on holiday with them, but didn't want him to have a job. They said things like, 'I'll pick you up at the airport on Friday and we go to the beach'." Thomas thought things over, and had this epiphany: "So I thought, 'Ah, that's it - I've had this problem since I was a child, but now that I've got a job, I should just quit my job!'"
+
+But wait - he can't do that. He must be earning a lot more than it took him to have to give up your job to travel. Can he pay himself? As they say, it's all about your numbers. How much money (in sterling) was he actually making in his job? And what percentage did he take home?
+
+Now, to figure this out, you need to work with the concept of the "gross salary". This means the total amount you earned, divided by your total hours worked each week. You can get this from your W2 form, as long as you have the correct numbers: Gross salary = gross salary – TAX + TAX BILLS.
+
+But if you've ever worked for a company and had to report your gross salary to your employers, you

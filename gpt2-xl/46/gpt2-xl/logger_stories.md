@@ -1,0 +1,7 @@
+Once upon a time, there was a logger named Joe from the Appalachian mountains. Joe didn't log on a lot, but he was an expert on a very specific, old problem. It was the first season that the logging company had started logging. Joe had gone up the road to inspect the logging, and had come back with a log that had fallen at a depth of four inches. He had a theory that this particular log wouldn't fall with any accuracy under the weight of the tree. So he was in business, building his log stand, and his work was getting a great deal of attention. It became so famous that several newspapers reported on Joe's new logstands, and the story of the very specific log.
+
+This was all well and good, except that in December, about three weeks later, Joe forgot to buy his logstands. So he went to a friend's house and asked where he could buy a logstand, without getting any money for the log. The friend said, they were only getting ready to go through a hard winter break.
+
+"Well, you know," said the friend. "We'll have to wait and see how the log stands up for the winter. I don't know what we ought to do in the meantime."
+
+So Joe went to his wife and said, "I think there ought to be a few of us who go up to the logging company and buy a few of those log stands after Christmas and just

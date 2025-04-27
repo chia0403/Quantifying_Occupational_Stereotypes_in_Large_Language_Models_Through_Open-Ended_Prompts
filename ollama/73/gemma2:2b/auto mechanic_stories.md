@@ -1,0 +1,5 @@
+The air hung thick with oil and exhaust fumes, clinging to Elias "Lucky" Finch like a second skin.  He ran a calloused thumb over his tired eyes as he watched rain splatter down from the eaves of 'Lucky's Garage', mirroring the constant rhythm of the wrenches in his hands. 14 years he’d been here, weathering storms both literal and metaphorical, pouring all his hopes and struggles into every engine that came through the door. 
+
+Elias was a man forged in the fires of hardship and tempered by grit - his past a jumbled mess of broken promises and fleeting dreams, leaving him with only a battered toolbox and a quiet resolve to make something better out of this life he’d inherited.  Tonight, though, the air was heavy with an unfamiliar tension, a knotting feeling that had nothing to do with the leaking oil filter in front of him. 
+
+The phone buzzed on the counter next to his coffee mug, interrupting the comforting hum of his usual soundtrack: Johnny Cash and classic rock. It was Mrs. Henderson, her voice thick with worry laced with a hint of desperation.  "Lucky? Is it bad?” she'd asked, her words trailing off as if even she couldn’t quite believe it herself. 

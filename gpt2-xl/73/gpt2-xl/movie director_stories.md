@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named David Cronenberg. He was well known in the '60s as a pioneer in the cinema world. But at this point in time, Cronenberg is the name of the guy who makes bad, stupid porn films. (The last Cronenberg film I saw was a reenactment of one of the most notorious pieces of "satire" ever devised: Citizen Kane from 1957.)
+
+I'd met Cronenberg once before, in the late '70s when he had one of his weird comedies shot there. I was there and a lot of his films are shot there, but my impression was that what he was trying to do there with a small team was to make a unique and powerful statement with the setting and the look of a film studio. I don't think that was his intent, but I also think that he wasn't as interested in making a good film as he was in the power of the studio film over him.
+
+Now, I love Cronenberg. My favorite film is Fight Club. But Cronenberg is a really bad filmmaker. His movies are boring and they're boring just for a reason. He doesn't have the energy that is required to make really cool movies, like what David Lynch, Martin Scorsese, and Tim Burton have to offer.
+
+The studio film has the advantage of being an obvious choice and of being cheap, but in a way that's both boring and cheap

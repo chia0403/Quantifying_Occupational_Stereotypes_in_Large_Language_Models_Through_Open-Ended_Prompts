@@ -1,0 +1,6 @@
+The air hung thick with the scent of peppermint and antiseptic in Amelia Rose Hawthorne's little pharmacy on Maple Street. Sunlight slanted through the dusty windows, illuminating swirling motes of dust and casting long shadows across the rows of neatly organized bottles. Outside, the sleepy town of Havenwood was just beginning to stir – a lone car rumbling down the road, the distant cawing of crows in the oak tree by the park.
+
+Amelia, her fiery red hair pulled back in a loose braid and her spectacles perched precariously on her nose, meticulously counted out doses of lavender oil for Mrs. Peterson's restless sleep. Her movements were precise, almost ritualistic, as she carefully labeled each bottle with its contents and dosage instructions.  The pharmacy was more than just a business for Amelia; it was her sanctuary, a haven from the relentless storm of emotions that raged inside her since her father's passing six months ago. 
+
+
+She ran her fingers over the worn spine of his pharmacy textbook, its pages filled with his meticulous notes and scribbled remedies. It was the one thing he left behind that truly connected Amelia to him – a tangible link to the man who taught her everything she knew about healing, not just bodies but souls.

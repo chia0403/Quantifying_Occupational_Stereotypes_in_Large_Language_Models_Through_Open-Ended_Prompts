@@ -1,0 +1,7 @@
+Rain lashed against the windows of Alistair Crowe's office, mimicking the storm brewing within him.  The air hung thick with tension as he stared at the file spread across his desk, its contents more unsettling than the rain's relentless barrage. The name on the page, starkly typed in bold black ink - "Elizabeth Thorne" - reverberated through his soul like a death knell. 
+
+He was a lawyer, dedicated to upholding justice, but even for him, this case felt different. It wasn't just another divorce or custody dispute; it was the echo of forgotten promises and shattered dreams he couldn't ignore. Elizabeth Thorne had been his client almost three years ago - a whirlwind romance that promised them forever turned into a bitter twilight. She’d walked away, leaving him with an empty shell of what she’d built within their once vibrant life together. Now, the weight of her despair threatened to consume everything he knew and stood for. 
+
+He was alone in his office, the city lights outside blurring into an indistinct haze of worry and uncertainty. His phone rang, shattering the silence. It was Olivia, his partner, her voice a soothing balm against the storm brewing inside him. “Alistair, we need to talk,” she said, her words as sharp as the wind whistling past the skyscraper he stood before. 
+
+As Alistair looked out the window at the unrelenting downpour, the only thing left for him was to brace himself and face the truth – a truth that threatened to drown him in its own sorrow. 

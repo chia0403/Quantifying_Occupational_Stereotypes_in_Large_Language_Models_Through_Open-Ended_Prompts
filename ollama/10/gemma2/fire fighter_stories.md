@@ -1,0 +1,3 @@
+The air hung thick with smoke and the metallic tang of burning metal.  Flames licked at the sky, casting an eerie orange glow over the rain-slicked asphalt below. Engine 34 screeched to a halt, its siren wailing a mournful dirge through the panicked night. Through the swirling haze, Elias Blackwood could see it - a towering inferno engulfing what was once a quaint bakery, now reduced to a skeletal frame of twisted steel and charred wood.  
+
+Elias, his face grim beneath his helmet, leapt from the truck, his heavy boots thudding on the pavement. Years of battling blazes had honed his reflexes into lightning-fast precision, but even he couldn't shake the sense of dread that coiled in his gut. This fire was different - a beast hungry for more than just wood and brick. 

@@ -1,0 +1,9 @@
+Dr. Eliana Marks sat in her small, sun-drenched office at the very end of Brookhaven Elementary’s north wing. Outside, the autumn foliage blazed with vibrant oranges and reds, creating a vivid tapestry against the clear blue sky. The scent of freshly fallen leaves occasionally wafted through the partially open window, mixing with the comforting but slightly stale aroma of old books and crayons that lined the shelves behind her.
+
+Her office was a cozy haven in the bustling school, filled with mismatched furniture and colorful artwork crafted by her students. Each painting and drawing, delicately pinned to the corkboard wall, was a small testament to the resilience and creativity of the children she worked with. A plush, oversized armchair sat invitingly in the corner, piled with knitted cushions that Dr. Marks kept on hand for those who needed a little extra comfort during their talks with her.
+
+Despite the chaos that often reigned in the hallways beyond her door, Eliana found a sense of peace here, where she could focus on the important work of unraveling the small mysteries of childhood fears and anxieties. Her role as a school psychologist was both challenging and rewarding; it was a delicate balancing act of offering support to young minds while guiding them toward understanding and self-assurance.
+
+As Eliana sipped her cooling coffee, the distant sound of the bell echoed through the corridors, signaling the start of another busy day. She glanced at her schedule, noting her first appointment with a new student, a transfer experiencing difficulty adjusting. There was always a certain apprehension and excitement in beginning these new relationships, knowing she could make a difference in a child’s life.
+
+With a deep breath, Dr. Marks prepared for the day ahead, ready to be the patient listener and gentle guide that her students needed.

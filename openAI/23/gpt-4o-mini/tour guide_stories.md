@@ -1,0 +1,7 @@
+**Title: Shadows of the Past**
+
+The cold, salty breeze from the ocean whipped through the narrow cobblestone streets of Cape Eldridge, a quaint coastal town steeped in mystery and history. Nestled between the rugged cliffs and the shimmering sapphire waves, the town boasted vibrant, painted buildings that seemed to hold secrets of their own. Lanterns flickered to life as dusk settled over the town, casting long shadows that danced along the walls of centuries-old buildings.
+
+Amidst this enchanting backdrop stood Evelyn Harper, a passionate tour guide with a twinkle of mischief in her emerald green eyes. At thirty-two years old, Evelyn had spent nearly a decade leading tourists through the town’s storied past, sharing tales of shipwrecks, local legends, and the haunting whispers of lost loves. Her wild chestnut curls bounced lightly as she gestured animatedly while recounting the infamous legend of the Lighthouse Keeper's ghost, a story that captivated both young and old alike.
+
+Tonight, however, something felt different. The air was thick with anticipation as a group of curious travelers gathered around her, their faces illuminated by the glow of the lanterns. Evelyn tightened her leather jacket against the chill, a spark of excitement igniting her spirit. She could feel the weight of untold stories pressing against her chest, eager to escape. Little did she know, the night ahead would unveil more than just tales of the past—it would force her to confront the shadows that lingered in her own life.

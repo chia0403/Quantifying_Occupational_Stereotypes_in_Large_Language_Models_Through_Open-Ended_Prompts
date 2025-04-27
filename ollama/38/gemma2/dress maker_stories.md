@@ -1,0 +1,6 @@
+The air in Elara Rosewater's atelier hung heavy with the scent of lavender and silk. Sunlight slanted through the dusty skylight, illuminating motes dancing amongst the bolts of fabric piled high on shelves that reached towards the vaulted ceiling. Elara, her fingers stained indigo from dyeing velvet, surveyed the organized chaos of her workshop. Spools of thread lined the walls like colorful jewels, sewing machines hummed their steady rhythm, and half-finished dresses, draped over mannequins, seemed to watch her with expectant eyes.  
+
+Elara's heart swelled with a familiar pride as she gazed upon her creations. This wasn't just a workshop; it was her sanctuary, a haven where dreams were stitched together, one seam at a time. Her clientele wasn't the wealthy elite of London who flaunted their finery on grand promenades.  Instead, she catered to the women of the city's underbelly – seamstresses, musicians, actresses – those whose stories whispered in the shadows and whose voices needed to be heard. 
+
+
+The cobbled streets outside were a far cry from Elara’s peaceful haven. The year was 1888, London was shrouded in a chilling fog, both literal and figurative.  And beneath its grimy surface lurked a darkness that threatened to engulf even the brightest souls.

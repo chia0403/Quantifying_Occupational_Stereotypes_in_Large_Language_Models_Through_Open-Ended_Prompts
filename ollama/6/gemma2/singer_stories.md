@@ -1,0 +1,5 @@
+The neon pulse of the Dive Bar throbbed against Amelia "Amy" Nightingale's skin, vibrating through her worn leather boots. She could feel the bass drum in her chest, mimicking the nervous tremor that had taken root there hours ago.  Her name, emblazoned in glittering letters across the chipped velvet curtain behind the makeshift stage, seemed to mock her. *Amelia Nightingale.* How grand it sounded compared to the grimy reality of this dive, the stale beer smell clinging to everything, and the audience - a motley crew of bikers, regulars nursing their sorrows, and a few curious onlookers peering from the dimly lit corners. 
+
+Amy adjusted the worn microphone, its silver finish dulled by years of use. The spotlight felt like a hot fingertip on her exposed skin, highlighting every imperfection. Her heart hammered against her ribs, a frantic bird trapped in a cage. This was it. Tonight, she would finally sing for them. Not for open mics, not for the echoing emptiness of her apartment.  Tonight, she sang for real. For the Dive Bar, for this crowd, for herself. 
+
+

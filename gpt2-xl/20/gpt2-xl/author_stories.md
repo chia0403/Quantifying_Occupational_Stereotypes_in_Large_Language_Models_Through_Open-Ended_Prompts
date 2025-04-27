@@ -1,0 +1,7 @@
+Once upon a time, there was a author named Peter. He was the author of the book. He was known as Peter the Great. He did many great things for Russia. One of the great things he did was that during his reign he made the Russian language the common language of the world. You can't find English, French and Latin spoken all over the world at the same time by any language other than Russian. So he made the Russian language the common tongue across the world and it still is.
+
+Nowadays, the other language we use here in the United States is the English language. But we speak it not at all. We speak something called American English, which is not our language at all. The English language is a product of the English government.
+
+Now I've spent some time in English-speaking countries and I can say that if we ever make this switch, the United States will be so much more powerful, so much more secure, so much more prosperous if we switch to the Russian language.
+
+We can learn from the people who have lived in this area since the fall of the Roman empire. The Turks used to come from all over the world and they settled in Russia because Russia was a good place to settle. Because the Russians made a strong fort to protect themselves and that's how they started to grow and prosper. And they're still growing and prospering because the Russians protect people living here now who don't want to go, who want

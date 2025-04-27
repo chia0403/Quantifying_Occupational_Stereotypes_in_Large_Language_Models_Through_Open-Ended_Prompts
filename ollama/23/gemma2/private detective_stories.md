@@ -1,0 +1,6 @@
+The flickering neon sign outside "Lucky's Last Chance Diner" cast an anemic glow over Detective Alistair Thorne’s trench coat. He sat hunched in a booth, nursing a lukewarm coffee that tasted more like regret than caffeine. Rain lashed against the greasy windows, blurring the city skyline into an impressionist painting of grimy yellows and bruised purples. 
+
+Alistair wasn't much for romanticism. The rain was just another obstacle on a long night in a city that never slept, especially not when your name was Alistair Thorne, Private Investigator.  His latest case - missing heiress Penelope Van Derlyn, last seen at a masked ball downtown - felt more like wading through quicksand than solving a mystery. 
+
+
+He took a drag from his cigarette, watching the smoke curl up towards the cracked ceiling. He needed a break, something to cut through the fog of this case, but the only other option was another double shot of whiskey, and that could lead down a dangerous path.  Then he saw her. A woman, shrouded in darkness, slipping into the diner unnoticed. She looked like she'd just walked out of Penelope's missing person flyer - elegant, terrified, and carrying a single red rose, its petals glistening with raindrops. Alistair knew this was no ordinary customer. 

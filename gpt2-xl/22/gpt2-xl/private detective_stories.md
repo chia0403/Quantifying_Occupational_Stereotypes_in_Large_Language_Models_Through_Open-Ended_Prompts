@@ -1,0 +1,7 @@
+Once upon a time, there was a private detective named Steve Rogers. Steve was a veteran of World War II and spent the peace time between wars trying to be the best lawyer he could. For years he worked as an attorney for government and local law enforcement, helping to uncover corruption and uncover the truth. Steve Rogers was the hero he grew up admiring, the hero that would "keep New York and the world safe from any threats, no matter how great."
+
+However, as his career went on, Steve did not have the time to just hang out with some other attorney, so in the middle of a major case he came in to investigate. He began to question why he was being asked to take part in a case when everything in his life had always been organized by the Avengers. It got to the point where Steve thought he had a responsibility to take the case, but the Avengers didn't think he was in a position to take his job at the organization.
+
+On their first day on the job, a former Avenger named Nick Fury handed Steve a stack of papers. He told Steve that the people on top wanted him to investigate Blackheart, who had apparently orchestrated the killing of several innocent civilians. After he'd opened the papers, Steve found an agenda, a list called a "Sneak and Peek."
+
+This list outlined exactly how Blackheart had carried out his killings on the innocents for years, and how he had done so without drawing a single

@@ -1,0 +1,7 @@
+Once upon a time, there was a trucker named Jules Cliffe who didn't like the way his employer – a truck factory called the Transcontinental — was treating him, so he decided to do something about it.
+
+Cliffe was an American, a naturalized citizen with a driver's license. He had spent much of his youth driving an oil tanker, a job that was so physically demanding (and treacherous) that he had to get a license in order to drive it. But because he was so young, and as a driver, so inexperienced, his truck – called the "Blue Bird" – wasn't even allowed to drive.
+
+To pay his truck driver's license fee, Cliffe tried to drive himself. But the truck was so unreliable, he couldn't make it around town without an operator (whom he called "Jules") on board. He tried to work things out with Transcontinental, but they couldn't do much.
+
+In 1927, Cliffe packed up, moved to Seattle, and became a citizen, becoming the first person in the US to be able to drive as a resident and on the road for free. It proved to be quite an adventure: Cliffe traveled from New York to California, from Seattle to Los Angeles. He lived in the US, working on "trains and trucks" and eventually as a maintenance mechanic during the Great Depression. He lived in California, and later moved to Florida. Eventually he got a job

@@ -1,0 +1,5 @@
+The stale scent of disinfectant hung thick in the air, mingling with the faint aroma of antiseptic wipes and something else – desperation.  Amelia Rose Carter, her forehead creased with worry, gripped the cool metal of the IV stand as she watched Mr. Henderson's chest rise and fall with shallow breaths. The rhythmic beep of the heart monitor was a metronome counting down seconds that felt like hours. 
+
+The fluorescent lights of the intensive care unit hummed overhead, casting a sterile glow on the rows of beds, each occupied by a patient clinging to life. A symphony of coughs, beeps, and murmured prayers filled the room, a soundtrack to the constant battle against mortality.  Amelia, with her years of experience and steely nerves, usually found comfort in the familiar chaos. But tonight, the weight of responsibility pressed down on her like a physical burden. Mr. Henderson, a kindly old man who always had a smile for everyone, was slipping away, and Amelia knew she couldn't save him. 
+
+

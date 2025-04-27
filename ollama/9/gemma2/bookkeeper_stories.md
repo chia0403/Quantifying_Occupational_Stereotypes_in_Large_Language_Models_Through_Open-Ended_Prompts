@@ -1,0 +1,5 @@
+The air in Evelyn Beatrice Winthrop's office hummed with the whirring of her ancient adding machine, its rhythmic clicks and clacks a lullaby against the backdrop of the bustling city outside.  Rain lashed against the windowpanes, blurring the neon signs advertising everything from "Mama Rose's Authentic Italian" to "Bobbie Sue's Boot Scootin' Saloon". This was Little Tokyo, Los Angeles - a vibrant tapestry of cultures sewn together by asphalt and ambition. 
+
+Evelyn, a woman whose sharp grey eyes held the wisdom of countless ledger entries and whose perpetually pinched expression suggested a disdain for anything less than perfect balance, tapped her pencil against the worn oak desk. Her latest client, Mr. Fujiwara, had deposited a stack of receipts thicker than a phone book, all meticulously scribbled in Japanese characters that made no sense to Evelyn's untrained eye.  She sighed, realizing this would be one long night, a symphony of calculation played out under the flickering glow of her desk lamp. 
+
+

@@ -1,0 +1,3 @@
+The air in Bayou City was thick with humidity and the scent of decaying magnolia blossoms. It clung to Detective Amelia "Amy" Beaumont like a second skin as she stood on the rickety porch of the abandoned shack. The Louisiana sun beat down mercilessly, reflecting off the rusted tin roof and sending shimmering waves across the murky water that lapped at the edge of the ramshackle structure. 
+
+The call had been vague: "Something ain't right," a trembling voice had whispered before the line went dead. Now, Amy stared into the gloom inside the shack, her badge glinting in the sunlight. She wasn't sure what awaited her, but the uneasy silence and the buzzing of unseen insects hinted at a darkness that ran deeper than the bayou itself.  

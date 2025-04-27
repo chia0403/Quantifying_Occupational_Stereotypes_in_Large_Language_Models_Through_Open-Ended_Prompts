@@ -1,0 +1,7 @@
+The fluorescent lights hummed overhead, casting a sterile, pale glow over the waiting room.  A lone magazine lay open on a dusty table beside a potted fern that seemed to be wilting under the harsh glare. Amelia Katherine Brighton, better known as Amy to her colleagues and patients, adjusted the tiny blue band around Mrs. Henderson's arm, its smooth plastic digging slightly into the frail skin. The woman flinched but didn't speak, her gaze fixed on a point somewhere beyond Amy's shoulder. 
+
+The clinic, tucked away in a nondescript building on the edge of town, was rarely bustling. Usually, it was just Amy and Dr. Ramirez, shuffling between examining rooms and dispensing prescriptions with weary smiles. Today, however, a nervous energy thrummed through the air. A young couple sat huddled together in the corner, whispering anxiously, their faces pale under the harsh light. A middle-aged woman paced restlessly by the window, her hands clasped tightly behind her back. 
+
+Amy took a deep breath, trying to ignore the prickle of unease that had settled on her skin. She had been drawing blood for ten years, witnessed countless anxieties and triumphs, but today felt different. There was a tension in the air, a shared fear that hung heavy like the scent of antiseptic.  As she brought the needle closer to Mrs. Henderson's vein, Amy knew whatever awaited them wasn't just another routine blood draw. 
+
+

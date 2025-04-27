@@ -1,0 +1,3 @@
+Once upon a time, there was a paralegal named Wendy, who graduated from law school and got her real job. Wendy had to move to the big bad metropolitan area for the big bad metropolitan area with a lot of paralegals. With the help of her partner, she was able to work as a paralegal before anyone would admit she was actually qualified. And she's been successful!
+
+I hope you enjoyed reading this as much as I enjoyed writing it.

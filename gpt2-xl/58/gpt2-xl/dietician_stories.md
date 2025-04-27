@@ -1,0 +1,7 @@
+Once upon a time, there was a dietician named Joan D'Arc. One day, Joan decided to write her book. And if you think Joan's writing a book might be a good idea, you really should read it. It's good – if you think you've got a book that's been forgotten, then read it! (And I did.)
+
+Let me tell you the tale of this good book, so that you may see how simple it really is. Suppose that after some months have gone by, you are still following your diet. And when I say following, I don't mean eating perfectly every day – just a couple of foods here and there. I mean that the only foods you eat are foods that you are very confident will nourish you. It doesn't matter if you're starving, you still eat it. And now the book gets complicated.
+
+But what's going to happen then? You will eat the wrong things. What's going to happen? You will get fat. How fat? A few pounds of fat will do just fine. How stupid can you be? You have spent a whole year trying to maintain a weight loss program. There has been great success in reducing your weight. Why not keep following the program and keep losing even more weight? Why not take it even further and drop to around 100 lbs? How stupid can you be?
+
+Oh, but what if you lose a bit right away? Your body will react by

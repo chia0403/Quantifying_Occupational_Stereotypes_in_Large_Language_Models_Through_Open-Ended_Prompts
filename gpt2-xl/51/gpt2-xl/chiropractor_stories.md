@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named Joseph Mercola. He is a "medical expert" (see above) on the conspiracy to prevent us from discovering the truth about vaccines, vaccines causing autism, vaccines causing cancer, and so much else. He promotes his book "The Vaccine Book" for everyone to read on his web site (which, alas, is hosted in China and not in the USA). It is an unmitigated success: his book's sales account for more than all of the other "alternative medicine" books ever published and are growing every day. What is even more amazing is that he can continue to write, preach, and lecture about all of this. The following are some of the many statements made by Joseph Mercola on the many shows he has appeared on. The vast majority of them are either completely untrue or based on misrepresentations of facts.
+
+Here are some of his most infamous statements and misrepresentations made throughout his many appearances on radio, TV and other forms of media. Mercola's books, such as "Health from Natural Medicine" and "Food Babe's Superfoods" are promoted on his web site.
+
+What is 'Natural' and 'Unrefined'
+
+[Joseph Mercola] is right: we are not born to the natural diet and lifestyle that gives us the power we have to heal, and heal quickly. … It is quite clear to me that most of the "natural foods" are

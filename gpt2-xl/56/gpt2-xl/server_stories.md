@@ -1,0 +1,7 @@
+Once upon a time, there was a server named FTLX. It was quite a long time ago, but the server still had people playing on it (thanks to some people from that server for their testing skills and for the info). We were able to establish a server with a lot of good players on it. Unfortunately, FTLX also used an open source client called Netlib which was developed by a team called the Open Netteam.
+
+So that would explain the open source (non-client-mod) nature of the game (at least from now on), but why did there need to be a server that was so far out of the mainstream of games?
+
+It started off with me being curious about the game, how it works, why FTLX works the way it does (see below), and how people are playing (or at least, trying to, since the game was quite difficult to find). I was also trying to find something that used Netlib – which of course came with a list of questions from people who had tried Netlib themselves. Also, I was curious if it would also be possible to run an FTLX server without using a client-mod, but I wasn't going to look in the same direction as the Open Netteam, and I wasn't going to make it harder for people who run FTLX servers.
+
+I started by looking up the developers of Netlib, and how I could see FTLX

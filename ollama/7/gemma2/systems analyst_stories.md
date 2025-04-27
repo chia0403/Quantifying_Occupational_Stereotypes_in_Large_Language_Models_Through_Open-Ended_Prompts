@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia "Amy" Thorne's head, casting a sickly yellow pallor over the rows of identical beige desks in the cramped server room. A faint scent of stale coffee and desperation hung in the air. It was 3:47 am, and Amy, a systems analyst at GlobalTech Inc., was hunched over her keyboard, battling an unruly code monster that threatened to bring down their entire e-commerce platform on Black Friday – the busiest shopping day of the year.
+
+Sweat beaded on her forehead as she frantically scrolled through lines of code, searching for the errant command that had thrown everything into chaos. The ticking clock seemed to mock her every failed attempt, each second a potential disaster waiting to happen.  Outside the server room's steel door, the bustling city hummed with oblivious life, unaware of the digital storm brewing within. Amy, however, felt the weight of millions of eager shoppers on her shoulders – their hopes for holiday bargains hanging precariously in the balance.
+
+

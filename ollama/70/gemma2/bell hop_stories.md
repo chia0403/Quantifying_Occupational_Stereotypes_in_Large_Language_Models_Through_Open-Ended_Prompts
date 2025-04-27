@@ -1,0 +1,6 @@
+The humid Miami air clung to Elias Bartholomew like a second skin as he navigated the grand lobby of the Oceanside Hotel. Palm fronds swayed rhythmically outside the glass doors, casting shifting patterns of light and shadow across the polished marble floor. The scent of saltwater and chlorine mingled with the sweet aroma of pastries from the cafe tucked in a corner, creating an olfactory symphony that was quintessentially Miami.  
+
+Elias, with his neatly pressed uniform and ever-present smile, knew this lobby like the back of his hand. He'd memorized the usual breakfast orders for the regulars, the preferred brand of shampoo for Mrs. Davenport on the third floor, and even the silent language shared by the hotel staff – a discreet nod here, a pointed look there – that ensured the smooth operation of the grand machine. Tonight, however, Elias felt something was different. A prickle of unease danced beneath his skin, as if the familiar symphony had been subtly altered, playing a discordant note. 
+
+
+As he wheeled a luggage cart towards the elevator, a flash of crimson caught his eye. A scarlet envelope lay discarded by the grand staircase, seemingly abandoned. It wasn't unusual for guests to leave things behind, but something about this envelope – its bold color, its pristine condition against the worn marble – felt significant.  

@@ -1,0 +1,3 @@
+Once upon a time, there was a artist named Bob Dylan. And if it wasn't for Bob Dylan and his records, we would not have been on the radio. And I can't believe Bob Dylan would be on the radio now, because the records he was making then, they weren't very good. So his success — and I think that's what's so fascinating about him — they were so strange and so different from the music of the times that the music had to get more and more outrageous and outrageous just to keep people's attention."
+
+Listen to the rest of the interview here.

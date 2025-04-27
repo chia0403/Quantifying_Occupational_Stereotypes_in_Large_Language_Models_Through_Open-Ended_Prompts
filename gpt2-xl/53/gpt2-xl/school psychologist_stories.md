@@ -1,0 +1,3 @@
+Once upon a time, there was a school psychologist named Jack A. Connell who suggested to students that, just as it's easy to see that a child's eyes can look down, it's equally easy to see that a child's eyes can look up. That's why he recommended that teachers remind children that we are all going to die someday, at the end of our lives. It's an important point to make, and we all know that kids don't like to think about the real world.
+
+So, I'm suggesting that we need to make our students pay attention more closely to what's going on around them. That's what I think it means to make them "in the moment" so that when they have the opportunity to experience something completely unexpected, they can do it with a mind open and fully engaged in the experience.

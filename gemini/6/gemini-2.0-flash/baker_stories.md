@@ -1,0 +1,7 @@
+## Story Opening:
+
+The scent of burnt sugar and bitter almonds hung heavy in the air, a fragrant harbinger of the disastrous morning Amelia Beatrice Bell had been having. She coughed, waving a tea towel at the cloud billowing from the oven. "Blast it all!" she exclaimed, her voice tight with frustration. This was supposed to be the week her reputation as a baker truly blossomed. The annual Harvest Fair was just days away, and Amelia had poured her heart and soul (and quite a lot of expensive organic butter) into perfecting her signature fig and honey tarts. Now, thanks to a faulty thermostat and a moment of distracted daydreaming, her first batch was a blackened, sticky mess.
+
+## Setting:
+
+Amelia's bakery, "The Honeycomb Heart," was nestled in the quaint, seaside village of Seabrook Cove. The building itself was a charmingly ramshackle affair, painted a cheerful sunshine yellow with a robin's egg blue door. Inside, the walls were lined with shelves overflowing with jars of homemade preserves, bags of flour, and antique cake stands. A long, wooden counter separated the baking area from the cozy customer space, where mismatched chairs and tables beckoned visitors to linger over steaming mugs of coffee and freshly baked goods. Through the large front window, Amelia could see the sparkling blue waters of the bay and the colorful fishing boats bobbing gently at their moorings. Despite the chaos in the kitchen, the setting, on a good day, was a beacon of warmth and deliciousness in the heart of Seabrook Cove.

@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named George Washington Carver. That was back when George Carver had a job as a public school teacher from the day they were hired until the day he retired ten years later. In the time since, Carver has been on a personal crusade to fix the city's schools, and is not one to suffer fools. (Well, I suppose they are fools to everyone else, but for Carver that's beside the point.) Carver spends his nights looking out his windows from his desk in the precinct house trying to see who has done well in the new school year which begins on May 1st at 8 AM and ends ten days later on May 14th. Carver and his little gang have been on this crusade since the beginning—and they haven't yet found anything.
+
+"There," Carver says, pointing to a small block of flats behind an abandoned bank. He points to a young man sitting on that block, his head hanging. Carver starts looking around.
+
+"And that was here —- just one time," Carver says, pointing off in the distance. "Maybe two times. That might be it…. The problem is these are homes that we can't get on the right type of property, or they're simply too nice, and the families are moving out of the city every few years anyway, so when they do move out, we run into problems."
+
+And that's just what I

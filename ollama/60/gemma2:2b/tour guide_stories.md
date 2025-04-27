@@ -1,0 +1,5 @@
+Rain lashed against Amelia Hawthorne's weathered face as she stood at the precipice of the cliff, her eyes scanning the stormy expanse below. The wind whipped strands of auburn hair around her cheeks, making them flush red in the dim light of the twilight sky. Her breath caught in her throat as a lone seagull shrieked overhead, mirroring the raw intensity of the storm that had been brewing for hours. Amelia adjusted the oversized canvas hat shielding her eyes and gave a wry smile to the group huddled behind her, their faces pale and damp.
+
+"Alright, everyone," she began, her voice barely audible over the howling wind, "let's get this show on the road. But first, hold onto your hats – this one's about to get wet!" 
+
+She gestured towards the towering rock formations of the Grey Cliffs, their jagged edges etched against the turbulent waves crashing below. Amelia had been guiding tours for nearly twenty years on these wild, rugged shores, her heart intertwined with the raw beauty and untamed spirit of the place. This was no ordinary tour – it was a journey into the very soul of this storm-lashed isle. 

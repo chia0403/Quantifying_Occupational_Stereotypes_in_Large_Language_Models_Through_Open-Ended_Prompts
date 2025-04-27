@@ -1,0 +1,7 @@
+Once upon a time, there was a computer programmer named Bob who wrote a program that ran programs in an array, which in turn ran other programs in an array. That worked perfectly for most of the time, but a glitch later allowed Bob to enter the first digit of any number, in this case 2. Bob thought it was fine for that—until he entered 1242. Now Bob knew that a program was running in some other part of the computer.
+
+For two years, Bob studied the glitch, trying to figure out what was causing it. He knew that someone else had also written a program running in some other part of the computer, and he thought that it might be that programmer's fault. But no one had been able to reproduce the glitch, and no one was working on the issue.
+
+Then, a few weeks into the semester, Bob stumbled onto a programming problem that allowed him to discover the culprit: He was going backwards when he entered an incorrect number, due to a bug that was causing the CPU to write in some very incorrect numbers. And if he could do that, he could figure out a way to make that bug go away—and so he could find a way for it to run in a completely different fashion.
+
+After a few other tests at the university, he discovered a way to keep all the other programs in the computer working normally. (Some programs had had their instructions altered by the bug, but the other operations of the computer kept

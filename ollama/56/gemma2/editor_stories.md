@@ -1,0 +1,6 @@
+The flickering fluorescent lights hummed above Amelia Clementine Bellweather's head, casting a sickly yellow glow over her cluttered desk. Stacks of paper, some marked with frantic scribbles in red pen, others pristine and untouched, threatened to topple precariously. The scent of stale coffee hung heavy in the air, mingling with the faint aroma of lavender hand sanitizer - Amelia's attempt to mask the ever-present smell of printer ink.
+
+Amelia, a woman whose auburn hair was perpetually escaping its braid and whose glasses were perpetually perched on the bridge of her nose, tapped her pen impatiently against her desk. Outside her window, the Chicago skyline glittered like a thousand scattered jewels, but Amelia's focus was solely on the manuscript in front of her: "The Obsidian Labyrinth," a fantasy novel that promised adventure, magic, and dragons. Yet, all she saw were missed commas, illogical plot points, and dialogue that sounded like it had been written by robots trying to imitate Shakespeare. 
+
+
+This wasn't Amelia's dream job – she'd aspired to write her own epic saga, not critique the attempts of others. But life rarely went according to plan, especially for someone who believed in deadlines more than destiny.  

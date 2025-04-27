@@ -1,0 +1,3 @@
+The rain hammered against the corrugated iron roof of the shack, a rhythmic din that threatened to drown out the hum of the aging generator struggling to keep the lights on. Inside, bathed in the flickering, yellow glow of a bare bulb, Elara Vasquez, her brow furrowed in concentration, furiously hammered away at the keyboard of her battered laptop. The air was thick with the smell of ozone, damp earth, and burnt coffee.
+
+Elara wasn’t in some trendy Silicon Valley office, surrounded by beanbag chairs and kombucha on tap. She was miles from civilization, huddled in a dilapidated, half-collapsed structure nestled deep within the Amazon rainforest. This wasn't a retreat or a digital detox. This was work. And survival.

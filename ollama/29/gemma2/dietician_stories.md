@@ -1,0 +1,5 @@
+The aroma of freshly ground cinnamon hung heavy in the air, battling with the metallic tang of disinfectant that seemed to permeate every corner of Dr. Amelia Grace's office. Sunlight slanted through the blinds, casting dusty squares across the worn linoleum floor.  It was early morning, just past seven, and the world outside was still waking up. Here, inside her cramped third-floor practice in downtown Chicago, Amelia was already knee-deep in spreadsheets, charting clients' progress, and strategizing meal plans. 
+
+A faint chime announced an incoming message on her computer – a new client request. Amelia glanced at the screen, a flicker of apprehension crossing her face. This one had "complex dietary needs" listed under their initial query.  Amelia knew that could mean anything from allergies to restrictive religious practices, but sometimes it meant something more – a deeper struggle with food and body image.
+
+Taking a deep breath, Amelia leaned back in her chair, the faded floral pattern of the upholstery pressing uncomfortably against her spine. Time to face another day, she thought.  Perhaps today, just perhaps, she could make a difference. 

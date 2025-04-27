@@ -1,0 +1,6 @@
+The late afternoon sun cast long shadows across the polished oak floors of Blackwood Manor, turning the dust motes dancing in the air into shimmering gold. Eleanor Beatrice Thistlewick, her hands calloused from years of scrubbing and polishing, surveyed the scene with a critical eye. 
+
+Blackwood Manor was a grand old house, its once vibrant paintwork now faded and peeling like sunburnt skin. Its cavernous rooms echoed with the silence of generations past, punctuated only by the occasional creak of settling floorboards and the rustle of Eleanor's cleaning rag. She had worked here for twenty years, ever since her mother had taken the position after leaving their cramped tenement flat in town. Blackwood Manor was all she knew, its secrets as familiar to her as the lines on her own hands. 
+
+
+Today, however, felt different. A strange tension hung in the air, a palpable shift that prickled at Eleanor's skin. Mrs. Blackwood, usually bustling about with her entourage of servants, was nowhere to be seen. The air smelled faintly of lavender and something else, something sharp and metallic that Eleanor couldn't quite place. She paused, listening intently, but the only sound was the steady tick-tock of the grandfather clock in the hall. Something was amiss. 

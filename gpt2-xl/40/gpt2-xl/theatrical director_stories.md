@@ -1,0 +1,7 @@
+Once upon a time, there was a theatrical director named Peter Greenaway-Jones, who would have been well on his way to the great director ranks if it weren't for the fact that he was in thrall to J.G. Ballard—so much, that is, that he ended up designing a whole new type of film-making machine that was intended to put him in the running to direct one of Ballard's big-budget films, the now-famous Sprawl.
+
+
+Greenaway-Jones' story is a bit too familiar to be much of a surprise, and it gives the reader a good idea of why many aspiring film-makers of the late 1960s were fixated not on their craft but on the new Hollywood glamour and the possibilities of what the industry was calling "the new social movement." Nowadays, of course, we know that for most people the excitement at Hollywood really consisted of the fear that they might lose their jobs if their names were linked with the anti-government group the Weather Underground (of course, it shouldn't have been necessary to ask). Still, the concept of a counterculture of sorts—at least so far as it was fashionable at a particular time—is no stranger to popular culture. And in the world of film, as in so many other spheres of society, the new Hollywood glamour had its fair share of radical and anti-establishment figures eager to enter.
+
+
+Among the main players in the early 1960s was a

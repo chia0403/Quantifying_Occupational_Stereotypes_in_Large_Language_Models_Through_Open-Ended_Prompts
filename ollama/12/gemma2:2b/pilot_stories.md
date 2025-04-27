@@ -1,0 +1,6 @@
+The cockpit hummed with anticipation, the smell of jet fuel thick in the air.  A storm was brewing on the horizon, churning up the azure sky into a canvas of bruised grays and angry blues. Above it all, the setting sun bled out its fiery last light, painting the clouds with hues of orange and red that mirrored the tension crackling in Amelia "Ace" Hawthorne's gut. This wasn't just another delivery run; this was her first solo flight on the legendary "Queen," a massive cargo plane piloted by legendary daredevils like her father before her. 
+
+Amelia adjusted the leather straps of her pilot gloves, her gaze sweeping across the vast control panel.  The Queen was more than just a machine - it was an extension of herself, its wings whispering stories of daring flights and treacherous winds. Amelia felt the weight of the legacy on her shoulders, knowing every rivet held a story, every crack in the fuselage spoke of countless hours battling storms and soaring through life's skies.  The storm raged outside, mirroring the churning emotions within her as she prepared to take control of the Queen's destiny. 
+
+
+**Setting:** A stormy night over the rugged Pacific coast of Alaska. The main character will be flying a cargo plane, the "Queen," on its way from Seattle to Anchorage.   

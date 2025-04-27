@@ -1,0 +1,5 @@
+The scent of jasmine tea hung heavy in the air, mingling with the faint aroma of old parchment and leather-bound guidebooks. Amelia Beatrice Thistlewick adjusted her spectacles, her gaze sweeping over the cluttered desk before her. A stack of brochures lay precariously on the edge, threatening to tumble onto the worn Persian rug beneath.  Her travel agency, "Amelia's Adventures," nestled in a cobbled side street of Edinburgh, was a haven for dreamers and adventurers alike. 
+
+Amelia, with her auburn hair pulled back in a neat bun and a perpetually furrowed brow, had an air of knowing about faraway lands that most tourists couldn't even fathom.  She could conjure up visions of bustling Marrakech souks, serene Himalayan temples, or the desolate beauty of the Atacama Desert just by tracing her finger across a map. But today, Amelia wasn't dreaming. Today, she faced a dilemma:  her most eccentric client, Professor Alistair Finchley, had requested an itinerary for a trip to the Amazon rainforest – with one peculiar stipulation: he absolutely must encounter a real, live jaguar. 
+
+

@@ -1,0 +1,9 @@
+Okay, here’s a story opening and setting centered around a coach named... let’s call him David Alistair Finch:
+
+**Opening:**
+
+The whistle shrieked, cutting through the already fraying edges of David Alistair Finch’s patience. He gripped the metal rim of the bleachers, the chill steel biting into his gloved hands. Steam puffed from his mouth with each frustrated exhale. The final buzzer of practice had sounded ten minutes ago, but most of the boys – his boys, the Fighting Falcons – were still engaged in a haphazard, energy-fueled scrum around the net, resembling less a practiced hockey team and more a pack of adolescent wolves fighting over scraps. David closed his eyes, fighting the urge to bellow something utterly unproductive. This was it. This was the last chance. This was, quite possibly, the defining moment of his coaching career, and if he couldn't get these kids to listen, to *believe*, everything he’d worked for would crumble.
+
+**Setting:**
+
+The setting is the small, unassuming town of Havenwood, nestled in the snowy foothills of the Adirondack Mountains. Havenwood is a place of quiet charm and fierce local pride, where hockey isn't just a sport, it's practically a religion. The Havenwood Ice Arena, affectionately known as "The Barn" by the locals, is the heart of this passion. It’s an aging structure, smelling perpetually of damp ice, old wood, and the faint, lingering scent of hockey sweat. The bleachers are hard and unforgiving, the lighting flickers intermittently, and the Zamboni sounds like a dying beast, but it's *their* barn. Outside, snow-laden pines crowd the parking lot, and the ever-present bite of winter permeates the air. Havenwood High School, visible through the arena's frost-streaked windows, is a brick building that has stood for over a hundred years, its bell tower a constant reminder of tradition and community.

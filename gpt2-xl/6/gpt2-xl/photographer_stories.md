@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Mark Henson who did what most of us do today-- he snapped some images of his daughter, Amanda. It is possible that he did so knowing how she'd grown up with him, although some believe he was simply inspired by her. There may have been a few happy occasions in every step of her life, but there were also many disappointments. This is not to say that the father did not love his daughter, but there was no love there in their early years.
+
+One day, Amanda was walking to the woods to find water for her thirsty mom when she was intercepted by a handsome, middle aged, bearded man. Her life changed forever. She saw his kindness and kindness changed her. She felt the happiness of his attention and felt his eyes on her.
+
+The next evening, she took him home. She would never know what happened next, because, as we know, he was killed in a car crash some years later. Amanda never saw him again; she lived a lonely life, until finally an acquaintance, a man named Steve, took her in. It was then that she began to wonder if their lives might have been easier had she never met him.
+
+Amanda was devastated when she discovered that there was no one who would take the camera away from her. The one thing she would ask for, she would say, was access to the photographs of her life with Mark Henson. But the idea

@@ -1,0 +1,11 @@
+Title: *The Last Shift*
+
+Setting: The sprawling, dimly lit hallways of Carter Industries, a once-bustling tech company now teetering on the brink of collapse. Overhead fluorescents flicker intermittently, casting ghostly shadows on the walls lined with outdated posters of innovation. Dust motes dance in the stale air, swirling around forgotten conference rooms filled with hulking machinery long since silenced. The clock on the wall sluggishly ticks toward midnight, echoing like a heartbeat in the silence.
+
+Story Opening: 
+
+In the far corner of the seventh floor, where the scent of old coffee mingled with the musty odor of neglect, Leonard Augustus Finch bent down to sweep up the shards of broken glass littering the floor. He was a janitor, a title he wore like a threadbare coat, well aware of how little respect it commanded in a world obsessed with success and status. But Leonard had learned to find purpose in the forgotten corners of the corporate labyrinth. Today, however, there was an unsettling stillness hanging in the air—more than the usual quietude of after-hours cleaning. 
+
+Clad in a faded blue jumpsuit, Leonard’s wiry frame moved with a deliberate grace, the cap he always wore tilted low over his brow. At fifty-six, with a salt-and-pepper beard and piercing green eyes, he had seen a thousand dawns pass through the tinted windows of Carter Industries, yet this particular night felt different. A sense of unease prickled at the back of his neck as he gathered the shards, his mind racing with thoughts of his daughter, Lily, who was counting on him to make ends meet.
+
+With a soft sigh, Leonard cast a wary glance down the empty hallway, its desolation now echoing the shadows of his own life. He had long surrendered dreams of grandeur, but tonight, as he flicked off the dustpan into the trash, he couldn't shake the feeling that something was about to change—not just in the building, but in his own life as well. Little did he know that lurking in the depths of those underappreciated corporate walls, an opportunity awaited, one that would challenge everything he thought he knew about himself and his place in the world.

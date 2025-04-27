@@ -1,0 +1,6 @@
+The stale air hung heavy in Amelia Rose Davies' apartment studio, thick with the scent of acrylic paint and desperation. Sunlight streamed through the grimy windows, illuminating dust motes swirling like tiny galaxies in the afternoon haze. Papers littered her work desk – crumpled sketches, faded Pantone swatches, and a half-eaten bag of stale pretzels that had become a haven for rogue crumbs. 
+
+Amelia, with messy blonde hair escaping its ponytail and dark circles under her eyes, stared at the blank screen of her computer. Her latest project, designing a rebrand for a local bakery called "Crumbs & Chaos," was due tomorrow morning, but her creative well felt as dry as the leftover pretzels. The concept she had initially envisioned – whimsical illustrations of anthropomorphic pastries and chaotic flour fights – now seemed childish and uninspired. She needed a spark, something to ignite her imagination.
+
+
+She sighed, pushing away from her desk with a groan. Stepping out onto her tiny balcony, Amelia took a deep breath of the city air, hoping that a change of scenery might bring a flicker of inspiration.  Below, the bustling streets of Chicago hummed with life – a stark contrast to the stillness of her own creative drought. 

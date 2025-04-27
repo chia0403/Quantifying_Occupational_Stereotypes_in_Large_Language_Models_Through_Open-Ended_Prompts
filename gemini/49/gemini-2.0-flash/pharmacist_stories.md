@@ -1,0 +1,7 @@
+The bell above the door of "The Crooked Kettle Pharmacy" jingled a tinny song, barely audible over the rhythmic whir of the ceiling fan. Rain lashed against the large window, distorting the already whimsical display of pastel-colored cough drops and hand-painted pill organizers.
+
+It was a Tuesday in late October in Havenwood, Vermont, a town known more for its maple syrup and covered bridges than its medical breakthroughs. The kind of place where everyone knew your name and probably also knew your dosage of Metamucil.
+
+Behind the counter, carefully arranging a new shipment of elderberry gummies, stood **Eleanor Beatrice Albright**. Eleanor, with her perpetually windswept auburn hair, perpetually stained lab coat, and perpetually gentle eyes, was the heart and soul of Havenwood. She wasn't just a pharmacist; she was a confidante, a listener, a community cornerstone, and occasionally, a dispenser of exceptionally good advice, often paired with a free sample of her homemade lavender hand cream.
+
+Eleanor sighed, pushing a stray strand of hair behind her ear. The rain always brought a rush of customers – sniffly noses, throbbing headaches, and an almost palpable air of melancholy. Today felt different, though. The air crackled with something else, something more than just the oppressive Vermont weather. Eleanor couldn’t put her finger on it, but a prickle of unease ran down her spine.

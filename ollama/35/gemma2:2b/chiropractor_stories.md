@@ -1,0 +1,5 @@
+The salty air whipped Amelia's dark hair into her face as she surveyed the bustling coastal town of Seabrook. The sun, a fiery orb sinking towards the horizon, cast long shadows across the quaint cottages lining the harbor. "Seabrook - charming in its own way," she mused to herself, adjusting her worn leather satchel slung over her shoulder. 
+
+Amelia Thorne, owner and operator of "Thorne's Back Relief", had been practicing chiropractor for fifteen years now, but nothing seemed as invigorating as watching the sun sink into the Atlantic. The rhythmic crashing of waves, the salty tang in the air, and the quiet hum of life - it all felt like a balm to her soul. But as she unlocked the door to her clinic, the usual peace was shattered by the sound of a distressed woman crying out. 
+
+"He's gone!"  she shrieked, her voice laced with fear. "And I don't know what to do." The woman's face, etched with worry and despair, mirrored the tumultuous mood of the sea itself. A small dog pressed against her legs, whimpering softly. 

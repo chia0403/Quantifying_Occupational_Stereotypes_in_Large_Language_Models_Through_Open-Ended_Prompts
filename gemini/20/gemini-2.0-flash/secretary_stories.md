@@ -1,0 +1,7 @@
+## Story Opening:
+
+The incessant drone of the fluorescent lights vibrated through Beatrice "Bea" Applebaum's skull, a fitting soundtrack to her life. 8:57 AM. Three minutes to official commencement of the soul-crushing monotony that was her Tuesday. She meticulously straightened the stack of manila folders on her desk, the rhythmic tap-tap-tap of the edge against the polished wood a small act of rebellion against the looming inevitability. Today, like every day, Bea would field calls for Mr. Abernathy, re-order sticky notes, and transcribe meeting minutes that detailed the minutiae of paperclip procurement with an almost religious fervor. But today, something felt different. A subtle hum beneath the usual humdrum, like a misplaced note in an otherwise predictable symphony. A feeling that maybe, just maybe, this would be the day Beatrice Applebaum finally did something extraordinary.
+
+## Setting:
+
+The "Setting" of Abernathy & Sons (Office Supplies Division) was a monument to beige. Beige walls, beige carpet, beige desks, beige thoughts. Located on the 7th floor of the vaguely Brutalist Abernathy Building in downtown Chicago, the office felt perpetually stuck in the 1980s, a time capsule of outdated technology and even more outdated attitudes. Sunlight, a rare commodity, struggled to penetrate the grimy windows. The air, thick with the scent of stale coffee and impending deadlines, hung heavy with the unspoken anxieties of its inhabitants. In short, it was the perfect place for Beatrice Applebaum to dream of escape.

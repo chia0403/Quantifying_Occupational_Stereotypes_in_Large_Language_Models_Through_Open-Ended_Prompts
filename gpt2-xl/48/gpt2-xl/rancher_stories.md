@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named Bill Gates who thought that he could use the power of computers to help poor farmers across the world through his philanthropic organization, The Bill & Melinda Gates Foundation. By the late nineties, however, the Gates Foundations found they were having a problem: Where to house their poor farmers? If they wanted to find a suitable place, they simply sent their interns around the world. But for most of these interns, these countries were far away.
+
+It soon became apparent that sending people all over the world to help those of the poorest societies didn't help much. It was far more efficient to spend their time in the US, where they could interact with the most affluent people or use their intern experience to help them work at Microsoft. Gates realized that if he could get these countries to use his Internet, he could use their cheap labor.
+
+He called it the Internet Relay Chat (IRC) system. It was basically a text program where every user had a special nickname and could join any other user's IRC channel. Once you were in chat, you could ask for help, ask for assistance, ask for personal information, and more. It quickly became popular and became hugely successful.
+
+Of all the internet chat rooms, IRC is the one most people associate with Microsoft. We can't take this for granted because IRC's history is one of the most mysterious things about it. In this section, we'll discuss how

@@ -1,0 +1,7 @@
+Once upon a time, there was a construction worker named Jack. Jack's father had died, and he had a lot to live for. And, the thing was, he could have chosen any other job, be it construction or even a more lucrative career as a veterinarian. But Jack, because he had loved his family and his father was his hero, he decided to become a contractor. He went through college, earned a degree in construction and turned his passion into a career earning him tens of thousands of dollars a year. At night, he was a construction worker, he was happy, and, just like anything, when it came to love, he chose the right one.
+
+
+Jack's life went on for twenty-two years, he grew old, and then all of a sudden, he died. An explosion in the ground destroyed the family home and all of its contents. One of his sons, who was a doctor, was called to take care of the dead dad, but when he arrived, he found the place completely razed, the father a skeleton in a chair. The doctor rushed to the scene, and as he tried to treat his father, he saw something he never expected to see. Jack, he told everyone, was alive with energy, and was able to walk.
+
+
+The doctor rushed back home to find his son. His Dad was now walking around, fully healed, and fully capable of being his old self. Jack started the new life and became a

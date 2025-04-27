@@ -1,0 +1,6 @@
+The air hung thick with the cloying scent of mildew and stale regret as Bartholomew "Barty" Higgins navigated the cramped crawl space beneath Mrs. Peabody's kitchen sink.  His headlamp cast a pale circle in the suffocating darkness, illuminating dust motes swirling like miniature galaxies. The damp earth floor squelched under his worn boots, each step a symphony of groans and sighs from the century-old pipes groaning under years of neglect.
+
+Barty grimaced, wiping sweat from his brow with a grimy rag. This wasn't his first rodeo in Mrs. Peabody's basement, but it was definitely amongst the worst.  His calloused hands tightened around the wrench as he surveyed the tangle of rusted copper pipes, a plumbing nightmare that would rival any Medusa's hair in its complexity.
+
+
+The house itself stood on the outskirts of Oakhaven, a sleepy town clinging to the edge of the sprawling forest that bordered the state. Once grand Victorian mansions now stood hunched and faded, whispering tales of bygone wealth and forgotten grandeur.  Barty's tools clinked rhythmically against the pipes, a counterpoint to the rhythmic drip, drip, drip echoing through the basement, a metronome keeping time with his mounting frustration. 

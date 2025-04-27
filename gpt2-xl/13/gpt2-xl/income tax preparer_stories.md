@@ -1,0 +1,7 @@
+Once upon a time, there was a income tax preparer named J. Edgar Hoover. He was one of the most infamous tax evaders in the history of the United States. In the late and early 20th century, when he was director, the FBI was so afraid that income tax evaders were using "scam kits" to help them avoid paying what they owed, the bureau created its own tax fraud division -- with Hoover as its first chief in charge.
+
+In order to accomplish this, the FBI had to have the ability to gather information by tapping wire devices around the world. But as the number of wire taps grew exponentially, so did the number of people who were caught in the net of FBI surveillance. During the Hoover years, there were nearly 20 million such wiretaps and nearly 20,000 convictions. But the FBI's crimes against US citizens were not limited to wire tapping, and it wasn't just American citizens who got caught up in the FBI's net of surveillance. In fact, in the early 1980s, the FBI used surveillance to spy on the British Ambassador to the United States, John C. Gretton, as well.
+
+With this kind of spying, the law would say, the FBI violated the Fourth Amendment to the constitution, which prohibits unreasonable searches and seizures.
+
+And even without wiretapping, the government has a pretty strong argument against the FBI's use of technology to target US citizens. It's no secret that the FBI has a

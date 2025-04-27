@@ -1,0 +1,8 @@
+The stale air in Dr. Eleanor Vance's office smelled faintly of jasmine incense and old books, a scent she found oddly comforting amidst the grim reality of her profession. Rain lashed against the windowpanes, mirroring the turmoil brewing within her as she stared at the file before her. 
+
+Eleanor was a forensic psychologist, specializing in criminal profiling and jury consultation. Her days were usually filled with analyzing evidence, interviewing suspects, and deciphering the twisted minds of those who committed unspeakable acts. But this case was different. This one felt personal. The suspect, a man named Gabriel Thorne, had been accused of orchestrating a meticulously planned murder - a wealthy socialite found brutally stabbed in her own mansion.  The details, brutal and cold-blooded, sent shivers down Eleanor's spine. Gabriel, however, claimed innocence, insisting he was merely a pawn in a larger game.
+
+Eleanor knew there was more to this case than met the eye. The intricate details of the crime scene screamed of calculated malice, but Gabriel's demeanor, his almost theatrical display of remorse, left her with lingering doubts.  As she delved deeper into Gabriel's past, unravelling a tapestry of secrets and lies, Eleanor found herself teetering on the precipice of obsession. This wasn't just about solving a case anymore; it was about finding truth in a world saturated with deception. 
+
+
+The setting:  A small coastal town shrouded in perpetual mist and whispered rumors. The town is affluent, yet holds an undercurrent of darkness beneath its polished veneer. Eleanor’s office sits above a quaint antique bookstore, overlooking the bustling harbor where fishing boats bob against the tide.

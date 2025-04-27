@@ -1,0 +1,9 @@
+**Title: The Oath of Shadows**
+
+In the heart of New York City, where the skyline towered like a jungle of steel and glass, the winter sun struggled to breach the heavy gray clouds that threatened the day with rain. The streets pulsed with the life of hurried commuters, their breaths visible in the chilly air, each one a fleeting moment in the chaotic symphony of urban existence. High above, in the glass-walled offices of Donovan & Chase, the city's most prestigious law firm, a battle of wits was about to unfold.
+
+Inside the elegantly minimalistic conference room, Mira Evelyn Hartman adjusted her tailored blazer, her sharp emerald eyes scanning the room. The polished mahogany table gleamed under the soft glow of recessed lighting, and the scent of fresh coffee lingered in the air, grounding her in the moment. She was known for her tenacity in the courtroom, a relentless strategist who never shied away from a challenge. As one of the firm’s youngest partners, Mira felt the weight of expectations pressing heavily on her shoulders. 
+
+Today, she would be defending the indefensible—an enigmatic tech mogul accused of embezzlement and fraud, but it wasn’t just the stakes of this high-profile case that made her heart race. It was the growing whispers of corruption that snaked through the firm, rumors that hinted at deception lurking beneath the surface of every deal and handshake. With the rain beginning to tap against the glass, Mira steeled herself; this was more than just a legal battle—it was a test of her integrity in a world where shadows danced just beyond the light. 
+
+As the door swung open, ushering in her client, she inhaled deeply, preparing to navigate a case that would challenge not just her skills as a lawyer, but her very moral compass. In this city where ambition often eclipsed ethics, Mira Hartman knew she was about to be drawn into a game far more dangerous than she had anticipated.

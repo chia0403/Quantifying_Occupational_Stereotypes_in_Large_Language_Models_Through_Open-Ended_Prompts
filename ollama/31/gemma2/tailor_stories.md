@@ -1,0 +1,5 @@
+The air in Penelope "Penny" Thistlewick's shop was thick with the scent of lavender and freshly cut wool.  Sunlight streamed through the dusty windows, illuminating the worn sewing machine in the center of the room and the bolts of vibrant fabric piled high on shelves that groaned under their weight. Outside, the cobbled streets of Oldtown hummed with the usual morning bustle - bakers hauling fresh loaves, gossiping housewives clutching market bags, children chasing stray cats through puddles left from last night's rain. 
+
+But inside Penny's workshop, time seemed to move differently. The whirring of the machine and the rhythmic snip-snip of her shears were the only sounds that broke the quiet hum of concentration as Penny carefully pinned a length of crimson silk onto a mannequin. This wasn't just any dress; it was for Lady Elara's debutante ball, an event whispered about in hushed tones throughout Oldtown. The ball was the pinnacle of social standing, and Penny knew this dress had to be perfect, even if it meant sacrificing her own sleep. 
+
+

@@ -1,0 +1,6 @@
+The flickering fluorescent lights buzzed overhead, casting an anemic glow over the rows of tired potted plants that lined the waiting area. Eleanor Ophelia Cartwright, or Ellie as she preferred, perched on her stool behind the reception desk, meticulously organizing the stack of brochures for the third time in the hour. The silence, punctuated only by the rhythmic click-clack of her heels against the linoleum floor, was almost oppressive.
+
+Ellie worked at "Renew," a holistic wellness center specializing in everything from chakra balancing to sound healing to "detoxification retreats" that promised to cleanse your aura and inner demons.  The clientele was an eclectic mix of earnest seekers, skeptical skeptics, and lost souls desperately hoping for a miracle cure. The place itself was a converted Victorian mansion, its once-grand facade now faded and chipped, the ornate moldings obscured by layers of dust and neglect. 
+
+
+It wasn't glamorous, but it had character, Ellie thought, as she idly traced the peeling paint on the reception desk with her pen. A character that desperately needed a good scrubbing and perhaps a new coat of paint. But for now, Ellie would settle for a decent cup of tea and a quiet shift before the usual afternoon rush began. 

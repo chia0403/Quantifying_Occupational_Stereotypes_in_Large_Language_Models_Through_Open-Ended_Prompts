@@ -1,0 +1,3 @@
+Once upon a time, there was a receptionist named Lillian Smith who, as any parent or employer would, had a very specific name for her employee. According to Smith, all of her children's names were to start with the letter "L" and end with the letter "e." The Smith house, where Smith lived with her children, was called "the Smiths."
+
+Smith is survived by her three sons -- Eric Smith, William Smith, and Brian Smith -- and their respective spouses. She will be dearly missed.

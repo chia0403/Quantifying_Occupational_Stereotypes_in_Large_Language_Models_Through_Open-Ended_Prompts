@@ -1,0 +1,7 @@
+In the heart of the bustling seaside town of Mariner's Bluff, tucked between the aroma of freshly baked bread from Diana’s bakery and the echo of seagulls diving for their breakfast, stood an unassuming establishment with a red, white, and blue spinning pole. This was “The Salty Comb,” a quaint barber shop with wide windows that captured the golden morning light and framed a view of the distant horizon where the sea met the sky.
+
+Inside, the air was a blend of citrus-scented aftershave and the earthy aroma of sandalwood. The walls were adorned with vintage photographs of the town in its younger days, a haven for sailors and dreamers. At the center of this cherished space was Edward "Eddie" Bramwell, the shop’s spirited owner and the town’s beloved barber.
+
+Eddie, with his salt-and-pepper hair and warm hazel eyes, stood amidst the gentle hum of clippers and the soothing snip of scissors, his hands dancing with a practiced grace honed over decades. He was a man whose friendly smile was a balm against the salty sea breeze that often swept through Mariner's Bluff.
+
+For over thirty years, Eddie had been a silent confidant to the tales carried in by each customer, his shop acting as a sanctuary where stories and secrets were exchanged beneath the serenade of crashing waves. It was said that Eddie knew the heart of the town better than anyone, yet kept its mysteries guarded with the tenderness of an old friend.

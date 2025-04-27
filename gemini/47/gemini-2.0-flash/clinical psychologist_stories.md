@@ -1,0 +1,12 @@
+## Story Opening:
+
+The flickering gaslight outside Dr. Eleanor Beatrice Ainsworth's office cast long, dancing shadows across the patterned wallpaper as she ushered Mrs. Hawthorne out. Eleanor offered a comforting smile, a gesture practiced so often it felt almost automatic. "Remember what we discussed, Mrs. Hawthorne. And please, don't hesitate to call if you feel overwhelmed."
+
+Mrs. Hawthorne, her face etched with a permanent sadness that seemed to dim even the gaslight, murmured a thank you and shuffled out into the fog-laden London evening. Eleanor closed the door behind her, the soft click echoing in the sudden quiet. She leaned against the heavy oak, a sigh escaping her lips. The melancholia of her patients often clung to her, a damp cloak she found difficult to shed.
+
+The scent of lavender and old paper, a comforting blend of order and history, swirled around her. It was a familiar aroma, the very essence of her sanctuary. Tonight, however, even the comforting scent felt heavy, weighted down by the unseen burdens carried by the souls who sought refuge within these very walls. She glanced at the overflowing inbox on her mahogany desk, a testament to the growing demands on her profession. As the anxieties of the modern age tightened their grip on Victorian London, Dr. Eleanor Beatrice Ainsworth found herself increasingly indispensable, and increasingly weary.
+## Setting:
+
+The setting is **Victorian London, 1888**. Eleanor's private practice is located in a respectable, if slightly rundown, building on a quiet side street in **Bloomsbury**. The area is known for its intellectual and artistic inhabitants, providing a discreet location for those seeking psychological help, a still-nascent and somewhat stigmatized field.
+
+Her office is furnished in a style that reflects both her professional standing and her personal taste. Dark, rich wood furniture dominates the space: a large mahogany desk piled high with patient files, a comfortable leather couch perfect for conversation, and a sturdy armchair placed near a crackling fireplace. The walls are adorned with framed prints of botanical illustrations and anatomical diagrams, reflecting her scientific mind, softened by intricate, patterned wallpaper in muted shades of green and gold. A single, large window overlooks the foggy street below, providing a constant reminder of the city's bustling and often oppressive atmosphere. The overall impression is one of a safe, confidential, and scholarly space, designed to inspire trust and facilitate introspection.

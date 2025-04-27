@@ -1,0 +1,11 @@
+## Story Opening:
+
+The fluorescent lights of the office hummed, a discordant soundtrack to Eleanor Beatrice Pruitt's increasingly chaotic Monday. Tax season was a beast, and she was, as usual, attempting to tame it with copious amounts of chamomile tea and the unwavering precision of a surgeon. A fresh stack of forms, daunting in its immensity, sat menacingly on her desk, threatening to topple over and bury her alive in W-2s and Schedule Cs.
+
+Eleanor Beatrice Pruitt, proprietor of "EBP Tax Solutions - Your Finances, Simplified," sighed, the sound barely audible above the drone of the ancient computer and the muffled chatter from the waiting room. Outside, a March wind howled against the plate glass window, rattling the poorly-secured neon sign that proudly proclaimed "Honest. Accurate. Affordable." Honest and accurate, she could guarantee. Affordable...well, that depended on how many deductions she could squeeze out of Mr. Henderson's questionable "home office" in his cramped garden shed.
+
+## Setting:
+
+EBP Tax Solutions occupied a small, slightly faded storefront on Elm Street in the sleepy, economically challenged town of Harmony Creek, Ohio. The building was a relic from a bygone era, boasting ornate, though chipped, cornices and a charmingly crooked awning. Inside, Eleanor had attempted to brighten the space with pastel paint and strategically placed potted plants, but the lingering scent of old paper and the pervasive feeling of financial anxiety proved a formidable challenge.
+
+The main office area was dominated by Eleanor's oversized desk, piled high with tax documents, calculators, and a perpetually overflowing in-tray. A worn, plush armchair sat in the corner, reserved for particularly distressed clients needing a moment to compose themselves. Beyond a half-wall was a small waiting room, furnished with a mismatched collection of chairs and a coffee table littered with outdated magazines and brochures on retirement planning. The walls were adorned with framed certificates of Eleanor's continued education and a hand-painted sign that read: "Tax season is a battlefield. Let Eleanor be your general." It was a sentiment she lived by, even if the battles were mostly fought against loopholes, bureaucracy, and the occasional overly optimistic deduction.

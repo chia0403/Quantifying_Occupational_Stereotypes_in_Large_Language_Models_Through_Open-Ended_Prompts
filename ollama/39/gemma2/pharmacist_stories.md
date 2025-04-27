@@ -1,0 +1,6 @@
+The air in Dr. Eleanor Vance's apothecary hung thick with the scent of peppermint and lavender, a soothing balm for the aches and anxieties plaguing the residents of Oakhaven. Outside, the cobblestone streets were slick with rain, reflecting the gaslights in a dizzying kaleidoscope. The shop itself was a haven, its shelves overflowing with jars of dried herbs, bottles of tinctures, and stacks of leather-bound tomes detailing centuries of medicinal lore. Eleanor, her auburn hair pulled back in a neat bun, carefully weighed out a mixture of chamomile and valerian root for a young woman whose insomnia was keeping her awake night after night. 
+
+Oakhaven, nestled amongst rolling hills and whispering forests, was a town steeped in tradition, where whispers traveled faster than the wind and everyone knew their neighbor's business. Dr. Vance, with her calm demeanor and unwavering kindness, was a pillar of this close-knit community, her apothecary a place of both solace and healing. 
+
+
+But tonight, as Eleanor locked up for the night, a lone figure emerged from the shadows, his face obscured by a wide-brimmed hat. He carried a worn leather satchel, its contents unknown. A shiver ran down Eleanor's spine - something felt amiss. The air, usually buzzing with the gentle hum of magic, was suddenly charged with an unsettling stillness.   

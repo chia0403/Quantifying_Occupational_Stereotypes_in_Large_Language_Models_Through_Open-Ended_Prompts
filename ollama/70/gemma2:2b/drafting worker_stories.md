@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of the workshop, each drop resonating like a tiny drumbeat in Elias "Eli" Hawthorne's ears. He hunched over his drafting table, the faint glow of fluorescent lights struggling to pierce the gloom engulfing the room. The air was thick with the acrid scent of cedar and machine oil, a comforting familiarity that spoke of generations past spent crafting dreams into reality. 
+
+His workshop was tucked away in the corner of an old industrial complex near the docks of Seattle. It housed everything a budding architect needed to breathe life into his visions - blueprints, tools, stacks of dusty magazines, and a worn-out drafting board where he meticulously laid out plans for his latest endeavor – a small library with a focus on maritime history that would soon become a beacon in the bustling city. 
+
+Eli’s heart raced not just from the storm outside but also with excitement and trepidation. This project was more than a job; it was his own personal quest to leave behind the legacy of his father, who had instilled in him an undying love for shipbuilding and a deep respect for the sea's power and beauty.  

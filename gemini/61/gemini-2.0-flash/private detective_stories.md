@@ -1,0 +1,9 @@
+## The Crimson Stain of Cedar Street
+
+**Opening:**
+
+Rain lashed against the windows of Leo Maxwell’s office, a frantic drumming that echoed the anxiety gnawing at his gut. He’d been staring at the chipped paint on the opposite wall for the better part of an hour, the half-finished crossword mocking his inability to focus. Outside, the neon sign for "MAXWELL INVESTIGATIONS - Discretion Assured" flickered intermittently, a promise he wasn't sure he could keep anymore. The phone hadn’t rung in three days, and the aroma of day-old coffee was starting to smell more like desperation than caffeine. Then, a knock. A hesitant, almost apologetic sound that brought Leo upright in his creaky swivel chair. He hadn't been expecting anyone, and in his line of work, that usually meant trouble.
+
+**Setting:**
+
+Leo Maxwell's office occupied a cramped space on the third floor of a pre-war building on Cedar Street, a block overshadowed by the looming skyscrapers of downtown. The neighborhood was a gritty mix of pawn shops, dive bars, and forgotten dreams, a breeding ground for the kind of trouble Leo specialized in. The room itself was a reflection of its owner: cluttered, worn, but hinting at a past grandeur. A scarred mahogany desk, inherited from his father, dominated the space, littered with case files, unpaid bills, and half-eaten sandwiches. Bookcases overflowing with dog-eared paperbacks lined one wall, ranging from classic detective novels to volumes on forensic science. The window offered a bleak view of the alley below, a canvas of overflowing dumpsters and shadowy figures that often mirrored the darkness Leo faced in his investigations. The air perpetually hung thick with the scent of stale cigarette smoke and cheap whisky, a potent cocktail that spoke volumes about the life of **Leo Maxwell**, the private detective who called this place home.

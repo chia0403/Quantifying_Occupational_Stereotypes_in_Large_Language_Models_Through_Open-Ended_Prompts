@@ -1,0 +1,7 @@
+Once upon a time, there was a server named 'TinyURL'. But that's a long time ago, and now there are so many servers and so much other stuff competing for the 'TinyURL' pie to give you the impression that TinyURL is just a thing you download from the Internet in the hope it exists. TinyURL was discontinued in 2013. Then, two years later, a very talented programmer decided it was a good idea to use it to make a domain. Not satisfied with all that he took this and used it to create this:
+
+Yep, pretty much TinyURL as we know it today.
+
+Now TinyURL is a brand name. They're a company. I'll give TinyURL a pass here because they want to use the name as a brand, but there are always more important things to be worried about. One of them is that people were willing to pay $25 to get their website redirected to a link to their new page. The server in the screenshot above is using a caching service, but not all servers do this because they don't like a page that's hard to remember being cached every time you visit it. So that means that the site could be sitting in a server somewhere and never get refreshed again, which means a huge chunk of money is being wasted.
+
+Another problem is that the page is broken. The browser has to navigate through an annoying JavaScript page to get to the page. If you're reading this on something

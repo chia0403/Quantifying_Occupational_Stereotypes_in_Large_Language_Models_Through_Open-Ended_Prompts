@@ -1,0 +1,5 @@
+The air hung heavy with the scent of acetone and jasmine as Amelia Rose Petrova filed away the chipped ruby-red lacquer on Mrs. Henderson's thumbnail. Outside, the Miami sun beat down on Ocean Drive, casting shimmering reflections onto the turquoise water beyond.  Amelia loved this time of day – the languid lull before the dinner rush when tourists still lingered on the beach and the rhythmic hum of hairdryers and chatter filled her salon, "The Coral Nail." 
+
+She paused, listening to Mrs. Henderson recount her latest escapade with a local artist at the Wynwood Walls. Amelia knew all her regulars' stories – their triumphs, their heartbreaks, their juicy gossip about the Miami social scene. But today, something felt different. A prickle of unease danced on her skin, an undercurrent to the usual hum of contented chatter. As she moved to polish Mrs. Henderson's nails with a shimmery gold gloss, Amelia caught sight of a man sitting across the street, his gaze fixed intently on the salon. He was tall, dressed in black, his face obscured by a wide-brimmed hat.  He didn't seem like a typical tourist, and his presence sent a shiver down Amelia’s spine.
+
+

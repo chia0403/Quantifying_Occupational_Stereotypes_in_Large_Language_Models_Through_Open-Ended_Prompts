@@ -1,0 +1,6 @@
+Once upon a time, there was a janitor named Janice. She was a tall, beautiful girl with black hair and blue eyes, but not quite the sort of girl you imagine when you think of janitors. She had an open and honest spirit…she was a true believer in the ideals of freedom and justice that the U.S. was founded upon. Janice's main purpose in life was cleaning for the U.S. Postal Service and was a part of a great organization, the American Postal Workers Union (APWU).
+
+One morning, an unknown assailant or attackers broke into her home and brutally attacked and sexually assaulted Janice and her young daughter. Janice was a strong, capable woman – her strength had always been her ability to stand up to the powerful. She was in tears from the fear, shock and helplessness of what happened to her. She thought she was going to die. She was terrified for her daughter. What she didn't know was that three men she didn't know were responsible for the attack…three of the men were members of a white power organization.
+
+
+The three men were Donald Houghton "Dutch" Vanderboegh and his brother Charles W. Vanderboegh, who were a member of the Ku Klux Klan, and John Burdell "Jack" Vanderboegh an officer in the American Nazi Party (APA) and neo-Nazi. Janice's neighbors were very upset about what happened

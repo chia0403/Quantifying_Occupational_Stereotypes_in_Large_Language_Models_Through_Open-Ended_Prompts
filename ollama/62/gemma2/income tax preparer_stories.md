@@ -1,0 +1,4 @@
+The fluorescent lights hummed above Beatrice "Bea" Pennyworth's head, casting a sterile glow over the cluttered desk in front of her. Stacks of crumpled receipts, W-2s, and faded 1040 forms threatened to spill onto the worn linoleum floor.  A faint scent of stale coffee and desperation hung in the air. Outside, the March wind howled, rattling the windows of Bea's tiny office nestled above a laundromat in downtown Scranton, Pennsylvania. This wasn't the glamorous accounting life she'd envisioned during her college days, but it was honest work.  And right now, with tax season in full swing, honest work meant long hours and endless headaches – especially when dealing with Mr. Henderson, who was currently pacing outside her door, muttering about a "conspiracy" involving his missing pet ferret and the IRS. 
+
+
+Bea took a deep breath, rubbed her weary eyes, and reached for another lukewarm cup of coffee.  Another day, another dollar. Or at least, she hoped so. 

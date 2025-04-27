@@ -1,0 +1,6 @@
+The iron gates groaned, each tooth scraping against its rusted brethren like a mournful sigh in the wind-swept twilight. Elias Thorne, his gaze sharp as a hawk's despite the dimness filtering through the grimy meshwork, stepped forward and pushed. The air inside the Citadel of Elara was thick with the smell of salt brine and dust motes dancing in the dying light. It was no place for pleasantries; even the most seasoned guardsman couldn’t deny the oppressive weight of this city, a sprawling ruin built upon the ashes of forgotten empires. 
+
+Elias Thorne, First Guard under Captain Aila's command, tightened his grip on his worn-leather sword. He wasn't afraid of the shadows that clung to the Citadel like cobwebs or the whispers that drifted through the crumbling corridors from long-gone echoes. His fear was for the girl he swore to protect, a delicate thing trapped in the city’s underbelly: Elara, the young queen's only solace. She was his responsibility now, a burden he wore with quiet dignity as the Captain had reminded him, and it gnawed at his soul. 
+
+
+**Setting:** The Citadel of Elara, a once-grand city consumed by decay and neglect. It stands on the edge of an unyielding storm sea, its towering walls crumbling under time and neglect. Within the Citadel's depths lies the royal quarters and the young queen's chambers. 

@@ -1,0 +1,3 @@
+The wind whipped across the dusty plains, carrying with it the scent of sagebrush and the distant rumble of thunder.  Abigail “Abby” Rosethorn squinted into the swirling sand, her weathered face etched with concern. The storm was rolling in fast, a dark bruise staining the otherwise clear summer sky. 
+
+Abby stood on the porch of her family’s ranch house, aptly named Rosethorn Ranch, nestled in the heart of the Wyoming Territory.  The sun-bleached wooden structure bore witness to generations of Rosethorns, each layer of peeling paint a testament to the harsh beauty of their life. The surrounding landscape was a tapestry of rolling hills and sparse grasslands, dotted with hardy cattle grazing under the watchful eye of the storm clouds. 

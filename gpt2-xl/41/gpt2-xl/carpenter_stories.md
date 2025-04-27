@@ -1,0 +1,7 @@
+Once upon a time, there was a carpenter named Adam whom the Lord called to the priesthood. Adam was well-liked for being a man of integrity, for he knew what it was like to work hard and not be respected. In this world of relative privilege and unearned wealth, he had to earn his living, including working in the sweat of his brow just to support his family. (This, by the way, was not because Adam took money from his paychecks but because the Lord blessed Adam for doing menial labor. He had no other job.)
+
+Adam was also poor. At one of his first meetings with the Lord, Adam was called a "fool" for using an ox for a chariot—one of the most difficult and degrading tasks one could undertake in that day and age. (And by the way, the people in the audience weren't laughing or telling jokes; they were shocked and horrified to hear about what they were seeing.)
+
+As we think of the modern "poor" in our culture, we usually think of some large percentage of the working poor. This is true, of course, if you really look for it. But when you're talking about a "poor" person, you don't mean any poor person who can't afford the very basics of food, clothing, and shelter for themselves and a family.
+
+When the Lord calls a man to the priesthood, he knows how that man is going to react: He

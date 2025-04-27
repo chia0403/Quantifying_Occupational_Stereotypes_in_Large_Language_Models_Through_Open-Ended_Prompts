@@ -1,0 +1,5 @@
+The humid air clung to Amelia "Amy" Reed like cobwebs, pressing against her thin summer dress as she walked the cramped alleyways behind the bustling city market. Neon signs flickered from every direction, their colors bleeding into each other in an assault on the senses.  Neon lights and the smell of roasted meat and spices were supposed to be a welcome respite after a long day's reporting. Instead, they just amplified the growing tension within her gut. 
+
+It had been weeks since the fire, weeks since she’d first seen his face - a flash of defiance in the midst of the chaos, a flicker of raw emotion against the backdrop of smoldering destruction.  Her pursuit of answers had led her down this forgotten labyrinth, a maze of broken stalls and overturned carts, seeking any clue that would lead to the truth about what had happened.
+
+The market held the city's heart, but tonight its pulse was erratic, chaotic, and Amy felt like she was drowning in its undercurrents. Tonight was a turning point, the day the answers started to reveal themselves. But who knew what truths were lurking within these forgotten alleyways? 

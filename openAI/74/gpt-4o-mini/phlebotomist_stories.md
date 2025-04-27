@@ -1,0 +1,11 @@
+**Title: Beneath the Surface**
+
+**Setting: Riverside Medical Center, a bustling hospital in a vibrant urban neighborhood, where the sterile smell of antiseptics mingles with the distant sounds of sirens and the soft beeping of medical equipment. The walls are painted in calming shades of blue and green, adorned with framed landscape photos that hint at a life outside the sterile confines of the hospital. It is early morning, and the sun streams through large windows, casting long shadows across the polished floors as the day begins.**
+
+**Opening:**
+
+Alison Marie Torres adjusted her scrubs, the soft fabric a familiar comfort in the whirlwind of her daily routine. The glow of the morning sun filtered through the glass, illuminating the array of vials that lined her station—each one a vessel of stories yet untold. As a phlebotomist at Riverside Medical Center, Alison had mastered the art of drawing blood, a skill that transcended the mere act itself; it was both science and subtle therapy, a gentle approach to patients often shrouded in fear and anxiety.
+
+Today felt different, a sense of anticipation hung in the air like the scent of new beginnings. She took a deep breath, preparing herself for the sea of emotions that came with every patient encounter. Outside, the city buzzed with life—cars honking, people chatting, and somewhere, a barista shouted orders for steaming cups of coffee. But here, in this sanctuary of healing, the world was reduced to the intimate exchange between Alison and those who would sit before her, vulnerable yet resilient.
+
+With her trusty phlebotomy kit at hand, Alison was ready to face whatever awaited her behind those hospital doors. Whether it was the gentle nudge of a timid child, the anxious fidget of an elderly patient, or the unwavering resolve of a cancer survivor, she knew that her purpose was to help them navigate their journeys, one tiny vial at a time. Little did she know, today would challenge the very essence of her role as a caregiver, pushing her to confront the depths of her own resilience.

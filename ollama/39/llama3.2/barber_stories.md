@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The sun had barely cracked the horizon over the small town of Willow Creek, casting a warm orange glow over the quaint Main Street. The smell of freshly brewed coffee wafted from the local diner, enticing passersby to start their day with a hearty breakfast. On Elmwood Avenue, where the charming shops and restaurants were most concentrated, one business stood out among the rest: "Cutting Edge Barber Shop".
+
+Inside, 35-year-old Harrison Everett Thompson was hard at work, expertly trimming the edges of his latest client's beard as he chatted about everything from sports to music. A Willow Creek native and fifth-generation barber, Harrison had grown up watching his father and grandfather cut hair in this very shop. As a skilled stylist with a passion for storytelling and a knack for making everyone who sat in his chair feel like an old friend, he was the go-to guy for men looking for more than just a simple trim – they wanted to be treated like family.
+
+With a flourish of his scissors, Harrison finished up the final touches on his latest client's haircut and sent him off into the bustling day with a warm smile. As the morning rush subsided, Harrison took a moment to glance out the window at the sleepy streets below, feeling grateful for another day in the life he loved most: cutting hair and connecting with the people of Willow Creek. Little did he know, however, that this was about to be anything but an ordinary day...

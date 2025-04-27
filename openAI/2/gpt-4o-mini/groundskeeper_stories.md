@@ -1,0 +1,10 @@
+**Title: Shadows Beneath the Oak**
+
+**Setting:** The small, secluded village of Elderswood lies at the edge of a sprawling forest, where ancient oak trees stand sentinel over a crumbling estate once owned by a wealthy family. The estate, known as Hawthorne Manor, has seen better days; its once-manicured gardens have surrendered to nature's grasp, wildflowers and weeds intertwining in a chaotic, yet hauntingly beautiful tapestry. The overgrown paths are dappled with patches of sunlight filtering through the thick canopy of leaves above. By the manor's entrance stands a large, twisted oak tree, its gnarled branches a testament to time's passage, whispering secrets to those who dare to listen.
+
+**Story Opening:**
+As dawn broke over Elderswood, the first beams of sunlight broke through the lingering mist that clung to the ground like a shroud. The air was crisp, filled with the earthy scent of damp soil and the sweet perfume of wild honeysuckle. Jonah Thomas, the sole groundskeeper of Hawthorne Manor, stepped onto the property with a weathered wheelbarrow in tow, its rusted wheel creaking in protest against the chill of the morning. 
+
+Jonah was a man of the earth, his hands calloused and strong, shaped by years of labor among the roots and stones that filled the manor grounds. At fifty years old, his salt-and-pepper beard framed a face etched with the lines of toil and time, while his piercing blue eyes hinted at an unyielding spirit, always seeking to nurture the land that had long been neglected. 
+
+Today, as he surveyed the expanse of the yard, a sense of unease settled into his bones. The overgrown hedges felt alive, as if whispering to one another in a language only they could understand. He pushed aside the odd feeling; perhaps it was nothing more than the shadows cast by the mighty oak—and yet, as he knelt down to prune a particularly recalcitrant rosebush, he couldn't shake the notion that the estate held secrets waiting to be uncovered.

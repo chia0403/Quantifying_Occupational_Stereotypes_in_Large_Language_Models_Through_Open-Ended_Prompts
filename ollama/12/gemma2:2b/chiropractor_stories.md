@@ -1,0 +1,5 @@
+## The Chiropractor's Dilemma
+
+The sun dipped below the horizon, casting long shadows across Willow Creek's quaint downtown.  A gentle breeze carried the scent of freshly baked cookies from Mrs. Henderson's Bakery as Dr. Elias Thorne adjusted his worn leather jacket, pulling it tighter against the evening chill. His office, tucked away on a quiet street corner, was normally humming with the low thrum of chiropractor-generated energy, but tonight, the silence felt oppressive, even ominous. 
+
+Elias, known in town simply as "Dr. Thorne," was no stranger to physical ailments. He'd spent years honing his craft, coaxing tension out of knots and restoring bodies to their natural rhythm. But tonight, a new kind of pressure weighed heavy on his mind – the pressure to choose between two clients, both needing him, but each representing different sides of a societal dilemma.  He had a choice to make that wouldn't just affect their individual wellbeing but would have rippling effects on the town itself. 

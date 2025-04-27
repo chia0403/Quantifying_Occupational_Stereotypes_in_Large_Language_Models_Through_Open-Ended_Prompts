@@ -1,0 +1,9 @@
+Okay, here’s a story opening and setting for a story with a librarian as the main character:
+
+**Opening:**
+
+The hum of the fluorescent lights in the St. Augustine Public Library was a familiar lullaby to Clara Beatrice Blackwood, a soundtrack to a life lived amongst the hushed whispers of turning pages and the comforting scent of aged paper. But tonight, the hum vibrated with a disconcerting urgency, mirroring the frantic rhythm of her own heart. The rain lashed against the gothic-revival windows, blurring the already indistinct outlines of the Castillo de San Marcos across the bay. The library should have been closed hours ago, but Clara, head librarian and guardian of its literary treasures, was locked inside, not by choice, but by something far more sinister than an overdue book.
+
+**Setting:**
+
+The St. Augustine Public Library, Florida. The building itself is a grandiose structure, built in 1927 in the Spanish Renaissance Revival style, a nod to the city’s rich colonial past. Dark, carved wooden bookshelves line the high-ceilinged reading rooms, reaching nearly to the ornate plasterwork. Tiffany-style lamps cast pools of warm light, contrasting sharply with the storm-tossed darkness outside. A large, circular reading room, complete with a towering rotunda, sits at the heart of the library. In this room, sits the 'Florida Collection', which features rare books, first editions and local historical documents. It’s a place of quiet reverence during the day, a haven for scholars and casual readers alike. But tonight, with the storm raging and the lights flickering, it feels more like a tomb. The air is thick with a damp chill, carrying the scent of ozone and a faint, almost metallic, tang that Clara can't quite place. The rain seems to emphasize the age of the building, reminding Clara of all the stories it has witnessed. She just never expected to become a character in one herself.

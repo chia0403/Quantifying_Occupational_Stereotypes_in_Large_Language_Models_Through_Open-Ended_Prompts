@@ -1,0 +1,6 @@
+The scent of jasmine hung heavy in the air, mingling with the sharp tang of fresh paint and a faint whiff of desperation. Amelia Katherine Dubois, known professionally as Kate, surveyed the living room with a practiced eye. It was a disaster.  Floral wallpaper peeled at the edges, clashing violently with dusty velvet curtains that looked like they'd been salvaged from a grandmother's attic. The furniture, a mismatched collection of mid-century modern and something vaguely resembling Victorian, spoke volumes about its owner's lack of cohesive taste. 
+
+She was in Greenwich Village, New York City, specifically on the top floor of a charming but crumbling brownstone that had seen better days. This wasn’t just another renovation for Kate; this was Mrs. Eleanor Vanderlyn's last hope. The eccentric socialite had inherited the townhouse from her late aunt and, facing mounting pressure from nosy relatives and a dwindling bank account, she needed to sell it fast. 
+
+
+The problem? No one in their right mind would buy a house that looked like it belonged in a horror film. Kate's job was simple: transform this eyesore into a palace. And with the clock ticking louder than the grandfather clock wheezing in the corner, she had less than two weeks to work her magic. 

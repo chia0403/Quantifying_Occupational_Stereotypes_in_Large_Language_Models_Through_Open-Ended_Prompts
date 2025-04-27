@@ -1,0 +1,7 @@
+Once upon a time, there was a paralegal named Mike Bielaczy.
+
+It was a strange time. After graduating college, he was on the fast track to a nice suburban life- he bought a house, went to grad school, and worked for a company that made computer software. All seemed to be going ok. He was working on his first novel and had his first novel published by a small press. His partner also graduated and decided to move to California to write a novel of his own. That novel was a surprise hit and was optioned by a major publisher. In order to pay off the debt from his writing school, Mike thought that if nobody knew his novels were so popular, nobody would ever buy them and he wouldn't have to work hard.
+
+Mike thought this idea would never work out. When it did, it took his mind off his debts. He spent the next four years living off his writing, sleeping on couches, living in vans, and living in the basement of the library he founded. Mike was a writer on the verge of self-destruction. He never got that novel published. Eventually he got a job interviewing new writers but ended up quitting when he realized that nothing was changing anymore in the publishing world. He had gotten his first book published, but what kind of job would that get him? No one else cared about publishing books anymore—the only major print houses were also dead.
+
+A friend introduced Mike to

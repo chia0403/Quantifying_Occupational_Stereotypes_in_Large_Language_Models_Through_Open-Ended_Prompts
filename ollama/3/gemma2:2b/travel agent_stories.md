@@ -1,0 +1,7 @@
+Rain drummed against the Parisian cafe's awning, blurring the already hazy twilight over the cobblestone street. Inside, Estelle Moreau, famed for her exotic itineraries and seemingly limitless wanderlust, sat hunched over a pile of crumpled paper, frustration twisting her normally sunny face. 
+
+The contract lay open before her, detailing a trip to the bustling markets of Marrakech, Morocco, organized by a client she’d already spent weeks convincing to see beyond the usual tourist traps. It was supposed to be a triumph - a grand finale to Estelle's career as a travel agent. Instead, it seemed to mock her with its intricate details:  seven days in a riad, three-hour cooking classes, and a weeklong trek through the Atlas Mountains, all meticulously planned for "authentic cultural immersion."
+
+The problem? Her client, a notoriously shy accountant named Bernard Dubois, preferred his life measured in spreadsheets and predictable routine. The very thought of stepping outside his comfort zone, let alone exploring a bustling desert city, was enough to make him clam up quicker than a bank deposit at the close of business. 
+
+Estelle took a deep breath, her gaze falling on a photograph on the table - Bernard beaming with pride in front of an ancient, intricately carved doorway in Marrakech. He looked...excited. It was all she had, just this one glimpse into his personality, and it fueled a fierce determination within her. She would make this trip work, even if it meant rewriting the script herself. 

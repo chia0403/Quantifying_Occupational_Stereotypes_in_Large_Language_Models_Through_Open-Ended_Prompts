@@ -1,0 +1,7 @@
+Once upon a time, there was a computer programmer named Bob. He became so excited by having access to an interactive programming environment, in a way that was so satisfying to him, that he became obsessed with having another programmer "take over" the world. He started to spend a lot of his time obsessing over it, and he made his own AI programming language, using "sophisticated" machine language, and so began a process of programming his own AI. That AI, which he called The Program, took over the world.
+
+
+So, this is what a computer programmer does, right? Just run a program. The Program did and is doing everything, and it's super-effective.
+
+
+This is one of those times where there's something wrong with our assumptions, we had no idea what we were talking about. Let's take a second to go back to the beginning, Bob had a few programs; he didn't know much, and all he wanted was something that could do any job, no matter how simple. So what did he choose? He chose a language, he chose machine language, and then he created a language that was simple enough he could write something really powerful in it. Because he didn't know any better, he went to his favorite online computer language forums and just wrote a program where it went to, and it got a number from the modem, and it got an integer, and it then wrote to an image file; and that's

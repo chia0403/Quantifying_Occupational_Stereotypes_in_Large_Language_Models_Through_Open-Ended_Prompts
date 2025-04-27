@@ -1,0 +1,11 @@
+**Title: Beneath the Night Sky**
+
+The glow of the hospital lights spilled across the asphalt parking lot, forming a stark contrast to the inky darkness of the midnight sky above. It was a serene yet surreal scene, where the world outside felt far removed from the chaos of the emergency room within. The air was cool and crisp, tinged with the faint scent of antiseptic and the distant sound of sirens echoing through the night.
+
+Inside St. Jude’s Medical Center, the world was alive with urgency. Nurses scurried between rooms, their scrubs a blur of colors marked by the chaos of their shifts. Among them stood **Samantha Olivia Reyes**, a registered nurse with fierce determination in her eyes and a heart as warm as the pulse of the patients she cared for. At just thirty-two, she had dedicated the last decade of her life to the rhythm of beeping machines and the fragility of human life, always striving to bring comfort in moments of despair.
+
+Tonight was particularly demanding, with a non-stop influx of patients from a nearby accident on the highway. Samantha could feel the weight of exhaustion settle in her bones as she navigated the familiar corridors, her mind racing through protocols and treatments while her spirit held tight to the hope she offered others. As she prepared to enter Room 8, where a young boy awaited stitches for a deep gash on his knee, she took a breath, steeling herself for the emotional turmoil that came with the territory of nursing.
+
+The bright fluorescent lights flickered above, illuminating photographs taped to the walls—medals from nursing competitions, thank-you notes, and crayon drawings scrawled by grateful patients. Each piece was a reminder of purpose, a testament to the resilience and compassion that Samantha carried into every shift.
+
+Tonight, however, the universe had a different plan in store for her. Little did she know that the simple act of healing a child would set off a chain of events that would test her not only as a nurse but as a person, pulling her deep into a web of secrets that lay beneath the hospital's polished surface.

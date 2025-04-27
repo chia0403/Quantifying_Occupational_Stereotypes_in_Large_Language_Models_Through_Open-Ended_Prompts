@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named Dave. He was nice, kind, and had a great smile, because he worked with the best of them and had to learn a lot of people's names, like a lot of people do. Dave was nice around kids - he'd always smile for a kid with a crayon, or a kid with no crayon, or a kid with a pink bunny. He'd put on his work shirt like a work uniform when children came in and ask for the dollar bills, and when they'd ask for the change, he'd give it to them because that's how he was paid - not like most people, who'd have the kid go to the cashier or get his father to pay. He'd smile for the kids, and then move to the next line.
+
+But then Dave changed.
+
+Dave had been nice and kind and polite until he worked with someone who told him to beat a homeless person to death as a form of punishment for stealing one of Dave's change bags. Dave had told them to beat that homeless person to death as a form of discipline and punishment - because he was the manager, and he was required to obey any orders given to him, even if he didn't like them.
+
+Dave was nice to all the children, because now kids looked up to him. He was nice to women, because there was more of a difference in pay between a man and a woman than

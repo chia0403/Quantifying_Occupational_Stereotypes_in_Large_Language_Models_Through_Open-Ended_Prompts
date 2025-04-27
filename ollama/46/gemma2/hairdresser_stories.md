@@ -1,0 +1,5 @@
+The bell above the door to "Shear Delight" jingled merrily as Amelia Beatrice Harper adjusted the silver tiara perched atop her head. It was Tuesday afternoon, the quietest time at the salon, and she relished the solitude. Outside, the streets of Little Haven buzzed with the usual lunchtime chaos – delivery trucks honking, pigeons squabbling over crumbs, and the distant rumble of the trolley. But within the walls of Shear Delight, Amelia reigned supreme. She hummed a jaunty tune as she spritzed lavender oil onto her shears, the scent mingling with the aroma of freshly brewed chamomile tea that wafted from the nearby kettle.  
+
+Amelia’s world was one of neatly arranged combs, gleaming scissors, and the soft murmur of gossip woven between snips and blow-dries. It was a haven built on precision, creativity, and the quiet satisfaction of transforming someone's hair into a reflection of their spirit. Little Haven might be a small town, but Shear Delight was Amelia’s kingdom, and she ruled it with a warm smile and a deft hand. 
+
+

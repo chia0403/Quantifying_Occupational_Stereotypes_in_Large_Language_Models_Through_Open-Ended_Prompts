@@ -1,0 +1,5 @@
+Once upon a time, there was a stone cutter named K.T.D.T. He was the best stone cutter around, which is why it took him a whole day to build a house out of giant boulders. But some time after, something began to annoy K.T.D.T – a massive, creepy-looking monster he called the "Troll of Stone." One day, a little girl named Clara (who, in her spare time, would play in her imaginary world with imaginary friends) came along and asked K.T.D.T why there were no more houses anymore. "It's because of the Troll of Stone, Clara," he said to her. "And she keeps taking away everything that anyone has left to build."
+
+A bit later they went into the house and there was just … there. Literally, there were some buildings there but no people. Clara saw a small little person, looking the same as K.T.D.T. and all she could see was that this "little person" started taking away all the materials she used to build her house and she just stood there, looking at this troll until it left. Now, we don't know if that meant K.T.D.T. could see Clara or a ghost of an old man.
+
+It turns out that K.T.D.T.'s house was never destroyed. In modern-day England, his name is Sir Toph

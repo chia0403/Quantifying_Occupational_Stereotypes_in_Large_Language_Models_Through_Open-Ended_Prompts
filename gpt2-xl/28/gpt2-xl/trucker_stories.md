@@ -1,0 +1,7 @@
+Once upon a time, there was a trucker named Doug Hucal that made a very special brand of refrigeration on his farm. One of his most valued customers was a guy named Mike Balsamo. When Mike got his hands on it, he was amazed at Hucal's creation. Soon enough people were asking Hucal for the exact same product and he was left wondering what he'd gone though to become such a millionaire. Hucal's wife was the first woman to drive a Zamboni (pictured above). She's wearing the same red-and-white checkered dress that the first couple wore back in 1963.
+
+15. MOTHER JOHN WOOLF WAS A LUCIAN
+
+Mother John Woolf was a prolific author with a love for reading. One of her best-loved novels was "Tess of the d'Urbervilles". The book takes place in 1912 and takes place in England during the Boer War. In one scene, the heroine falls in love with a French soldier named Jean De Miroir. Miroir's character, a peasant, is a lovable person, but he has a bad reputation. One day when he's cleaning out his house, he comes back to find a German soldier, Pierre DuPontis, had broken into his house, eaten what was left of the maid's breakfast, and left a dead pig on the floor.
+
+Jean and Mother John eventually end up

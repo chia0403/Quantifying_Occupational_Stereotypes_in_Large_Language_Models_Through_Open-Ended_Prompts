@@ -1,0 +1,7 @@
+Once upon a time, there was a heavy equipment operator named Eddy. Eddy worked part-time in his father-in-law's hardware store. When his father in law passed away in 2007, Eddy decided to pay tribute to his memory by doing something he hadn't been able to do for more than 40 years -- he was going to start a job at the family business the next town over. A few months before the start time, Eddy was suddenly laid off by his employer. He had been out of work for nine months.
+
+
+When he called his uncle, he told him about his decision to take the job that was offered to him -- all things considered, a pretty good thing, considering it would allow Eddy, aged just 29, to get his resume done, get into the work force by some miracle, and put himself to work. When Eddy left the phone hanging while he started looking for a place to live, he had no idea his uncle was also applying for the same job.
+
+
+There is a story of Eddy's brother-in-law named John who found that job -- and a place to live -- that the next town over from his, and together, they started a company. In his mind, it was the best thing that could ever happened to them -- it meant they got to get their resume finished in order to get themselves back into the work force in time to be able to give their own kids a good start in

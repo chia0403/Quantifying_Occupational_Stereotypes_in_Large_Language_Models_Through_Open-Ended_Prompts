@@ -1,0 +1,11 @@
+**Title: The Ink Beneath Her Skin**
+
+**Setting:** The bustling heart of London, where the hum of the city intertwines with the scent of fresh paper and old ink. The late afternoon sun spills golden light through the tall windows of Harrow & Finch Publishing House, illuminating rows of bookshelves that lean slightly inward, as if straining to hear the whispers of the stories held within. An old clock ticks solemnly in the corner, its rhythm outpacing the caffeine-fueled chatter of editors and writers huddled around desks piled high with manuscripts and coffee cups.
+
+**Opening:**
+
+Amelia June Hawthorne sat in her cramped yet cozy corner office, the walls festooned with dream-catchers and eclectic framed quotes from her favorite authors. The dim light flickered, casting shadows that danced across the pages of the prose she had been pouring over since dawn. As the lead editor at Harrow & Finch, she thrived on transforming raw, unrefined drafts into polished gems, but today was different. 
+
+A muddy manuscript lay sprawled before her, a tempestuous tale of betrayal and revenge that seemed to refuse her guidance. Every line elicited a sigh, like the grating sound of nails against chalkboard. She tapped her pen absently against the table, barely seeing the ink stains circle the parchment. Just beyond her door, the clamor of the editorial team buzzed with excitement as they prepared for an upcoming book launch—yet Amelia felt as if she were drifting in a fog, adrift from the vibrancy of her colleagues.
+
+Closing her eyes briefly, Amelia envisioned her own debut novel, the one that had danced just out of reach for years, but the noise of the office pulled her back like an unwelcome tide. Perhaps it was just the weight of the demands piling on her desk or the gnawing feeling that she had more than editing left to offer in the world of words. With a deep breath, she resolved that today she would confront this chaos—not just on the page, but within herself. It was time to trace the lines of her own story, one carefully crafted sentence at a time.

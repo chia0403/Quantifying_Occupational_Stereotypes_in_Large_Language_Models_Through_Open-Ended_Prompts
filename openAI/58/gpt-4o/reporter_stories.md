@@ -1,0 +1,11 @@
+The city of Ashford Heights was bustling with the usual cacophony of honking cars and hurried footsteps that echoed off the walls of towering skyscrapers. As dawn's first light peeled back the layers of night, the city awoke, stretching into the promise of another frenetic day. Neon signs began to blink off, surrendering their glow to the sun that crept over the horizon, casting long shadows down Braxton Avenue.
+
+In the heart of this urban jungle stood The Gavel, a distinguished yet aging news building that bore witness to countless truths told and stories spun. Its stone facade, worn but dignified, hinted at a long history of journalistic pursuit. Inside, the aroma of fresh coffee mingled with the musty scent of aging paper—a familiar perfume to those who navigated its narrow corridors.
+
+Paisley Montague, a reporter known as much for her tenacity as for her notebooks overflowing with scribbled leads, was already at her desk, her hair still damp from an early morning shower. Her small corner of the bullpen was a chaotic nest of scattered papers, empty coffee cups, and a corkboard plastered with clippings and sticky notes. She surveyed her chaotic workspace with a practiced eye, brushing aside a stray pencil as she reached for her phone.
+
+Paisley's sharp blue eyes skimmed the headlines, seeking the story that would light the spark of curiosity in both her and her readers. At thirty-four, she had spent over a decade delving into the city’s heartbeat, unearthing its untold stories with an unyielding passion. Today would be no different; there was always something hidden beneath the layers of city life, waiting for her investigative gaze.
+
+But it was an email alert pinging onto her screen that caught her attention, an innocuous subject line that belied the story potential it might hold. Her heart quickened—a reaction she never tired of—as she clicked open the message, scanning its contents with practiced speed. As she delved deeper, a smile tugged at the corners of her mouth.
+
+There was something amiss at the historical Ashford Opera House. Recent renovations had uncovered more than just old stonework. It seemed the past had secrets of its own, and Paisley Montague was determined to uncover them.

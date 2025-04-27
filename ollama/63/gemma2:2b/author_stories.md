@@ -1,0 +1,6 @@
+The air hung thick with jasmine, each scent clinging to Amelia Hawthorne's worn manuscript like cobwebs to a dusty attic window.  She sat hunched over her desk in the corner of the cluttered Parisian apartment, the clattering of city sounds a muffled background score to the symphony playing within her mind. The words on the page danced and blurred, echoing the restless energy that pulsed beneath Amelia's skin, as impatient and vibrant as the red roses blooming just outside the window.  The cafe across the street was filled with hushed conversations, steam curling from forgotten espressos, but she could only hear the echo of her own doubts. 
+
+**Setting:** A quaint Parisian apartment in a historic building on Rue de la Sorbonne. Filled with antique books and overflowing with mismatched furniture. The air is alive with the scent of old paper and freshly brewed coffee. Outside, the bustling life of Paris plays out against a backdrop of blooming jasmine and ancient stone walls. 
+
+
+**Character:** Amelia Hawthorne - A talented author in her late thirties struggling to finish her magnum opus: a historical fiction novel set in pre-revolutionary France.  She's known for her vivid writing style and complex characters, but she's found herself stuck, unable to overcome the daunting prospect of completing her story. 

@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting:
+
+**Story Opening:**
+
+The crimson velvet of the curtain felt cool against Amara Evangeline Dubois’s sweaty palm. She could hear the muffled roar beyond, a hungry beast waiting to be fed. Deep breaths. In. Out. This wasn’t the Opéra Garnier in Paris, the gilded cage she'd dreamed of escaping. This was the “Starlight Lounge,” a smoky, sticky-floored dive bar on the wrong side of Vegas, and tonight, she was its main course. Her stomach twisted with a potent cocktail of fear and something akin to… excitement? Probably just indigestion. Either way, it was showtime. The band, bless their raggedy, rhythmically-challenged hearts, launched into the opening bars of "Fever." Amara straightened her sequined dress, plastered on a dazzling smile that felt more like a grimace, and stepped into the blinding glare.
+
+**Setting:**
+
+Las Vegas, Nevada. Specifically, the year is 1968, and the setting is the aforementioned "Starlight Lounge," located a few blocks off the main strip, in a neighborhood teetering between dilapidated and dangerous. The Starlight Lounge is a low-slung building with faded neon signs depicting stylized stars flickering sporadically above the entrance. Inside, the air is thick with cigarette smoke and the lingering aroma of stale beer. The walls are adorned with cheap mirrors that attempt to amplify the dimly lit space, reflecting the faces of the clientele – a mix of lonely tourists, off-duty casino workers, and hardened locals looking for a cheap drink and a fleeting distraction. The stage is small, barely raised above the sticky floor, and lit by a handful of mismatched spotlights that cast harsh shadows. It's a far cry from the glamorous Las Vegas portrayed on postcards, a gritty, almost desperate corner of a city built on illusion. The place oozes a sense of fading glory, a once-promising starlet fallen from grace.

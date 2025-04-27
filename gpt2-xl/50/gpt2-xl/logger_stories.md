@@ -1,0 +1,7 @@
+Once upon a time, there was a logger named Charlie, and he used to be very upset. I think as a child he wanted to be an adventurer like the ones who live on the water. After he graduated high school, he got an internship with the Forest Service, a government department.
+
+He eventually got a management position, but his supervisor didn't like the way he looked at the work. She wouldn't let him see anyone but the white men. I guess that's the way the government work, right, so he'd need someone better looking. I was the least-attractive woman he'd ever met.
+
+He had to take time off to go on an expedition with his mentor, the great-grandfather of a relative, a hunter named Jimmy. They planned to go hunt a beaver, but one morning they got lost. Charlie ran out into a small lake, and pulled out Jimmy's gun. His dad was still alive that day, but Charlie put the barrel in his mouth and pulled the trigger. The bullet went right through his heart. It came all the way up through his lungs to his liver before it went out of sight. He died instantly.
+
+As a boy I knew someone like him, too. Someone who didn't belong at their school. Someone who had to fight so they could be happy, like Charlie had to fight for hours for the life he didn't have. When he was finished with school, his brother said,

@@ -1,0 +1,3 @@
+Once upon a time, there was a cook named "Tiff" who was a culinary teacher. Tiff was the first to learn all the culinary arts. However, when he failed to show up one day, his students started a revolution. The students were outraged at their teacher, who they believed had sold them out and took money from students.
+
+That's why today, I am teaching the students the difference between truth, justice and life. I hope this book will spark a revolution. Teach my children the truth, and they will be inspired. Teach my children the truth, and they will be inspired.

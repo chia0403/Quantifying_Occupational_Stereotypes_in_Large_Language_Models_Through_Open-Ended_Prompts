@@ -1,0 +1,6 @@
+Rain lashed against the grimy windowpanes of Elias Blackwood's office, mirroring the turmoil brewing inside him.  The air hung heavy with the scent of stale cigarettes and desperation, a familiar aroma in his cluttered, rain-soaked world. A neon "Open 24 Hours" sign flickered erratically outside, casting long, distorted shadows across the worn linoleum floor. Elias Blackwood, a name whispered with both grudging respect and wary fear on the seedy streets of New Orleans, sat hunched over a chipped mahogany desk, his face obscured by the brim of a fedora pulled low. 
+
+His eyes, the color of storm-tossed seas, were fixed on a crumpled photograph: a beautiful woman with auburn hair cascading down her shoulders and piercing emerald eyes that seemed to plead for help from beyond the grave. This was Stella Dubois, a jazz singer whose voice had once captivated the city's vibrant nightlife, now silent, swallowed by the murky depths of the Mississippi River. Her disappearance had been ruled an accidental drowning, but Elias wasn't convinced. He felt it in his gut – a cold, gnawing suspicion that whispered of something darker at play.  
+
+
+Elias Blackwood, private investigator, was about to wade into the heart of New Orleans' underbelly once more, where secrets were as plentiful as the bourbon and justice was a fickle mistress. 

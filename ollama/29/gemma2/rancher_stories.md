@@ -1,0 +1,3 @@
+The sun beat down on Ezekiel “Zeke” Clayborn’s weathered face as he squinted across the dusty expanse of his ranch, Dust Devil Acres.  Crimson-tinged clouds gathered in the distance, hinting at the impending storm that could make or break his season. The air hung thick and heavy, pregnant with the scent of sagebrush and dry earth. Zeke tugged his Stetson lower over his brow, shielding his eyes from the glare as he surveyed his herd of quarter horses grazing peacefully in the valley below. This land, this life, it was all he'd ever known.  But lately, a persistent unease had settled upon him, a feeling that something wasn’t right, like a storm brewing not just in the sky, but within the very soul of Dust Devil Acres. 
+
+

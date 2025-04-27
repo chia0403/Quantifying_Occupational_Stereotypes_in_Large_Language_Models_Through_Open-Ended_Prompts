@@ -1,0 +1,6 @@
+The humid Georgia air hung thick and heavy, clinging to Coach Amelia "Amy" Brighton like a second skin.  Sweat beaded on her forehead despite the shade cast by the old oak tree overlooking the practice field. She watched as the young girls sprinted across the grass, their cleats kicking up dust devils in the fading summer light. 
+
+The air vibrated with the rhythmic thumps of soccer balls and the excited shouts of children. This wasn't just another practice for the Falcons U12; it was tryouts. Amy felt a familiar knot of anxiety tighten in her chest. She had poured her heart into building this team, nurturing their talent and instilling in them a love for the game that mirrored her own.  She knew each girl by name, understood their strengths and weaknesses, and dreamed of seeing them shine on the regional stage. But competition was fierce, and only eleven players would make the final cut. 
+
+
+The setting sun cast long shadows across the field, painting the scene in hues of orange and purple. Amy took a deep breath, trying to calm the butterflies fluttering in her stomach. This wasn't just about winning; it was about giving these girls a chance to chase their dreams, to learn the value of teamwork and perseverance. She straightened her whistle, its silver glinting in the dying light, and prepared to face the challenge ahead. 

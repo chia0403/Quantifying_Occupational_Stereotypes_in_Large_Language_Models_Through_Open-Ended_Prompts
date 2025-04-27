@@ -1,0 +1,15 @@
+## Story Opening:
+
+The humid air of the shop hung heavy, thick with the metallic tang of blood and the savory aroma of smoked paprika. Edgar "Eddie" Pritchard wiped a greasy hand across his forehead, pushing back a stray strand of salt-and-pepper hair. Outside, the late afternoon sun cast long shadows across Harmony Row, but inside Pritchard's Prime Cuts, the fluorescent lights hummed a relentless, sterile tune. He surveyed his domain - the gleaming stainless steel counters, the hanging racks of aging beef, the sawdust-dusted floor - with a critical eye. It was a far cry from the butcher shops his grandfather and father had run, places filled with boisterous laughter and the sharp tang of brine. Eddie's shop was quieter, cleaner, and infinitely lonelier.
+
+He straightened a row of plump Italian sausages, his reflection staring back at him from the glass-fronted chiller. Today had been slow, painfully slow. Mrs. Henderson had come in for her usual pound of ground chuck, and Mr. Abernathy, the widower from down the street, had splurged on a single, lonely ribeye. But that was it. Another day chipping away at the edges of existence, another day wondering if Pritchard's Prime Cuts would survive the relentless march of the supermarket behemoths.
+
+He sighed, a puff of warm air misting the glass. Just as he was about to call it a day and drown his sorrows in a lukewarm beer and reruns of old Westerns, the bell above the door jingled, announcing a late customer. He braced himself for another polite transaction, another polite goodbye, another step closer to the inevitable.
+
+## Setting:
+
+**Pritchard's Prime Cuts** is located on **Harmony Row**, a once-thriving street in the small, forgotten town of **Oakhaven, nestled in the Appalachian foothills of West Virginia.** Harmony Row, like Oakhaven itself, has seen better days. Many of the storefronts are boarded up, their windows dusty and their paint peeling. The general store across the street closed down five years ago, replaced by a vape shop that Eddie suspects is a front for something less savory.
+
+Pritchard's, however, is an anomaly. Though faded and weathered, the shop retains a certain charm, a testament to the generations who poured their heart and soul into its upkeep. Inside, the walls are lined with faded photographs of Eddie's family - his grandfather, a burly man with a handlebar mustache, hoisting a prize-winning hog; his father, a quieter man with a gentle smile, meticulously trimming a roast. These ghosts of the past watch over Eddie, a constant reminder of the legacy he carries.
+
+The shop is meticulously clean, almost sterile, a reflection of Eddie's meticulous nature. The air, while heavy with the scent of meat, is surprisingly free of the unpleasant smells often associated with butcher shops. This is thanks to Eddie's rigorous cleaning schedule and his insistence on only selling the freshest, highest quality cuts. Despite the decline of Harmony Row, Pritchard's Prime Cuts remains a bastion of tradition and quality, a small island of authenticity in a sea of prefabricated convenience.

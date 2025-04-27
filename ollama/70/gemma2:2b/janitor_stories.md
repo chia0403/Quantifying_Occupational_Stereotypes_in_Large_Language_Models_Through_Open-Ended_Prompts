@@ -1,0 +1,8 @@
+## The Clockwork Melody
+
+**Setting:** A decaying old opera house, nestled in the heart of a forgotten city where history had become dust-covered relics and dreams seemed to have faded along with paint on the walls.  The grand facade was once a beacon of elegance, now it leaned slightly, its rusted iron bones groaning under the weight of neglect. The air inside hung thick with the ghosts of a bygone era – a symphony of creaking floorboards, echoing whispers from long-forgotten patrons, and the faint scent of aged velvet and despair. 
+
+**Main Character:** Bartholomew "Bart" Crane wasn't born for this. A former violinist, his once nimble fingers now struggled to keep the dustpan balanced, his bow replaced with a broom handle he affectionately nicknamed "The Symphony." Bart was a simple man, content in his world of grime, routines, and midnight clean-up shifts. He spent his days battling the dust devils that danced through the abandoned orchestra pit, chasing stray cat hair across the grand balconies, and polishing the rusted tarnished brasswork with an unmatched tenderness born from years of silent witness to time's passage. 
+
+
+**Opening:** The night was thick with humidity and the symphony of dripping water in the old pipes was Bart's nightly lullaby. He stood under the looming shadow of a forgotten stage curtain, its golden tassels drooping like sad eyelids. His gaze lingered on the cracked velvet seat where an opera singer once sat, mesmerized by a score that was now just a whispered echo in the silence. He could almost hear her voice – "La Traviata", a phantom melody floating on the humid air.  But tonight, it was just Bart, his broom handle singing a silent song of its own as he swept away another day's worth of memories. 

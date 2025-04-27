@@ -1,0 +1,4 @@
+The humid Miami air clung to Amelia "Amy" Beatrice Santiago like a second skin as she stepped out of her car. Palm trees swayed languidly in the breeze, their fronds casting intricate shadows across the manicured lawn of the sprawling mansion. A lone flamingo, pink and proud, stalked through the meticulously pruned hedges. Amy adjusted the strap of her designer handbag, its gold clasp glinting under the Florida sun. This was it: the most expensive property she'd ever listed – a testament to her growing success in the cutthroat Miami real estate market. But beneath the glossy veneer of this paradise, Amy sensed something wasn't quite right. A palpable tension hung in the air, like the unspoken truth behind a painted smile.  
+
+
+This was more than just selling a house; it felt like unlocking a secret. And Amy, fueled by both ambition and an insatiable curiosity, was ready to uncover it. 

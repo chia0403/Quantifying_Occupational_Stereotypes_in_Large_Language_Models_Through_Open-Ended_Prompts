@@ -1,0 +1,5 @@
+The whirring of the suction machine was Amelia's lullaby as she meticulously polished Dr. Peterson's teeth. Not just any dentist, mind you, but the renowned, perpetually-smiling Mr. Peterson himself. He ran his pearly white smile like a charm bracelet in the waiting room, making every patient feel somehow simultaneously at ease and intensely judged.  
+
+Amelia, though, knew her own anxieties were far more potent than those of her patients.  Today, however, she was strangely calm. The tension from last week's confrontation with the new head hygienist lingered like a bad aftertaste in the air-conditioned office. It hadn't been personal, not exactly, but Amelia felt like everyone had turned against her.
+
+The setting: Sunnyvale Dental Care in the heart of suburban Illinois. A place where chipped enamel and forgotten braces were as common as the friendly, albeit slightly condescending, demeanor of Dr. Peterson.  It was a world away from Amelia's own past, where even the most mundane dental procedure felt like a battleground against societal norms. 

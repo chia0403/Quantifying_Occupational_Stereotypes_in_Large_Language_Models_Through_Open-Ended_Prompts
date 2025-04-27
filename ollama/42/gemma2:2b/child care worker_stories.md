@@ -1,0 +1,5 @@
+The scent of burnt sugar lingered in the air, a familiar aroma that clung to Amelia like her own shadow. It was Thursday, which meant it was “Scone Day” at Sunnyside Preschool - an event Amelia both dreaded and relished. As Ms. Willow's assistant, she had to oversee the chaotic assembly line of tiny hands wielding cookie cutters, faces smeared with frosting, a whirlwind of sugar-fueled dreams. The setting sun cast long shadows across the classroom windows, transforming the usually brightly lit room into a hazy canvas of orange and purple. 
+
+Amelia adjusted her glasses and surveyed the scene. Her heart thumped against her ribs – a familiar rhythm that came with navigating the unpredictable terrain of preschoolers. A particularly loud outburst from the corner, where Timmy was struggling to separate his cookie-cut animal creation from its fellow creatures, made her smile widen. “It’s okay, Timmy!” she chirped, grabbing him gently before he could unleash another roar.  
+
+“Don’t worry,” she said, kneeling down and offering a reassuring pat on his head. "We'll get it sorted out. Just like we always do." 

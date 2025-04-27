@@ -1,0 +1,5 @@
+Once upon a time, there was a veterinarian named Harry B. Rinkl. He was on a road, traveling, and something caught his eye. When he saw this thing, he decided to do the right thing, and take it to his hometowns office for examination. The thing was a dead pigeon. He could smell it, he could hear it, he could see it, but all he could do was shake his head. He thought it was a prank, or maybe a joke done by some of his kids.
+
+One day, he realized it was not a joke. The world is full of strange stuff and strange creatures out there, and some of them could be dangerous to human, or wild beast, or human. He called an all out search, and brought in as many men that he could find, to dig out what they could. By the time they got it out, the creature was dead, and it is now in the Museum of Natural History in Cincinnati.
+
+The story behind the museum is quite creepy, but if you ever go to the city, stop and see what is there and try to wrap your head around the idea that a man could even do a search for a dead pigeon and get it there alive. No wonder a bunch of people had a field day and tried to find, or at least find out more about it.

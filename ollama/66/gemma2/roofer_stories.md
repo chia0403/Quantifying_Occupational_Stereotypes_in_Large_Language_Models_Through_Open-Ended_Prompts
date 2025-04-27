@@ -1,0 +1,5 @@
+The sun beat down on Elias "Eli" Cartwright's neck, turning his already damp shirt into a second skin. Sweat dripped into his eyes, blurring the vista of Chicago spread out before him like a shimmering sea of concrete and glass. He wiped his brow with a grimy bandana, cursing under his breath as it snagged on a loose piece of roofing felt.
+
+Eli was perched precariously atop the four-story apartment building, meticulously replacing warped shingles on the roof.  The air buzzed with the distant drone of traffic and the clatter of construction crews across the city. The rhythmic clang of his hammer against metal served as a counterpoint to the urban symphony below.  He squinted at the horizon, where storm clouds were beginning to gather, casting ominous shadows over the cityscape. Eli knew they'd have to hurry if they wanted to finish before the inevitable downpour. This wasn’t just another job; this was his father’s legacy, his family's only hope of staying afloat in a city that seemed determined to crush them.   
+
+

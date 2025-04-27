@@ -1,0 +1,7 @@
+The fluorescent lights hummed above Amelia Thistlewood's head, casting a sterile glow on the cramped waiting room. The air hung thick with antiseptic and nervous anticipation. Amelia adjusted the strap of her stethoscope, its cool metal against her skin a familiar comfort in the chaos of St. Jude's Medical Center.  
+
+Her nametag read "Amelia Thistlewood, Phlebotomist," but the patients mostly just saw "Amelia." She knew them all by face, their anxieties etched into every wrinkle and quivering lip. Today was particularly busy; flu season had hit hard, bringing a wave of sniffles, coughs, and pale faces seeking solace in the magic potion Amelia administered with practiced precision – blood draws for tests that could diagnose and treat, or sometimes just bring a sense of control amidst the unknown.
+
+Amelia's gaze swept over the crowded room, landing on a young boy clutching his mother's hand, his eyes wide with fear. He reminded her of her younger brother, years ago, when she’d first accompanied him to a doctor's appointment, terrified by the sharp needles and strange instruments.  A pang of sympathy hit her, and Amelia smiled, a warm, reassuring gesture that transcended the cold sterility of the waiting room. "Hey there," she said softly, approaching the boy, "I'm Amelia. I'm going to take your blood, but don't worry, it'll be quick and painless."  She knelt before him, her smile genuine, a beacon of calm in the storm.
+
+

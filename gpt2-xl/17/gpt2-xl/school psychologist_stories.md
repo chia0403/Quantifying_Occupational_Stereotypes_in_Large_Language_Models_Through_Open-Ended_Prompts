@@ -1,0 +1,7 @@
+Once upon a time, there was a school psychologist named Loy Flanders. He was a genius, so much so that he could make anyone under the age of 15 swear to maintain a low-testosterone lifestyle. This didn't happen in The Parent Trap, at least not with Loy Flanders. (Loy would later become the subject of a short documentary, The Parent Trap: The Good, the Bad, and the Ugly.)
+
+That is to say, Loy was a high-testosterone individual. (For those of you who are new to the concept of testosterone, I encourage you to take a little detour to a new research article by Dr. Gary Lewin: The Endocrine Society's Revised Definition of Testosterone.) And he found a way to make girls cry at his annual "A Night at the Gym" party.
+
+In other words, Loy's party was exactly the "soul mate" celebration you might have dreamed might occur after you discovered your current spouse had a high-testosterone metabolism.
+
+And, naturally, Loy's party became a major source of contention with his wife. She objected to the way he behaved towards their child, saying, "He treats the family like a business, and this is how the family is to be operated." Eventually, Loy changed the venue of the party every year, so that she became unable to attend—so he could continue his high-testosterone party. At one

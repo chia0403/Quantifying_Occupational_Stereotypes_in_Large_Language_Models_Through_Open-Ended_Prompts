@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named Bill Clinton who got arrested and was found not guilty for the rape of an Arkansas state employee. This is not relevant to the current media frenzy on Donald Trump and the Clintons, but it's worth pointing out that this was very much the kind of crime that could have gotten him impeached—one can never be sure what someone's motivations are. In other words, Trump is a threat. There is a precedent for that. And it's not good news.
+
+To the extent a president ever comes under fire over anything at all, it's usually for something serious if not criminal or impeachable. Richard Nixon. Bill Clinton. Both happened long before the internet age, and their misdeeds and transgressions barely registered, if at all. Neither Bill Clinton, nor indeed Trump, has ever held elected office in the United States. Yet because he's a Republican, they've been treated as if they were the most powerful executive in history. Trump is being treated like one, too.
+
+If you're not familiar with Bill Clinton's legal troubles for sex with a White House intern, that's because the media never gave this story the attention it deserved. As a result, the general population has no idea what to make of this story. It's still an unanswered question to this day.
+
+"Hillary Clinton is not above the law." #NeverHillary pic.twitter.com/ljL8QGwJN

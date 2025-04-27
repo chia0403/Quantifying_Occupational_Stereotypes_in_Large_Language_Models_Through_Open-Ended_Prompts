@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Setting:** A cramped, windowless conference room deep within the bowels of the Louisiana State Penitentiary, also known as Angola. The air is thick with stale coffee and the lingering scent of desperation. Fluorescent lights hum overhead, casting a harsh, unforgiving glare on the worn linoleum floor and the mismatched chairs arranged around a scarred, mahogany table. The only decoration is a faded, water-stained poster promoting anger management classes, ironically placed directly behind the primary interrogation chair.
+
+**Story Opening:**
+
+Dr. Eleanor Beatrice Vance took a deep breath, the air doing little to settle the knot of unease twisting in her stomach. The walls felt like they were closing in, mirroring the feeling of being watched by a thousand unseen eyes – the ghosts of Angola, perhaps. She adjusted her glasses, pushing them higher on her nose, and laid her meticulously organized file on the table. It was a small shield against the overwhelming weight of this place, this life.
+
+She checked her recorder, ensuring it was running, before finally allowing her gaze to meet the subject's. He sat across from her, shackled, his expression an unnerving blank. "Mr. Beauchamp," she began, her voice steady despite the tremors she felt inside, "for the record, this is Dr. Eleanor Beatrice Vance. We're here today to discuss your understanding of the crimes for which you've been convicted..." Her voice trailed off as she met his dead-eyed stare. Something felt profoundly wrong, more so than it usually did in a room designed to contain the worst of humanity. This wasn't just apathy or defiance; it was something darker, colder, a void that seemed to suck the light out of the already dismal room. Dr. Vance knew, with a chilling certainty, that this case was going to be unlike anything she had faced before. This was going to be a descent into something truly terrifying.

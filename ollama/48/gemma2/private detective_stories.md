@@ -1,0 +1,5 @@
+The flickering neon sign outside the Lucky Clover bar cast an oily rainbow across Detective Amelia "Amy" Thorne's trench coat. Rain lashed against the dusty windows, each drop exploding in miniature bursts on the grimy glass. Inside, the air hung thick with cigarette smoke and the stale scent of spilled beer. Amy hunched over a chipped mug of lukewarm coffee, the bitter liquid doing little to numb the gnawing tension in her gut. 
+
+Her latest case had gone colder than this January night. A missing girl, last seen entering the Lucky Clover just weeks ago. Her parents were frantic, their hope dwindling with each passing day. Amy knew she was running out of time.  The bar's owner, a burly man named Big Tony, eyed her from across the room, his face etched with suspicion. He knew something. Amy could feel it in the way he shifted nervously beneath her gaze. 
+
+This wasn't just another missing person case. This was personal.   A shadow of doubt flickered across Amy’s mind – she'd known Lily, the missing girl, since childhood. Now, Lily was gone, and Amy felt a responsibility to bring her home, no matter the cost.  

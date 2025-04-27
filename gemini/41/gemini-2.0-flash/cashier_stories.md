@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, with the main character, a cashier, named Abigail Rose Miller:
+
+**Setting:**
+
+The fluorescent lights hummed a monotonous tune above Abigail's head, a soundtrack she'd grown numb to over the past year. She worked at "QuickStop & Go," a brightly-lit, perpetually-busy convenience store on the corner of Elm Street and Oak Avenue in the small, unassuming town of Harmony Creek, Ohio. Outside, the October wind rattled the newspaper stand, scattering fallen leaves across the cracked pavement. Inside, the air smelled of stale coffee, day-old donuts, and the faint, ever-present scent of lottery tickets. The shelves were crammed with a chaotic mix of necessities and impulse buys: candy bars strategically placed near the checkout, rows of motor oil, brightly colored phone chargers, and a sad-looking display of wilted carnations. It was 7:15 PM, prime time for gas fill-ups and last-minute dinner ingredient runs.
+
+**Opening:**
+
+Abigail Rose Miller stared blankly at the blinking "4:27" on the microwave clock behind the lottery ticket dispenser. 4:27. Her grandmother, bless her heart, had always claimed that seeing the same numbers repeatedly was a sign. A sign of what, she never quite specified. Probably a sign to buy another lottery ticket, Abigail thought wryly, as Mrs. Henderson from across the street shuffled up to her register, clutching a crumpled five-dollar bill and a pack of menthol cigarettes. Abigail plastered on her customer service smile – a reflex honed by a year of dealing with demanding soccer moms, grumpy commuters, and teenagers trying to buy beer with fake IDs – and prepared to face the onslaught of the evening rush. Tonight, however, the familiar hum of the QuickStop & Go felt different. A low, insistent thrum beneath the everyday noise, like a hidden wire vibrating with an unknown current.

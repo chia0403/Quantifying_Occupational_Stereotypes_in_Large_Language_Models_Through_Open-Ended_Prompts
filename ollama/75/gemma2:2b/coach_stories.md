@@ -1,0 +1,5 @@
+The air hung heavy with humidity, the scent of pine needles and sweat clinging to everything in the sprawling field. The setting sun cast long shadows from the towering pines that framed the edge of the makeshift training ground – a space usually reserved for community softball games and high school football practices. Today, it was different. 
+
+Coach Amelia "Amy" Reyes adjusted her worn-out whistle around her neck, a familiar pang of longing in her chest as she surveyed the scene. The field, once vibrant with the energy of young athletes, felt eerily quiet, stripped bare by the news that had cast a long shadow over their small town.  It was just weeks ago that Mr. Davis, the old, gruff but beloved coach who'd guided Amy for years on this very ground, passed away. 
+
+Amy's hand instinctively tightened around her whistle. Even in his absence, a weight of responsibility seemed to settle upon her shoulders - not only as the new coach, but also as the voice of a community struggling with loss and uncertainty.   "Alright team," Amy declared, her voice echoing through the emptiness, "It's time for practice." 

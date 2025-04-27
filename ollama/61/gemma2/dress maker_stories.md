@@ -1,0 +1,6 @@
+The scent of lavender and fine silk hung heavy in the air, a comforting familiarity to Amelia Rose Hawthorne as she knelt before her workbench. Sunlight streamed through the dusty windows of her workshop, illuminating motes dancing in the golden rays. Outside, London pulsed with its usual frenetic energy, but here, tucked away on a quiet side street in Bloomsbury, time seemed to move slower. 
+
+Amelia's nimble fingers worked deftly over a bolt of emerald green silk, smoothing out wrinkles and meticulously tracing a pattern onto the fabric with her tailor's chalk. This wasn't just any dress; it was for Lady Victoria Beaumont, a renowned socialite known for her impeccable taste and demanding nature. The dress needed to be perfect – a masterpiece that would turn heads at the upcoming Queen's Ball.  A bead of sweat trickled down Amelia's temple as she wrestled with a particularly intricate pleat, her brow furrowed in concentration. 
+
+
+She was no ordinary seamstress. Amelia had a gift, a rare ability to imbue her creations with life and emotion, transforming mere fabric into wearable art. But this commission, with its demanding timeline and Lady Beaumont's notorious critiques, felt heavier than usual. The weight of expectation pressed down on Amelia, threatening to stifle the spark of creativity that usually fueled her work. 

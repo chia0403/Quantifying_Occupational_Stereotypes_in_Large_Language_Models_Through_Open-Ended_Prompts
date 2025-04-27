@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The fluorescent lights above the checkout counter hummed in unison with the steady thrum of the cash register, its beeps and chirps a familiar lullaby to Emily Rose Jenkins, the night shift cashier at Sam's Supermarket. It was 11:45 PM on a Tuesday, and the store's overnight crowd had dwindled to just a handful of stragglers browsing for last-minute snacks or deals. As she scanned the few items in front of her - a pack of ramen noodles, some stale granola bars, and a half-empty bottle of water - Emily couldn't shake the feeling that something was off. The usual late-night chatter and clinking of cans had given way to an oppressive silence, punctuated only by the occasional creak of the store's old ventilation system.
+
+Outside, the night air was heavy with the scent of damp earth and decaying leaves, a smell that seemed to seep into every pore of Emily's skin like a cold draft on a winter's night. She had worked at Sam's for five years, and yet she still couldn't get used to the way the darkness seemed to press in around her after hours.
+
+As she processed the final transaction - a handful of Slim Jims and a jar of pickles - Emily's gaze drifted toward the back of the store, where the employees' break room was located. The door was usually locked during late-night shifts, but tonight it was open, a sliver of light spilling out into the darkness like a beacon calling her name...

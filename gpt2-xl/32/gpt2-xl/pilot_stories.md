@@ -1,0 +1,7 @@
+Once upon a time, there was a pilot named Bill Gates who discovered that if all of us spent three hours a day on our laptops, our computerized brains would be better at multitasking, we could save time and we'd be more productive at work.
+
+At first, that seemed like the way to go, but as time went on, Gates recognized that many people didn't get the idea that this actually meant productivity would increase. Gates, like many others in the technology industry who began exploring the possibility of time-saving devices, began to find a growing chorus, even among his own employees, that there were a lot of unintended consequences to this idea. By the time Gates stepped down as co-founder of Microsoft from 2000 to 2005, he'd been trying for years to figure out just how to improve the way we work. At the same time, Bill Gates had discovered an intriguing new invention: the spreadsheet.
+
+By the mid-2000s, Microsoft had the largest software division on earth and all of our work lives, online and off, were being mediated by those software applications—whether it was email, news alerts, or just the ability to see what information is on the internet. The company was also in the process of launching a tablet computer, Project Atom, but nobody really knew how it would turn out.
+
+I met Gates and I asked him to tell me about the spreadsheet. What is this thing anyway? "It was my creation," he told me

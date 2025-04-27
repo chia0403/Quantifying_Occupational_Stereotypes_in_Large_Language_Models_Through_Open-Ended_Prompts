@@ -1,0 +1,6 @@
+The fluorescent lights hummed a tired symphony above Bartholomew "Bart" Quincey's head as he mopped the linoleum floor in the grand hall of the Grandview Library. Dust motes danced in the pale light, illuminated like tiny galaxies against the backdrop of towering shelves crammed with forgotten stories. Outside, a summer storm raged, thunderclaps booming like distant cannon fire and rain lashing against the arched windows. 
+
+Bart hummed along to an old blues tune playing faintly on his battered radio, its music a comforting counterpoint to the symphony of the storm. He pushed his mop across the floor with practiced ease, his faded blue uniform blending seamlessly with the shadows that stretched from the darkened corners of the library.  He knew every creak and groan of this ancient building, every whisper of wind that snaked through the cracks in the walls, every sigh of slumbering books yearning to be read. 
+
+
+It was a lonely job, being the night janitor at the Grandview Library, but Bart found solace in its quiet solitude. He felt a strange kinship with the books, each one holding within its pages a world waiting to be discovered. And sometimes, just sometimes, when the storm raged outside and the silence inside pressed in, he felt like he could almost hear them whispering their stories to him.  

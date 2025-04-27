@@ -1,0 +1,11 @@
+**Title: The Flicker of Secrets**
+
+**Setting:**
+The small coastal town of Riverview is known for its quaint charm and fog-draped evenings. Located on the edge of a rocky shoreline, the town boasts rows of weather-beaten cottages painted in pastel hues, lined along narrow cobblestone streets. The salty scent of the sea mingles with the aromas of fresh catches from the local fish market. At the center of town stands the historic Riverview Lighthouse, its beam sweeping across the dark waters, a sentinel guiding boats safely to shore. However, beneath the town's picturesque exterior, whispers of long-buried secrets permeate the air, igniting curiosity among the townsfolk.
+
+**Opening:**
+As the first rays of morning sunlight broke through the thick fog, illuminating the cobblestones of Riverview, a solitary figure made his way down Bell Street. Jacob Anthony Reynolds, known to most simply as Jake, adjusted his tool belt and ran a hand through his tousled chestnut hair, a streak of grease smudged across his forehead. At thirty-one, the local electrician was more than just a tradesman; he was the town’s unofficial problem-solver, tackling everything from flickering streetlights to restoring power to homes during stormy nights.
+
+However, today felt different. Jake paused outside the old Hastings house, its once vibrant blue paint now faded and peeling like layers of forgotten memories. The rusted bell above the door jingled a hollow tune as he stepped onto the porch. He’d heard the old woman inside, Mrs. Hastings, had reported strange electrical malfunctions—lights that flickered erratically and whispers that seemed to crackle through the wires. 
+
+With a sense of unease weaving through him, Jake pushed open the door. The air inside was stale, a mix of mildew and the faint scent of lavender. As he stepped into the dim living room, where sunlight struggled to penetrate through grime-coated windows, he couldn’t shake the feeling that today he wasn’t just fixing a circuit; he was about to unravel a mystery buried deep within the electrifying history of Riverview.

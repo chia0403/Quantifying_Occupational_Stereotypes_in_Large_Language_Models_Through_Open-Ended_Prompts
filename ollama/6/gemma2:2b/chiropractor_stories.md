@@ -1,0 +1,8 @@
+The midday sun beat down on Willow Creek Chiropractic, a tiny haven nestled amongst towering oaks and whispering pines. Inside, Dr. Ethan Hayes adjusted his glasses, squinting at the worn spines of two elderly patients struggling to find comfortable positions on the examination table. A gentle hum of machinery and murmured conversations filled the air, punctuated by the soft thudding of chiropractor's tools against bones.  
+
+Ethan, with his warm smile and easygoing demeanor, was a magnet for his patients. They trusted him implicitly, finding comfort in his soothing voice and reassuring touch as he eased their aches and pains. But today, Ethan felt a knot of unease twist in his stomach. His usual calm facade felt brittle, like an old oak cracking under the weight of unseen pressure. He’d been receiving strange, anonymous emails lately - cryptic messages about 'secrets' hidden within Willow Creek Chiropractic's walls, about forgotten lives entangled with the very foundations he had sworn to heal. Ethan didn't believe in ghosts, but something about these messages felt unsettlingly real. 
+
+He glanced at the clock on the wall. Five minutes till his first patient, a young woman named Sarah who had been battling chronic back pain for months.  She’d come from miles away, desperate for relief. The weight of her anxieties hung in the air, just as tangible as the chill that seeped in through the old windowpanes. Ethan took a deep breath, trying to quell his growing unease. This was what he did, this was Willow Creek Chiropractic - and this was where Sarah's pain would find its release. 
+
+
+ 

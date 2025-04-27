@@ -1,0 +1,6 @@
+Once upon a time, there was a artist named Paul Cézanne. If you're familiar with his work, you know who I'm referring to. Cézanne wasn't only painting but also writing the poetry he produced. For the first time in his life, Paul turned his attention to music and wrote the most well-known work that would change the course of music forever. Invented by the musician (and fellow French citizen) Claude Debussy, "The Magic Flute" is a complete, musical abstraction that is as much a work of art as any other. That it was made by a non-artist, a Frenchman named Paul Cézanne in a single span of time makes it even more extraordinary. He, at his best, took the greatest work of art in the world and turned it into something completely unique and unforgettable.
+
+Now, if you're new to art, then you might be wondering, "Where can I learn more about this amazing artist who broke away from the rules?" The good news is that you don't have to be an artist to make a masterpiece of your own. And though that is not easy, having one piece of your own that embodies your artistic vision, and one that is loved and appreciated at a much deeper level than you could ever have anticipated, is a wonderful thing.
+
+Here's a list of all the great things you can discover about one of the most influential artists of the 20th century. Enjoy!
+

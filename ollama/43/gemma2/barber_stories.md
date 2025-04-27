@@ -1,0 +1,3 @@
+The bell above the door chimed its usual welcome as Elias Thorne adjusted his spectacles, catching a whiff of stale tobacco and hair tonic – the quintessential aroma of "Thorne's Traditional Barbershop."  
+
+Elias surveyed the shop with its worn leather chairs, gleaming antique razors lining the wall, and faded photographs of men sporting dapper hairstyles from bygone eras. The afternoon sun slanted through dusty windows, casting long shadows that danced across the faded floral wallpaper. Outside, the cobblestone streets of Oakhaven buzzed with the usual Friday afternoon chatter – a symphony of car horns and hurried footsteps. But inside Thorne's, time seemed to move slower, governed by the rhythmic snip of scissors and the soft murmur of conversation.  

@@ -1,0 +1,6 @@
+The late afternoon sun cast long, dramatic shadows across Amelia Beatrice Finch's cluttered studio. Dust motes danced in the golden light that streamed through the single skylight, illuminating canvases stacked precariously against the walls and haphazardly strewn across the floor. The air hung heavy with the scent of turpentine and linseed oil, a familiar perfume to Amelia. Her easel, draped in a worn canvas sheet, stood sentinel in the center of the room, guarding the newest work she'd begun - a sprawling portrait of a woman with eyes as deep and enigmatic as the night sky.
+
+Amelia, her paint-stained overalls clinging to her lean frame, paused her work. She squinted at the canvas, dissatisfaction settling like a weight in her chest. The woman's gaze seemed lost, unfocused, failing to capture the spark she knew resided within her soul. It was as if Amelia couldn't quite bridge the gap between the subject and the painting, leaving her feeling frustrated and adrift.
+
+
+Amelia sighed, pushing back a strand of unruly auburn hair that had escaped its braid. Outside, the city buzzed with life - horns honking, people chattering, laughter echoing through the open window.  But here, in her sanctuary of color and canvas, Amelia felt utterly alone, struggling to find the words she needed, not in language, but in paint. 

@@ -1,0 +1,6 @@
+The grease under Amelia "Amy" Rose's fingernails was a badge of honor, a testament to her years spent wrestling with engines, coaxing life back into sputtering cylinders and worn-out transmissions. Her shop, "Rose Auto," wasn't much to look at - a single-bay garage tucked away on a dusty side street in Rust Ridge, Montana. The faded red paint peeled like sunburn, and the neon sign above flickered erratically, casting an anemic glow on the rusty tools scattered around. 
+
+But inside, Amy felt at home. The smell of oil and gasoline was a comforting blanket, the rhythmic clang of a hammer against metal a soothing symphony. Her hands, calloused and strong, moved with practiced grace, her brow furrowed in concentration as she tightened a bolt on a vintage Ford Mustang engine. Rust Ridge wasn't exactly bustling with high-end car clientele, but Amy didn't mind. She thrived on the challenge of bringing these forgotten machines back to life, their resurrection a small victory against the relentless march of time. 
+
+
+The bell above the door jingled, announcing a customer. Amy wiped her hands on a rag and straightened her overalls, preparing for whatever mechanical mystery walked through her door next.  

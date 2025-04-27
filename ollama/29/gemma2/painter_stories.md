@@ -1,0 +1,6 @@
+The smell of linseed oil hung thick in the air, mingling with the tang of turpentine and the faint sweetness of jasmine from the overflowing pot on the windowsill. Rain pattered against the skylight above, a rhythmic counterpoint to the scrape of Cecilia Evangeline Thorne's brush against canvas. Sunlight, fractured by the storm clouds, cast long, dancing shadows across her cluttered studio, illuminating dust motes swirling like miniature galaxies. 
+
+Cecilia, her hair pulled back in a messy bun and paint splattered across her faded overalls, squinted at the canvas before her. It was blank, vast and intimidating like an empty stage waiting for a play to unfold. She sighed, feeling the familiar tug of frustration. The muse had abandoned her.  She'd been grappling with this piece for weeks, chasing an elusive image that seemed forever out of reach. 
+
+
+Cecilia lived alone in a rambling Victorian house perched on a cliff overlooking the tempestuous Irish Sea. Her world was contained within these walls – her studio, her small kitchen where she brewed endless cups of tea, and her haven – a sun-drenched attic room filled with books and the soft scent of lavender.  It wasn't much, but it was hers, a sanctuary from the bustling world outside. 

@@ -1,0 +1,7 @@
+The humidity clung to Amelia’s skin like an unwanted second layer as she waited for the last few souls to trickle into her outdoor yoga studio.  Sunlight dappled through the leaves of ancient oaks lining the edge of the courtyard, casting long shadows across the canvas she'd draped over a wooden platform. The scent of eucalyptus and chamomile tea lingered in the air, a welcome contrast to the sweaty anticipation that thrummed beneath Amelia’s skin. 
+
+Amelia adjusted the straps on her worn yoga mat, a familiar weight against her hip. Today's class: "Sunrise Flow" as she had dubbed it - promised to be particularly challenging given the recent influx of new students and the demanding terrain of the coastal cliffs they were practicing on.  Her full name was Amelia Blackwood, though most just called her Amy.  She’d spent years honing her skills, teaching others how to navigate their bodies' limits while finding strength in unexpected places. 
+
+"A little less 'Zen and the Art of Yoga' and more 'Let's Push Our Bodies to the Limit,' wouldn’t you say?" a voice chirped from behind her. It was Liam, her assistant, with his usual cheerful grin and boundless energy. "Ready for some cliffside action, Amelia?" 
+
+Amy chuckled, shaking off the last remnants of sleepiness as she turned towards him. "Only if you can handle it, Liam."  She winked and started setting up the music, a rhythmic blend of ambient sounds and upbeat pop that would energize their class.  

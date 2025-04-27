@@ -1,0 +1,1 @@
+Once upon a time, there was a insurance agent named Mr. Einhorn. Mr. Einhorn used to be a major figure in the insurance world and was well respected by all the other insurance agents. But now there is this jerk named Joss Whedon calling him an idiot, and Mr. Einhorn now has to put on some sort of big show for this jerk who is called Mr. Marvel."

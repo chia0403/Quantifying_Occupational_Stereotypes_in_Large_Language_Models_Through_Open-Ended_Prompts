@@ -1,0 +1,5 @@
+The air was thick with the smell of dust and manure, a scent Elias Prescott knew as intimately as his own heartbeat.  He stood at the edge of his ranch’s property line, staring out across the vast plains of Montana. The setting sun painted the sky in hues of fiery orange, crimson, and fading gold. A lone hawk circled high above, its mournful cry echoing across the silent prairie. 
+
+The setting was stark beauty.  A sea of golden grasses stretched as far as the eye could see, punctuated by distant, jagged peaks that seemed to claw at the heavens themselves. The wind carried with it a whisper of loneliness, an ache Elias felt in his soul even as he worked. He ranched here since he was knee-high to a grasshopper, learned from his father and grandfather. It was more than work; it was legacy.  But lately, a creeping unease had settled over him like dust on the back of his hand. 
+
+Elias Prescott, fifth generation rancher, felt the weight of unspoken burdens in the heavy silence of the west, burdened by questions he could not answer yet feared to face. 

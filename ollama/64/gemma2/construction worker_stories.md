@@ -1,0 +1,5 @@
+The sun was a hammer blow against Michael “Mac” McArthur's neck as he tightened the last bolt on the scaffold. His calloused fingers, perpetually stained with grime and sweat, worked with practiced ease despite the heat radiating off the steel beams of the half-finished skyscraper. Dust motes danced in the air, caught in the shaft of sunlight pouring through the gaps between the floors. 
+
+Below, New York City thrummed like a restless beast, its incessant symphony of sirens, horns, and shouting barely penetrating Mac's world high above the fray. He squinted at the shimmering grid of streets stretching out before him, a concrete jungle teeming with life that felt worlds away from his precarious perch on this skeletal frame of steel and glass. The wind whipped around him, carrying the faint tang of exhaust fumes and distant hot dogs roasting on street corners.  It was just another Tuesday for Mac, another day fighting gravity and sweat in the unforgiving embrace of New York City's skyline. 
+
+

@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a trucker named:
+
+**Story Opening:**
+
+The hum of the tires on the endless stretch of I-80 was a lullaby, a song that had been playing in Jolene "Jo" McKenna’s ears for the better part of twenty years. Headlights cut twin tunnels through the pre-dawn gloom, reflecting off the swirling snow that painted the Wyoming landscape in a ghostly white. Jo sipped lukewarm coffee from her thermos, the bitter liquid doing little to combat the creeping fatigue that threatened to drag her eyelids down. Another ten hours to Chicago, another delivery of frozen beef, another brick in the wall that kept her small trucking company, "McKenna's Haulin'," afloat. She was a lone wolf out here, and she liked it that way, but tonight, the silence of the road felt heavier than usual, a weight pressing down on her chest that the drone of the engine couldn’t quite drown out. A sudden crackle from the CB radio shattered the silence, followed by a panicked voice. "Breaker, breaker! Anyone out there! Mayday, mayday! We've got a situation..."
+
+**Setting:**
+
+The story is primarily set along Interstate 80 in Wyoming, during a harsh winter storm. Jo's rig, a Peterbilt 379, is her home away from home. The interior is functional and lived-in, with a worn leather seat, a small CB radio setup, maps and logbooks scattered around the dashboard, and a few personal touches: a framed photo of her late father tucked under the sun visor, and a small, well-worn stuffed bear perched on the passenger seat, a relic from her childhood. The story will also likely involve truck stops, small towns along the route, and potentially a remote cabin or building depending on the direction of the plot. The isolated and unforgiving nature of the Wyoming landscape will be a major factor in the challenges the characters face.

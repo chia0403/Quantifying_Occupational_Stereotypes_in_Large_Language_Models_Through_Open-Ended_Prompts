@@ -1,0 +1,5 @@
+The air in Amelia Beatrice Hawthorne's office felt thick with static, the kind that settled on your skin and hummed beneath your skull after too many late nights hunched over glowing screens. Outside, the Chicago skyline glittered like a fallen constellation, its glittering promise mocking the dull ache in her temples. Her desk, usually a battlefield of crumpled notes and discarded coffee cups, was surprisingly tidy tonight - testament to the desperate attempt at order she'd imposed upon herself after yet another all-nighter.  
+
+Amelia swiped through manuscript pages on her tablet, the words blurring into an indistinguishable mass. She'd been wrestling with "The Raven King," a fantasy epic submitted by a debut author named Silas Thorne, for weeks. The prose was lyrical, the worldbuilding intricate, but the plot...the plot was as tangled as a nest of vipers.  Her editor’s intuition screamed at her: this story needed work, a lot of it. But something about Thorne's voice, raw and desperate yet strangely compelling, kept Amelia from tossing it aside. She had a feeling she could salvage this, but first, she needed a break. 
+
+

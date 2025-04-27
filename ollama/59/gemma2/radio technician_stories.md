@@ -1,0 +1,5 @@
+The air hung thick with the smell of ozone and burnt solder in Silas Bartholomew Peabody's cramped workshop. A tangle of wires snaked across the floor like metallic vines, connecting radios of all shapes and sizes to a central workbench that groaned under the weight of tools and half-finished projects. Outside, the sun beat down on Dustbowl Flats, Arizona, turning the dusty landscape into a shimmering mirage. But inside Silas's workshop, it was perpetually twilight, illuminated only by the flickering glow of a bare bulb hanging precariously from the ceiling and the occasional spark from a soldering iron.
+
+Silas himself sat hunched over a vintage Zenith Trans-Oceanic radio, his brow furrowed in concentration. He adjusted a capacitor with a calloused thumb, his gaze unwavering as he listened to the crackle and hiss of static that filled the airwaves. His name was whispered in hushed tones throughout Dustbowl Flats – "Silas Peabody, the Radio Whisperer" – for there wasn't a broken radio box he couldn't resurrect, a signal he couldn't decipher.  His skills were more than just a hobby; they were a lifeline in this desolate corner of the world.
+
+

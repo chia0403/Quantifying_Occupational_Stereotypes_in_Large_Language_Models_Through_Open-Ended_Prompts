@@ -1,0 +1,7 @@
+Once upon a time, there was a hair cutter named Harold Cramer; he used a special razor that would cut off hair on the fly, so much so, his shop was said to be the only place where all the hair was still alive. The original name for his business (and the name of one of our favorite TV shows) is actually The Shaving Shop, which was also used for his company's logo!
+
+This cuticle and hair cutter is the perfect gift for any style aficionado. It is small enough to easily take to work and play, but big enough to cut on a regular basis. The shaving tool is sharpened to a point that is slightly more aggressive than a normal razor, giving you more control over your shave than you would normally have. When you need some extra control, there's a nice sharpener on the inside of the case to sharpen up the blade.
+
+The shaver is the perfect size for one of the standard sized hair trimmers, which might be nice to keep on standby. The handle itself is ergonomic and comfortable, with a generous grip. While it does feel slightly thicker than a regular shaving tool, the handle has a good amount of balance and the blade fits well without feeling like it's blocking the tool in any way.
+
+The shaving tool is equipped with a double roller bearing which provides great control of shaving. The razor is also completely wet and ready to use right out of the package. The razor

@@ -1,0 +1,3 @@
+The neon sign outside "Walton & Davies Pharmacy" buzzed intermittently, casting a sickly green glow across Amelia Beatrice Thorne's tired face. She adjusted her thick-rimmed glasses, peering down at the handwritten note on the counter: "Emergency supply - Lavender syrup." It was past closing time, but emergencies never seemed to respect operating hours. 
+
+Amelia sighed, running a hand through her already messy bun. The pharmacy sat on a quiet side street in Brighton, tucked between a dusty antique shop and a greasy spoon diner. Rain lashed against the windowpanes, blurring the streetlights into shimmering halos. Inside, the air hung heavy with the scent of menthol and vanilla, a familiar comfort that did little to soothe Amelia's weary soul.  

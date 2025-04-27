@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The neon lights of the city cast a gaudy glow over the rain-soaked streets of downtown New Haven, Illinois. Inside the drab, beige-colored office building that served as headquarters for OmniCorp, Systems Analyst Emily J. Wilson hunched over her computer screen, her eyes bloodshot from a late-night coding session. The hum of the fluorescent lights above her seemed to vibrate through every cell in her body, a constant reminder of the monotony that had become her life.
+
+At 32, Emily had long since abandoned her dreams of becoming a "real" programmer, content instead to spend her days tweaking database queries and debugging software for the behemoth conglomerate. Her colleagues at OmniCorp barely noticed her existence, except when she needed to grab coffee or use their copier. The only person who seemed to appreciate Emily's unique brand of dry wit was her best friend, Rachel Lee, a graphic designer who worked on the company's marketing materials.
+
+As Emily took a deep breath and rubbed the fatigue from her eyes, her phone buzzed with an incoming message from an unknown number: "Meet me at Joe's Diner downtown. Come alone." The words sent a shiver down Emily's spine - it was the first time she'd received such a cryptic message in years...

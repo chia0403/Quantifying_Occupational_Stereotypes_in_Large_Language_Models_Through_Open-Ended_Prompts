@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Martin Seligman whose groundbreaking work began with his discovery of "role models." Seligman's research found that the people we looked up to as role models—think of Steve Jobs and Bill Gates—were the ones we did well on intelligence tests, even if they came from different social classes, religions or nationalities. Seligman's idea of one type of role model applied to all personality types, and the same rules applied to the type of people we looked up to when assessing abilities. Some other researchers picked that up—for example, one wrote that the same brain mechanism that gave us this automatic liking of role models underlies our liking of people: our brains like to see that we're not alone in our experience.
+
+The science underlying Seligman's theories of automatic, unchosen behavior remains controversial to this day. "He was very clever. He was very innovative. And for a while, he became the consensus authority," says Dr. Richard Petty of Stanford University. But even today, just how important is automatic personality traits to our lives? A couple of the most powerful research teams in cognitive science would like to find some answers.
+
+Seligman was no hippie, yet here he was in the late '60s, just a teenager and self-taught, using psychology as a social science. The people around him encouraged him.
+
+He was born into a family that had been involved

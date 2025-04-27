@@ -1,0 +1,7 @@
+## Story Opening & Setting:
+
+**Setting:** The waiting room of "The Phoenix Center," a counseling practice nestled on the third floor of a renovated Victorian house in the heart of Asheville, North Carolina. Sunlight streams through stained-glass windows, painting shifting patterns on the worn oriental rug. Mismatched armchairs, carefully chosen for comfort, line the walls. A bubbling fountain gurgles softly in one corner, attempting to mask the city sounds below. The air smells faintly of lavender and the quiet desperation that often lingers between therapy sessions.
+
+**Opening:**
+
+Dr. Eleanor Vivian Reed straightened the already perfect stack of magazines on the side table, a nervous habit she’d developed over years of witnessing anxieties unfold in this very room. Outside, a robin chirped with an irritating cheerfulness, a stark contrast to the knot of dread twisting in her stomach. It wasn't a client waiting outside her door this morning; it was *him*. John, her ex-husband, John, the architect of so many of her own sleepless nights, John, who was about to shatter the carefully constructed peace she’d finally, painstakingly, built for herself. She glanced at the antique grandfather clock in the corner, its pendulum swinging with an unnerving rhythm. 9:59 AM. He'd be early, of course. John was always early, meticulous, precise... traits she'd once admired, now associated with the agonizing predictability of their demise.

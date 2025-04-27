@@ -1,0 +1,3 @@
+Rain lashed against the windows of the quaint cottage on the cliffside, each drop blurring the already hazy coastal landscape.  The roar of the waves crashing below was a constant backdrop to Elara Blackwood's quiet frustration as she meticulously sorted through a mountain of crumpled tissue paper and dusty old charts on her weathered oak desk. 
+
+Elara Blackwood, MPT, had known this storm for weeks, but it wasn’t the weather that bothered her. It was the silence in her life. She’d moved to Seahaven, Oregon, lured by the promise of a fresh start after years spent wrestling with bureaucratic mountains and burnt-out patients, only to find herself isolated in a place where everyone seemed to know someone else's story – except hers. 

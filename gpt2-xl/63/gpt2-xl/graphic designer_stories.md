@@ -1,0 +1,7 @@
+Once upon a time, there was a graphic designer named Jeff who was obsessed with building a very simple and effective blog at his own site. He decided he needed to do something different and tried to build a blog with little more than Wordpress. That didn't work out, so he switched to a few different blogs and tried different strategies, but nothing seemed to work. He didn't make any money for a while, and then, one day, he had a great idea for a new way to earn money. It came in the form of a simple app.
+
+It was only recently, when he discovered the concept of affiliate marketing, did he take it to the next level. It turns out that this app is a wonderful way to drive up clicks on your blog. That's not to say it's a miracle cure for your business or that you have to write about affiliate marketing, I just think that it's a handy, basic guide to the topic and a great way to make some extra cash online.
+
+What This App Does
+
+The idea for this app was put to Jeff by a friend who said that she was putting together a webinar for an existing software company. She asked Jeff to help create a webinar about their product for the purpose of trying to sell affiliate business. Jeff took it as a great opportunity and immediately started working on something. He came up with the idea of turning the WordPress admin interface into an app. He thought his work would be good enough

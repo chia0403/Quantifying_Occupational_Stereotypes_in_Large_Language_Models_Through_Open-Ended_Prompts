@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting with a main character who is a coach:
+
+**Setting:** The perpetually damp, pre-dawn air of Portside, Maine, clung to the dilapidated bleachers of the Portside High School football field. Sea salt crusted the metal, a familiar bite on the wind that always seemed to carry the mournful groan of distant foghorns. The only light came from a single, flickering bulb atop a wobbly pole near the fifty-yard line, casting long, skeletal shadows across the patchy, uneven grass.
+
+**Opening:**
+
+"Alright, ladies, hustle! Let's see some fire in those bellies!" bellowed Abigail Rose Hawthorne, her voice raw and scratchy from a combination of yelling and the ever-present chill. Steam puffed from her mouth with each word, swirling in the frigid air. It was 5:30 AM on a Tuesday in late August, and the Portside High School Lady Lobsters soccer team was, as usual, less than enthusiastic. Abigail, Coach Hawthorne to them, wasn't fooled. She knew the groans and the heavy-lidded eyes were just a front. Beneath the surface, these girls possessed a fierce determination, a resilience forged in the heart of a struggling fishing town where grit was a currency more valuable than gold. She just needed to find the right spark to ignite it. The Regional Championship was only a few weeks away, and she knew, deep down, that this year, *this year* was their year. But first, they had to survive another brutal morning.

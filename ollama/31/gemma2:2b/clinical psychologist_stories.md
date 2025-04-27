@@ -1,0 +1,5 @@
+The worn leather armchair creaked in protest as Eleanor Thorne sat down. Rain hammered against the old bay windows of her office, blurring the muted city lights into an impressionistic dance of color. The scent of lavender and chamomile drifted from a nearby diffuser, a faint attempt at masking the underlying aroma of anxiety that clung to each new patient. 
+
+Eleanor took a deep breath, adjusting her glasses. Her name was not merely "Eleanor Thorne," it was "Eleanor Thorne, Ph.D., Clinical Psychologist," a title she had held for nearly two decades. It wasn't just about the degrees and the years under her belt; it was about the quiet dedication to understanding the intricate workings of human minds.
+
+Outside, the storm raged on, mirroring the storm brewing within Eleanor herself.  This particular case – Mr. Miller, a retired teacher struggling with the sudden death of his wife – felt particularly potent. The melancholy in his voice, the raw grief etched across his weathered face, seemed to seep into her soul as she listened, a tide of sorrow washing over her own quiet world. 

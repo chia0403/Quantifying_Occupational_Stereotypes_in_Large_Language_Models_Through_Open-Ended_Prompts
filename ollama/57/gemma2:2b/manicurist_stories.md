@@ -1,0 +1,5 @@
+The air hung thick with the scent of acetone and polish fumes in Amelia's small salon nestled on a quiet street corner. Sunlight streamed through the dusty storefront window, highlighting the rows of shimmering acrylics lining the walls – each color a miniature riot of neon against the muted beige backdrop. Amelia, her fingers nimble and precise, was mid-application of a deep emerald green to a client’s almond nails. She'd perfected the art of shaping and painting in the years since she first started working at "The Polished Pearl" - now just an echo of her former dream. 
+
+Amelia yearned for something more than manicures.  A yearning as sharp and unpredictable as a freshly filed edge on a nail, driving away at night with Amelia's old beat-up Volvo; the car was her escape route to nowhere in particular. Tonight she was headed out after closing, trying to find that perfect rhythm of life that was just outside of reach. It was like searching for the missing piece of an intricate puzzle - only this time, there wasn’t a clear picture.
+
+

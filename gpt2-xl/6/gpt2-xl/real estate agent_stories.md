@@ -1,0 +1,7 @@
+Once upon a time, there was a real estate agent named Steve, and his name meant something. Steve had recently been named sales manager at a real estate investment trust called RML. After all the years of hard work that he had put in, RML was finally making profits. Steve had grown up in the "real-estate business". He had studied real estate during high school and college and had graduated as valedictorian. A lot of real estate people went into the business because they loved making money, just like Steve.
+
+Steve and his girlfriend were making more money than his parents, his grandparents, and his grandfather. It was time for Steve and his girlfriend to start purchasing a house. Steve told his girlfriend that they were going to purchase a home one day, and to just relax...that's what he was going to tell himself. It was a really nice feeling to just start buying a house for Steve and his girlfriend.
+
+However, the reality of how the world works was taking its toll on Steve and his girlfriend. They had been making money and they were feeling so good...until they started buying homes. In fact, two days before they were going to purchase their first house, their accountant called them at home and told them that they had to stop spending money on certain things because the firm had a financial statement that was bad.
+
+On the day that Stephen Jones and his son arrived in their first house, Steve heard his phone ring. "Hey

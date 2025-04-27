@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named David Paine, and his wife Hannah, and they had three children. One day while David was out on his own, he was confronted by a robber. The robber thoughtlessly shot David in the head and he never fully awoke until he died shortly thereafter.
+
+A few days after the boy's death, David's family asked Hannah if they could bury him. The priest insisted it was for their own safety, so Hannah gave her permission to bury David. At the time, most people don't recognize that it is okay to let you family bury you until your passing. It is also the law in many places. Many people have died and wanted to be buried, and didn't want to ask permission. It is the right choice for most families.
+
+When David died, Hannah wanted to bury her husband. However, when David's body arrived, it was covered in blood because Hannah had allowed someone else to do the burial. She said, "He would not have wanted people to put a dirtied cloth on him," and since then, Hannah had not allowed anyone else to say yes or no to burying their relatives. She believed it was her obligation not to let anyone touch their loved one's body until she said "yes". She refused to allow someone else to make the grave for her husband, claiming it was for her family's safety.
+
+That's when David's cousin (David's youngest brother) came up with

@@ -1,0 +1,5 @@
+The air in Celeste's salon was thick with the scent of citrus polish and lavender hand cream, an intoxicating perfume that clung to her like a second skin. Her tiny shop, nestled between a vintage bookstore and a struggling vegan cafe, had a chaotic charm. Outside, the drizzle hammered against the windows, reflecting the storm brewing inside Celeste herself.  
+
+Celeste, or "Cest" as everyone called her, was renowned in the city for her quick fingers and artistic eye.  She could transform cracked nails into gleaming sculptures, coax life back into brittle cuticles, and sculpt perfect little rosebud designs on manicured fingertips. Today, however, the usual vibrant energy was muted, replaced by an anxious hum that buzzed beneath the surface like a trapped fly. 
+
+It started with a single call. A woman's voice, trembling and choked, asking for Celeste to come see her grandmother.  "The doctor says it's terminal," the voice rasped, "and she wants...needs her nails done."  Suddenly, the usual joy of creating was eclipsed by the chilling weight of responsibility that settled upon Celeste's shoulders like a heavy coat. 

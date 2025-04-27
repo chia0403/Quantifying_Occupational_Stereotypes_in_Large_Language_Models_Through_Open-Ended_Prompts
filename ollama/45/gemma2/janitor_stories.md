@@ -1,0 +1,6 @@
+The flickering fluorescent lights hummed above Elara Bellweather's head, casting a sickly yellow pallor over the vast emptiness of the National Archives after hours. Empty desks lined the cavernous halls, their occupants long gone, leaving behind a silence punctuated only by the rhythmic swoosh of Elara's mop and the occasional creak of aging floorboards.  
+
+Elara loved these quiet hours. The building, usually teeming with historians and researchers, transformed into her personal kingdom. She knew every dusty corner, every forgotten stairwell, every whisper the ancient stone walls held within their depths. Tonight, as she polished a brass doorknob, a glint of something unusual caught her eye. It was wedged beneath the doormat, half-buried in the grime – a small, intricately carved wooden box, its surface covered in faded symbols she didn't recognize.  
+
+
+Elara crouched down, curiosity piqued. This wasn't just another lost trinket. There was something about the box that felt ancient, powerful even, a pull towards it like an unseen hand beckoning her closer. Ignoring the prickle of unease crawling up her spine, Elara reached for the box, knowing in that instant she had stumbled upon something extraordinary, something that could change everything she thought she knew about this building, and perhaps, herself. 

@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The fluorescent lights of Oakwood Hospital's laboratory hummed overhead, casting an eerie glow over the rows of humming machines and steel countertops where blood samples were being processed by the night shift staff. Amidst the chaos, 25-year-old Emilia Rose Thompson stood poised at the entrance of the lab, her eyes fixed on the clock on the wall as it ticked closer to her scheduled shift start time. A petite, bespectacled phlebotomist with a mop of curly brown hair and an assortment of colorful tattoos peeking out from beneath her sleeves, Emilia had been working at Oakwood Hospital for three years, steadily building a reputation as one of the most skilled and efficient phlebotomists in the department.
+
+As she adjusted her worn denim jacket and mentally prepared herself for another long night of collecting blood samples and chatting with the hospital's nocturnal residents, Emilia couldn't shake off the feeling that something was amiss. A sense of unease had been growing inside her all week, like a gentle buzzing in her fingers as she worked, and tonight felt like the worst of it.
+
+Little did Emilia know, this shift would be anything but ordinary...

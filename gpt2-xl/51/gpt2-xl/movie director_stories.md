@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named John Candy who was an Oscar darling. The film that made him a star was the 1971 masterpiece Candy's in the House. A comedy-drama about a group of friends attempting to make it big on Broadway with a "diverse" cast that brought in a wide variety of actors from the gay and straight worlds, this was one of the funniest movies of its time. Even the most casual theater goer has likely seen the film, but even they can forget the name of the director: John Candy. Nowadays he's less recognizable, mostly because he's gone from directing movies to being a talk show host on the E! network.
+
+But in 1971 he was a household name not just because of the film, but because of something else that happened afterwards, and that happened later than that.
+
+I'll let the Wikipedia entry tell you a bit about that.
+
+If you're a guy who's spent lots of time reading about and trying to understand the lives of different people with different sexualities, you're probably aware that the gay community has been one of the most diverse groups of people in America ever since its inception as a movement in the early 1980s. At the time, people with more masculine traits—such as having short hair and clothing, wearing more masculine hairstyles, and taking on masculine names like Jeff Goldblum—were more likely to openly identify as "gay," and they were more

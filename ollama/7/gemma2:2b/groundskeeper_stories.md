@@ -1,0 +1,8 @@
+The scent of damp earth, mingled with the sweet, sharp tang of rosemary, filled Amelia Croft's nostrils as she walked through the overgrown hedge maze behind Blackwood Manor.  Her boots crunched on fallen leaves as she headed toward her usual spot - a secluded nook where the old oak tree cast a dappled shadow across the worn stone bench. It was here, surrounded by the whispers of the wind rustling through the branches and the chirping of unseen birds, that Amelia found solace in the rhythm of the day. 
+
+For twenty years, Amelia had tended to the neglected gardens and sprawling grounds of Blackwood Manor.  She'd learned to read the language of the earth - to know when a drought would strike before it crippled the roses, or when the wind might carry seeds from distant shores that would sprout unwanted weeds. But she had also found solace in the quiet company of the manor’s history - each crumbling brick and crooked fence whispered stories of past generations, their joys and sorrows now buried beneath layers of moss and time. 
+
+Amelia's hands itched to begin her daily routine: weeding the overgrown rose patch, watering the thirsty lavender bushes, and polishing the weathered bronze handles of the gate that led into the ancient grounds. But today was different. There was a weight she couldn’t shake off - a feeling like something monumental was about to happen.  
+
+
+**Setting:** Blackwood Manor is an imposing, yet dilapidated Victorian estate situated on a hilltop overlooking the quaint village of Oakwood. The manor's once vibrant gardens are overgrown with weeds and neglected plants, but remnants of its former grandeur still linger in the architecture and ornate ironwork that decorate the facade. 

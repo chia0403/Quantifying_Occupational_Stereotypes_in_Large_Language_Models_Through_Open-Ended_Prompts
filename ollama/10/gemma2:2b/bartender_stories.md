@@ -1,0 +1,5 @@
+The air in The Drunken Mariner hung heavy with salt and regret. A perpetual haze obscured the sun through grimy windows, filtering the afternoon light into an anemic amber glow.  Rain lashed against the worn awning outside, its rhythm mimicking the incessant ticking of the grandfather clock on the wall - a steady reminder of time slipping away, especially here in this backwater tavern.
+
+Name: **Eliot Hawthorne**. 
+
+He stood behind the polished mahogany counter, his broad shoulders hunched as he wiped down the surface with a rag stained from countless storms. Years had etched lines around his tired eyes – not from worry, but from the silent stories whispered to him every night by the sea that never slept. Eliot was no stranger to melancholy; it clung to him like the salty air and found solace in the endless churn of waves on their jagged shore. The Drunken Mariner wasn't just a bar - it was his sanctuary, his world, where he watched the tides of life ebb and flow, one drink at a time.  Tonight, though, a different kind of storm brewed. 

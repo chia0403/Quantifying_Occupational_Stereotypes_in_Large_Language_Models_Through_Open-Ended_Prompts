@@ -1,0 +1,9 @@
+## Story Opening:
+
+The aroma of cardamom and roasted pistachios clung to the morning air, a comforting blanket in the chilly damp of the Istanbul winter. A fine layer of flour dusted the counter, clinging to the worn wood like fresh snow. Zehra Gülseren hummed a tuneless melody under her breath as she carefully layered paper-thin sheets of filo pastry, each brushstroke of melted butter a small prayer for the day ahead. Outside, the predawn call to prayer echoed across the Bosphorus, a sonorous hum that vibrated in her bones.
+
+“Another day, another battle,” she murmured to herself, her dark eyes reflecting the flickering gas lamps that illuminated the small bakery. She pressed down on the layers, shaping them with practiced hands into the familiar form of a bulbul yuvası – a nightingale's nest.
+
+## Setting:
+
+The story opens in **"Zehra's Tatlı Rüyası" (Zehra's Sweet Dream)**, a small, family-owned bakery nestled in the heart of Balat, a historic Jewish quarter of Istanbul. The bakery is a haven of warmth and sugary scents, a stark contrast to the grey stone buildings and narrow, cobbled streets outside. Inside, mismatched tables and chairs invite lingering, while vintage samovars and ornate tiles add to the old-world charm. The walls are lined with shelves laden with traditional Turkish sweets: sticky baklava glistening with syrup, delicate lokum dusted with powdered sugar, and fragrant kunefe oozing with cheese. The heart of the bakery is the open kitchen, where Zehra and her family have been creating these sweet masterpieces for generations. It’s a place where tradition and innovation collide, where the aroma of her grandmother’s recipes mingles with Zehra’s own daring experiments in flavor. Outside, the sounds of Balat - the hawkers’ cries, the clatter of horse-drawn carts, the lively chatter of neighbors - provide a constant, vibrant backdrop to Zehra's day.

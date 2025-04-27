@@ -1,0 +1,7 @@
+Once upon a time, there was a architect named Averi Agasti who was employed by the federal government. In the mid-1990s, Congress passed a program that made "non-competitive" bids a requirement for all public construction projects. In order to qualify for these "non-competitive" contracts, the contractor had to show that they would complete the project for half or less than the lowest bid price available.
+
+However, when it came to the Department of Veterans Affairs – it doesn't matter if this is a veteran-centric non-profit, a health care organization, or a government contractor – "non-competitive" contracts are a total sham, designed to avoid accountability.
+
+In 2015, the VA scandal, which became known as "the longest wait-list scandal in history," was exposed. A total of 1,201 veterans died while waiting for care. At this point, it is clear that even the VA admits that non-competitive contracts are responsible for the fact that there are thousands of veterans languishing in hospital emergency rooms, even with the promise of timely and adequate health care.
+
+Unfortunately, the VA is not the only agency that has been accused of violating non-competitive bidding laws. In addition to VA, the Department of Justice and the Pentagon have engaged in abusive contracting practices as well. Last year, the GAO issued a report stating that the agency used a "highly dubious economic justification" to justify the use of non-competitive bidding

@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the small town of Willow Creek, casting a warm orange glow over the quaint streets and shops, hairstylist extraordinaire, Aurora "Rory" Wynter, closed up her beloved salon, "Tangled Locks." The scent of bay rum and coconut oil wafted through the air as Rory locked the door behind her, her eyes scanning the emptying parking lot. The street lamps flickered to life, casting a soft golden light over the deserted sidewalk.
+
+Rory took a deep breath, the familiar sounds of the town - the gentle hum of the ice cream truck, the distant chirping of crickets - enveloping her like a warm hug. She loved this time of day, when the world seemed to slow down and the only sound was the quiet murmur of her own thoughts.
+
+As she unlocked the door to her apartment above the salon, Rory's gaze drifted out the window, taking in the familiar sight of Main Street. The old-fashioned diner, "Mae's Eats," still had its neon sign lit up, casting a bright pink glow over the pavement. Across the street, the town hall stood tall and proud, its stone façade weathered to a soft gray.
+
+It was moments like these that Rory cherished most - moments of peace before the chaos of the day began anew. But as she turned the key in the lock and stepped into her cozy apartment, a small package on the kitchen counter caught her eye...

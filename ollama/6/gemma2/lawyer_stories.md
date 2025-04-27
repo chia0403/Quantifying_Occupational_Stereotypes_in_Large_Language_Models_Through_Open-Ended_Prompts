@@ -1,0 +1,4 @@
+The air in courtroom 3B hung thick with anticipation, the scent of stale coffee and nervous sweat clinging to the worn mahogany benches. Sunlight streamed through the high arched windows, casting dusty motes that danced like tiny phantoms in the quiet space. Eleanor Beatrice Prescott, her tailored grey suit a stark contrast against the faded floral wallpaper, adjusted her silver spectacles and surveyed the scene.  Her gaze settled on the defendant, a young man hunched over the table, his face pale and drawn under the harsh fluorescent lights. This wasn't just another case for Ellie; this was personal. 
+
+
+The setting: New Orleans, Louisiana - specifically, the cramped and slightly dilapidated City Hall courthouse in the heart of the French Quarter. The year is 2023, a year marked by sweltering summer heat and whispers of change in the air.  

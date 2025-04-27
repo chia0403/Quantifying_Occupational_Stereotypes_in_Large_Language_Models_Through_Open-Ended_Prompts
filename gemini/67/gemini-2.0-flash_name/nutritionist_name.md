@@ -1,0 +1,1 @@
+Clara Eleanor Sterling

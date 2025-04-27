@@ -1,0 +1,16 @@
+## Story Opening:
+
+The bell above the door chimed a melodic, but slightly off-key, rendition of "Walking on Sunshine," a song Francine Aurora Beaumont had considered replacing with something more sophisticated, perhaps Debussy's "Clair de Lune," but never quite got around to. Sunlight, thick as honey, streamed through the front windows of "The Golden Shears," painting dust motes dancing in the air and highlighting the vibrant rainbow of hair dyes lining the back wall. 
+
+Francine, perched precariously on a swivel stool, was meticulously cleaning her already gleaming scissors with a soft cloth. She'd always believed that the sharpest tools made the best art, and hair, to Francine, was very much an art form. Today, however, the usual thrill of anticipation before the salon opened was replaced by a gnawing unease. The morning felt… heavy. Like the air before a thunderstorm.
+
+She sighed, pushing a stray strand of fiery red hair (her own, naturally) behind her ear. The scent of lavender shampoo and freshly brewed coffee usually calmed her nerves, but even that familiar aroma couldn’t quite penetrate the thick fog of apprehension that had settled over her. It was probably nothing, she reasoned. Just the pre-competition jitters kicking in a little early. The Regional Hairdressing Championship was only a week away, and she was determined to finally dethrone the reigning queen, the perpetually blonde and equally smug, Tiffany Vanderbilt.
+
+Still, that feeling… it lingered, a prickly sensation on the back of her neck. As Francine meticulously checked the alignment of her comb, a shiver ran down her spine. Today was going to be different. She could feel it.
+
+## Setting:
+
+**The Golden Shears** is a small, independently owned hair salon located in the heart of Havenwood, a picturesque, if slightly sleepy, town nestled amongst rolling green hills in upstate New York. The salon itself is a haven of vibrant colours and eclectic charm. Think vintage Parisian boutique meets rock-and-roll art studio.
+
+*   **Exterior:** The building is a two-story Victorian with a freshly painted facade of soft periwinkle blue. A striped awning, alternating shades of gold and crimson, provides shade over the large front windows, which are often decorated with quirky displays featuring mannequin heads sporting outrageous hairstyles and handcrafted accessories.
+*   **Interior:** The walls are painted a warm, inviting shade of cream, adorned with framed vintage advertisements for hair products and quirky, abstract art created by local artists. Six antique barber chairs, each upholstered in a different shade of velvet, are strategically placed around the room, facing large, ornate mirrors. The back wall is a kaleidoscope of colours, thanks to the shelves upon shelves of professional hair dyes in every shade imaginable. There's a small waiting area near the entrance, furnished with comfortable velvet armchairs and a coffee table piled high with fashion magazines and glossy brochures. A bubbling fountain adds a calming ambiance to the space, its gentle trickling sound mixing with the hum of hairdryers and the lively chatter of clients and stylists. In the back, a small kitchenette offers complimentary tea, coffee, and homemade cookies to customers. The overall atmosphere is one of creativity, relaxation, and a touch of quirky elegance.

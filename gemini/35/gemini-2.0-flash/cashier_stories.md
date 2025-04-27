@@ -1,0 +1,9 @@
+**Setting:**
+
+The fluorescent lights of "Corner Grocer & Deli" hummed a discordant tune, bouncing off the linoleum floor worn smooth by countless shuffling feet. Shelves, stacked haphazardly with everything from dented cans of beans to overpriced avocados, seemed to groan under the weight of their bounty. It was a Tuesday afternoon in late October, the kind where the sky threatened rain but never quite delivered, leaving a damp chill hanging in the air that seeped even into the brightly lit aisles. Outside, the wind rustled through the dying leaves of the ancient oak tree that leaned precariously over the parking lot, scattering a mosaic of crimson and gold across the asphalt.
+
+**Story Opening:**
+
+Margaret Evelyn Davies smoothed down the faded blue of her Corner Grocer uniform, the fabric clinging uncomfortably in the clammy atmosphere. Her glasses, perpetually threatening to slide down her nose, had already fogged up three times in the past hour, and she’d given up wiping them, opting instead to peer over the top with a weary squint. The rhythmic "beep" of the scanner was a constant companion, a monotonous soundtrack to her life these days.
+
+Another customer lumbered up to her register, a man built like a refrigerator with a face like a crumpled brown paper bag. He placed a six-pack of cheap beer and a single, overripe banana on the conveyor belt, the banana looking particularly pathetic against the backdrop of the shiny aluminum cans. Margaret sighed inwardly. Just another Tuesday. "Club card?" she asked, her voice flat, already anticipating his mumbled refusal and the subsequent fumble for exact change. But today, something was different. The man didn’t even look at her. He just stared, his eyes wide and unfocused, directly through her as if she were nothing more than a flickering hologram. And then, he whispered, in a voice thick with dread, "They're coming back."

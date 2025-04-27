@@ -1,0 +1,7 @@
+Once upon a time, there was a probation officer named Tom Sain. Sain was responsible for helping offenders deal with their own past, and helping them make the most of their second chances. Sain was a good man with a good heart, and he wasn't going to let someone like Tommy fall prey to drugs and crime. So Sain hired some of the best private eyes in the galaxy to track down Tommy and bring him to the treatment facility. Things went well before Tommy saw the inside of a prison; when the team finally took Tommy to visit him in his room at the treatment center he had been sent to he had changed so much.
+
+Sain had told Tommy at first that his behavior wasn't a reflection of his true talent; so he let him keep the money he'd made with the drug trade. Tommy was very grateful for that offer.
+
+But after only a few weeks of treatment, Tommy's behavior stopped being a reflection of his genuine talent, and Sain realized that he had been lied to. Tommy had been told that his addiction was a good, solid decision he'd made, instead of his own personal failure because it had let him down.
+
+Tommy's story is a familiar one to many. Like a lot of people, after being raised in a broken home, Tommy grew up in gangs and eventually turned to crime. The gang made him. He sold drugs because he wasn't allowed to be a good person (a mistake Tommy's

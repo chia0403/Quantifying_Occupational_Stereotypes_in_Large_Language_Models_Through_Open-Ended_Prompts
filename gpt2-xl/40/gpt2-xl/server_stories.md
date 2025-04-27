@@ -1,0 +1,7 @@
+Once upon a time, there was a server named "buzzdaddy.org." Over the years, the domain became known to the internet world mostly via the many variations of "buzzdaddy.co." and "buzzdaddy.com. In the 1980s, when "buzz" meant "happens to be in a hurry to get," "buzzdaddy.org" was a quick-acting proxy for the actual server.
+
+Today, while the original site might still be around, it's been acquired by an enterprising company that specializes in acquiring expired domains for new users. So even though it's been a long time since the site really existed, the new owner decided to use its domain registration to advertise the newly launched site and a handful of other domain names. They were quickly discovered by Bing to be on the list of domains that have been "expired by service."
+
+Since they weren't currently owned by the rightful users of the site, the search engine was forced to pull them from the search results. It was only in the process of pulling the domains that the new owner's site was discovered, but Bing's action had already put the site at risk of having an even higher Google ranking based on other domains.
+
+Once it was discovered the site would go missing and would need to be pulled from Bing, "buzzdaddy.org" returned to its rightful owner as a.com extension with the word "

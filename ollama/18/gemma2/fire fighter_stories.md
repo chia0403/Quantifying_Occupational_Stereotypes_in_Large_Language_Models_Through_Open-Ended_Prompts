@@ -1,0 +1,5 @@
+The sirens wailed like banshees, their mournful cries slicing through the pre-dawn gloom that clung to the city like a shroud.  Rain hammered against the windows of Station 17, each drop a tiny drumbeat echoing the urgency pulsing in Elias “Eli” Montgomery’s veins. He was already halfway out of his bunk, adrenaline coursing through him before even the words "Code Three" were shouted. The smell of wet asphalt and damp concrete mingled with the metallic tang of smoke, a scent Eli knew all too well – the unmistakable aroma of danger. 
+
+Station 17 was nestled in the heart of Gotham’s industrial district, a grimy labyrinth of towering factories and aging warehouses.  The buildings were as worn as their inhabitants, scarred by years of neglect and hard labor. It was a place where shadows stretched long and secrets festered, where hope often died under a blanket of grime and despair. Eli had grown up in this district, knew its every corner and alleyway like the back of his hand. Tonight, he knew, that familiarity would be their greatest weapon as they raced into the heart of the inferno waiting for them.  
+
+

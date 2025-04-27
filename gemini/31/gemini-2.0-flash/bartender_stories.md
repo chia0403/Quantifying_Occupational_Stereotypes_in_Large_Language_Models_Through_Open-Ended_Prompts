@@ -1,0 +1,11 @@
+## Story Opening:
+
+The ice pick crunched through the final cube, sending shards skittering across the scarred mahogany countertop. Elias Thorne, his forehead damp under the flickering neon sign above the liquor shelves, sighed. It was nearing 2 AM, the witching hour for lonely souls and spilled confessions, and the last stragglers were finally starting to trickle out of "The Gilded Cage," leaving behind a trail of cigarette butts and half-finished drinks.
+
+Elias ran a hand through his dark, perpetually rumpled hair, the gesture doing little to tame it. He'd been polishing glasses since seven, listening to a symphony of woes, from broken hearts to broken dreams. Tonight's encore, a particularly maudlin breakup monologue delivered by a woman in a sequined dress that had seen better days, had almost pushed him to the brink of early retirement.
+
+He glanced at the tip jar, a paltry collection of crumpled bills and loose change. Not enough for rent, definitely not enough for that vintage Gibson he'd been eyeing. Elias dipped his hand inside, the metallic tang of copper clinging to his fingers. He sighed again, a sound that echoed in the suddenly quiet bar. Maybe tomorrow would be different. Maybe tomorrow, someone would walk in with a story worth listening to, a story that didn't taste quite so much like stale regret.
+
+## Setting:
+
+"The Gilded Cage" was located in the grittier part of Oakhaven, a city perpetually teetering on the edge of gentrification. It was a place where old brick warehouses stood shoulder-to-shoulder with trendy art galleries, where the murmur of poetry readings mingled with the rumble of passing trucks. The bar itself was a relic, a throwback to a bygone era. The mahogany bar, deeply etched with years of spilled drinks and clandestine conversations, dominated the room. Behind it, mirrored shelves gleamed under the hazy light, displaying a dizzying array of spirits. Mismatched velvet armchairs and dimly lit booths lined the walls, offering a semblance of privacy. The air was thick with the scent of stale beer, cigarette smoke, and a hint of something vaguely floral, a cheap air freshener trying desperately to mask the inevitable decay. Outside, the flickering neon sign, depicting a bird trapped in an ornate golden cage, buzzed a constant, low hum, a mournful soundtrack to the city's late-night secrets.

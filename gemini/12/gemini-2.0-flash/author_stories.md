@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting with a main character who is an author, along with some elements to hint at the genre:
+
+**Story Opening and Setting:**
+
+The salt-laced wind whipped around Eleanor Abigail Blackwood, tugging at the edges of her tweed scarf and threatening to snatch the manuscript pages from her lap. She anchored them with a well-worn leather journal and sighed, the sound lost to the mournful cries of the gulls circling overhead. Below, the churning grey sea crashed against the jagged cliffs of Port Blossom, a small, isolated village clinging precariously to the Cornish coast. Eleanor, usually soothed by the rhythm of the waves, found little comfort today.
+
+She’d come to Port Blossom seeking inspiration, a fresh start after the disastrous reception of her last novel, a historical romance that critics had brutally dismissed as "utterly devoid of historical accuracy and any semblance of romance." Ouch. She needed a win, a bestseller. The quaint village, steeped in maritime history and whispered legends, seemed the perfect escape. She'd rented a tiny, ivy-covered cottage on the edge of the cliffs, promising herself that the raw beauty of the landscape would unlock her creative potential.
+
+But three weeks had passed, and the only thing Eleanor had managed to unlock was a persistent case of writer's block and a growing sense of unease. The villagers were friendly enough, but their smiles felt…studied, their eyes holding a strange, knowing glint. The stories they told of shipwrecks and smugglers seemed a little *too* vivid, a little *too* personal. And the dreams...the dreams were the worst. Vivid, unsettling visions of drowned sailors and shadowy figures lurking in the fog, their cold, grasping hands reaching for her. Tonight, it felt like the fog was reaching in reality. 

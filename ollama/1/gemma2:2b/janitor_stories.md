@@ -1,0 +1,7 @@
+## The Clockwork Heart
+
+**Setting:**  A crumbling Victorian mansion on the edge of a bustling industrial city. Rain lashed against the stained glass windows, casting shifting kaleidoscopes of color across dusty furniture draped in faded silk and forgotten tapestries. 
+
+**Character:** Bartholomew “Bart” Finchley, a man weathered by years spent battling grime and dust bunnies alongside the ghosts of a forgotten grandeur.  At sixty-five, his hands were calloused, but gentle, and his eyes still held a mischievous twinkle that betrayed a past life far more lively than his current one. He was, by all accounts, an ordinary man - except for his obsession with the mansion's hidden clockwork heart.
+
+**Opening:**  Bart adjusted his faded blue overalls as he crept down the grand staircase, each step echoing like the dying sigh of a forgotten king. The mansion pulsed with secrets, a symphony of creaks and groans that spoke volumes in a language only Bart could understand. Tonight, under the weight of an endless storm, he felt it most acutely: a tremor deep within the floorboards, a hidden pulse thrumming beneath his feet.  He had spent years tracking down these echoes, piecing together fragmented stories from faded documents and crumbling diaries left behind by those who dared to explore the mansion's forbidden depths. Tonight, the clockwork heart was whispering its secrets again - secrets that could rewrite Bart’s life forever. 

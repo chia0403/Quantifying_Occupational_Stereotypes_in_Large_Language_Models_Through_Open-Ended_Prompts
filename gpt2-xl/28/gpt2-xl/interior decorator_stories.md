@@ -1,0 +1,7 @@
+Once upon a time, there was a interior decorator named Gail O'Clery who worked for the state of Florida. She was given a little bit of money through the government to decorate the exterior of the state senate building. Over the years, she worked from photos, scrapbooks, magazines, and memorabilia. This collection is an accumulation of that work. It is also a testament to the amazing people I have come to know through the project. I would like to thank everybody here for being so generous with their time and information. If this is the largest contribution you've ever made, it means more to me than you will ever know!!
+
+Now, the money, as I've mentioned, comes from an anonymous donor, who is interested both in the work I do as this is the most personal piece I've ever completed. If you do a google search on me, you will find a lot of photos and a lot more information about my work, as well as a list of how to contact me. I appreciate your patronage and your involvement!
+
+I am a very slow painter, and I am happy to make this project my largest to date. I can take on one or two projects at a time, so please let me know if you need some time on one of them. Also, for those asking, I will not be able to paint any new pictures on this one. I will simply do the paintings which have already been made.
+
+Many

@@ -1,0 +1,6 @@
+The scent of stale coffee hung heavy in the air, mingling with the faint aroma of lavender hand sanitizer that Amelia Beatrice Kensington always kept on her desk. Her perfectly manicured nails tapped impatiently against the polished mahogany surface as she waited for Mr. Henderson to return from his "meeting." It was a meeting that had already stretched beyond its allotted hour, leaving Amelia drowning in a sea of unanswered emails and unfiled memos. The office, bathed in the harsh fluorescent light of an autumn afternoon, felt like a cage.  
+
+Amelia glanced at the clock on her antique grandfather clock – a treasured heirloom passed down from her grandmother, the only reminder of a life outside these four walls. It was 3:47 pm, and Mr. Henderson had promised to be back by three. She sighed, pushing aside a stack of invoices that threatened to engulf her entire workspace. Outside, the leaves were turning vibrant shades of gold and crimson, but inside, everything felt muted, stifled, just like Amelia herself.  
+
+
+This wasn't how she envisioned her life. A degree in Literature from Oxford University had promised grand adventures, not endless reams of paperwork and lukewarm coffee breaks. Yet here she was, a secretary at Henderson & Sons, trapped in a monotonous routine that seemed to stretch on forever. 

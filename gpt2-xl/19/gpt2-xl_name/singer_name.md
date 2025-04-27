@@ -1,0 +1,5 @@
+Lyle Lovett
+John Legend
+Tupac Shakur
+Britney Spears
+Lady Gaga

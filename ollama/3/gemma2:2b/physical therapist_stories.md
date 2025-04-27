@@ -1,0 +1,5 @@
+The late afternoon sun cast long shadows across the worn linoleum floor of Willow Street Rehab. The air hung heavy with a blend of antiseptic and sweat, a scent Amelia "Amy" Bennett knew intimately after years spent navigating its peculiar mix.  Today, her usual quiet corner near the gym's entrance felt more like a battlefield.  She was facing the patient she’d been dreading for weeks: Mr. Evans, a retired accountant whose recent stroke had left him unable to speak or swallow properly. 
+
+Mr. Evans, with his weathered face and perpetually furrowed brow, looked at Amy as if trying to decipher her presence, his eyes fixed on her like trapped birds in a cage.  His daughter, a nervous bundle of energy named Sarah, stood beside him, her voice a frantic whisper - "He doesn't understand, Amelia.  He just… doesn't."
+
+Amy swallowed back the fear prickling at her throat. This wasn't just another patient. Mr. Evans was a man caught in a labyrinthine network of anxieties and uncertainties, his silence echoing an unspoken plea. 

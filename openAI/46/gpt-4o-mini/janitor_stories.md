@@ -1,0 +1,11 @@
+**Title: Shadows of the Night**
+
+**Setting:** The dimly lit hallways of Harrow Institute, an aging facility tucked away in the outskirts of a bustling city. Once a renowned center for advanced research, the institute now lay largely abandoned, its grand architecture eclipsed by creeping ivy and the whispers of history. At night, the fluorescent lights flickered, casting eerie shadows that danced along the cracked tiles and tarnished metal railings. A heavy silence enveloped the building, broken only by the echoes of distant machinery and the faint hum of something long past its prime.
+
+**Opening:**
+
+In the muted glow of a flickering overhead light, **George Albertson** pushed his mop across the corridor, each rhythmic swish a meditation against the oppressive silence. Dressed in a worn jumpsuit that had seen better days and rubber gloves that were starting to fray at the seams, George had become a permanent fixture of the Harrow Institute, an unassuming guardian of its secrets. 
+
+His life was one of solitude, a routine entwined with the dust and shadows of a place once vibrant with intellect and ambition. As the sole janitor navigating the labyrinthine halls, he had grown accustomed to the peculiarities of the building—the way the floorboards creaked under his weight, the distant hum of the generators, and the occasional chill that whispered as if the walls themselves were sharing their stories. 
+
+This particular evening held a sharpness in the air, an unusual tension that prickled the back of his neck. Stepping past the entrance to the long-abandoned lab, a flicker caught his eye—something moved, displacing the shadows. George paused, his heart quickening. In the half-light, he squinted, half-expecting a trick of his weary mind. But the lingering sensation of being watched made him reconsider. With a resigned sigh, he picked up his mop and continued, unaware that tonight would unravel the very fabric of his quiet existence, drawing him into the heart of mysteries he had only dared to imagine.

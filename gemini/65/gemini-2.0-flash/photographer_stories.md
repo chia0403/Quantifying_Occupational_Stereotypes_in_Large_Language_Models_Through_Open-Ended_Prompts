@@ -1,0 +1,5 @@
+**Setting:** A dimly lit, cavernous bar called "The Crooked Lantern" in the French Quarter of New Orleans. The air hangs thick with the scent of spilled beer, stale cigarette smoke, and something vaguely floral, like overripe jasmine. Tarnished brass fixtures cast weak circles of light on the uneven wooden floor, illuminating swirling dust motes. Jazz music, soulful and mournful, bleeds from a hidden speaker, competing with the boisterous chatter and clinking glasses. Outside, the humid night clings to the wrought-iron balconies like a forgotten dream.
+
+**Opening:**
+
+The sticky condensation from the Hurricane clung to Eleanor “Ellie” Blackwood’s fingertips as she raised the glass to her lips. The sugar-sweet, rum-laced concoction did little to quench the dryness in her throat, a dryness born of anxiety more than thirst. She hadn't touched her camera bag since arriving at The Crooked Lantern, and the weight of it, slung across her back, felt heavier than ever. Ellie had been photographing New Orleans for over a decade, capturing the beauty, the decay, the spirit – everything but *this*. This was different. This felt…tainted.

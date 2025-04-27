@@ -1,0 +1,6 @@
+The stale scent of printer ink clung to Elara Vance like a second skin. It wasn't unpleasant, exactly, just… constant.  She inhaled deeply, letting the familiar aroma fill her lungs as she surveyed her studio apartment-turned-design haven. Sunlight slanted through the dusty windows, illuminating the chaotic landscape of half-finished projects, overflowing recycling bins, and scattered art supplies.
+
+Elara was a graphic designer, a self-proclaimed “visual storyteller” whose talents were perpetually overshadowed by her cripplingly low self-esteem. Her tiny apartment in Seattle’s Ballard neighborhood served as both her office and living space, a testament to her fiercely independent spirit and questionable organizational skills. The walls were adorned with her own designs – vibrant murals of mythical creatures, bold typographic statements, and quirky illustrations that whispered of a restless imagination yearning for recognition.
+
+
+But today, Elara felt anything but inspired.  A wave of doubt washed over her as she stared at the latest project on her laptop screen: a brochure for a local bakery.  It was mundane, predictable, safe. The kind of work that paid the bills, but left her soul feeling hollow. 

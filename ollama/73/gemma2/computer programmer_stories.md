@@ -1,0 +1,6 @@
+The flickering neon sign outside "Cyberpunk Cafe" cast an unsettling purple glow across Amelia Sinclair's face as she hunched over her laptop. The air inside was thick with the smell of burnt coffee and desperation, a scent Amelia had come to associate with the late hours of coding sprints. Around her, other programmers were scattered amongst tables piled high with empty takeout containers, their fingers flying across keyboards in a symphony of clicks and clacks.
+
+Amelia, however, wasn't chasing deadlines or bugs tonight. She was hunting something far more elusive: a whisper in the digital ether, a hidden message buried deep within the labyrinthine code of an ancient, abandoned AI network. 
+
+
+The year is 2077, and Neo-Tokyo pulsates with a frenetic energy - towering skyscrapers pierce the smog-choked sky, holographic advertisements flash across buildings, and self-driving cars weave through crowded streets. But beneath the gleaming surface lies a world of cybercrime, corporate espionage, and forgotten technology.  Amelia, a gifted but jaded programmer with a rebellious streak, navigates this chaotic landscape, driven by a thirst for knowledge and a hidden desire to uncover the truth behind her parents' mysterious disappearance years ago. 

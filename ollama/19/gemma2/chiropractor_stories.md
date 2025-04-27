@@ -1,0 +1,4 @@
+The scent of peppermint oil hung heavy in Dr. Evelyn Thorne’s office, mingling with the faint metallic tang of liniment and the quiet hum of her ultrasonic bone massager. Sunlight streamed through the large windows, illuminating dust motes dancing in the air above the worn, plush carpet.  A single potted fern perched precariously on a shelf, its fronds drooping slightly as if burdened by the weight of an unspoken secret. Outside, the bustling city of Austin hummed with life, oblivious to the drama unfolding within these four walls. 
+
+
+Evelyn ran her hand over the cool surface of the adjustment table, smoothing out a wrinkle in the white sheet covering it. The rhythmic click of her grandfather’s antique clock filled the silence, marking each passing second until the arrival of her next patient – a man with a reputation for being as stubborn as his neck was tight. 

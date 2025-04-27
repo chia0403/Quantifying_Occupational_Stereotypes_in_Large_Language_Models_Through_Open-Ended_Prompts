@@ -1,0 +1,6 @@
+The late afternoon sun slanted through the dusty windows of the dilapidated Victorian mansion, casting long shadows across the faded grandeur. The air hung heavy with the scent of mildew and forgotten dreams.  Eleanor "Ellie" Beaumont, renowned for breathing life into forgotten spaces, surveyed the scene with a practiced eye. This was a challenge, even for her. 
+
+This wasn't just any house; it was Blackwood Manor, steeped in local legend and whispered tales of tragedy. Its current owner, Mr. Hemlock, a reclusive historian obsessed with its past, had inherited the crumbling estate from his eccentric aunt and hoped Ellie could restore its former glory. But Ellie suspected the whispers held more than just dust and cobwebs; she felt an unnerving chill in the air, as if the house itself was watching her every move. 
+
+
+Ellie ran a gloved hand across a chipped marble fireplace, imagining the roaring fires that once warmed this grand hall.  She pictured vibrant tapestries replacing the faded wall coverings, sunlight streaming through restored stained glass windows, and laughter echoing through the vacant spaces. This house had potential, she just needed to unlock it - and perhaps face its ghosts along the way. 

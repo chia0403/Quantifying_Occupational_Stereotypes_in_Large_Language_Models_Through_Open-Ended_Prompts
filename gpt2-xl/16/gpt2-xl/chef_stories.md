@@ -1,0 +1,6 @@
+Once upon a time, there was a chef named Gordon Ramsey. He was kind enough to come to New York last weekend for a Q & A dinner, where I had some great questions for him about the best places in town. I asked Gordon about what he was eating like now, and the first thing he said to me (and every restaurant in the world will tell you) is that it's all about the wine. He loved me for this, "you are such a wine geek" he said, before introducing me to his wine director, whom I immediately liked. The rest is history! I was excited to learn that when I meet Gordon Ramsey I'm going to have to learn to love wine. Of course, Gordon is not at a restaurant with one of his signature wines, instead we go to a place where the food will be the wine, and, the wine was his favorite!
+
+We met at a place called Cucina Tacca; in case you don't know, it's a huge Italian house in the Upper West Side with some other cool locations. We were seated first, which I am totally fine with as this meant that any service was delayed a bit, due to the fact we would have to walk over to the restaurant from our meeting space. I sat there and enjoyed the meal with my food, until Gordon came over to the table. Gordon doesn't like you sitting there looking at him, he likes you looking at his plates!
+
+
+Dessert

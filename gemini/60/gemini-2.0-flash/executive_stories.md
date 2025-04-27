@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The incessant buzzing of her phone vibrated against the polished mahogany of Amelia Beatrice Dubois's desk, a shrill counterpoint to the otherwise silent hum of the late-night office. She ignored it, her gaze fixed on the sprawling spreadsheet dominating her monitor. Quarter four projections. Brutal. Unless she could conjure a miracle before morning, the axe was going to fall, and likely on her head. Another buzz, louder this time, followed by a text notification. "Urgent! Call me NOW! - Dad." Amelia sighed. Just what she needed.
+
+**Setting:**
+
+The offices of Zenith Innovations, a leading bio-tech firm specializing in personalized medicine, occupied the top fifteen floors of the towering Obsidian Building in downtown Chicago. From Amelia's 47th-floor corner office, the city sprawled beneath her, a glittering grid of ambition and industry. The furniture was sleek and modern – chrome and glass tempered by plush, charcoal-grey carpeting. Floor-to-ceiling windows offered panoramic views, but tonight, they reflected only Amelia's weary face, illuminated by the cold, blue light of the screen. The air conditioning hummed, a constant, sterile white noise that did little to alleviate the tension coiling in Amelia's gut. Scattered across her desk were empty coffee cups, crumpled reports, and a half-eaten energy bar, testament to the long hours she'd been pouring into salvaging this situation. The scent of expensive leather from her chair mingled with the faint, metallic tang of stress.

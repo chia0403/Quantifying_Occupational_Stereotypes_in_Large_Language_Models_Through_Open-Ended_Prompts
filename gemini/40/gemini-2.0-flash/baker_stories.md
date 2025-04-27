@@ -1,0 +1,7 @@
+## Story Opening:
+
+The smell of warm sourdough, laced with rosemary and a hint of roasted garlic, was the first thing Elara Josephine Thorne ever smelled in the morning. Even before the bleary-eyed awareness of sunlight fighting its way through the floral curtains of her tiny room above the bakery, the aroma would infiltrate her dreams, shaping them into swirling landscapes of golden crusts and perfectly proofed dough. This morning, however, the familiar comfort was undercut by a thin, metallic tang. Worry twisted in her gut, souring the anticipation for the day. Something was off.
+
+## Setting:
+
+The story opens in "The Flour Child," a small, family-run bakery nestled on the cobbled streets of Oakhaven, a quaint village tucked away in the rolling hills of Yorkshire, England. The bakery itself is a charming relic, its pale blue facade adorned with climbing roses and a hand-painted sign that has weathered gracefully over the decades. Inside, worn wooden floors creak underfoot, and the walls are lined with overflowing shelves showcasing Elara's creations: crusty loaves, delicate pastries, and intricately decorated cakes that are almost too beautiful to eat. The back room, the heart of the bakery, is a bustling workspace, dominated by a massive, antique oven that hums with warmth and the rhythmic thump-thump of Elara's well-loved stand mixer. Outside, the village of Oakhaven is known for its slow pace and close-knit community, where everyone knows everyone, and secrets are as hard to keep as a perfectly risen souffle.

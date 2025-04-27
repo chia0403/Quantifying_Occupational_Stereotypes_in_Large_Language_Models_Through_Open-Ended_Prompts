@@ -1,0 +1,7 @@
+Once upon a time, there was a heavy equipment operator named Dan. Dan was kind of a big deal. His reputation reached deep into the company where he took the place of an actual employee. He made sure our trucks were outfitted with safety equipment. He even convinced the boss to let our crews use their own vehicle. It wasn't long until Dan, who always wore a bandana under his hat and kept the bandana tucked into the pocket of his pants, was made co-worker of the month.
+
+Things got even better. When the boss, a hard-nosed fellow named George, got into a fight with Dan on the floor the next time someone spilled a drink, Dan was the one who took the brunt of the blows. George told Dan that he felt sorry for Dan, a man he'd made in the workshop. George invited Dan to a barbeque. There, Dan took the first dish off the grill and ate it, like nothing had ever happened. He said that he'd never been happy until George became a boss.
+
+One after another, Dan became George's protégés. From that point on, George was always talking to Dan about how happy he was to be a boss and how he wanted Dan to be his future boss someday.
+
+Dan's next boss was David. David was more laid-back. He was a big man with a thick southern drawl. David didn't like Dan much, but he loved to

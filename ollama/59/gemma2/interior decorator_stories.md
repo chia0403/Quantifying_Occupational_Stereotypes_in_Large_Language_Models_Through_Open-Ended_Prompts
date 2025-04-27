@@ -1,0 +1,6 @@
+The scent of lavender and burnt sugar hung heavy in the air, battling for dominance against the acrid sting of fresh paint. Elara Bellweather surveyed her latest project with a critical eye: a sprawling Victorian duplex on a quiet street in Brooklyn Heights. Sunlight streamed through the dust-laden windows, illuminating layers of peeling wallpaper and faded floral patterns that screamed "grandma's house." It was a far cry from the minimalist Scandinavian chic she usually favored, but Elara thrived on challenges. This behemoth held potential, a sleeping beauty waiting for her to awaken it with colour, texture, and a touch of modern magic. 
+
+
+Elara adjusted her designer sunglasses, pushing back a stray curl that dared to escape its braid. She ran a gloved hand along the ornate banister, feeling the rough grain beneath her fingertips. This house wasn't just about updating; it was about preserving history while breathing new life into it. It was a delicate dance between respecting the past and embracing the future.  
+
+The floorboards groaned under Elara's weight as she climbed the grand staircase, each step echoing through the cavernous space. The air crackled with anticipation. This wasn't just another job; this was an opportunity to sculpt something truly unique, a masterpiece that would become a testament to her artistry and vision.  

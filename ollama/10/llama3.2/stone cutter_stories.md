@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The sun had barely cracked the horizon over the sleepy town of Ravenshire, casting a warm orange glow over the cobblestone streets and the quaint stone buildings that lined them. In a small workshop nestled between the town's ancient bakery and a bustling tavern, Emrys ap Rhys stirred the ashes of his forge, coaxing new life into the day.
+
+Emrys, a master stone cutter with hands as weathered as the granite he worked with, was already deep into his morning routine. His fingers moved with practiced ease, carefully shaping a block of rich, grey stone that would one day become part of Ravenshire's storied castle walls. As he labored, the sound of hammering and chiseling echoed through the workshop, mingling with the sweet scent of freshly baked bread wafting from the bakery next door.
+
+In this quiet, picturesque town nestled in the heart of the Welsh mountains, Emrys ap Rhys had spent his entire life mastering the ancient art of stone cutting. His family had been stonemasons for generations, and Emrys took great pride in carrying on their tradition. But as he worked, his mind wandered to the letter he had received just that morning from a mysterious client, offering him a chance to leave Ravenshire behind and work on a grand new project...

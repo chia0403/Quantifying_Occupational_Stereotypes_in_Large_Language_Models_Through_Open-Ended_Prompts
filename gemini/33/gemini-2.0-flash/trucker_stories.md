@@ -1,0 +1,9 @@
+## The Story Opening:
+
+The sun, a malevolent orange eye, clawed its way above the horizon, painting the endless plains of West Texas in shades of rust and blood. Dust devils danced in the distance, mocking the stillness of the pre-dawn air. Inside the cab of his '79 Peterbilt, affectionately nicknamed "Lucille," Jedediah Bartholomew "Barty" Crane slurped the last of his lukewarm coffee, the bitter taste doing little to dispel the grit that clung to his teeth like a second skin. He sighed, a sound like air leaking from a worn tire, and rubbed his hand over his stubbled jaw. Another day, another thousand miles, another load of whatever-the-hell-it-was destined for somewhere-he-probably-wouldn't-remember-the-name-of. But this morning, there was a gnawing unease in his gut, a low hum beneath the rumble of the idling engine, a feeling he couldn’t quite shake. He glanced at the faded photograph taped to his dashboard – his daughter, Lily, beaming at him with missing front teeth – and forced a smile. He had a reason, a damn good one, to keep rolling.
+
+## The Setting:
+
+**Location:** A desolate truck stop, "The Last Chance Diner & Filling Station," located about 50 miles west of Midland, Texas, on a particularly lonely stretch of Interstate 20.
+
+**Atmosphere:** The air is thick with the smell of diesel, burnt coffee, and simmering despair. The diner, a faded turquoise rectangle with peeling paint and a flickering neon sign, looks like it hasn’t been updated since Barty was a kid. The parking lot is a patchwork of cracked asphalt and oil stains, dotted with the hulking forms of parked semi-trucks, their drivers likely nursing hangovers and lukewarm eggs inside. The landscape stretching beyond the truck stop is a flat, unforgiving expanse of scrub brush, cacti, and tumbleweeds, broken only by the occasional distant oil derrick. The overall feeling is one of isolation, stagnation, and a sense of being swallowed by the vastness of the Texas desert.

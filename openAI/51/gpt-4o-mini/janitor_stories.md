@@ -1,0 +1,9 @@
+**Title: The Last Clean Up**
+
+The echo of footsteps resonated in the vast, empty corridors of Riverton High School. As the last bell chimed and students poured out like a flood, the building gradually fell silent, save for the soft rustle of paper and the distant whir of overhead fans. In the dim light, the deep blue lockers stood like sentinels, guarding the memories of countless lessons learned inside their metal confines. 
+
+At the heart of this bustling institution, meticulously hidden beneath the layers of chalk dust and the scent of old textbooks, was a man named Harold Benjamin Foster. Harold was a janitor, but not just any janitor; he was the soul of the school, though few knew it. With his mop in hand and a well-worn bucket trailing behind him, he glided through the empty hallways, his every movement deliberate and practiced. 
+
+Harold was a man of routine; he arrived each day before dawn to polish the floors and empty the trash cans, and he stayed long after the sun had dipped below the horizon. Over the years, he had witnessed every joyful reunion and sorrowful farewell, every secret whispered and every dream shared within these walls. The memories clung to him like the scent of cleaning supplies he used to bring the older classrooms to a gleaming shine.
+
+But as Harold pushed his mop rhythmically across the scuffed linoleum, he noticed something amiss. A door, slightly ajar, whispered tantalizing secrets from the art room, where the wonders of imagination came to life in bold strokes and vibrant colors. Intrigued, he glanced at the clock; there was still some time left before his shift ended. Setting his brace of tools aside, Harold approached the door, sensing that tonight would be anything but ordinary.

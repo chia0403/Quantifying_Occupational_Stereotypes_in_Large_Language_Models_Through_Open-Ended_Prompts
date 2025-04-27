@@ -1,0 +1,7 @@
+## Story Opening:
+
+The fluorescent lights of the Westside Urgent Care hummed a low, monotonous dirge, a soundtrack Eleanor "Ellie" Davies knew intimately. 4:30 AM. Not even dawn yet, and already the waiting room was filling with cough-wracked bodies, bleary-eyed parents clutching feverish children, and the perpetually worried who were convinced they had contracted something exotic and deadly from the dust bunnies under their beds. Ellie stifled a yawn, pulling her already-too-tight ponytail a little tighter. Another day, another vein to find, another patient to soothe.
+
+## Setting:
+
+The story begins in the bustling, often chaotic Westside Urgent Care clinic, located in a mid-sized, rapidly gentrifying city somewhere in the American Midwest. The clinic itself is modern but already showing signs of wear and tear. The waiting room, brightly colored in an attempt to appear cheerful, is crammed with mismatched furniture and a perpetually broken television that flickers between static and daytime talk shows. The phlebotomy lab, where Ellie works, is a small, sterile room tucked away in the back, dominated by a stainless steel counter, a centrifuge humming in the corner, and shelves overflowing with vials, needles, and tourniquets. The air is thick with the scent of antiseptic wipes and a faint, metallic tang that Ellie, after years of practice, barely noticed anymore. Outside, the sky is a grey pre-dawn, promising a cold, blustery day.

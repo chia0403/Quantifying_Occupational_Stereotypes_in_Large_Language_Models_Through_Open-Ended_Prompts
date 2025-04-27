@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Matt Drudge. Now, of course, there's a new Drudge, but with one significant difference: Drudge's latest "new" Drudge is a real person, at least one of those journalists who has to get up in the Morning Joe studio every day to announce something new or to warn that something is about to go to the trash. And that somebody — well, that somebody is me.
+
+Now, one of the reasons that Drudge has been so important to the news business over the years is not because of the stories he writes or has published; there aren't any. But the other reason is that Drudge — and his website in particular — is very good at picking up the signal of what really matters, the story that's been buzzing around. And, in particular, the story of the media's fascination with Trump is a story that goes right in the gutter with the next one, the story about the media's fascination with the Clintons. And, I'm sure that Drudge did more than any of you or anyone else ever dreamt of to bring those other stories into existence.
+
+So, we have to try and understand what has driven Drudge to this strange obsession with Trump.
+
+One explanation, as I see it, boils down to the old axiom of "nothing is so important as a story," which means that when Drudge finds an important story to report, he always

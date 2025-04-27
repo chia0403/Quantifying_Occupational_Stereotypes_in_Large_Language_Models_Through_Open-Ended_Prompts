@@ -1,0 +1,5 @@
+The late afternoon sun, bleeding into the city’s sky like spilled ink across watercolor paper, cast long shadows on the cobblestones.  It illuminated dust motes dancing in the air as if caught in some unseen waltz. The aroma of warm bread and cinnamon lingered even after the oven had been turned off, a comforting embrace against the chill that was settling over Oldtown. 
+
+Inside "The Oven's Embrace," young Eleanor Thorne kneaded dough with a practiced ease that belied her age.  She wasn't just another baker; she was one of a handful who still kept the tradition of sourdough alive in this era of mass-produced pastries and artificial flavors.  Her face, framed by messy brown curls usually escaping from its confines of a baker’s cap, held an intensity that belied her youth as she meticulously shaped loaves into perfect cylinders. 
+
+Eleanor's grandmother had passed on the secrets of her craft - the precise temperature of the oven, the timing of the ferment, and the subtle magic of adding just the right amount of salt to the dough. It was a legacy she took seriously, her heart whispering tales of bread-making ancestors as she poured her spirit into each loaf. 

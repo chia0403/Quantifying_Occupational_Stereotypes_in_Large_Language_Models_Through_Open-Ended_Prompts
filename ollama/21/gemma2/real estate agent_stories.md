@@ -1,0 +1,6 @@
+The Arizona sun beat down on Amelia "Amy" Rose Hawthorne's back as she squinted at the sprawling stucco mansion before her. It was the kind of house that whispered money and secrets, its manicured lawns stretching out like emerald waves against the backdrop of dusty desert hills. A wrought iron gate, adorned with intricate floral patterns, stood sentinel at the entrance, hinting at the exclusivity that lay within. 
+
+Amy adjusted the strap of her bright pink satchel, feeling the weight of her brochures and a notepad filled with potential buyer profiles. This was her first listing in the exclusive gated community of Whispering Palms, and she was determined to make it count.  Whispers of eccentric billionaires and Hollywood scandals swirled around this neighborhood like dust devils, but Amy wasn't fazed. She had a knack for navigating the social currents of the city’s elite, and her charm, coupled with her unwavering professionalism, often won over even the most discerning clients. 
+
+
+The silence was broken by the chirp of a cicada as Amy stepped through the gate, its rusty hinges protesting the intrusion. This was it. Her chance to prove herself in a world where success was measured in square footage and multi-million dollar deals.  

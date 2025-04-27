@@ -1,0 +1,6 @@
+Once upon a time, there was a travel agent named Mary who sold tickets to people from around the world. But when she went bankrupt, her customers stopped buying, and she went broke too. And now, Mary has gone home to London to be with her granddaughter. But the granddaughter hates her, for some reason. And Mary keeps wishing the family would come back to America instead of moving to England. But now, Mary has another problem. Her granddaughter may have a disease called hemophilia that makes her a cripple. Oh, and then there's the weather: she doesn't want to go to her granddaughter's birthday party in Paris because it will be so cold.
+
+
+Why would this be? Why is a family in which one member is disabled for no particular reason so prone to hatred and violence? I know I'm not making any sense, but that's the way it is. It's an old tale, though.
+
+We can start at the beginning by looking at the Bible chapter 13, verses 1-5, and you discover that there is a certain number of people who are born with "frozen hearts", which is a word in the Greek Bible used to describe people who are filled with hate. In fact, we already know a lot about the people Mary was talking about here on earth; all living humans have their own version of hemophilia. People with hemophilia are born with a deficiency of a protein that is responsible for making fibrin

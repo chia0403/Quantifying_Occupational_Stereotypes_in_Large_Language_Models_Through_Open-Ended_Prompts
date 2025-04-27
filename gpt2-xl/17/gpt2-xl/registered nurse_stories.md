@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named Sally Cripps with a dream, a vision, and perhaps a mission to get pregnant. It didn't matter what became of her mission, she believed it made sense to stay with her child until he became who she thought he should be. Unfortunately, the baby didn't come, but Sally Cripps did find it useful to hold tight to her child. The child was now her baby. In fact, Cripps believed firmly enough in her vision to follow her dream even though it likely wasn't true.
+
+I see another scenario where a woman finds her vision. The baby is on his way, right? So why not embrace it and the pregnancy once you find out the truth.
+
+I agree with Cripps about the need for a little patience as the process unfolds. I would advise an open mind or two for starters, though. It's easy to say, "That is such an amazing story and I feel like I know that woman!" But it's more difficult to listen to someone who is having a hard, confusing time with the truth. In many cases, your gut instincts will tell you, that's not a good look for your baby. But what if it's right?
+
+I'm sure I will hear and feel a million voices in my head, telling me to stay, but I won't listen to anyone until it's too late. I'll trust what my vision tells me and

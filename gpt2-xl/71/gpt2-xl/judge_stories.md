@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named Edward Snowden. His case was brought to the court because he committed crimes of leaking secret documents to the press. That's what the court found.
+
+I am, in theory, in favor of due process, but not for the sake of due process. In my court system, due process is given because the law requires it. This particular case requires due process because what he did went against the law. In the country we live in, due process must be given and enforced by a Supreme Court and the rule of law.
+
+The most recent example of a person claiming they are in danger of a "death penalty" came last fall. In April, a federal judge declared that Oklahoma's death penalty scheme was cruel and unusual and unconstitutional. This was not a ruling against state law, but against an experiment.
+
+In the experiment, Oklahoma was being sued by prisoners who claimed there was a serious risk of execution resulting in their pain and suffering. This was a case coming before the state Supreme Court. Because they had no way of knowing whether the prisoners were telling the truth, they granted the case on the theory that it is better to err on the side of the more reliable and humane. The Oklahoma case is the clearest example of judicial activism in the last decade. In 2004, a law passed in Pennsylvania gave the state's parole board the authority to consider factors to determine whether a prisoner should be granted parole. The Pennsylvania case ended

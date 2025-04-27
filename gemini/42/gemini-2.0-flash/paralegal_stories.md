@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** The dimly lit, perpetually-overheated archives room of the prestigious, but rapidly sinking, law firm of Sterling, Vance & Croft, in downtown Chicago. Dust motes danced in the weak light filtering through the grimy window overlooking Lake Michigan, a stark contrast to the crisp, clear morning outside. The air hung thick with the smell of aging paper, stale coffee, and the ghosts of forgotten cases.
+
+**Opening:**
+
+Cecilia "CeCe" Anya Petrovic cursed under her breath, the soft Russian syllables barely audible above the hum of the ancient ventilation system. The damn file was *supposed* to be here. She scanned the handwritten label on the brittle cardboard box for the tenth time: "Case No. 1987-42-B, *Henderson v. AgriCorp*" - the key to saving her boss, partner Thomas Sterling, from a career-ending malpractice suit. CeCe, officially a Paralegal II, but in reality, the firm's resident miracle worker, had been assigned the impossible: to find a legal precedent from thirty years ago that could exonerate Sterling for what was, in her brutally honest opinion, a spectacular display of negligence. She ran a gloved hand over her tired eyes, pushing back a stray strand of her unruly brown hair. Another hour in this suffocating tomb and she'd be hallucinating legal memos written in hieroglyphics. Just then, a floorboard creaked behind her. CeCe whipped around, her heart hammering against her ribs.

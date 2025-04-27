@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, including the full name of the main character, who is a guard:
+
+**Setting:**
+
+The sprawling, coastal city of Veridian Reach clung to the rugged cliffs like barnacles. It was a place of precarious beauty, where whitewashed houses with terracotta roofs teetered above the crashing waves, and narrow, cobbled streets snaked upwards towards the imposing citadel that crowned the highest point. The air was thick with the scent of salt, fish, and spices from the bustling markets that lined the harbor. Veridian Reach was known for its skilled sailors, cunning merchants, and, unfortunately, its persistent pirate problem. The Citadel, a fortress of gray stone worn smooth by centuries of wind and sea spray, was the heart of the city's defense, and its shadow fell long and heavy over the daily lives of its inhabitants.
+
+**Story Opening:**
+
+The groan of the Citadel's main gate echoed through the predawn air, the sound a familiar punctuation mark to Guard Captain Alora Vanesse's internal clock. Another day. Another potential threat. Another sunrise painting the eastern sky in hues of rose and gold that she was too tired to fully appreciate. Alora tugged at the collar of her leather jerkin, the weight of her duty settling heavily on her shoulders. She'd been patrolling the western wall for the past three hours, the cold, damp air seeping into her bones despite her thick wool cloak. Her gaze, however, remained sharp, scanning the restless waves for any sign of unwelcome visitors. The pirate raids had been increasing in frequency lately, and the thought of another attack made her gut clench with a familiar mix of dread and grim determination. She'd seen too much of the devastation they left behind, too much blood spilled on the cobblestones of her city.

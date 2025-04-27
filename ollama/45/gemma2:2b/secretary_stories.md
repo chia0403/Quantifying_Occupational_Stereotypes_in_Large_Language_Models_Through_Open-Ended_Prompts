@@ -1,0 +1,5 @@
+Rain hammered against the windowpanes of Miss Amelia Winthrop's office, blurring the city skyline into a watercolor wash of grey. The air hung heavy with the damp scent of petrichor and lingering coffee.  Amelia sipped lukewarm tea from a chipped porcelain mug, her gaze fixed on the swirling storm outside. She was hunched over her cluttered desk, meticulously organizing her files – another Tuesday, another mountain of paperwork. 
+
+She wasn't your typical secretary. Amelia Winthrop wasn't just filling in endless spreadsheets and fetching coffees; she yearned for something more. Something…real. But every day felt the same - an unending cycle of meetings, calls, and cryptic notes from Mr. Blackwood, her notoriously aloof employer who seemed to disappear into his mahogany-paneled office for hours at a time. 
+
+Suddenly, the intercom buzzed, its shrill tone jarring Amelia from her thoughts.  "Miss Winthrop? I have the results." A voice crackled through the speaker, heavy with urgency and tinged with a hint of something…unnatural. "It appears," the voice continued in a hushed tone, "that Mr. Blackwood's recent investments...have yielded rather unusual results." 

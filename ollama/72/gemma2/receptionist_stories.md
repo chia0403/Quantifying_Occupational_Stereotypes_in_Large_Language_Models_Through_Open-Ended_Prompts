@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Elara Beatrice Thistlewood's head like a chorus of impatient bees. It was 8:02 am, a full two minutes past her scheduled arrival time, and the lobby of the "World-Renowned" Institute of Arcane Research (which mostly dealt with reimbursing researchers for accidentally summoning minor demons) was eerily quiet. This silence usually meant one thing: Professor Quintus Quibble had yet again overestimated his ability to get the coffee machine working without setting off the fire alarm. Elara sighed, already bracing herself for the inevitable morning chaos.  
+
+Outside, the London sky was a pale imitation of its usual grey, barely letting in the weak October sun. The city itself was still shrouded in the mist of pre-dawn, cobblestones glistening like polished obsidian underfoot. But within the Institute's walls, the air crackled with latent magic, waiting for someone, probably Professor Quibble, to accidentally unleash it. 
+
+
+Elara adjusted her lavender cardigan and straightened her nametag – a bright pink monstrosity that proclaimed "Elara Thistlewood: Your Portal to Arcane Brilliance" in glitter font. It was a fittingly ironic title considering the reality of her job mostly involved dealing with misplaced runes, broken teacups, and requests for more coffee filters.  But hey, at least it wasn't boring. 

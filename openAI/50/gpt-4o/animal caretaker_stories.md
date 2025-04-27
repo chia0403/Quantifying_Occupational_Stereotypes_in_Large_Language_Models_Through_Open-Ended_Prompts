@@ -1,0 +1,7 @@
+In the heart of the verdant Appalachian foothills, where morning mist weaves lazily through ancient trees, lies Greenwood Sanctuary. A hidden refuge for animals both wild and domesticated, the sanctuary is a patchwork quilt of meadows, woodlands, and gently bubbling streams. Here, nature reigns supreme and whispers secrets to those willing to listen.
+
+Amidst the soothing harmony of chirping birds and rustling leaves, Harper Linwood makes her rounds each morning. A dedicated animal caretaker, Harper embodies the spirit of the sanctuary itself—nurturing, resilient, and infinitely kind. Her days are a tapestry of tasks, woven with threads of compassion and expertise as she tends to the creatures under her care.
+
+Whether it's bottle-feeding orphaned fawns at sunrise or ensuring the peregrine falcons have ample perch to survey their domain, Harper's routine is a labor of love. Her keen eyes, the color of a stormy sea, reflect the natural world that surrounds her. Even on the busiest of days, a sense of serene purpose guides her every step, grounding her in the sanctuary's rhythms.
+
+Today, as the first golden rays stretch across the dew-kissed grass, the air is thick with anticipation. A new addition to Greenwood is expected—a rescued red-tailed hawk with a broken wing. Harper feels the familiar thrill of challenge rise within her, eager to welcome another soul into the fold and begin the journey of healing.

@@ -1,0 +1,7 @@
+Once upon a time, there was a stone cutter named Bob.
+
+He lived down in the mines, and made his mark by carving out a lot of large stone blocks. When he got bored, he would get his mitts on his axe and go for a tour of the nearby woods. On one of his visits, he came across some weirdly shaped stones. That day, he decided to take them home to show his dad. Bob carved them into a large, large chair. It was big, ugly, and made for the job of a chair. His dad hated it, so he dumped it on the ground and took it to a metal shop. The metal workers took it apart and carved out the parts that it had taken apart so well. The parts were then put together to form a very nice chair.
+
+When it was finished, Bob's dad gave the chair to him to keep, along with a big pile of other strange artifacts he made over several years. One day, Bob noticed something funny. There were some tiny stones sticking up from the metal work he did. Curious, he picked them up and put them in his mouth. He knew that he had something special. He took the stones home, and found that they formed a very fine pattern. These images formed a circle that was so big that he had to cut the chair a hole just big enough for him to sit in it.
+
+Bob lived in his strange chair for years, until one

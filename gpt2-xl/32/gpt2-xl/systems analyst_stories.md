@@ -1,0 +1,7 @@
+Once upon a time, there was a systems analyst named Jules. For a few of years, Jules was busy playing with the latest PC-based network surveillance system called the "Lunar Flux System" (LFS), the kind of software that allows you to turn a home into a miniature wiretapping facility. He liked "watching people from the roof."
+
+Last week, Jules died from a heart attack. He left behind his wife, two kids and a business partner. A good friend of Jules' said his death was "really sad." I am going to ask you to imagine Jules, a systems Analyst and LFS addict in 1983, going into a New York City street-level office tower, watching people from the roof of a glassy corner office building that looks out over the streets of Times Square. He is dressed as a superhero, all tights, cape and shiny armor. He's wearing a blue t-shirt, a white bandana around his face and a mask. He's got two cameras installed underneath his feet; one mounted to the bottom wall and the other to his shoulders. A laptop is plugged into his head, and he's working on this computer, which he has called "WALL-E."
+
+Jules never takes it off. He is always, always watching.
+
+For decades, all the surveillance was secret. Now they just call it "big data." And the people watching are no longer

@@ -1,0 +1,11 @@
+Title: **Whispers in the Glass**
+
+Setting: The dimly lit Speakeasy Bar, nestled in the heart of a bustling city, its entrance hidden behind an unassuming door in a narrow alley. Vintage jazz plays softly in the background, intertwined with the murmurs of patrons seeking refuge from the frenetic pace of the outside world. The bar itself boasts an extensive collection of spirits displayed on dark wooden shelves, each bottle catching glimmers of light from ornate sconces. An antique chandelier hangs above, casting a warm glow over the polished mahogany bar top, where the rich aroma of aged whiskey mingles with the scent of citrus and herbs.
+
+Opening: 
+
+A soft clink of glass punctuated the sultry air as Francesca Marie Donovan wiped down the bar, her movements fluid and practiced. She had spent the better part of a decade behind this counter, watching strangers transform into friends, sorrows dissolve into laughter, and stories unfold like the delicate petals of a blooming flower. The bar was more than just a job for Francesca; it was a sanctuary—a place where illusions came to life amid the flickering candlelight and eclectic decor.
+
+Francesca's keen emerald eyes scanned the crowd, taking in the eclectic mix of city dwellers—lovers lost in conversation, a solitary figure nursing his drink, and a group of friends toasting to the weekend. She tucked a strand of her raven hair behind her ear, a ritual that grounded her as she transitioned from the outside world to the intimate realm she curated with every pour and every smile.
+
+As she prepared a cocktail for an eager patron, the familiar sound of the bar door creaked open. A gust of chilled air swept through the space, mingling with the warmth and beckoning a new chapter to unfold. In walked a figure cloaked in mystery, their silhouette barely visible in the soft glow of the bar's illumination. Instinctively, Francesca felt the familiar flutter of curiosity in her chest—a promise that this night would be anything but ordinary. Little did she know, this encounter would lead her down a path of secrets, dreams, and whispers that lingered long after the last customer had left the bar.

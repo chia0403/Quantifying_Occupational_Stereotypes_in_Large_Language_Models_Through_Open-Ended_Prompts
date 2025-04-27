@@ -1,0 +1,7 @@
+The morning sun spilled golden light across the bustling streets of New Orleans, casting long shadows between the wrought-iron balconies draped in vibrant blooms. The air was thick with the scent of freshly baked beignets and the faint strum of a jazz guitarist warming up for the day’s crowds. Nestled in the heart of the French Quarter, the grand Hotel L’Aube stood as a beacon of southern elegance, its ornate façade gleaming in the soft light.
+
+Eighteen-year-old Jasper Montgomery strode through the hotel’s opulent lobby, his crisp white shirt and green vest perfectly pressed, the brass bellhop cap perched jauntily atop his head. As the newest member of the hotel staff, Jasper felt a mix of nerves and excitement, the weight of his polished shoes echoing against the marble floors with each step. 
+
+The lobby was alive with the chatter of guests, the clinking of glasses from the bar, and the rustling of the daily newspaper as the concierge exchanged pleasantries. As he reached the grand staircase, Jasper glanced over at a brass bell, polished to a shine, a symbol of service and tradition that had welcomed countless visitors to the hotel over the decades.
+
+Jasper couldn’t help but daydream about the stories those walls could tell—all the travelers who had passed through, leaving behind fragments of their lives. Today, he hoped to carve out a story of his own, one filled with adventure and perhaps a hint of mystery. Little did he know, the fateful bell would soon ring, setting the stage for an unexpected encounter that would change everything.

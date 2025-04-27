@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named David Ley. He was a researcher at the Stanford University school of medicine and held a chair from which he conducted his research on child abuse and neglect. He wrote books on children who were diagnosed with sexual disorders and wrote a popular book, The Myth of Sex Addiction, which was made into a movie. Then a few years after writing The Myth of Sex Addiction, he wrote the book, The Marriage Cure: A Practical Guide for Overcoming Marriage Problems. The book focused on how relationships are supposed to work; the premise of the book was that people who got into a healthy relationship just automatically fit into it and stay there. The idea was to help people learn about how to live in healthy and loving relationships.
+
+"There's more than one person who has written a book that says there's a special relationship between love and sex," Ley says. He believes the concept has been oversold.
+
+"I think that people want to believe you have to have a one-size-fits-all sexual experience with every partner. That's like saying a marriage is like a marriage contract. It's not and it doesn't work that way."
+
+So Ley launched a site, SexAddictionGuys.com, a site he says is meant to educate people about the facts of sex addiction and the importance of respecting people's own sexual preferences and boundaries. He is in fact a registered sex-addiction therapist and a clinical

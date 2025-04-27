@@ -1,0 +1,5 @@
+The scent of lavender and lemon hung heavy in the air, a cloying sweetness that always made Eleanor Beatrice Finch feel both calm and claustrophobic. She knelt on the pristine white shag carpet, her knees aching with the day's work already underway.  Sunlight streamed through the French doors of the grand library, illuminating dust motes dancing in the stale air. The room itself was a monument to wealth and indifference; mahogany bookshelves lined the walls, crammed with volumes Eleanor suspected had never been opened, their leather spines cracked and dusty. 
+
+Eleanor ran her cloth over a particularly stubborn smudge on Lord Harrington's beloved antique globe. It wouldn't come off. A sigh escaped her lips, echoing in the cavernous room. Another day, another meticulous clean-up for a man who spent most of his time away, leaving Eleanor to tend to the silent echo of his life. This sprawling Victorian manor, perched on a windswept cliff overlooking the tempestuous North Sea, felt as lonely as its owner. 
+
+

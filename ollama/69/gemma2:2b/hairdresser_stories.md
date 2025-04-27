@@ -1,0 +1,8 @@
+## The Fade 
+
+**Setting:** A bustling hair salon in Brooklyn Heights, New York City. Sunlight streams through high windows onto rows of metal chairs, spilling across the worn, wooden floorboards. Posters of past clients' iconic hairstyles adorn the walls –  a rebellious punk rocker with electric blue streaks, a glamorous actress from the 1940s, and a young boy sporting a miniature mohawk. The air is thick with hairspray fumes, a constant symphony of whirring dryers and lively chatter.
+
+**Main Character:** Elara "Ellie" Reyes, whose hands move with an almost lyrical grace as she meticulously styles her clients' locks. A third-generation stylist at the esteemed 'The Fade,' Ellie has inherited her grandmother's legendary talent and a keen sense for knowing what each client needs to feel their most authentic self. But lately, Elara’s own life feels frayed – like a wig that hasn't been properly styled after years of wear and tear. 
+
+
+**Opening:** The salon door chimes loudly as a new client enters, a young woman with bright, determined eyes and a cascade of fiery red curls cascading down her back.  Ellie's heart quickens – she feels the familiar tug in her chest, the one that tells her this new client needs help more than anyone else.  She smiles, ready to begin another transformation, when Ellie’s reflection in the salon mirror shows a face that seems oddly vacant. There's a sadness in her eyes, masked by years of expertly styling hair, but now it shines through, a harsh contrast to the playful jazz music echoing through the salon. She needs to fix something deeper than just hair – she needs to find herself again.  

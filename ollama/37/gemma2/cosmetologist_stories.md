@@ -1,0 +1,5 @@
+The humidity hung thick in the air, clinging to Amelia Beatrice "Amy" Hawthorne's freshly-washed hair like a damp blanket. The midday sun streamed through the shop window, turning the dust motes dancing in the air into tiny, shimmering diamonds. Amy sighed, her reflection staring back at her from the polished countertop of "A Touch of Glam," her own beauty salon tucked away on a quiet side street in Savannah, Georgia. 
+
+She'd been running the shop for five years now, ever since she’d landed a lucrative sponsorship deal with a local hair product line after winning a national cosmetology competition. The shop was charming, with its floral wallpaper and antique furniture, but lately, Amy felt like something was missing. Perhaps it was the lull in customers during this sweltering summer month, or maybe it was the growing ache of loneliness that settled in her chest each night as she locked up.  Whatever it was, today felt different. A strange energy buzzed around the shop, a feeling that things were about to change. 
+
+

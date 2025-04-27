@@ -1,0 +1,7 @@
+In the heart of the bustling city of New Lyon, the soft golden light of dawn began to spill over the skyline, painting the glass and steel towers in hues of amber and rose. The streets below, normally filled with the relentless urgency of urban life, lay in a temporary hush, as if the world held its breath before the day unfurled its vibrant chaos.
+
+Amelia Corbin stood on the rooftop of her apartment building, a vintage Nikon camera poised in her hands. Her auburn hair caught the morning light, creating a halo effect as she gazed through the viewfinder. With a practiced eye, she framed the perfect shot of the awakening cityscape, capturing the interplay of shadows and light that only the earliest hours could offer.
+
+Amelia, known to her friends as Amy, had moved to New Lyon five years ago, drawn by the promise of artistic inspiration and the pulsing energy of a city that never truly slept. She quickly fell in love with its eclectic blend of old-world charm and modern innovation, finding endless subjects for her lens in the jagged lines of its architecture and the kaleidoscope of its diverse inhabitants.
+
+Her apartment was a small but cozy loft on the fifteenth floor, filled with an organized chaos of photography equipment, old film cameras collected from her travels, and stacks of glossy magazines featuring her published work. Despite her success as a freelance photographer, Amelia cherished these tranquil mornings above the city the most, moments when the world felt intimate and still belonged solely to her.

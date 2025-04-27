@@ -1,0 +1,1 @@
+Once upon a time, there was a writer named John Barth of Maryland and Maryland State Police Captain Mike O'Neill. And as you can imagine, their friendship and working relationship deteriorated so rapidly that this man actually wrote about it as part of his story for the Washington Post in 1984.

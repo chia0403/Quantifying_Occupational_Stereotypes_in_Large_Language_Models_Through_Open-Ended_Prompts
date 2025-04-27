@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named Michael Ruhlman who was very talented in his kitchen. One day, after working for him, the chef returned back home, changed his name to his wife and took on the company of another chef, who went on to change his name further.
+
+The new chef was Michael Ruhlman, and he loved making cocktails. One day, he decided that there should be a high percentage of alcohol content in it. There was a glass bottle of vodka that had very little alcohol in it. The only thing that was in it was an ice cube and water. So he called his wife up and asked her how much alcohol is really enough? And she said it's about 3/4 of a fluid ounce, or that was it at that time. So the new chef was like well I wonder if I could have like a slightly higher percentage of alcohol in my gin or my spirit.
+
+So, they were like well there wouldn't be any problem because now it's not just the gin or the spirit who's drinking it, it's like in a different bottle it can be 3 or 4 ounces or 4 of them can make it more potent. So he and his wife, they started making their own spirits. One of the first that he made was a concoction called vodka martini. They've been making those ever since.
+
+And all his friends thought this was weird but then they start telling their friends and

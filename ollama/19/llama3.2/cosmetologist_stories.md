@@ -1,0 +1,7 @@
+As the sun set over the bustling streets of downtown Manhattan, casting a warm orange glow over the towering skyscrapers, Camila Sofia Rodriguez made her way to the upscale salon on 5th Avenue. The soft hum of conversation and the scent of expensive fragrances enveloped her as she pushed open the door to Bella Vita, the most sought-after salon in the city.
+
+Camila, a talented cosmetologist with a passion for making people feel like their best selves, had been working at Bella Vita for five years, honing her skills under the guidance of the salon's owner and head stylist, Luca Bianchi. With a reputation for creating stunning looks that left clients feeling confident and radiant, Camila was in high demand, and her schedule was always filled to the brim.
+
+Tonight, however, something felt off. The usual chatter and laughter of the salon's regulars were replaced by an air of tension, and Camila couldn't shake the feeling that tonight would be different. She made her way to the back room, where she would prepare for the evening's appointments, her mind buzzing with questions about what had caused the unusual atmosphere.
+
+As she began to set up her station, a sense of unease settled in the pit of her stomach. Little did she know, this was just the beginning of a night that would change everything...

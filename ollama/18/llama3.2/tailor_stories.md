@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The fog rolled in off the canal, shrouding the narrow streets of London's East End in a damp, grey mist. It was a chill autumn morning in 1888, and Emilia Florence Wembly, a skilled tailor with slender fingers and a keen eye for detail, was already elbow-deep in her work, stitching together a bespoke suit for a wealthy merchant on the outskirts of Whitechapel.
+
+As she worked, the smell of wool and thread wafted up from the floor, mingling with the acrid tang of coal smoke and grease from the nearby factories. Emilia's small tailoring shop, tucked away on a quiet corner between a haberdasher and a pawnbroker, was her sanctuary - a place where she could lose herself in the intricate patterns and textures of fabric, and forget about the struggles that plagued her own life.
+
+With a deft flourish, Emilia tied off the last thread and stepped back to survey her handiwork. The suit was almost finished, but she knew that the real challenge lay ahead - fitting it for her client, Mr. Finch, who had a reputation for being as particular as he was demanding. Little did Emilia know, however, that this would be only the beginning of a week that would change her life forever...

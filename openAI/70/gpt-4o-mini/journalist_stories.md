@@ -1,0 +1,9 @@
+**Title: Shadows of the Past**
+
+**Setting:**
+The city of Eldridge, a sprawling urban landscape shrouded in a perpetual mist, sits nestled between two imposing mountains. The cobblestone streets wind through neighborhoods where Victorian-era buildings offer a glimpse of history, contrasting sharply with the glass-and-steel skyscrapers of modernity. A flickering neon sign above a small café buzzes softly, illuminating the rain-slicked sidewalk. Inside, the air is thick with the aroma of freshly brewed coffee and the sounds of muted conversations, mingling with the occasional hiss of the espresso machine. It's early morning, but the darkness of the clouds casts a pall over the day, echoing the mood of the city. 
+
+**Main Character:**
+Elena Katherine Prescott, a tenacious journalist with an insatiable curiosity, sits at a corner table in the café. Her deep brown eyes are framed by tousled chestnut hair that falls to her shoulders, and she wears a well-worn leather jacket that perfectly encapsulates her adventurous spirit. At thirty-two, she has built a reputation for uncovering stories that others shy away from, often delving into the murky depths of crime and corruption nestled in Eldridge's shadows. A frayed notebook lies open in front of her, filled with scribbles and clippings, betraying her latest obsession: a series of unsolved disappearances that have haunted the city for over a decade. 
+
+As she takes a sip of her coffee, she glances out the window, where the rain begins to pour in earnest. The streets take on a sheen, mirroring her own turbulent thoughts. With a determined flick of her pen, she jots down a phrase: "Every shadow has a story to tell." This would be the mantra for her next investigation, one that promises to unearth secrets buried far deeper than the surface glimmer of Eldridge’s facade.

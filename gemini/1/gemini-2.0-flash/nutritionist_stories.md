@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, featuring a nutritionist:
+
+**Opening:**
+
+The scent of roasted vegetables and simmering lentil soup hung thick in the air, a comforting aroma that usually soothed Elara Beatrice Thorne. Tonight, however, it only amplified the gnawing anxiety in her stomach.  She hadn't slept properly in days, ever since the cryptic message arrived: a single, wilted sprig of parsley tucked into her mailbox with a note scrawled in shaky handwriting: "They know what you're doing."  Elara ran a hand through her already messy auburn braid, leaving a trail of flour on her forehead.  "They," whoever they were, seemed to have a problem with her mission to bring healthy, affordable food to Havenwood, and parsley, of all things, was a deeply unsettling threat.
+
+**Setting:**
+
+Elara's life revolved around "The Sprout," a small, brightly painted community kitchen and learning center nestled in the heart of Havenwood, a once-thriving factory town slowly succumbing to economic hardship. The town was a mix of old-fashioned brick houses with peeling paint, interspersed with more modern, but equally worn, duplexes. The main street boasted a few antique stores clinging to life, a perpetually empty diner, and a pawn shop that seemed to be the only business consistently booming. The Sprout, with its cheerful yellow paint and overflowing window boxes of herbs, was an oasis of hope amidst the town's general air of resignation. Inside, the kitchen was a whirlwind of organized chaos: stainless steel countertops lined with cutting boards and bowls, shelves packed with colorful spices and grains, and a blackboard covered with recipes and inspirational quotes about the power of food.  The air usually buzzed with the chatter of volunteers, the clatter of pots and pans, and the infectious enthusiasm that Elara brought to her work. Today, though, the atmosphere was strained, tinged with a nervous energy that mirrored Elara's own.

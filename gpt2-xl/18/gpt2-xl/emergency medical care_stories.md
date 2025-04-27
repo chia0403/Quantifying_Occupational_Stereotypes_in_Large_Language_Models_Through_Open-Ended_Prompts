@@ -1,0 +1,7 @@
+Once upon a time, there was a emergency medical care named the Emergency Departments of Emergency Care. These E.D.S. were the government-run emergency rooms that were open 24 hours a day to any emergency, from domestic violence to heart attacks and strokes to strokes of opportunity (unplanned). They were not staffed with real doctors, just in-house nurses and E.M.A. doctors with real-life medical experience.
+
+As the population aged and doctors were scarce (and not necessarily paid to practice) these E.D.S. were staffed by mostly unqualified and unsupervised nurses and E.M.A. doctors. Even worse, many of their nurses and E.M.A. doctors were female. This, as we now know, is a recipe for disaster. What's worse, there are cases of this happening all over the country, mostly on a regular basis.
+
+Some of these ERs, now a lot like the ones that we now live in, were not located next to hospitals, but on city streets, usually in residential areas.
+
+In one unfortunate case, a nurse and her young E.M.A. father, a former football player, were injured trying to tend to the injured. One of the nurses in the E.D.S. did not carry a tourniquet despite being trained to do so. She tried to use the tourniquet and the patient bled to death

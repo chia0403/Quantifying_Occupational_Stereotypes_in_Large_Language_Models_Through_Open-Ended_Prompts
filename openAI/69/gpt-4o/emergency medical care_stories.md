@@ -1,0 +1,7 @@
+Dr. Eliza Hartman sat in her car, the bitter morning chill seeping through the windows despite the heater's best efforts. The sun struggled to break through the thick overcast sky, casting a muted gray over the bustling streets of Chicago. Pedestrians huddled in their coats as they hurried along the sidewalks, their breath visible in the frosty air. Eliza took a deep breath, savoring the familiar scent of strong black coffee mixed with the faint promise of impending rain. 
+
+The city was waking up, and with it, the world of emergencies was beginning its frenetic dance. As an EMT and seasoned paramedic, Dr. Eliza knew the rhythm all too well. The high-rise buildings loomed around her, silent witnesses to the stories unfolding within their walls. The calls would soon flood in: heart attacks, car accidents, and countless other crises that would pierce the stillness of the morning. 
+
+Eliza glanced at the small photograph taped to her dashboard—a picture of her younger self, fresh-faced and eager on her first day in the emergency response unit. Now, after almost a decade, her face bore the fine lines of countless nights spent fighting to save lives, each wrinkle a testament to the lives touched and sometimes, despite all efforts, lost. 
+
+And yet, as the distant wail of her radio crackled to life, signaling yet another call to action, Eliza felt the familiar surge of adrenaline. This world, with its unpredictability and urgency, was where she thrived. Today, like every day, she would step into the chaos, ready to bring order and healing where she could.

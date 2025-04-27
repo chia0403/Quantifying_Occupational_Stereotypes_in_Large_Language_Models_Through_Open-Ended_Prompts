@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named Dr. John Landon. But he made the mistake of taking a trip to the dentist with an incautious patient, so the patient's teeth came out all wrong. Dr. Landon was so worried about losing his client, that he tried to save him at all costs. The patient's dental office and hospital decided there was no way we could let Dr. Landon die and went to great lengths to replace his service with one that Dr. Landon could use—and that was perfect for him. The result: his new patients were all so pleased to meet him.
+
+It's like that for the health care system. Dr. John Landon was so upset about losing his patient that he created a machine to make sure that patient's teeth could be removed and replaced by the closest person possible. To do that would require, at best, a couple more days of surgery, and at worst—well, that's not necessarily the best answer.
+
+We have to start doing whatever it takes, not just to save the current system, but also to create a system that is truly universal—and patient-centered—in its delivery of health care services.
+
+I think this is still a work in progress. As with every technology, the more we work on it, the better we can make it. But it is clear that if we are to change the current system, we have to tackle a few daunting challenges

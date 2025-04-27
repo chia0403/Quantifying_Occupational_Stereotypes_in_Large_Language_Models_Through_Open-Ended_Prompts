@@ -1,0 +1,5 @@
+Here's a potential story opening:
+
+The fluorescent lights overhead cast an unforgiving glare on the cracked linoleum floor of Ravenswood High School, where the once-proud corridors now seemed to whisper secrets to the shadows. In one of these forgotten corners, Emilia Rose Thompson swept and mopped her way through the day, her worn janitor's cart rattling behind her like a faithful companion.
+
+As she emptied the trash can in Mrs. Johnson's classroom, a stray glance caught on a fragment of paper stuck between the baseboards. The yellowed edge revealed itself to be a forgotten note, creased and dog-eared from years of being ignored. Emilia's fingers, stained with yesterday's cleaning solution, hesitated for an instant before plucking it free. A shiver ran down her spine as she read the scribbled words on the paper: "They're watching you."

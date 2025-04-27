@@ -1,0 +1,7 @@
+Once upon a time, there was a real estate agent named Jony Ive. He sold a few million dollars worth of luxury homes to his rich clients. Then he spent most of his fortune doing some consulting around the world, like that time he made $100 million for giving away a piece of Apple stock. And there's a story about Jony Ive, but he's not going to tell you about himself.
+
+[Jony Ive: Let's get personal. It's like, the first time I met an engineer, the person just instantly had this impact on me, that it was this instant connection between what I was seeing and what I'm doing and I just—and I was really into that.]
+
+It was a pretty successful thing. He made billions off it. He's an old boy still. And that's like when we were doing something where we were like, "Oh, well, we don't want to do an interview where we say, "Well, we would not make money doing this." We'd just be like, "Yeah, okay." "And by the way, I gave away a million dollars of my actual money or less to do it." You know what I mean? Like, there's something about, that moment where the whole thing just clicks. I've never forgotten him, but we don't talk.
+
+And so, I got an introduction to this guy who is probably one of the most important people in

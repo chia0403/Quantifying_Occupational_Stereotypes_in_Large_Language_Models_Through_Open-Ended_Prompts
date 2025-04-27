@@ -1,0 +1,6 @@
+The drizzle clung to Detective Alistair "Ali" MacAllister like a second skin, each drop a tiny, insistent hammer tapping against his trench coat. Rain always seemed to follow him, mirroring the melancholy that clung to him like the scent of cheap whiskey and stale cigarette smoke. He stood on the cobblestones of Back Alley Lane, the name a cruel irony considering it was paved with slick, treacherous granite, not charmingly worn brick. Neon signs flickered above cramped bars, casting an anemic glow on faces etched with hardship and desperation. This was Glasgow's underbelly, where secrets whispered on the wind and truth was a currency traded at exorbitant rates.
+
+Ali, his face half-hidden by a fedora pulled low over his brow, watched the rain cascade down a grimy window. The flickering neon sign behind it read "The Last Call," a fitting name for this forgotten corner of the city. He had come here on behalf of Mrs. Margaret Campbell, a woman whose desperation dripped from her like the rain, begging him to find her missing son, Sean. 
+
+
+Ali sighed. Another lost soul swallowed by the darkness. He lit a cigarette, the ember a defiant spark against the encroaching gloom.  The city held its breath, waiting for Ali MacAllister to move, waiting for him to unravel another mystery, another story hidden in plain sight.

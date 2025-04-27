@@ -1,0 +1,5 @@
+The late afternoon sun slanted through the stained glass windows of Dr. Amelia "Amy" Winthrop's office, casting kaleidoscopic patterns on the worn rug beneath her feet.  It felt like another lifetime ago that Amy had chosen this quiet practice in the sleepy suburb nestled between sprawling fields and a wooded ridge. Back then, she’d dreamt of helping people unravel their inner turmoil in the same cozy setting as the tea parties her grandmother used to host. Now, though, the once serene space was starting to feel like a cage. 
+
+The familiar hum of the refrigerator, serving as a soundtrack to countless late-night sessions and early morning coffee runs, provided little comfort these days. The weight of unreturned calls and unanswered emails from case managers had settled on Amy's chest like a leaden coat, her usual sunny disposition dimming with each passing hour. A single line on a cryptic insurance claim form – the only message she’d received in weeks – seemed to mock her, its starkness reflecting the hollowness growing within her own heart. 
+
+

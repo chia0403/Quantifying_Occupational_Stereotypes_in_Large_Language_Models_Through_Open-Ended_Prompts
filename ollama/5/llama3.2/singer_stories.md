@@ -1,0 +1,9 @@
+As the last wisps of sunlight faded from the crumbling façade of Ravenswood Manor, Emilia Rose Blackwood stepped out into the cool evening air, her voice barely above a whisper as she surveyed the overgrown gardens and the once-grand estate that had been her family's home for generations.
+
+The mansion, with its turrets and stained glass windows, stood like a ghostly sentinel, its beauty and grandeur slowly being consumed by the passing of time. The wind rustled through the leaves of the ancient trees, whispering secrets in Emilia's ear as she wandered along the winding paths, her eyes tracing the lines of ivy that had claimed the crumbling stone walls.
+
+Emilia's fingers drifted to the silver pendant around her neck, adorned with a small crystal that refracted the fading light into tiny shards of color. It was a family heirloom, passed down through generations of Blackwoods, and Emilia felt its weight settle upon her like a promise: she would preserve their legacy, no matter what darkness lay ahead.
+
+With a quiet determination, Emilia began to make her way towards the manor's entrance, where a single lantern cast a warm glow on the steps. She took a deep breath, feeling the night air fill her lungs, and stepped into the shadows within, ready to face whatever awaited her in the heart of Ravenswood Manor.
+
+Emilia was a singer, known for her haunting melodies and captivating stage presence. Her music had gained her a following among the city's underground scene, but it was little-known that Emilia's voice held secrets and stories that she kept hidden from the world. Tonight, however, those secrets seemed to be drawing her back to Ravenswood Manor, an estate where family, love, and tragedy intertwined like the ancient vines that wrapped around its crumbling stones.

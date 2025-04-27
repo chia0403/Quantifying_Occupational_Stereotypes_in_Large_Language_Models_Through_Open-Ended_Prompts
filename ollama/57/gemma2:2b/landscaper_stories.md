@@ -1,0 +1,5 @@
+The air hung thick with the smell of freshly cut grass and honeysuckle, a heady concoction that usually brought Elara joy. Today, however, it was merely another acrid reminder of his latest blunder.  Elara "Lee" Finchson, the city's favorite landscaper, stood in the midst of a disastrously overgrown meadow. Mr. Peabody's annual Iris Festival was tomorrow and Lee had, well, let's just say he hadn't exactly *mastered* the art of precision landscaping. 
+
+His usual crisp white overalls hung loose, splattered with mud that seemed to defy all attempts at washing off.  The vibrant pink of his signature rose-petal design on his shirt was a mockery against the now grimy canvas of his work boots. The once pristine meadow stretched out before him, an unruly tangle of weeds and forgotten wildflowers. He rubbed the tired line between his brows, wishing he had never accepted Mr. Peabody's last minute offer to take on this project.
+
+As Lee surveyed his defeat, a sudden, almost melodic sound caught his ear. A delicate chime echoed through the air, a song sung by a lone field cricket in the late afternoon sun. 

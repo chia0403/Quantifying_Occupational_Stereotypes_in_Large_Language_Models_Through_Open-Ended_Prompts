@@ -1,0 +1,11 @@
+Title: Shadows of the Mind
+
+Setting: The city of Eldridge, known for its stark skyline and fog-laden streets, swirls with rumors of a serial killer who has recently cast a pall over its vibrant neighborhoods. An overgrown park lies at the heart of Eldridge, its dilapidated playground serving as a haunting reminder of innocence long lost. The air is heavy with anticipation, as police sirens pierce the stillness, drawing the eyes of anxious residents to the darkened alleyways. The chill of autumn wraps around the city like a cloak, setting the perfect stage for secrets to unravel.
+
+Opening:
+
+Dr. Evelyn Margaret Hargrove stood at the large window of her second-floor office, gazing out at the distant rooftops of Eldridge, shrouded in swirling fog. As a forensic psychologist, she had devoted her life to deciphering the despair that lurked behind the eyes of violent offenders, but today, it felt as though the city itself was staring back at her—unforgiving and haunted. Her heart ached for those caught in the web of fear that had ensnared Eldridge since the spate of grisly murders had begun.
+
+With her dark curls cascading down her back, Dr. Hargrove turned away from the view, the weight of her responsibilities pressing down like the low clouds outside. She sipped her cold coffee, its bitterness matching the tension in the air, as she glanced at the files scattered across her desk. Each one was a story of shattered lives, and as she flipped through them, the faces of victims swam before her eyes. She had seen the patterns—the rage, the torment, the cry for help buried deep within the psyches of those who committed crimes unspeakable.
+
+Evelyn took a deep breath, steeling herself. Today was different. Today, she had been summoned by the Eldridge Police Department to consult on a new case that had the detectives stumped, a case that threatened to draw them all deeper into darkness. The files held a promise of clarity, but she knew that the shadows of the mind could be as sinister as any murderer lurking in the alleys of this forbidding city.

@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the mist-shrouded streets of Ashwood City, Emily Rose Wilson settled into her worn leather armchair, cradling a lukewarm cup of coffee in her hands. The soft hum of the office's fluorescent lights overhead cast an eerie glow on the rows of dusty file cabinets and faded photographs that lined the walls of her small, cluttered office.
+
+Emily, a seasoned paralegal with a sharp mind and a quick wit, had spent countless hours pouring over documents, researching laws, and helping her colleagues navigate the complex web of Ashwood City's municipal code. Her eyes scanned the stack of bills and invoices on her desk, the numbers and dates blurring together as her mind began to wander.
+
+The quiet evening hours were Emily's sanctuary – a time when the hustle and bustle of the office receded, and she could focus on the cases that truly mattered. Tonight, however, a sense of unease settled in the pit of her stomach, like a stone cast into a still pond. A phone call from an unknown number had arrived just as she was about to leave for the day – a cryptic message that had left her feeling both intrigued and unnerved.
+
+With a deep breath, Emily set her coffee cup aside and steeled herself for what lay ahead. She had a feeling that this call was more than just a prank or a wrong number – it was a sign that something was about to shake the foundations of Ashwood City's seemingly idyllic facade...

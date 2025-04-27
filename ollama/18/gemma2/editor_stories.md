@@ -1,0 +1,6 @@
+The hum of fluorescent lights buzzed in Amelia Harper's ears, a constant companion to the relentless clatter of keyboards and hushed phone calls that filled her small office. Outside her window, the late afternoon sun bled through the smog-laden air of Chicago, casting the cityscape in a hazy orange glow. The skyscrapers loomed like concrete giants, indifferent to the anxieties simmering within Amelia's cramped cubicle. It was a Friday, almost closing time, and she still hadn't finished editing Anya Petrov’s manuscript, "The Whispering City." 
+
+Anya, a rising star in the literary world, had entrusted Amelia with shaping her debut novel, a dark fantasy set in a fictional metropolis shrouded in secrets and ancient magic.  Amelia, known for her meticulous attention to detail and sharp eye for narrative flaws, felt the weight of responsibility heavy on her shoulders. This wasn't just another book; it was Anya’s dream, carefully woven from years of toil and imagination. Amelia knew she needed to do it justice. 
+
+
+The phone rang, snapping Amelia back to reality. It could be her editor, demanding an update, or perhaps Anya herself, wanting a sneak peek at the latest edits. A shiver ran down her spine. With a deep breath, Amelia reached for the receiver.

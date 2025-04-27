@@ -1,0 +1,9 @@
+**Story Opening:**
+
+The chipped ceramic mug, warmed by the last dregs of chamomile tea, vibrated slightly in Agnes Philomena Higgins' hands. The silence of the grand hallway amplified the delicate tremor, a silence so profound it felt heavier than the velvet drapes that swallowed the winter sunlight. It was a silence Agnes both craved and dreaded. Craved because it was the only time she truly felt at peace, before the day’s demands crashed in like a rogue wave. Dreaded because, in its quietude, the house seemed to breathe, to whisper secrets she wasn't meant to hear, secrets etched into the very grain of the mahogany paneling and the cold marble floors.
+
+**Setting:**
+
+Blackwood Manor stood perched on a craggy cliff overlooking the churning grey waters of the Cornish coast. For generations, the Blackwood family had commanded the surrounding landscape, their fortune built on tin mines and the backs of hardworking men. Now, the mines were silent, the fortune dwindling, and the manor itself felt like a faded photograph of its former glory.
+
+Inside, the house was a labyrinth of echoing rooms and shadowy corridors. The grandeur was undeniable - high, intricately plastered ceilings, walls lined with portraits of stern-faced Blackwood ancestors, and furniture that seemed to repel rather than invite relaxation. Dust motes danced in the weak light filtering through the tall, arched windows, highlighting the neglect that Agnes, despite her best efforts, couldn’t quite conquer. The kitchen, though large and well-equipped, felt cold and sterile, a place more for efficiency than warmth. A vast, neglected garden, choked with overgrown roses and gnarled branches, sprawled around the manor, offering a glimpse of the beauty that had once been, and the decay that was slowly, irrevocably taking over.

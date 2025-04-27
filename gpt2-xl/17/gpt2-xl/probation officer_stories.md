@@ -1,0 +1,6 @@
+Once upon a time, there was a probation officer named Dave Hause. He was a large, bearded, blue-eyed man. He was about an inch taller than me. I had always thought of Dave as a friend, but in fact we seemed to have a lot in common. In fact, while in jail, I saw Dave eat lunch with a man who was one size too large. Dave was very much a man's man, and his reputation as a man's man came from his job. The job was that of a probation officer. The job entailed working on criminal suspects, and in many cases he had to deal with very violent criminals.
+
+My mother had asked me one day if I was interested in taking up the job. At the time I said no, because it was a new experience, but it happened that when I did sign up for probation, the manager told me that my mother was a friend of an officer and she wanted me to go out with him a few days a week for a "test drive."
+
+A week later I went out with him and that day I was walking down the aisle to the probation store to see if I got the job. I had never been in a store in my life, never seen one, but I walked straight through, like a robot, across the room. I saw all the security cameras so I knew they were watching me, and I turned to see Dave Hause in my general direction.
+

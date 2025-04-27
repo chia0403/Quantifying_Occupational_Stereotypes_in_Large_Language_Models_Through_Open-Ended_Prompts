@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting for a story featuring a manicurist:
+
+**Setting:** The small, brightly-lit "Glistening Tips" salon in the heart of Willow Creek, Montana. It's a Tuesday morning, around 9:30 AM. The air is thick with the scent of acrylic powder, rose-scented cuticle oil, and a hint of Nadine's ever-present vanilla latte. Sunlight streams through the large front window, illuminating dust motes dancing in the air and reflecting off the rows of colorful nail polishes that line the walls like a rainbow. A vintage radio, perched precariously on a shelf cluttered with nail art supplies, hums softly, playing a classic country tune. Outside, the sounds of Willow Creek waking up - a distant car horn, the chirping of robins, and the occasional clip-clop of a horse-drawn carriage (a nod to the town's tourist appeal) - drift in.
+
+**Story Opening:**
+
+"Coral Sunset," Juniper repeated, carefully painting a second coat onto Mrs. Higgins' already immaculate nails. "Excellent choice, Mrs. Higgins. Very…summery." Juniper Willow, the heart and soul of Glistening Tips, managed a tight smile, hoping the color hid the tremor in her hand. Summery was the *last* thing she felt. More like November drizzle, grey and persistent. Mrs. Higgins, bless her heart, didn't notice. She was too busy regaling Juniper with the details of her grandson's prize-winning zucchini at the county fair.
+
+The truth was, Juniper was on the verge of a full-blown existential crisis. Her carefully constructed world – the one built on perfectly polished nails, loyal clients, and the quiet comfort of Willow Creek – felt like it was teetering precariously. And all because of a faded postcard, unearthed from her grandmother's attic just last night, bearing a photo of a city she never thought she'd leave behind. The city of glittering skyscrapers, relentless ambition, and...him.

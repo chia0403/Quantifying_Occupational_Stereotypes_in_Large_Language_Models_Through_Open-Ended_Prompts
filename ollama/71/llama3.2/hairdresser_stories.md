@@ -1,0 +1,5 @@
+Here's a potential story opening and setting:
+
+It was a drizzly Wednesday morning in late April, the kind of day that made you want to curl up with a good book and a warm cup of tea. But for Emilia Ruby Jenkins, owner of the charming salon "Ruby's Roots," it was just another busy day ahead. She wiped down her station at the back of the salon, taking a moment to survey the bustling atmosphere. The scent of hair dye and the hum of conversation filled the air as customers chatted with their stylists or scrolled through social media on their phones.
+
+Emilia, a curly-haired woman in her late twenties with a warm smile and an infectious laugh, had spent years building up her salon into a beloved institution in the small town. She took pride in knowing every customer by name and tailoring each haircut to suit their unique style and personality. As she finished prepping for the day's appointments, Emilia's mind began to wander to the mysterious phone call she'd received earlier that morning...

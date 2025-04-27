@@ -1,0 +1,7 @@
+Once upon a time, there was a real estate agent named Jack. And Jack had a problem. The real estate agent who he liked had to leave in a couple weeks and his client was going to miss him. In the weeks to follow, Jack had decided to move from San Francisco to Los Angeles. Not before making some long visits to the home of his new best friend, a man he knew from work. This man's name was Steve. For Steve, the idea of Jack having to take time off was a blessing, since it meant not having to move every few months. So Jack stayed in the apartment they shared for four months.
+
+
+After the real estate agent left, Jack was left in charge of the apartment alone. While Steve was visiting, the job of dealing with the tenants that were currently in Jack's apartment was left up to Jack. Most of Jack's tenants were very nice, but it was Jack's way to show that his landlord wasn't always a saint and that he took care of his tenants and did his part to keep the apartment nice. For Steve, this worked for him, but it meant he had a lot of time to do things that weren't on the job or on a work trip while Jack was gone.
+
+
+One of Jack's tenants, a lady named Carol, didn't get along very well with Jack. She'd get angry when he came around, especially when he'd come with his friend and they'd yell at her. Another tenant

@@ -1,0 +1,1 @@
+Once upon a time, there was a executive named Tom Perkins. He was gay, and, according to Mr. Perkins, he had the same financial problems as any other gay man: he lived in a trailer park with his boyfriend and his dog. But, Perkins complained, there was one big advantage to being gay: "I had money."

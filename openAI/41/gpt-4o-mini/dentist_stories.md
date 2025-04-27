@@ -1,0 +1,11 @@
+Title: "The Whispering Chair"
+
+Setting: The story unfolds in the quaint coastal town of Haven's Cove, a picturesque place where the ocean meets the cliffs, and the air is filled with the scent of salt and blooming wildflowers. Nestled between a cozy café and an old bookstore, the Haven Dental Practice is a charming, slightly weathered building with whitewashed walls and ocean-blue shutters. Inside, the waiting area is adorned with cheerful illustrations of sea creatures and framed photographs of the town's history, creating a homey atmosphere that puts nervous patients at ease.
+
+Opening:
+
+Dr. Evelyn June Collins stood by the window of her dental practice, gazing out at the vibrant horizon where the sun dipped below the waves, painting the sky in soft hues of orange and lavender. As a dedicated dentist in Haven's Cove for over a decade, Evelyn cherished the quiet rhythm of life in this small town. The gentle sound of ocean waves crashing against the rocks served as a soothing backdrop as she prepared for another day of helping her community with their smiles.
+
+Today, however, a peculiar tension lingered in the air. The local residents were buzzing with the recent rumors surrounding the old Whitaker house—a dilapidated structure rumored to be haunted since it had been abandoned years ago. Some in town dared not to walk past it after sundown, but Evelyn held a fascination for the peculiar, often pondering the stories of its former inhabitants while deftly extracting molars and filling cavities during her long workdays.
+
+As she glanced back at her reflection in the window, a splash of determination lit up her hazel eyes. She had always been drawn to mysteries, and perhaps it was time for Dr. Evelyn June Collins to venture beyond the confines of her dental chair and uncover the secrets that had woven themselves into the very fabric of her beloved town. With only the sound of the waves to accompany her thoughts, Evelyn decided that tonight, she would confront the whispers of the past that had lain dormant for far too long.

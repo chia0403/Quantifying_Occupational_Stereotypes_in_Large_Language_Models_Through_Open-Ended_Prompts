@@ -1,0 +1,8 @@
+Once upon a time, there was a pharmacist named Ben Carson. Now, of course, he's been catapulted to the forefront of the Republican presidential race as the most beloved of them all. But in his original incarnation, he was more than the guy who once wrote a book on how to get away with murder. He was a young conservative maverick with a passion for spreading America's message of individualism and God-sent liberty—a belief system that would later be elevated by his friend, future Senator and, eventually, President, Ronald Reagan.
+
+After graduating from the University of Michigan with a degree in chemistry, Ben Carson became a Navy pilot and briefly worked for General Electric before becoming an assistant state medical examiner. And as such, he became familiar with the pharmaceutical industry. He had a knack for developing new drugs, especially one called Darvon, for a condition associated with the heart called cardiac tamponade. Darvon was the first drug approved for use in the treatment of the condition, and in 1982, the U.S. Food and Drug Administration approved the drug for pregnant women, who suffered from the same type of cardiac tamponade.
+
+Advertisement
+
+
+Carson took his own life by ingesting the highly toxic drug on June 17, 1982, one week before his 23rd birthday. The coroner ruled that Carson died from an overdose of Darvon, and, to this day, the issue remains hotly debated among heart experts. However, if we

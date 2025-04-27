@@ -1,0 +1,11 @@
+## Story Opening:
+
+The scent of acetone and artificial almond hung heavy in the air, a perfume Beatrice Eleanor Davies had long since become immune to. Today, however, it felt suffocating, a cloying reminder of the fluorescent-lit prison that was “Gems & Tips,” nail salon and, in Beatrice's opinion, spiritual black hole.
+
+She’d been hunched over Mrs. Higgins' left hand for the past twenty minutes, meticulously shaping acrylic into an obscene length, when a fresh wave of nausea threatened to spill over. It wasn't just the smell; it was the endless, droning monologue Mrs. Higgins had been delivering about her prize-winning begonias, punctuated by the rhythmic clicking of her dentures.
+
+Beatrice bit back a sigh. She loved the artistry of her job, the way she could transform brittle, bitten nails into miniature works of art. But days like this, days when the only reward for her skill was listening to endless complaints and smelling toxic chemicals, made her want to throw down her cuticle pusher and run screaming into the nearest field of dandelions.
+
+## Setting:
+
+**Gems & Tips**, a small nail salon nestled between a laundromat and a discount liquor store in the decidedly unglamorous strip mall of Brookside Terrace, on the outskirts of the quiet, suburban town of Willow Creek, Ohio. The interior was a riot of pink and silver, clearly designed by someone whose inspiration board consisted solely of images ripped from late-90s teen magazines. Four manicure stations lined one wall, each featuring a flickering fluorescent lamp, a plastic barrier that supposedly protected against airborne acrylic dust, and a surprisingly sticky countertop. In the back, a single pedicure chair sat on a raised platform, perpetually surrounded by a haze of foot spray and the lingering ghost of fungal infection. The walls were adorned with framed posters of impossibly perfect, airbrushed nails, a stark contrast to the reality of the chipped and yellowing specimens that usually graced Beatrice's workstation. A small, perpetually-playing television in the corner blared daytime talk shows, its volume forever stuck at an ear-splitting level due to Mrs. Chung, the salon owner, being nearly deaf. Gems & Tips was, in short, a haven for suburban boredom and questionable hygiene.

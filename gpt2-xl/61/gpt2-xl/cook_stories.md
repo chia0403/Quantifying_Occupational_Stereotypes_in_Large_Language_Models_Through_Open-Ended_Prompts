@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named Jim Lahey. I was a baby, at the very least, so I was the baby in his household. He was a good cook, and we enjoyed having him around. He was a big, strong man.
+
+Like so many cooks, I had a tendency to run out of food and be hungry all the time. It was difficult for Jim and himself to keep up with all of the demands it took on their time to feed one child and another. Every day Jim would be in the shop with the kids, doing work around the house. That was his only job. When I went down to the restaurant, Jim Lahey was there to help out. For some reason the older kids were more attracted to him than to Jim while I was down in the kitchens. He's just a handsome guy.
+
+Like most people in Jim's industry, he had problems with drugs and alcohol. He kept things under control, but he was never a guy you went into the kitchen for. Jim was smart, but he got in trouble.
+
+The restaurant had a lot of children. The older kids loved Jim. They were the best customers and the biggest customers, at least in the beginning. Eventually there were less children, and Jim and the kids who actually worked here had a little feud over how many children the restaurant should have. I wouldn't know much about this. I knew that we'd got to the point in the

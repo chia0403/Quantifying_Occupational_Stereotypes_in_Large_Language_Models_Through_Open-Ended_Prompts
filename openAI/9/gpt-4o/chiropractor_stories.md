@@ -1,0 +1,9 @@
+Dr. Eliana Rivers stepped into her tranquil office on a crisp autumn morning, the scent of fallen leaves mingling with the calming aroma of lavender that softly filled the room. Her practice, Rivers' Rest, was nestled in a charming Victorian building in the heart of Asheville, North Carolina—a place where the mountains kissed the sky, and the Blue Ridge Parkway rolled out like a painted canvas behind the town.
+
+Sunlight filtered through the large bay windows, casting warm golden patches on the polished wooden floors. The gentle hum of a nearby creek outside provided a soothing soundtrack, as if nature itself were preparing for the day. Eliana cherished these morning moments—the stillness before the bustle, the promise of healing awaiting in every adjustment.
+
+Today promised to be particularly busy. Her schedule was booked with a blend of locals who cherished the holistic approach she offered, and new faces seeking relief from the myriad aches that modern life seemed to inflict. Eliana, with her deep empathy and expert touch, saw herself not just as a practitioner, but as a guide helping her patients find their way back to balance.
+
+Her walls were adorned with tranquil landscape paintings, each capturing a slice of Asheville's majestic terrain, alongside diplomas and certifications—a testament to the years she had invested in mastering her craft. But on a small corner table, nearly hidden from view, sat a cherished photo of her and her grandmother, Anna. It was Anna's own healing wisdom and unyielding spirit that had inspired Eliana to pursue this path.
+
+As the clock ticked towards her first appointment, she took a deep breath, feeling the mountains' steady presence around her. Dr. Eliana Rivers was ready to commence her day, to align not just spines but souls.

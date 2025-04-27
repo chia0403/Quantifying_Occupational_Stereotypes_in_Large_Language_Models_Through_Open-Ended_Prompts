@@ -1,0 +1,7 @@
+In the early hours of dawn, when the city of Amberfield was still draped in its habitual fog, Mallory Hayes made her way down the cobblestone streets, her breath visible in the chilly air. The town was nestled in a valley surrounded by towering hills, and its ancient buildings huddled together as if sharing secrets. The streetlamps cast a warm, amber glow that shimmered on the wet pavement, creating a soothing melody with the soft patter of drizzle.
+
+Mallory was familiar with these streets, having walked them every morning for the past five years to get to St. Helena's General Hospital. Her vocation was unique, one that required precision as delicate as the threads of a spider's web. As a phlebotomist, she knew the intricate map that lay beneath the skin—the roads and rivers of the human body she was tasked to navigate.
+
+She wore her long, chestnut hair in a neat braid, the same way her grandmother had taught her long ago, to keep her vision unobstructed. Her satchel, worn from years of use but always reliable, swung gently against her hip. It contained the tools of her trade: syringes, tourniquets, and vials, each essential for her morning rounds.
+
+St. Helena's loomed ahead, a grand, albeit tired-looking structure, its ivy-clad bricks an echo of a bygone era. The hospital was yet to awaken; only the faint buzz of emergency services signaled life within. Mallory slipped through the grand, oak doors, the familiar scent of antiseptic mixed with brewed coffee wrapping around her like an old, comforting blanket.

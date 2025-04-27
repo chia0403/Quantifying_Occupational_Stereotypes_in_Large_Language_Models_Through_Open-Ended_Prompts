@@ -1,0 +1,11 @@
+**Title: Shadows in the Glass**
+
+**Setting:** The dimly lit interior of "The Rusty Anchor," a nautical-themed bar nestled along the waterfront of a bustling seaside town. The walls are adorned with vintage ship wheels, old fishing nets, and faded photographs of sailors. The air is thick with the scent of saltwater and the comforting blend of spilled beer and aged whiskey. Waves can be heard rhythmically crashing against the rocky shore just a short distance away, while the soft glow of hanging lanterns casts dancing shadows across the bar's polished oak surface.
+
+**Opening:**
+
+As the clock struck 8 PM, a soft murmur of patrons began to swell within the confines of The Rusty Anchor. At the far end of the bar, under a brass ship's lantern, stood Maxine Olivia Hartwood, a bartender known for her uncanny ability to remember the smallest details of her customers’ lives. With a flick of her wrist, she expertly mixed a margarita, the ice clinking like distant bells, while her keen blue eyes scanned the room for the next soul in need of a drink or a listening ear.
+
+Maxine had a way of drawing in secrets, like a lighthouse guiding lost ships to shore. Some called her an oracle; others simply enjoyed her company. But behind the easy smile and the confident sway in her stride, Maxine carried the weight of her own past — a tapestry woven with both tragedy and fleeting joy. The scent of fresh lime mixed with the salty air seemed to wrap around her, reminding her of the ocean’s unending currents, forever shifting yet somehow constant. On this particular evening, as the sun dipped below the horizon and the sky turned to shades of lavender and deep gold, she sensed something brewing in the atmosphere. 
+
+It began with a gust of wind that flung the door open, ushering in a stranger with an air of mystery. Dressed in a long, dark coat and a hat pulled low, the newcomer caught Maxine’s attention, and she felt the familiar tingle at the back of her mind: tonight was going to be different.

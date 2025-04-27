@@ -1,0 +1,5 @@
+Rain hammered against the oversized windows of Lillian "Lily" Bennett's office like frantic percussionists, each drop echoing the growing unease in her stomach. The sleek mahogany desk gleamed under a harsh overhead light, reflecting back the image of a woman perpetually wrestling with an internal hurricane.  
+
+The air was thick with tension - not just from the storm battering outside, but from the contents of the sealed envelope on Lily's overflowing desk. The sale at 18 Sunset Avenue had been a dream come true, and now it held the weight of an impossible secret: a long-lost will and its unexpected beneficiary.
+
+It was time to face her client, Edward Blackwood - a man whose name echoed through the hallowed halls of Old Town's society, but whose face remained permanently etched in a grimace. The house was rumored to hold more than just bricks and mortar - it held memories of years long gone, secrets whispered on the wind, and an air of melancholic grandeur.  Lily knew this much: if she dared delve into the Blackwood legacy, she might unearth something far more perilous than the tangled vines of a neglected garden. 

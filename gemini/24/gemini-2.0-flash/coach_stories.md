@@ -1,0 +1,7 @@
+**Opening:**
+
+The whistle hung heavy around Coach Eleanor "Ellie" Hastings' neck, a dull, metallic weight against the damp chill that clung to the late October air. It wasn't the cold that bothered her, though. Ellie had spent enough years on this windswept pitch, rain or shine, to be practically immune. It was the silence, the expectant, almost accusing silence, emanating from the fifteen pairs of eyes fixed on her. This was it. The last quarter, and her Cedar Creek High Ravens were down by seven against their bitter rivals, the Northwood Hawks. Seven points that felt like seventy, stretching between them like a chasm.
+
+**Setting:**
+
+The scene unfolds on the muddy, slightly uneven football field of Cedar Creek High School. The stadium lights, ancient and buzzing, cast a sickly yellow glow across the field, illuminating patches of churned-up grass and the steam rising from the players' breath. Spectators are huddled in the bleachers, a mix of parents bundled in blankets, restless teenagers glued to their phones, and the occasional die-hard alumni wrapped in Cedar Creek Ravens paraphernalia. The air smells of woodsmoke from a distant bonfire, stale hotdogs, and the earthy aroma of wet leaves and damp soil. The surrounding trees, skeletal in their autumnal nakedness, rustle ominously in the wind, whispering promises of the coming winter, a winter that, if the Ravens lost today, would feel particularly long and bleak. The scoreboard flickers intermittently, a constant, visual reminder of the dwindling time and the growing pressure.

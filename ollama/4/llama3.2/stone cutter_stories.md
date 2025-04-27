@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun had just begun to set over the rugged coastline of Ravenshire, casting a warm orange glow over the small fishing village where Emrys ap Rhys made his home. A skilled stone cutter, Emrys was renowned for his ability to craft intricate and beautiful pieces from the island's rich volcanic rock. His workshop, nestled beside the sea, was a testament to his artistry - the sound of chiseling and hammering could be heard echoing through the narrow alleys as he worked tirelessly to meet the demands of the village's growing tourism industry.
+
+Emrys ap Rhys stood at the edge of the cliff, gazing out at the waves as they crashed against the rocky shore. His dark hair was blown back by the sea breeze, and his eyes were narrowed against the spray. He had spent countless hours on this spot, watching the tides and studying the shapes of the stone that lay beneath the surface. And today, he had found something - a fragment of rock that seemed to hold a secret, one that he was determined to uncover.
+
+As the light began to fade, Emrys tucked his worn leather gloves into his belt and turned away from the sea, his eyes already fixed on the workshop ahead. Little did he know, this small discovery would set in motion a chain of events that would change the course of his life forever.

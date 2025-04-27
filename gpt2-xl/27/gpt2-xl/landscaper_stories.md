@@ -1,0 +1,8 @@
+Once upon a time, there was a landscaper named Peter D. Parker. Peter started off living a quiet life in Queens with his loving Aunt May. However, after taking a wrong turn in life, Peter was thrown into a circus pained by the death of his Aunt and was forced into the service of Kingpin of Crime. Although he did not realize it at the time, Kingpin made Peter a weapon, and had him commit acts of violence and chaos. This forced Peter to develop a conscience to the extent that he began to question his decisions. While in prison, he met a young woman named Jessica Drew, and a few days before his scheduled release, he took her for a ride in his car. This was a fateful beginning of a beautiful relationship that would change both of their lives forever. As they traveled together, Peter realized that Jessica was pregnant with his child. Jessica eventually left him for the man named Kaine who used his enhanced abilities to kidnap Peter's son Ben.
+
+
+Powers & Abilities
+
+Powers
+
+Genius Level Intellect: Peter is a brilliant scientist, which goes beyond the standard IQ of most college students. As a member of The Avengers, him, in addition to his intelligence and superhuman strength, also possesses his own equipment. In addition to a high-tech gauntlet he wears, his armor is composed of various metallic constructs with many different functions. All of these elements can combine to create several different devices, such as devices that give him

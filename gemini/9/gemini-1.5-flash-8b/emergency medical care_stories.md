@@ -1,0 +1,3 @@
+The fluorescent lights of the ER hummed a monotonous, almost unsettling, tune as Dr. Eleanor Vance, Emergency Medical Care Specialist, surveyed the chaotic scene.  Broken glass crunched under her steel-toed boots, a disconcerting counterpoint to the rhythmic thud of a heart monitor beeping in the background.  The air, thick with the metallic tang of blood and the antiseptic smell of disinfectant, hung heavy in the sterile, yet suffocating, space.  Outside, the city roared—a symphony of sirens and distant car horns—a soundtrack to the human drama unfolding within.
+
+**Setting:** The bustling, high-pressure emergency room of a large metropolitan hospital, late at night.

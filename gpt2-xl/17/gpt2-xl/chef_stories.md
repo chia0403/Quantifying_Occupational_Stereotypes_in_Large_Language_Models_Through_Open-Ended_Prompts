@@ -1,0 +1,5 @@
+Once upon a time, there was a chef named David Chang. "I was so inspired by his cookbooks that I started my own," Chang recalled in 2014. "When the book came out, I thought, he's the only new Asian cookbook I could find." Now Chang, who owns Momofuku, is a regular, but it's not hard to find people who aren't so enamored with what he's about to do.
+
+I first met Chang after he told me how the restaurant would be renamed Momofuku Noodle Bar after I stopped by for a weekend visit in October 2013. (Before then, Chang didn't even have a Momofuku restaurant in Santa Monica, California.) "So it's Momofuku Bar, isn't it?" he asked me. Yes, indeed, it was. It was only then that he started saying "Noodle Bar." Because he's a genius and I couldn't stop staring at him.
+
+Chang's latest creation is Momofuku Ssam Bar, which will open in Brooklyn at a location he hasn't yet told anyone about. I'm going to guess that he's saving the Noodle Bar name for the opening of Momofuku Noodle Bar 2.0, his third iteration — but if that's the case, I hope he keeps his promise — and if he does get the Noodle Bar name back, he should probably do it ASAP. As the name indicates, this is the

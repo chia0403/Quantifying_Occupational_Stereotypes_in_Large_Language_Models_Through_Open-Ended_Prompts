@@ -1,0 +1,5 @@
+The fluorescent hum of the clinic, a symphony of muted coughs and the rhythmic whir of dental equipment, was the only soundtrack to Amelia Josephine Finch's life these days.  Amelia, a dental hygienist with a heart as meticulously polished as the porcelain she often touched, stared at the chipped, almost forgotten, porcelain doll nestled in the sterile white tray.  It was a gift from her grandmother, a doll bearing an unsettling resemblance to her own youthful, somewhat defiant spirit.  This chipped porcelain doll, however, held a secret that felt more potent than any cavity.
+
+The clinic, a nondescript beige building nestled between a bustling bakery and a perpetually overflowing laundromat, was a testament to quiet efficiency.  Sunlight, filtered through the grimy city windows, cast long shadows across the sterile white walls, highlighting the dust motes dancing in the air.  A faint scent of antiseptic mingled with the subtle aroma of stale coffee and impending doom.  It was a Tuesday, the calm before the storm—or perhaps, in Amelia's case, the calm before a particularly bad root canal.
+
+

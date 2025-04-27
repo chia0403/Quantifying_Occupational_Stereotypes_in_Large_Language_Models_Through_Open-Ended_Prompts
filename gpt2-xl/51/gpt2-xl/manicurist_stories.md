@@ -1,0 +1,7 @@
+Once upon a time, there was a manicurist named Lisa Miller. She was an oddball, living in the city and loving the city, and had a whole gallery devoted to her. One day the gallery's owner walked in, and Lisa's brother, who was the curator at Frieze, walked out. Soon enough, Lisa herself was out of work. And while she wasn't exactly a well-known figure, for many artists this left her more vulnerable than most. This was because artists were typically more in demand than her, and therefore many artists wanted to "work for" her. This was particularly true of the new generation of avant-garde artists: They couldn't get work from anybody else and the work that did exist from them was pretty much worthless. So they ended up trying out for a part-time gig that involved her, sometimes with her brothers and sometimes not.
+
+This ended with Lisa Miller becoming frustrated with her gallery in the late '80s, and finally walking out. It was a major departure and one that would bring the spotlight back to her.
+
+While this story is told about her in a rather detached manner, the fact that her work is so vibrant and has such a strong presence is a result of her unique relationships to the things she makes. As many artists do, Lisa had a strong affinity toward the products of other people's labor.
+
+The story also highlights how a lot of her work is really just a huge

@@ -1,0 +1,6 @@
+Rain lashed against the windows of Miller & Davis law firm, blurring the neon cityscape into an impressionistic mess of light and color. Inside, Amelia Beatrice Hawthorne huddled deeper into her ergonomic chair, her brow furrowed in concentration as she meticulously cross-referenced witness testimonies with police reports. The air thrummed with the low hum of computers and the muted clatter of keyboards – a symphony of productivity only broken by the occasional sigh or muffled curse. 
+
+Amelia, a paralegal since graduating from university three years ago, was drowning in paperwork for the upcoming trial of State vs. Jackson, a high-profile case involving alleged embezzlement from a local charity. Her boss, the sharp-tongued and demanding Mr. Davis, had heaped a mountain of files onto her desk that morning, muttering something about "paying attention to detail" and "not letting their clients down." Amelia knew she couldn't afford to disappoint him – not with her recent string of minor errors threatening to jeopardize her position at the prestigious firm. 
+
+
+The city outside was a maelstrom of wind and rain, but within the sterile confines of the office, tension crackled like static electricity. As Amelia reached for another file, a sharp knock on the door startled her. A voice, husky and unfamiliar, echoed through the quiet room. "Amelia Hawthorne?"  

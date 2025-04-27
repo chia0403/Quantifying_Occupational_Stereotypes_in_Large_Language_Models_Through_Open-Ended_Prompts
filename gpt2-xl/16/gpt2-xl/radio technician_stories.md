@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Steve who was very talented. He loved his job, the people he worked with, and the music. One day, he met a man named Steve Jobs. Steve had recently gotten married and he had a beautiful wife, who worked at Apple. And they met every day over coffee, going over the latest product updates. Eventually, they became friends, and together they made the radio industry a better place. Steve was a talented, driven individual who could bring out the best in other people.
+
+Then something happened. Steve and his wife got into a great fight and he separated from his wife. Steve had to raise all his own money, find a job, and keep his family. He started the Apple Computer company for the sole purpose of making great products. He kept a tight control over his employees. He never did the work in his spare time. He treated his Apple coworkers with the highest of respect.
+
+Steve had a special attitude. He didn't tolerate anyone being disrespectful to him or his wife. He didn't go out and party with everyone else. He had a very intense work ethic. He refused to drink or listen to music that didn't fit his work process. As a result, his Apple coworkers treated him like royalty. People just wanted to be with him.
+
+One day, that all changed. Steve came to work and everyone in his department was working on a new product. He was the only one

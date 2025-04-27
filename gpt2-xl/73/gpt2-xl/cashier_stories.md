@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named "Cashier" who was about to sell something. (He was also called "Cashier" throughout the series, hence the name of the game.). The game is set twenty-five years later. Cashier, in his mid-sixties, is still a cashier, but he has to work all hours to make enough money to make ends meet. The game follows Cashier as he tries to decide how to make ends meet: what's more important: a family or a job? Eventually, by playing the game, Cashiers's family will move a little closer to their goal.
+
+And what, pray tell, of the game itself? While it was released in the late '80s, this game will give everyone in the vicinity of a family a nostalgic thrill. A well designed, challenging game, it features an amazing variety of enemies, a diverse selection of weapons, lots of hidden items for players to find, and a number of challenging mini-games that'll keep players glued to their video game systems the whole time. Of all the games I've played on my Nintendo Entertainment System, this was probably my favorite. (In fact, because I grew up on it, a number of my childhood friends and family members also still have this cartridge in their collections.)
+
+8. Ninja Spirit
+
+Released in 1990 for the Nintendo Entertainment System, Ninja Spirit was a platform/puzzle game that was meant to

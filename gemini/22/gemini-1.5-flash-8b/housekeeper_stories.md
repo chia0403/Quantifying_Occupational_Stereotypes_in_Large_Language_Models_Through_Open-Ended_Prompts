@@ -1,0 +1,4 @@
+The chipped porcelain sink, stained a perpetual, dull grey, reflected the flickering gaslight above it.  Dust motes danced in the lone beam, pirouetting like tiny, spectral ballerinas.  Elara Blackwood, housekeeper at the grand, imposing Blackwood Manor, sighed, the sound barely audible above the creaks and groans of the ancient house.  Rain lashed against the leaded glass windows, a relentless percussion that mirrored the ceaseless demands of her job.  The manor, a gothic masterpiece perched atop a windswept hill overlooking the misty Yorkshire moors, held a thousand secrets, and Elara, despite her quiet efficiency, felt a shiver of unease crawl up her spine.  Tonight, the air felt thick with an oppressive silence, heavier than the usual pre-storm gloom.
+
+
+**Setting:** Blackwood Manor, a grand gothic mansion perched atop a windswept hill overlooking the misty Yorkshire moors in England.  The year is 1898.

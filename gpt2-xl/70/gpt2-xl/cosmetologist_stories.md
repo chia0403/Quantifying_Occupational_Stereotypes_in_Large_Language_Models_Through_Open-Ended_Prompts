@@ -1,0 +1,1 @@
+Once upon a time, there was a cosmetologist named Bob who was always the same at the same time, every day. He made money, didn't smoke a lot and didn't drink a lot either. He enjoyed the work, but it wasn't much to him. He bought the cheapest, best quality of suit, and didn't care much about it." — from Bob's Razzle Dazzle by Bob Gault.

@@ -1,0 +1,11 @@
+**Title: Whispers in the Halls**
+
+**Setting:** The Grand Arcadia Hotel, a towering relic of opulence amidst the bustling heart of downtown. Its marble floors gleam under the warm glow of crystal chandeliers, reflecting golden accents that have adorned the lobby since its opening in the early 1920s. The air is infused with the scent of fresh flowers from the reception desk and the distant sound of a grand piano playing a soft melody in the lounge. Each floor is lined with intricately patterned carpets, leading to elegantly framed artwork that captures the history of the hotel in vivid colors. 
+
+**Opening:**
+
+In the shadow of the majestic Grand Arcadia Hotel, amidst swirling leaves of an autumn breeze, twenty-two-year-old Edmund Jasper Blythe adjusted his uniform with a practiced grin. The deep maroon and gold of his bellhop attire were a stark contrast to the pale morning light that crept through the towering glass doors. With a polished brass bell in hand, he surveyed the lobby—an expanse filled with guests from every corner of the world, their voices mingling in a symphony of excitement and anticipation.
+
+Edmund had always felt a peculiar sense of belonging here, despite the gilded barriers that separated him from the remarkable lives of the hotel’s visitors. He thrived on the thrill of unexpected encounters, each suitcase and each smile telling a story richer than his own. But as he prepared for another busy day of transporting luggage and tending to guests’ whims, an inexplicable tension hung in the air, as if the very walls held secrets waiting to be unearthed.
+
+His eyes darted over to a couple standing near the grand staircase, their expressions tense, whispering hurriedly as they cast furtive glances around the opulent lobby. A curious spark ignited within him; every guest had a tale—some joyful, others shrouded in mystery—and he was ready to uncover them all, starting with this one. Little did he know, the flickering candle that was his day would soon illuminate whispers of a past he never expected to encounter.

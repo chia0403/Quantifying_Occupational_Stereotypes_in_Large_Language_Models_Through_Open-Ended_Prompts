@@ -1,0 +1,6 @@
+Rain lashed against the windows of Amelia Croft's tiny office, blurring the already dim streetlights outside into hazy halos.  The scent of stale coffee mingled with the damp air as she typed furiously on her laptop, the glow reflecting in the wide brown eyes that were constantly searching for anything, anywhere, that might help her understand this case. It was a mess, a tangled web of lies and missing persons wrapped around the life of Amelia's client - Eleanor Stone, a successful artist whose vibrant personality had seemingly evaporated without a trace. 
+
+Amelia, despite being surrounded by legal jargon and dusty files, felt as if she was wading through quicksand. The city hummed with its usual frenetic energy, but for her, it was like the clock was running backwards. Days bled into nights, each hour spent poring over police reports and witness statements. The weight of unanswered questions pressed down on Amelia's chest, a leaden feeling that seemed to amplify the storm raging outside.  
+
+**Setting:** A dimly lit, cramped office in a run-down building on the edge of Manhattan's bustling Upper West Side. 
+**Main Character:** Amelia Croft - a sharp and dedicated paralegal who dreams of solving mysteries just like her fictional heroes.  

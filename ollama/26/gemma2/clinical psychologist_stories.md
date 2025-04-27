@@ -1,0 +1,8 @@
+Dr. Eleanor Amelia Vance adjusted her glasses, peering down at the handwritten note clutched in her trembling hand. The ink was smudged, the words barely legible: "He's coming for me. Don't trust anyone." It had arrived tucked into a book she’d returned to the library that morning – a worn copy of Poe's collected works, ironic considering her patient's current state. 
+
+Eleanor worked at The Beacon, a private mental health clinic nestled on a quiet, tree-lined street in Boston's Back Bay. Despite its quaint facade and comforting scent of lavender oil diffusing through the air, The Beacon housed some of the city's most troubled souls. It was Eleanor's duty to be their lighthouse, guiding them through the storm. But this note, scribbled by her newest patient, a young woman named Anya, felt different. 
+
+It wasn’t just the cryptic message, though that was unsettling enough.  Anya had been increasingly withdrawn since starting therapy a week ago, speaking in hushed tones and avoiding eye contact. She claimed to be followed, watched, but offered no concrete details. Today's note, however, hinted at something more sinister, something beyond her usual paranoia. The fear radiating from the flimsy paper felt tangible, sending a shiver down Eleanor's spine.
+
+
+The late afternoon sun cast long shadows across the street, making it appear even more deserted than usual.  A sense of foreboding settled over Eleanor. Was Anya truly in danger, or was this just another symptom of her fractured psyche? The weight of responsibility pressed down on Eleanor's shoulders as she picked up her phone, determined to unravel this unsettling mystery and protect her patient, whatever the cost. 

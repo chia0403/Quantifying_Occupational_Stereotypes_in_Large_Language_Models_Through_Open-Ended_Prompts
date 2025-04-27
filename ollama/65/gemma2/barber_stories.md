@@ -1,0 +1,6 @@
+The air in Benny "The Blade" Lombardi's barbershop hung thick with the scent of bay rum and anticipation. It was Saturday morning, the busiest time of the week at 23rd & Cypress, where Benny’s magic shears transformed scruffy men into polished gentlemen. The worn linoleum floor hummed underfoot as Benny knelt beside his latest customer, a young man named Frankie whose nerves were strung tighter than a fiddle string.
+
+The flickering neon sign outside cast stripes of pink and green across the chipped formica countertop, illuminating a row of framed boxing posters and faded photographs of men with impossibly slicked-back hair. A worn transistor radio perched on the counter crackled with the rhythm and blues of Little Richard, his raspy voice urging everyone to "Tutti Frutti." Outside, the rumble of the city – a symphony of car horns, shouting vendors, and distant sirens – served as a constant backdrop to Benny's rhythmic snip-snip-snipping. This was Benny’s world, a haven of hot towels, sharp blades, and whispered secrets shared between man and barber. 
+
+
+This Saturday, however, felt different. A sense of unease hung in the air, heavier than the usual haze of hairspray and tobacco smoke. Benny could feel it, tingling on his skin like an approaching storm. He just didn't know what would be coming next.  

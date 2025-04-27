@@ -1,0 +1,7 @@
+The pre-dawn air hung thick and heavy, smelling of diesel and damp earth. Across the vast, asphalt expanse of the Flying J truck stop in Cheyenne, Wyoming, sodium vapor lamps buzzed a discordant tune, painting the rigs in shades of sickly orange. Inside his cab, a cacophony of static crackled from the CB radio, occasionally punctuated by a bored dispatcher's voice reading out delivery routes.
+
+It was a scene Elias Thorne knew intimately. He'd woken to it more times than he could count in the last fifteen years, each time a slight variation on the theme: a different city, a different truck stop, but always the same feeling of weary anticipation settling in his bones.
+
+Elias Thorne, a man whose weathered face and calloused hands spoke of countless miles and untold stories, took a long drag from his lukewarm coffee. The bitter liquid did little to dispel the fog in his mind, a fog born of sleep deprivation and the constant hum of the road. He glanced at the laminated photo taped to his dashboard - a faded image of a smiling woman with kind eyes and a little girl with pigtails, both bathed in the golden light of a summer sunset. He traced the outline of his daughter's face with a calloused thumb, a silent promise whispered on the Wyoming wind: *Almost home, Lily-bug. Almost home.* Today, Elias was hauling a load of timber to Denver, a comparatively short run, and if he played his cards right, he'd be back in Boise by nightfall. He could almost taste the home-cooked meal and the warmth of his wife's embrace.
+
+He just had to get through another day.

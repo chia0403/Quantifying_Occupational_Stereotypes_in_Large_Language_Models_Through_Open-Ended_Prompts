@@ -1,0 +1,7 @@
+Title: Shadows of the Mind
+
+In the heart of a city that pulsed with both vibrant life and hidden darkness, Dr. Eleanor Mae Sinclair sat in her modest, book-lined office overlooking Graystone Park. Early autumn sunlight streamed through the large window, casting gentle patterns across the worn oak desk cluttered with case files, psychological journals, and a half-drunk mug of cold coffee. Every few moments, the distant sound of children laughing blended with the chirping of birds, a stark contrast to the topics Eleanor often pondered.
+
+Eleanor, a forensic psychologist known for her keen insights and an almost uncanny ability to probe the complexities of the human mind, was deeply immersed in her latest case. The air was thick with the scent of polished wood and old paper, a comforting aroma that felt like home. Outside, the rustling leaves whispered secrets—each flutter a reminder of the darkness she often explored in her professional life. Her carefully organized world of numbers and equations was soon to collide with a chilling reality as she received an unexpected phone call that dredged up a past she had tried to leave behind.
+
+As she picked up the receiver, Eleanor couldn't shake the sense that today would unravel a thread she had thought securely knotted—one connected to an unresolved case fraught with psychological intrigue and a killer who thrived on manipulating the very shadows of the mind.

@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+In the small coastal town of Tidal Cove, where the salty air carried the scent of saltwater taffy and the sound of seagulls filled the air, 28-year-old Aurora "Rory" Thompson had just opened the doors to her own salon, "Tidal Waves Beauty". The colorful façade, adorned with a giant shell and a sign that read "Where every day is a beach day", was sure to draw in the tourists and locals alike. As Rory began setting up her station for the day, the sound of the waves crashing outside provided a soothing background melody.
+
+Rory had always been passionate about beauty and making people feel confident in their own skin. Growing up in Tidal Cove, she'd spent countless hours watching her mother work as a hairdresser at the local salon, learning the ins and outs of the trade from a young age. After completing cosmetology school, Rory had worked her way up to become one of the top stylists in town, earning the nickname "Rory's magic touch" among the regular clients.
+
+As she began to prep for the day's appointments, Rory couldn't help but feel a sense of excitement and nervousness. She'd heard rumors that a new family was moving into the old Victorian mansion on the hill, and the chatter among the townspeople had been buzzing with anticipation. Who would be this mysterious newcomer, and what did they have planned for Tidal Cove? Little did Rory know, her life was about to take a dramatic turn, one that would bring new challenges and opportunities right to her doorstep.

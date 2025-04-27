@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, featuring a physician's assistant named…
+
+**Story Opening and Setting:**
+
+The humid Savannah air hung thick and heavy, a stifling blanket clinging to Dr. Elijah Blake’s colonial-era practice. Inside, the air conditioning was cranked high, but a faint, pervasive smell of old money and mothballs still lingered.  Dr. Blake was out on rounds, leaving the reception area unnaturally quiet for a Tuesday morning.  Dust motes danced in the weak shafts of sunlight filtering through the plantation shutters, illuminating faded portraits of past Blakes, each one sporting a haughty gaze and a slightly crooked nose that clearly ran in the family.
+
+**Vivian Anya Sharma**, the physician's assistant, tapped impatiently on her keyboard, the rhythmic click a stark counterpoint to the silence. Her hands, usually a blur of efficiency as she charted notes or drew blood, were still for once. She was waiting for the results of Mrs. Henderson’s blood test, and the agonizing delay had her stomach churning. Mrs. Henderson was a sweet, grandmotherly woman who’d come in complaining of fatigue and a persistent cough. Vivian’s gut instinct screamed bronchitis, but her medical sixth sense was screaming something more sinister.  
+
+She glanced up at the grandfather clock looming in the corner. Nine forty-seven. Any minute now. If it was just bronchitis, she could call in the prescription and Mrs. Henderson would be on her way to recovery.  If not... well, Vivian preferred not to think about the “if nots.”  Her job wasn’t just about healing bodies; it was about easing minds too, and the longer she waited, the harder that second part became. Outside, a horse-drawn carriage clip-clopped past, a charming anachronism that seemed to mock the very modern anxiety gripping Vivian’s chest.

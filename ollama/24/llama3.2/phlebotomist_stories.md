@@ -1,0 +1,5 @@
+As the first light of dawn crept through the grimy windows of her small apartment, Phoebe Mae Jenkins rubbed the fatigue from her eyes and swung her legs over the side of the creaky bed. She stretched her arms above her head, feeling the familiar ache in her back from a long shift at the local blood bank earlier that day. The fluorescent lights overhead seemed to hum in sync with her tired brain, but Phoebe pushed through the exhaustion, knowing she had a long day ahead of her.
+
+The small apartment was a cramped studio on the outskirts of town, with peeling paint and worn linoleum floors that seemed to stretch on forever. It was home, though – a place where Phoebe could escape the sterile world of blood draws and tedious paperwork that filled most of her days as a phlebotomist.
+
+Outside, the streets were quiet, save for the distant rumble of cars driving by on the highway. The air was crisp and cool, carrying the scent of freshly brewed coffee from the café down the street. Phoebe took a deep breath, feeling a spark of hope ignite within her chest. Today would be different.

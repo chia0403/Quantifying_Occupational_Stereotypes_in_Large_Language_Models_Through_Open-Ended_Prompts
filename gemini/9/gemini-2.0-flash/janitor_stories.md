@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, featuring a janitor named Bartholomew Higgins:
+
+**Setting:**
+
+The Alexandria Grand Library, a Beaux-Arts masterpiece in the heart of Washington D.C. It’s not *the* Alexandria Library of ancient fame, but a modern homage to the pursuit of knowledge and historical preservation. Towering shelves overflow with books, illuminated by the soft glow of antique-style lamps. Marble floors gleam, reflecting the intricate mosaic ceiling depicting the Muses. During the day, it bustles with researchers, students, and tourists. But at night, it’s a hushed sanctuary, a monument to silence and forgotten stories.
+
+**Story Opening:**
+
+The rhythmic squeak of Bartholomew Higgins's mop echoed through the silent Grand Reading Room, a sound almost reverent in the hushed atmosphere. 2:17 AM. The minute hand on the grandfather clock in the corner swung with the solemn precision of a metronome counting the last breaths of the day. Bartholomew, a man built like a sturdy oak tree with a gentle heart, sighed, pushing a stray lock of silver hair from his brow. He’d seen a lot pass through these hallowed halls in the fifteen years he'd been Head Janitor, more than most people, he suspected. Lost theses, illicit rendezvous, whispered arguments, and the occasional rogue sneeze powerful enough to dust half a shelf. But tonight was different. Tonight, the silence hummed with something else, something thick and… expectant. He paused, leaning on his mop, the scent of lemon cleaner failing to mask an almost metallic tang in the air. He glanced up at the mosaic ceiling, at the serene faces of the Muses, their painted eyes seemingly fixed on a point somewhere beyond the stacks. He shivered, despite the even temperature maintained by the library’s advanced climate control system. Tonight, the Alexandria Grand Library felt less like a repository of knowledge, and more like a tomb, waiting to be disturbed.

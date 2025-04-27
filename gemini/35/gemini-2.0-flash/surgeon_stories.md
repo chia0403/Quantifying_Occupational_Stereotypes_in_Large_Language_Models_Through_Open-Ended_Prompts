@@ -1,0 +1,7 @@
+## Story Opening:
+
+The sterile scent of antiseptic, usually a comfort, now clawed at Dr. Amelia Grace Harding's nostrils. She stared at the rhythmic rise and fall of the anesthesia monitor, each beep a mocking metronome counting down to a decision she wasn't sure she could make. Sunlight, filtered through the frosted windows of Operating Room 4 at St. Jude's Mercy Hospital, painted the room in a sterile, almost ethereal glow. Outside, Los Angeles thrummed with its usual cacophony of car horns and sirens, sounds that were muffled and distant, existing in a different reality than the one Amelia currently inhabited. Her gloved hands, usually steady and precise, trembled slightly as she adjusted the surgical light, trying to focus on the task at hand. But her gaze kept drifting back to the young woman lying motionless on the operating table, her chest bared and vulnerable beneath the sterile drapes.
+
+**Setting:**
+
+St. Jude's Mercy Hospital, Los Angeles, California. A large, privately-owned hospital renowned for its state-of-the-art facilities and specialized cardiac surgery department, where Amelia is a rising star. The operating rooms are modern and meticulously clean, equipped with the latest medical technology. Outside the ORs, the hospital corridors are a mix of muted beiges and blues, perpetually buzzing with the hushed urgency of doctors and nurses. The overall atmosphere is one of quiet competence, punctuated by the intermittent beeping of monitors and the soft chime of paging systems.

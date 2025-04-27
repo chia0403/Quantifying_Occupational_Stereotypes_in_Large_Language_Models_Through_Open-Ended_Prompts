@@ -1,0 +1,11 @@
+**Title: Shadows of Justice**
+
+**Setting:**
+The story unfolds in the vibrant city of Eldridge, where a blend of modern architecture and historical buildings creates a captivating skyline. Court Street, flanked by bustling cafés and art galleries, leads to the grand Eldridge Courthouse—a century-old structure with towering columns and intricate carvings that whisper tales of justice. Inside, the air is thick with anticipation, echoing the footfalls of lawyers and the rustle of legal documents. The ornate courtroom boasts polished wooden benches and a gavel that has presided over countless cases, embodying the weight of the law.
+
+**Opening:**
+Judge Margot Elise Prescott adjusted her glasses as she scanned the gathering crowd in the courtroom. The morning sun streamed through the high windows, illuminating the dust motes that danced in the air like whispers of secrets long buried. It was Tuesday, the day she expected to preside over the highly publicized trial of a local philanthropist turned suspect in a massive embezzlement scandal. The case had captured the attention of the city, a curious blend of intrigue and betrayal that left even the most seasoned attorneys on edge.
+
+Margot was known for her unwavering commitment to fairness, her silver hair pulled back into a tidy bun that reflected her no-nonsense attitude. She had spent two decades navigating the gnarled paths of family court before being appointed to the bench, where she brought a level-headed wisdom that was both respected and feared. As she glanced at the clock, the gavel's familiar rhythm pulsed in her mind, reminding her that justice awaited not only the defendant but also the city that had placed its trust in her.
+
+The soft chatter of murmurs subsided as Margot strode to the bench. She grasped the gavel firmly, silencing the courtroom. Today was not just another trial; it was an opportunity to confront the shadows lurking in the heart of Eldridge—and Margot knew that the outcome could ripple far beyond these walls. With a steady voice that commanded attention, she began, “Court is now in session.”

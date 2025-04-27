@@ -1,0 +1,8 @@
+The bell above the door jingled its tired tune as Elias Thorne, proprietor of Thorne's Apothecary, adjusted his spectacles and peered over his dusty counter. The afternoon sun cast long shadows across the crammed shelves, illuminating jars filled with herbs, dried flowers, and strange concoctions that smelled both comforting and unsettling. Outside, the cobblestone streets of Hollow Creek were bustling, but within the apothecary, time seemed to move at a different pace, a languid crawl punctuated by the clinking of mortar and pestle. Elias sighed, smoothing down his starched white apron. It had been a slow day, just the way he liked it. 
+
+The air was thick with the scent of lavender and chamomile, masking the faint metallic tang that always seemed to linger in the back corners of the shop. A tremor ran through the floorboards as a carriage rolled past on the street outside. Elias glanced at the clock - nearly four o'clock. Soon he would be closing up for the night, retreating to his cramped apartment above the shop, and settling into another quiet evening with a book and a cup of strong, bitter tea. 
+
+He was just about to turn away when the bell jingled again, this time carrying with it a fresh burst of autumn air and the unmistakable scent of rain. A young woman stood in the doorway, her face obscured by a wide-brimmed hat and the shadow of the eaves. She hesitated for a moment, then stepped into the warm light of the apothecary, her eyes settling on Elias with an intensity that sent a shiver down his spine. He straightened his back and offered her a polite smile.
+
+
+"Welcome to Thorne's Apothecary," he said, his voice calm and measured despite the sudden flutter in his chest. "What can I do for you?" 

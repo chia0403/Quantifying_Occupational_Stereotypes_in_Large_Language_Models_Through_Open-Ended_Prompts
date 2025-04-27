@@ -1,0 +1,7 @@
+Once upon a time, there was a child care worker named Laura. She lived in a house in a small town in Illinois. Her life was not particularly troubled. One day one of the house's residents, an older man—a drunk—broke one of her daughters. The baby, whom Laura did not know, was crying. She heard the sound for a while before she decided to check up on it. When she came back into the house, she discovered her infant daughter had been stabbed to death.
+
+Laura was convicted of murder and sentenced to death. Her execution took place on May 14, 1905. She was hung by the neck until her body was so swollen with blood that her eyes popped out of the sockets. She was taken to the penitentiary in Vandalia, Illinois, where, with her head hanging limp beneath an iron cross, she died of blood loss on May 21.
+
+Today, no one in Illinois can remember a Laura Ketchum. The only hint of Laura's identity in the state is she was an inmate at a prison in Vandalia. Laura Ketchum (née Miller) is in fact a pseudonym of a Victorian-era woman who lived a double life as a man. Born into a wealthy family, Laura was a young woman at the time of her execution, so it's highly likely the name is actually her real name.
+
+She was named Laura Miller after a real-life case from which she took

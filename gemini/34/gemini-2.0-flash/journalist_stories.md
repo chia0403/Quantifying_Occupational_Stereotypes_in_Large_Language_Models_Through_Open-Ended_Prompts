@@ -1,0 +1,7 @@
+**Opening:**
+
+The acrid smell of burning rubber and despair hung thick in the air, clinging to Amelia Hawthorne's nostrils like a shroud. She squinted, pushing past a knot of gawking tourists taking morbid selfies, and clipped her press badge tighter to her coat. The scene unfolded before her in grim detail: twisted metal, shattered glass glittering like malevolent jewels, and the yellow tape that screamed "CRIME SCENE" against the grey London skyline. Amelia felt the familiar knot of anxiety tighten in her stomach. This wasn't just another accident. This was… different. The air thrummed with a strange energy, a palpable sense of violation that prickled the hairs on her arms.
+
+**Setting:**
+
+The story begins in present-day London, specifically in the upscale Mayfair district. A usually bustling intersection, known for its luxury boutiques and Michelin-starred restaurants, is now a chaotic tableau of flashing blue lights, somber-faced police officers, and horrified onlookers. The centerpiece is a mangled black Rolls Royce, its front end a crumpled mess against a lamppost. The rain, which had been a gentle drizzle earlier, had intensified to a steady downpour, washing the scene with a cold, unforgiving light and reflecting the neon glow of the surrounding businesses in a distorted, shimmering mosaic on the slick asphalt. The contrast between the opulent surroundings and the brutal reality of the accident served to amplify the unsettling feeling that something was deeply amiss.

@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named Donald J. Trump. He was never president, but he was very wealthy, and Donald J. Trump was very important to his business.
+
+When I was a young lawyer, all this stuff was still new, so I had no way of knowing all of this. When I read what Donald J. Trump said in a very serious way to a real estate developer named Steve Hilbert in 1988 about President Reagan's assassination, I was stunned. I became a federal prosecutor in New York, and I went through all of the available evidence about that subject and came to a unanimous decision that Trump had committed perjury.... As the story grew, I realized that I could no longer defend myself based on Trump's words, so I had to bring on a second lawyer to help me do that. And then I thought, "What else can I learn by talking to Donald J. Trump?"
+
+As you said, Trump is the most controversial person alive today. He's been running for president ever since 1972, when he began getting more attention for a speech in which he called the Japanese "pigs" and mentioned a woman with a piece of rubber in one of her ears.
+
+When I first met Donald Trump in December 1988, I felt so good about my profession that I told him I wanted him to be my assistant. He told me that's impossible, he can't become my assistant. Two months later, after our first meeting,

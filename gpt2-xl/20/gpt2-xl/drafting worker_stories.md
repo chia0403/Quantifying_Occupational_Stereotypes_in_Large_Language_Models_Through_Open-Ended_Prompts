@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named "Toby." Toby was a big-time draft-fixer. There was a time when Toby and others were making hundreds of thousands of dollars each year. But that's not why I know him. Toby became famous for being the mastermind of the draft-fixing scheme that kept the Lakers and the Los Angeles Kings together. To this day, no one knows what happens under the bridge or where Toby's lizards ended up. Toby doesn't want to talk about it, much less let anyone see him on the phone discussing business issues.
+
+That was the early '90s. The NBA was very different back then — a wild cat league that brought in so many colorful characters that in a few short years the NBA had become synonymous with celebrity. As the decade slipped away, so did the "celebrity" part of the NBA — and the NBA draft, too.
+
+The NBA still has a lot of talent on the board but there are fewer prospects in the draft these days — not less talent but more scarce. Some teams have their players pegged as early lottery picks while others might find themselves picking outside the lottery if they are able to unload their first-round picks for a higher pick. It's the way the NBA is trending right now, but the draft hasn't always changed this way.
+
+It has happened before in the past, though. In 1986, the Denver Nuggets drafted the future Hall

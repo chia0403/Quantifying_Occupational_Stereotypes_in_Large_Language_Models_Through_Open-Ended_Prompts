@@ -1,0 +1,7 @@
+Once upon a time, there was a singer named Michael Jackson, who, after suffering a car crash, was treated at a hospital and then returned to the stage by the surgeon Dr. James Martin." That sounds very true. I'm the first to admit our beloved Prince is a more recent singer. But this is the first I've heard about this whole story, and I didn't know about it at all, as far as I can tell. (Is it common knowledge? I don't know.) The only thing I ever heard about, as far as I know, was an article in Spin magazine - I have no idea when they took it down, but I guess it must never have been very good. "It is very hard for me to put into words the kind of thing that we went through," he said.
+
+
+"We were playing at the Beacon Theater in New York. At that time, we had just returned from a European tour and were in the midst of preparing for our return to our home audience in the States when we received the news that Michael had died. We all knew Michael was dying from drug abuse, and that it would not be long before his life's work in music was destroyed. But we decided we would go ahead without him so that our fans could enjoy two great artists, one alive and the other at peace with his mortality."
+
+
+It's worth reiterating that this is not a quote by Prince, but rather one credited to the singer's

@@ -1,0 +1,7 @@
+Once upon a time, there was a physician's assistant named Mrs. Wm. Henshaw, a native New Yorker who lived in Queens. She kept busy keeping the elderly men entertained by reading to them, while telling them stories. In return, he asked her if she would teach him how to read. After a bit of trial and error, he mastered the language. He had become fluent in English by the time he entered medical school at Coney Island Medical College in the summer of 1864.
+
+Henshaw taught medical students to write medical essays, and one day, while they were reviewing some of her work, she asked them to practice the lettering. The students were astonished upon seeing how they'd invented new words like, "to read" and "the right eye" to describe the experience of reading. They were proud of their creation. But the next day, Henshaw told them that since their writing was so polished and clear, they should improve their handwriting. She advised them not to let the handwriting become sloppy or careless, as that could detract from the quality of their words and sentences.
+
+Later that day, she came up with another idea: what if young doctors practiced writing letters by hand? They thought, "If she can do it…" There was never a doubt in Mrs. Wm. Henshaw's mind about whether or not a person could be a doctor.
+
+On the morning of March 16th, 1865, Mrs

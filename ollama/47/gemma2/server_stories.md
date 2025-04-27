@@ -1,0 +1,5 @@
+The air hung thick with the scent of frying onions and stale beer.  Amelia "Amy" Everly squinted through the haze, wiping down a sticky table with a grimy rag. The diner, aptly named "Wally's 24/7," was already buzzing at its usual pre-dawn hour: truck drivers craving greasy comfort food, weary insomniacs seeking caffeine solace, and the occasional lost soul stumbling in off the night shift. It was Amy’s third year slogging through this symphony of clinking silverware and hurried orders, and she wouldn't trade it for anything. Well, maybe a slightly less sticky floor and a barista who knew how to make a decent latte. 
+
+The diner itself was a relic from another era – red vinyl booths worn smooth by countless bums and conversations, Formica countertops speckled with years of spilled coffee and ketchup, and fluorescent lights buzzing like a hive of agitated bees.  Outside, the pre-dawn sky was just beginning to lighten over the dusty expanse of Highway 66, promising another day in this small town on the edge of nowhere. 
+
+

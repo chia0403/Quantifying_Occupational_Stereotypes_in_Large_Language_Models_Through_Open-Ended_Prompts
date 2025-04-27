@@ -1,0 +1,6 @@
+Once upon a time, there was a emergency medical care named "Raptor" operating at an airport with just an X-ray machine. That is, until it suffered an unprovable breach of emergency procedures. The Raptor, understaffed and badly outclassed; an entire day was lost in the search for survivors. And when the emergency finally did arrive, it was too late. The Raptor was too late.
+
+
+The Raptor is a highly mobile emergency vehicle for the military that has proved to be invaluable when emergency situations arise (in the form of a police officer, for example). The vehicle is equipped with multiple "cascades", which are all independently armed, which can fire off up to 13 rounds per minute. By adding on to the three separate, individual guns, the vehicle can fire up to 33 rounds per minute! And its gun turrets can shoot up to 30 rounds per minute. In addition, the vehicles are equipped with high-caliber cannon and other equipment to protect the vehicle in both urban and mountainous conditions.
+
+You can view the rest of the game screenshots above.

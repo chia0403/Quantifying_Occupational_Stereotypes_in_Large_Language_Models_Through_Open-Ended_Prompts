@@ -1,0 +1,6 @@
+The rhythmic whir of the centrifuge in the back room was Eleanor Beatrice Finch’s metronome.  Each spin a steady pulse, counting down the seconds until she could finally escape the sterile confines of St. Jude's Blood Bank for the night. Her worn rubber gloves felt slick with a mix of sweat and antiseptic. The fluorescent lights hummed above her, casting an anemic pallor over the rows of blood bags hanging like crimson Christmas ornaments from the ceiling racks. 
+
+It was almost midnight, the witching hour for phlebotomists.  The lab floor, usually bustling with nurses and technicians during the day, lay deserted save for Eleanor and a snoring security guard slumped in his chair behind the reception desk. She longed for the familiar scent of pine needles and cinnamon from her bakery on Main Street, a world away from the metallic tang that hung heavy in the air here. But tonight, like every night, she had patients waiting.  
+
+
+Eleanor was the last line of defense against the dwindling blood supply.  Her name wasn’t exactly etched in gold on the plaque outside the lab, but her calm demeanor and steady hand were legendary amongst the staff. She could draw blood from even the most needle-phobic patients with a smile and a gentle word, a skill that had saved countless lives – and earned her a few homemade cookies along the way. 

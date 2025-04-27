@@ -1,0 +1,5 @@
+The humid Atlanta air clung to Amelia Rose Hawthorne like a second skin as she stepped out of her beat-up Honda Civic. Beads of sweat trickled down her temple, mingling with the remnants of her morning mascara.  She smoothed down her wrinkled blouse and plastered on her best saleswoman smile. It was 8:05 AM, five minutes before the leasing office opened, and Amelia was already battling the city's relentless heat – a battle she knew would only intensify as the day wore on. 
+
+Today was important. This month's quota loomed over her like a debt collector, and this complex of upscale apartments in Midtown was her last hope.  The "Luxury Living at Lakeside" brochures promised shimmering pools, rooftop gardens, and sweeping city views – all amenities Amelia desperately needed to sell to the discerning clientele who called this place home. If she didn't close at least three leases today, her commission would be slashed, potentially putting her dream of opening her own vintage bookstore in jeopardy. 
+
+

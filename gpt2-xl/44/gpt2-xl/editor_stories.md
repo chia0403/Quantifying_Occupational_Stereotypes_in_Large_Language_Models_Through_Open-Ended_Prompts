@@ -1,0 +1,7 @@
+Once upon a time, there was a editor named William Gibson. William Gibson is also the author of the cyberpunk classic Neuromancer. And yes, the latter is also a movie about someone, William Gibson, who gets cybernetic enhancements in order to hack into machines and save humanity. Yes, William Gibson is also James Cameron's inspiration for his Alien film. William Gibson's career as an author is long and impressive. His best written work is probably Neuromancer, published in 1991. But for about 24 hours in 1993, Gibson was living in a different kind of Hell — Cyberpunk William Gibson was raging out his personal nightmare of real-world dystopia. He was being beaten up by Neo-Tokyo police, chased down the streets by gangs of teenagers and the police officers trying to kill him. It sounds like the shit you write, right?
+
+The best cyberpunk fiction (there are more than a few that could be added to the list) takes place in the future, where the world has been corrupted by technology, and things like a car has become a form of currency, a social construct where the rich use their wealth to keep the poor in line. What could have possibly gone right for Gibson during those 23 minutes in a Tokyo subway? Well, I'm afraid it's about to get really interesting.
+
+Neuromancer, or rather the original manuscript, "The 3-D World is Only Noise":
+
+My nightmare was that I

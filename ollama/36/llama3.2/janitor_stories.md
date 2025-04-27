@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+The fluorescent lights overhead cast an unforgiving glare on the worn linoleum floor, illuminating the trail of crumbs and discarded papers that littered the hallway. Janitor extraordinaire, Maxwell "Max" Thompson, trudged wearily along the corridor, his scuffed sneakers making soft sucking sounds with each step. The late-night hours had a way of blending together, but Max knew this particular shift would be an especially long one - the university's annual gala was tonight, and he was stuck cleaning up after the guests who would soon arrive.
+
+As he pushed his cart along the wall, Max couldn't help but feel a pang of resentment towards the pampered students and professors who seemed to think that their privilege and entitlement exempted them from even the most mundane tasks. Meanwhile, he was the one who kept this place running smoothly, quietly toiling behind the scenes as the university's unsung hero.
+
+Max had grown up in this neighborhood, the child of a working-class family who had instilled in him a strong work ethic and a fierce determination to make a better life for himself. He had started out as an intern in the custodial department and worked his way up, earning the respect of his colleagues despite (or because of) his humble origins.
+
+Now, at 30 years old, Max was one of the most reliable and efficient janitors on campus, but he knew that no matter how hard he worked, there would always be someone more important, more connected, or more influential than him. Tonight, as he prepared to tackle another long shift, Max couldn't shake the feeling that this gala was going to be a particularly awkward one...

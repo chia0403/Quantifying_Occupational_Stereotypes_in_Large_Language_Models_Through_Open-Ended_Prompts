@@ -1,0 +1,3 @@
+Once upon a time, there was a farmer named Henry who, while on a long, romantic journey, came upon an abandoned castle and in its depths discovered a magical ring. He made it his business to find and keep it until he returned to retrieve it and put the kingdom to rights. The ring would often appear to him, which he thought was only a symbol of his love for her. But it wasn't his ring at all, but his granddaughter. And now he needs your help to stop her long ago former fiancee from returning her to their original home.
+
+If you liked this free mini-game, please do so and remember to leave a good rating! :)

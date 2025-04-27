@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named Robert O. Fox who worked at the Stanford hospital in Palo Alto. One day, Fox was giving some anesthesia to five patients and when the patient in the middle vomited, the nurse informed him that when the patient vomited, he turned into a mouse. Fox had no way of knowing, much less questioning, that the symptoms of vomiting are caused by a loss of gastric motility and not an obstruction resulting from the stomach. He quickly turned his attention toward the patient who vomited and diagnosed the problem as a gastric ulcer. The patient was not treated, because doctors did not think that it was the ulcer that caused the vomiting.
+
+Dr. Fox came up with the idea that it was the gastric motility that resulted in the vomiting.
+
+The next example will illustrate the principle. Suppose you are a surgeon and you are performing a routine examination and surgery on the abdomen of the patient. The patient was very sick and you noticed that a big mass was pressing up against its esophagus, the tube inserted through the mouth into the stomach. You knew that the mass was an abnormality. You told the patient to sit tight and the mass was left alone.
+
+A few hours later, a nurse came to you for an explanation. "My brother has a similar mass," in fact, he was sharing his brother's symptoms. You told the nurse to sit tight. The mass was left alone.

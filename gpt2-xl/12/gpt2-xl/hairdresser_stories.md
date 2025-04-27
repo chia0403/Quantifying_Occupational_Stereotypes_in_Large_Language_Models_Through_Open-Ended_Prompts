@@ -1,0 +1,5 @@
+Once upon a time, there was a hairdresser named Miss Figg. They cut off her hair as she went in for her trimming and it was left to my sister to comb it back again. When she was done, I said to her, 'Well, what are you going to do with your hair?' 'I am going to hang it up on a peg,' she said, 'and I don't care what happens to it, if it is beautiful.' And so, looking at her hair, I saw that it was not beautiful—it was all dirt! It was of a colour like ash and as brittle as lead. The top end was white as ivory, and had long streaks of grey between one stroke and the next. It was all over with its beauty and she couldn't see it."
+
+LUCY: "And who were you going to marry then? To whom?"
+
+SPEERMAN: "To my second wife, who was a sister of Mrs. Grant's. I got to know her, as I said, as we were both trimming our hair, and I liked her very well. She also had very fair hair. When we met, we had a very pleasant talk—she had much to say. When we had finished, as you must understand when there is an old people, we went together to the dance hall with Mrs. Grant and an old lady. She was in the midst of her own thoughts and

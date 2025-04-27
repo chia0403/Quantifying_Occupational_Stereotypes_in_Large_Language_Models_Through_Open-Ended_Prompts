@@ -1,0 +1,7 @@
+**Title: Shadows of Crescent Bay**
+
+In the coastal town of Crescent Bay, where the salty breeze entwined with the scent of pine and the sky blazed a fierce orange as the sun dipped beneath the horizon, Officer Lydia Mae Harrington stood at the edge of the old wooden pier. The sound of waves crashing against the weathered posts echoed the tumult within her heart. This place, once a refuge from the chaos of the world, now felt like a stage set for a tragedy yet to unfold.
+
+The townsfolk were bustling through the quaint streets, their laughter mingling with the distant calls of seagulls, oblivious to the mounting tension that loomed like storm clouds just off the coast. Lydia, with her dark auburn hair pulled back into a tight ponytail and sharp green eyes that had seen too much, was about to face the toughest challenge of her career. Since the recent string of mysterious disappearances had struck Crescent Bay, the department had been stretched thin, and with each passing day, fear tightened its grip on the community.
+
+Tonight, as the last light of day surrendered to night, she felt the weight of responsibility heavier than ever. Just weeks ago, she had sworn to protect this town, to uphold the law, but now, standing in the dimming light, Lydia wondered if she could uncover the truth hidden beneath the waves—a truth that seemed determined to drown her resolve.

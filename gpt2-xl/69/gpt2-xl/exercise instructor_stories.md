@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named "Gus" who had the distinction of having the most beautiful legs in his class. He ran the track, which was really a short distance, and he did his workouts on the track every day, except once in his life he got sick and couldn't do it. Well, he really liked to run, though. He would run all the time. I never could tell you what the hell this guy was doing on the track, but I'd always see him running. It was amazing. Some days he would get up very early and run to make it to class, and there are some times now that I want to go back for that. I wonder if he went to class because he felt the need to run. What he was doing was impossible to comprehend.
+
+After high school, I took on a job as an intern at a very prestigious place called "Auburn". Here, my work consisted of writing down all of my thoughts. It was wonderful, and I was so excited to finally express them to everyone else. One evening during a writing session, as usual, I went to the local pub and drank a beer.
+
+I had a conversation with a man.
+
+"Why can you not just be happy being what you are?" I asked him, and asked him what he meant by that. His response was simple: He just wasn't happy. He was the same age as I was,

@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named Albrecht Dürer, whose pictures in the early 20th century were so popular among high school students that they were given Dürer's name as an acronym among students. It has always remained a mystery that his most famous works, which depicted everyday scenes, were never exhibited in museums on their merit. One of the more compelling explanations is that the paintings are forgeries—the work of a master forger. A British researcher named David Jones has now uncovered a key painting that might point to Dürer's provenance.
+
+In November 2001, Jones, then a graduate student at the University of California, Santa Barbara, published a study that revealed, among other things, that when a museum receives a painting, it may look it over with a critical eye. Jones analyzed the authenticity of four paintings in Dürer's collection by comparing them with works by three experts in painting, including Dürer's own assistant, Heinrich Hofmann, who was in the room when the painting was painted and died in 1933. Jones concluded that his paintings were most likely forgeries.
+
+This was a blow to museum professionals, but Jones's research is still a useful lesson for anyone interested in seeing paintings. In Jones's study, the original, genuine artists' proofs were also analyzed—and they yielded surprising and troubling results.
+
+For example, Jones concluded that the artist's proof for Albrecht Dürer's

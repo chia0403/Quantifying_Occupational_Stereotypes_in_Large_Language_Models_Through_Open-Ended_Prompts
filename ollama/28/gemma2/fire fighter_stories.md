@@ -1,0 +1,5 @@
+The sirens wailed, their mournful cry slicing through the thick smog that hung over New Haven like a greasy shroud.  Rain lashed against the windshield of Engine 23, blurring the city lights into dancing orbs of amber and crimson. Inside, Lieutenant Elias Vance gripped the steering wheel, his knuckles white as bone. He squinted at the flashing red and blue reflections in the slick asphalt, his seasoned eyes scanning for obstacles amongst the cascading torrent. "Dispatch just reported a fully involved warehouse fire," his voice was firm, betraying none of the tension coiling tight in his gut.  "Multiple reports of possible victims trapped inside." 
+
+The warehouse itself loomed ahead, a hulking silhouette against the raging storm. Flames devoured the wooden structure, casting monstrous shadows that danced and writhed on the sodden ground. The heat radiating from the inferno licked at the engine's metal skin, turning the air around them into a furnace. This was Elias’s city, his home, and tonight, it was burning. 
+
+

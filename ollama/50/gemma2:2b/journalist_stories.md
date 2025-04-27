@@ -1,0 +1,6 @@
+Rain lashed against the grimy windowpanes of Elias Thorne’s tiny apartment, blurring the neon lights of the city sprawling beneath him.  The air hung thick with the scent of damp concrete and stale ramen, two odours perfectly representing his life. Elias was a rising star in investigative journalism, known for his tireless pursuit of truth and his ability to weave together seemingly disparate threads into a cohesive whole. But tonight, he couldn't shake the uneasy feeling that something was amiss, like a discordant note in an otherwise perfect symphony. 
+
+His current target: The Serpent's Bite, a notorious underground gambling ring rumored to be pulling strings in the city’s political arena. Elias had been following whispers of corruption and shady deals for months, tracing each lead like a detective hunting for clues.  Tonight, however, felt different. He was staring at a handwritten note tucked beneath his computer monitor: "The Queen's Gambit - The Price of Silence." 
+
+
+**Setting:** A dimly lit, cluttered apartment in New York City, with a worn-out desk and overflowing filing cabinets. Elias’s laptop screen glows faintly, the city skyline reflected in its blue light. The air is thick with the tension of unfulfilled potential and an impending storm.

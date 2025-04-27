@@ -1,0 +1,5 @@
+The biting wind whipped across the frozen plains of Alora, stinging Sergeant Elara Valen's cheeks through her thick furs. Her breath rose in white plumes, swallowed by the swirling snow that obscured the horizon.  Below, the once-bustling port city of Skylarhaven huddled under a blanket of grey sky, its lights like scattered jewels against the encroaching darkness. This was Elara's domain, a sprawling expanse of icy tundra where only the bravest (or most desperate) dared to venture.
+
+Elara tightened her grip on the hilt of her frost-steel glaive, her senses alert for any anomaly in the howling wind. Her orders were simple: maintain patrol along the northern wall, be vigilant against incursions from the Frostborn tribes, and return to the watchtower before nightfall. But beneath the seemingly mundane task, Elara felt a gnawing unease. The wind carried whispers of something more sinister than usual - a tremor in the frozen earth, a chilling silence where there should be wolf howls.  Something was wrong, and Elara knew, with a certainty that chilled her to the bone, she was about to find out just how wrong.
+
+

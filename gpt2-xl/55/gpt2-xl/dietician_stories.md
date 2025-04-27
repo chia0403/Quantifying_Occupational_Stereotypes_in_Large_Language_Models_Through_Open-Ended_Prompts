@@ -1,0 +1,7 @@
+Once upon a time, there was a dietician named Marlene Nitschke, who had been researching cholesterol and triglycerides. There was a book by Nitschke and her colleagues at the Scripps Research Institute called Fat, Cholesterol & Fats. Every day, the book was published in one edition—in 1977. For over thirty years, the book and its accompanying magazine were published monthly in print and through the Internet.
+
+The book contains chapters on the diet and the cholesterol and triglyceride problems. The sections deal with a number of common, chronic cholesterol and triglyceride problems including elevated cholesterol, high blood pressure, elevated serum triglycerides, and atherosclerotic heart disease.
+
+But what made the book stand out was a new and unique way of analyzing the data: the VL, or a veneer plot, which appeared in the appendix, Chapter 11, and showed the ratio of LDL to HDL in comparison to the total cholesterol concentration (and thus the cholesterol in the blood). This allowed the reader to see the pattern of LDL cholesterol's relation to the HDL molecules, and to see the cholesterol in a new light as well.
+
+There was much hype about the new methodology—the first ever to provide a visual means to evaluate a concept such as cholesterol, and especially LDL cholesterol. It quickly became known as the Nitschke graph because it was the author's initials, Marlene, that appeared on it. But was it as exciting as it

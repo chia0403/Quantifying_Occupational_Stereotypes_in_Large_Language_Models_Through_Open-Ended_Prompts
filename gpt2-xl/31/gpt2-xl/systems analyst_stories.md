@@ -1,0 +1,6 @@
+Once upon a time, there was a systems analyst named Matt. Matt and his friend Greg found the perfect pair of shoes for their daughter, then got married and had three healthy children. Matt and Greg did everything right – they saved up and bought their dream house. They put the kids in great schools. They drove a nice car. They took advantage of the "free" public health service. Except for one thing. For years, no one in their lives had ever given them a call. Not a friend, not a relative, not a bureaucrat. For almost no one, Matt and Greg were invisible.
+
+Matt and Greg grew up and moved to Canada together, after five years of college. They had their first kid – a daughter. Then a son, a lovely boy named Aaron. Then in 2011, Matt lost his job in the tech industry, on a project that took him away from his wife and children – and just about broke them, too. He was left with an enormous debt (thanks to the tax advantages it had given him) and an uncertain future in a new country with no friends or family nearby.
+
+But in 2012, Matt found a job in Calgary that took him into a company that does public-sector consulting and helps businesses and governments get things done on the frontlines of government. In return, the government lets him bring his family down the street and pay for their daughter's education. It is a perfect fit. So it went.
+

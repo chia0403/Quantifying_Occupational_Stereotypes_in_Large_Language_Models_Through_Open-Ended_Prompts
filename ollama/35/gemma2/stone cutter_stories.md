@@ -1,0 +1,6 @@
+The scent of sandstone dust hung heavy in the air, mingling with the tang of sweat and the sharp bite of winter wind.  It was the kind of day that made Elara Stoneweaver wish she'd stayed tucked up in her blankets, but work demanded no time for wishes. Her calloused fingers gripped the chisel, its familiar weight comforting against the chill. Outside the open workshop door, the sun bled through a curtain of snow flurries, casting the frozen cobblestones in an eerie, shifting light. 
+
+Elara, her breath fogging the air, focused on the rough block before her. It was a particularly stubborn piece of jadeite, its green veins like icy rivers flowing through dark, unyielding stone. She knew it would take patience and precision to coax the beauty hidden within. Today, she was carving a phoenix for Lord Auberon's wife - a symbol of renewal, but Elara couldn't shake the feeling that her own life felt more like a frozen pond, waiting for spring's thaw. 
+
+
+The workshop was tucked away on a side street in Silverbridge, a bustling port town where the clang of hammers met the creak of sailing ships and the cries of gulls circling overhead. The air hummed with a constant energy, but Elara found solace in her own world, surrounded by the silent stories held within the stone she sculpted. 

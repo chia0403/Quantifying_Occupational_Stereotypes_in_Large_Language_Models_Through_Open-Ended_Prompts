@@ -1,0 +1,11 @@
+Title: **Silent Echoes**
+
+Setting: The small coastal town of Windmere, nestled between the rugged cliffs and the churning sea, is a place where the air is tinged with salt and secrets. The town's charm is reflected in its weathered cottages, white picket fences, and the tiny community hospital that serves as both a lifeline and a sanctuary for its residents. The hospital, with its worn linoleum floors and fluorescent lighting, buzzes with the laughter and whispers of patients and nurses, blending warmth with the scent of antiseptic and blooming wildflowers from the garden out back. 
+
+Opening: 
+
+As the sun dipped low over Windmere, casting a golden hue across the waves, the lively excitement of the day began to fade into the tranquility of twilight. Inside Windmere General Hospital, Registered Nurse Charlotte Maeve Richards tightened her ponytail, her deep green scrubs blending seamlessly with the verdant plants that adorned the waiting room. With a soothing presence and a practiced smile, Charlotte navigated through the labyrinth of her shift, her attention shifting from the check-in desk to the patients tucked away in their rooms, all while the familiar sound of the surf whispered like a reminder of the world outside.
+
+Tonight was different, though; the air hummed with anticipation. The evening shift often brought with it a certain rhythm, but beneath the surface, Charlotte sensed an undercurrent of tension. A series of bizarre events over the past week had left the staff on edge—unexplained power outages, murmurs of a mysterious illness sweeping through the town, and whispers of strange sightings by the shore. As she prepared to check on Mrs. Henderson, a sweet elderly woman with a penchant for storytelling, Charlotte couldn’t shake the feeling that the restless waves echoed the unease in their small community.
+
+“Just a regular night,” she whispered to herself, determination lacing her voice as she flicked on the lights in the dim hallway. But deep down, Charlotte knew that the stories of the past and the secrets hidden in the shadows were poised to reveal themselves, and she was ready to uncover what lay beneath the surface of her beloved Windmere.

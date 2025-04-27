@@ -1,0 +1,11 @@
+In the heart of the serene English countryside, nestled amidst rolling hills and ancient oak trees, lay the quaint village of Ashford Hollow. The village was a world unto itself, untouched by the relentless march of time, where cobblestone streets meandered aimlessly, and ivy-clad cottages seemed to whisper their own tales of yore.
+
+At the end of Lavender Lane, stood Ashcroft Manor, an imposing yet endearing relic of Victorian architecture. The manor, with its ivy-clad stone walls and turrets reaching skyward, spoke of an era long past, a time filled with early morning horse-drawn carriages and candlelit evenings. The house was a living, breathing entity, with secrets buried in the depth of its foundations and stories folded into the worn fabric of its furnishings.
+
+Mary Ellen Cartwright was the manor’s heartbeat, a diligent housekeeper with an unyielding dedication to preserving the home's storied past. Her days began before dawn, as the mist still lingered over the dew-kissed gardens, and ended when the golden hues of the sunset cascaded through the manor's stained-glass windows.
+
+Mary Ellen was as much a part of Ashcroft Manor as the creaky floorboards and antique drapes. Her presence was a gentle symphony of diligence and care. Dressed in her crisp white apron over a sensible dark dress, she carried a pocket watch that once belonged to her grandmother—a timeless heirloom, much like the manor itself.
+
+Every morning, as she delicately pulled back the cloud-soft curtains in the grand parlour, her thoughts wandered to the countless stories encapsulated within the manor’s walls. Despite her role as custodian of its order, Mary Ellen Cartwright believed herself to be as much a storyteller as a housekeeper. With each chore, she breathed life into a home whose heart had seen generations come and go.
+
+Yet, on this particular morning, as she polished the silver candelabras in the dining room, a shiver of mystery tingled in the air. Unbeknownst to Mary Ellen, her routine was about to be disrupted by an unseen presence, bringing with it a secret that the manor had harbored within its silent corridors for far too long.

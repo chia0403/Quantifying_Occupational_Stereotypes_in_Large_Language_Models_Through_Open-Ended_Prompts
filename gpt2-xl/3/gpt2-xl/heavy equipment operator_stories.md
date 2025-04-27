@@ -1,0 +1,7 @@
+Once upon a time, there was a heavy equipment operator named Jack. He worked in a garage and had a very close relationship with Jack's son, Michael, who was an overprotective young man of fourteen. He worked very hard and was well liked by all the kids in the area.
+
+Jack's father died five years before, and Michael quickly fell to his father's ways. He stopped wearing his dad's suit because he "didn't look like it's me anymore", and didn't make much effort to be nice. He was also in debt because most of his working hours were after the hours prescribed by state law. Things were getting bad enough that Michael even went to see a psychologist. The psychologist seemed to be treating Michael, but Jack hadn't. Jack's son Michael never even knew there had been any problems.
+
+One night a small truck arrived at the garage in which Jack and Michael worked and parked next to them. A man with no identifying features came out of the truck and began asking if Jack and Michael knew the man when they met. When Jack confirmed that they did, the man went into his truck and got a gun. This man came again and wanted to know for what Jack's son had done to him. Jack and Michael explained everything and the man left. Jack went back to work and the situation quieted down.
+
+Jack later heard about the robbery on the news and immediately called the office of the Chief of Police, who was his former

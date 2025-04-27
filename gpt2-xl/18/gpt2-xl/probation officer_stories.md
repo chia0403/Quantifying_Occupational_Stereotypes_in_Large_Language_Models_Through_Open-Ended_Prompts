@@ -1,0 +1,7 @@
+Once upon a time, there was a probation officer named Mark Wysong. But after years as a police officer he ended up on the wrong side of the law when he ran into the notorious, and infamous, hitman, the Black Widow. A man she had once tricked out of a million dollars, the Black Widow had been hired by a powerful family which wanted to eliminate him. Her plan failed, and she was killed by her former employers. Wysong now lives on the outskirts of a small town, surrounded by fields, making his living as a hunter/huckster.
+
+One night, Mark wakes up and sees a familiar face staring out at him. He gets up to see who it is. And when he sees that it's himself, he knows it's too late. He leaves with the promise of revenge - and the Black Widow. Mark finds her in the forest of the outskirts of the town and finds out that she has taken up the pursuit of an ancient race of creatures known as the Yurakukas. She believes there was once a race of humans, who fell into decline as the Yurakukas began to rise. The Yurakukas now hunt the human descendants of the ancient race.
+
+But not everyone shares the same beliefs.
+
+Wysong must go on the hunt for the leader of the Yurakukas, the Red Dragon. She's convinced that she's looking for her long lost grandfather

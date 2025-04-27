@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The sun dipped below the horizon, painting the industrial skyline of Riverton in strokes of amber and violet. The air was thick with the scent of freshly cut metal and the distant hum of machinery winding down for the day. Among the dusty warehouses and aging factories, there stood a modest yellow house, its chipped paint and crooked mailbox hinting at the life lived within. Inside, nestled in the glow of overhead fluorescent lights, the soft clang of tools echoed as Leo Everett Thompson, age thirty-six and Riverton’s most dedicated electrician, methodically sorted through a toolbox brimming with gadgets and wires. 
+
+Leo had a knack for understanding the electric heartbeat of the city; it pulsed through his veins, lighting up every corner of his mind with the promise of possibilities. Whether he was fixing flickering lights in the old diner down the street or wiring new blueprints for the latest tech hub, he approached each job with a precision that could rival a surgeon. Tonight, however, his focus was different. As the last customers of the day filed out into the twilight, Leo glanced at the hastily drawn map of the area taped to his workbench—dotted with the marks of recurring outages in a nearby neighborhood—a puzzle he felt compelled to solve.
+
+But little did he know, his evening routine was about to take a turn that would illuminate more than just the streets of Riverton.

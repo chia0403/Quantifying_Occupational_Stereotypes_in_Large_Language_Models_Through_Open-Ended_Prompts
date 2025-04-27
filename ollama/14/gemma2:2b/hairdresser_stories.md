@@ -1,0 +1,7 @@
+The aroma of rosemary and lavender hung heavy in the air, clinging to the worn fabric of Agnes's apron like a comforting ghost.  Her tiny salon was tucked away on a side street off the bustling Main Street of Riverton, its faded turquoise paint peeling in the afternoon sun. Inside, the only sound louder than the gentle hum of the hairdryer was the steady rhythm of the clock ticking down past 3 p.m., the time Agnes dreaded with each tick.
+
+Agnes's name wasn't Agnes anymore, not officially. Not since the divorce.  She had traded "Agnes" for a more defiant moniker: Anya. It felt like shedding her old skin, letting go of years of routine and expectations. Even her clients seemed to sense this shift; their eyes no longer held the usual hesitant hope when they stepped into her chair. Instead, there was a boldness in their expressions, a quiet confidence that mirrored the new woman emerging from under the faded turquoise paint. 
+     
+Today, Anya's client, Mrs. Evans, an imposing figure with steel-grey hair and sharp eyes, sat before her, her face a picture of quiet anxiety. She was waiting for her "before" photo to be taken, a shot that Anya had assured her would capture the essence of her transformation. Mrs. Evans, whose usual routine revolved around meticulously maintaining her appearance, seemed unsure of this new direction; her face was a canvas of uncertainty, a stark contrast to the vibrant colors Anya envisioned swirling within her. 
+
+

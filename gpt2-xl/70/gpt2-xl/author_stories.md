@@ -1,0 +1,7 @@
+Once upon a time, there was a author named Robert W. Chambers. This author would take long walks along with his daughter along a stretch of the Mississippi River in Missouri. Both of them would be singing along and were laughing so hard that their voices sounded crackling. One day, the author received a letter from a man named William J. Blight. The letter contained four passages of the Bible that mentioned an area known as the Black Hills. The author realized the Black Hills were the missing pieces of a jigsaw puzzle.
+
+
+Blight was a wealthy businessman living in the area and his company had a large mining operation in the area. He needed some help finding those pieces so he created a map and commissioned a man to go there and survey the Black Hills. The man came back with an alarming report. He stated that the whole area was covered with a thick layer of a mysterious rock. When the man touched the rock, he was instantly engulfed in a blinding light. He could not see his hand in front of his body any more. A large stone was thrown at the man and he turned into the stone himself. This happened to the man that was standing next to Chambers. Chambers and his daughter disappeared in the same manner. While in this state, they were telekinetically controlled. Chambers took to wearing a metal suit and would speak to the stones or to the people under his control.
+
+
+They were able to travel under Chambers' control for about a thousand miles, visiting

@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named Mrs. Doolittle. She got married, bore five children, and passed away quietly, in a comfortable San Francisco suburb of her own design. Her daughter was not, in her mind, a typical daughter. Her first words to her mom were, "Don't worry about Mommy. I'm going to be a doctor."
+
+Mrs. Doolittle's daughter, like any typical daughter, was an all-round smarty-pants. Her first three books were all about chemistry. Her only complaint, it appears (and, probably, Mrs. Doolittle thought as well), was that the scientific explanations, once discovered, were never given up on, even when they were pointed out that no one, not even those around her, believed them.
+
+So she went off to college, to a university which, while it wasn't necessarily prestigious in the usual sense, was considered to have a reasonably high academic standard. To say the least, the college was filled with intellectual types who, while some might not see it that way, generally didn't like having their heads stepped on. Mrs. Doolittle was no exception. But it's this last, unspoken consideration that makes for her "universally" hated personality.
+
+She was an amazing doctor and a very nice neighbor and family friend. She had done more than enough to have a good-enough life. But all,

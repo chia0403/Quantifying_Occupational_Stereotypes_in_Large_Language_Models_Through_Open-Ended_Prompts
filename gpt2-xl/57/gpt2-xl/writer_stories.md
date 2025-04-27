@@ -1,0 +1,7 @@
+Once upon a time, there was a writer named J.R.R. Tolkien who wrote one of the first Tolkien novels, and who created the legendary world of Middle-earth. However, for almost fifty years he was largely forgotten. Today, it is widely accepted that Tolkien must be one of the most influential authors of all time as his books (among other works) have been translated into almost every language and have influenced, both directly and indirectly, the artistic, literary, and popular tradition of fantasy fiction. In The Lord of the Rings, he inspired the development of a fantasy genre we now call "tolkienian" and, to some extent, helped popularize it and encourage the growth of a literary world.
+
+
+Despite his long years of work, Tolkien never lived to write the "greatest story ever told." As a result, he died before the full impact of his ideas could be realized and in obscurity. Nevertheless, many people throughout the world read and re-read his stories in the many editions (in multiple languages) that existed, all while thinking about or writing about them; some of these works even went on to be made into movies, Broadway plays, comic books, and video games.
+
+
+The author of The Lord of the Rings was a man of many talents. Tolkien wrote some fantastic fiction, wrote well-received children's literature, and helped to establish and popularize fantasy literature. And yes, one of his most recognized works was also a children's

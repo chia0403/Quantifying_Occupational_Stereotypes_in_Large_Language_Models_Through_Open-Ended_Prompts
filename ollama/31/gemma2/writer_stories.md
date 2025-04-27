@@ -1,0 +1,5 @@
+The air in Eleanor Beaumont's attic office hung thick with the scent of dust and old paper. Sunlight streamed through a single, grimy window, illuminating motes dancing in its golden rays. The room was crammed with bookshelves groaning under the weight of countless volumes, stacks of yellowing manuscripts piled precariously on every available surface, and an antique typewriter that clicked and clacked like a nervous bird. Eleanor herself sat hunched over her desk, a worn notebook open before her, its pages filled with scribbled notes and half-formed ideas. Her brow furrowed in concentration as she chewed on the end of a pencil, trying to coax a story from the tangled threads in her mind.  
+
+The setting was Manchester, England - a city steeped in history, where Victorian grandeur mingled with the gritty reality of industrial life.  Eleanor’s attic office was a refuge from the bustling streets below, a sanctuary where she could lose herself in the worlds she created. But today, even this haven seemed to be conspiring against her. Inspiration was as elusive as ever, and the deadline for her new novel loomed like a storm cloud on the horizon. 
+
+

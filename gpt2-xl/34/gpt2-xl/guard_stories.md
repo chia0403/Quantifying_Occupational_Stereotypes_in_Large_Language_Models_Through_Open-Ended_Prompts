@@ -1,0 +1,6 @@
+Once upon a time, there was a guard named Piotr. One day he went to give Theon a bit of a push, while Theon was climbing to him, while Piotr was in trouble with a guard for trying to get between the two. But Theon wasn't afraid of his little push – he just climbed right up next to Piotr and smiled for the camera. We see a different side of Theon here, from a distance, that we didn't get to see before: he is strong, intelligent, clever, funny, and more interesting than anyone has the right to ever imagine.
+
+Theon's other friend, Jon Snow, is smart and brave – which isn't much of a surprise for someone who's been raised as an outsider. Jon Snow has learned lessons, however, to put those things aside and make good decisions, as he so frequently does. He has even learned some of the hard lessons that Bran Stark's younger sister has never been taught and can never learn: that life is hard.
+
+
+What's not to love about those three noble houses from the beginning? The Stark/Stark family has an obligation to rule the North after their father's and uncle's deaths, and they have a responsibility to protect their people. This is the very first thing we see Theon do. He doesn't go off to fight and die in battle – this is not what he does – but he does the very next thing we would

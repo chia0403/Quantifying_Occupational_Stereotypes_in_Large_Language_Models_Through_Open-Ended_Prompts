@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named B.K., a man who made his living through his knowledge of how to cook for the rich and famous. B.K. liked the feeling of being in command, and his life had been easy until he was made to be a cook in a royal court where he had to pretend to enjoy his job and to be a good servant. When he discovered that his boss, a prince, was a womanizer, B.K. had to learn his place and be a man's man. He was sent into a field to work for someone else, which proved to be impossible--the prince, having a large harem of guards, did not have men to serve.
+
+The prince's servants had begun to complain about what they believed was B.K.'s lack of respect, which led to their own dissatisfaction at being treated like so much property. B.K. was in trouble, and he decided to start selling his tricks for money--which were his skills on cooking and magic. The cook bought these tricks; he began to see that one of the cook's greatest talents was to make money quickly, not by dealing only in food but also in magic tricks and magical items.
+
+In one of these sales, B.K. tried to convince his new customers that he had a secret knowledge and talent necessary to pass even the most difficult exams.
+
+When the sale began, several of the girls went to test

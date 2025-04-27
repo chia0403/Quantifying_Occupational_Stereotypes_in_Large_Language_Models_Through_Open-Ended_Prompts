@@ -1,0 +1,9 @@
+Here's a story opening and setting:
+
+The sun had just set over the bustling streets of New Orleans' French Quarter, casting a warm orange glow over the crowded bars and restaurants that lined Bourbon Street. Inside "Madame LeRoux's" fine dining establishment, the atmosphere was no less lively. The soft strains of jazz music floated through the air as servers scurried about, taking orders and delivering plates of steaming Creole cuisine to eager patrons.
+
+Among them was Emily Ann Dupre, a bright-eyed server with a quick smile and an infectious laugh. With her curly dark hair tied back in a ponytail and her name tag pinned to her crisp black apron, Emily seemed like the quintessential New Orleans girl - charming, confident, and always ready for a good time.
+
+As she made her way through the crowded dining room, Emily's eyes scanned the tables with practiced ease, taking note of the special requests and dietary restrictions that came with each table. She had worked at Madame LeRoux's for three years now, and she knew its rhythms and secrets like the back of her hand. But as she approached Table 12, a group of rowdy tourists who seemed more interested in the bartender than their meal, Emily couldn't shake the feeling that tonight was going to be different.
+
+The air seemed charged with an undercurrent of tension, and Emily's instincts were screaming at her to tread carefully. She took a deep breath, pasted on her brightest smile, and asked the tourists what she could get for them - all the while wondering what secrets they might be hiding behind their raucous laughter and gleaming cameras.

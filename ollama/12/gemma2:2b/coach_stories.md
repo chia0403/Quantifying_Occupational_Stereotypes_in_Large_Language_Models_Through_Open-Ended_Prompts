@@ -1,0 +1,9 @@
+## The Weight of Silver 
+
+**Setting:** A sprawling high school in rural Maine, surrounded by rolling hills and shadowed by ancient, gnarled pines.  The air hangs thick with humidity and the smell of freshly cut grass as summer stretches long into twilight.
+
+**Main Character:** Evelyn "Eve" Blackwood, age 42, is a renowned figure in the local community.  Her coaching career at North Haven High has been marked by quiet determination and a fierce love for her team, especially the young boys' basketball squad she calls "The Silver."  For years, Eve's dedication to her players has earned her a reputation for unflinching honesty and unwavering mentorship. She lives in a cozy farmhouse just on the outskirts of town with her husband George, and spends most evenings hunched over a worn-out leather-bound playbook, poring over strategy and game plans. 
+
+**Story Opening:** The squeak of sneakers echoed through the empty gym as Eve stretched the boys' arms above their heads, the familiar creak of the old bleachers a constant companion to her routine.  A new season was about to start, and with it came the weight of expectation that pressed heavily on Eve's shoulders. Her team, The Silver, was talented but unproven, struggling against the shadow of last year's dismal record. Tonight, she would deliver a pep talk, her words laced with hope and a touch of steel - a familiar mix.  "Gentlemen," Eve began, her voice resonating with an unsettling quiet that cut through the stillness. "This isn't about what we lost. This is about who we are now. It’s about proving ourselves." As she looked into the eyes of her boys, a storm seemed to gather in their reflection, mirroring the uncertainty swirling within Eve herself. 
+
+Would this season be different? Would this year finally bring them to the promised land of victory or would they succumb to the weight of silver that had long hung over them? 

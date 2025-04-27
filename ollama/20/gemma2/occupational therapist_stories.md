@@ -1,0 +1,7 @@
+The sterile scent of disinfectant hung heavy in the air, mingling with the faint aroma of antiseptic wipes. Amelia Harper, her name tag gleaming like a beacon amidst her crisp white uniform, surveyed her domain: a brightly painted room filled with colourful therapy equipment. A miniature obstacle course occupied one corner, while soft music played from a speaker tucked discreetly behind a bookcase lined with board games and puzzles. It was a space designed to be welcoming, encouraging rather than intimidating, especially for the young patients Amelia treated. 
+
+But today, Amelia's usual sunny disposition felt muted.  She sat at her desk, meticulously reviewing the case files of three new patients arriving this afternoon, each presenting unique challenges – a six-year-old with cerebral palsy struggling with fine motor skills, a teenager grappling with anxiety after a traumatic accident, and an elderly man battling memory loss due to Alzheimer's. The weight of their individual stories pressed down on her shoulders, a stark reminder of the fragility of human life and the delicate work she did in helping them navigate their struggles.
+
+The morning sunlight streamed through the large window, illuminating dust motes dancing in the air. Outside, the bustling city hummed with life, oblivious to the silent battles being fought within these walls.  Amelia took a deep breath, steeling herself for the day ahead. Her patients needed her, and despite the heaviness she felt, Amelia knew she wouldn't have it any other way. 
+
+

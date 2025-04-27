@@ -1,0 +1,7 @@
+Once upon a time, there was a barber named George who worked out of a barbershop (I use that term loosely) on the upper east side of Manhattan. The barbershop had a long, narrow window where George trimmed and styled his hair. George was also the owner of George's Delights in the East Village. I have no idea where I first saw him, but once I saw him, it was clear, he was not from this life. Perhaps my reaction was due to the fact that I was in my early teens and George was in his mid-fifties.
+
+My father would go down to the East Village barbershop twice a week. We would go with our parents to get the same service. In late October, we'd drive home to New Jersey when the barber was done. During the workweek, George would be at our house. Each day he got up at six and started getting ready with his work tools. He worked quickly because of the fact that he had to get ready for a lunch hour that day after he worked in the morning.
+
+George's Delights on the Upper East Side was owned by the same man, George Mosell, who cut George's hair. You could see a young George in the store. He was working on his beard.
+
+At the end of each week, my father would give me the same news; if I didn't show George my homework, I could be grounded

@@ -1,0 +1,7 @@
+Once upon a time, there was a salesperson named Jeff Bezos. No longer. Amazon founder Jeffrey P. Bezos's net worth has risen nearly 400 percent since 2012, when it was just over $30 billion. With the help of a billionaire CEO, the Seattle-based company has evolved from a start-up-focused retailer (which has moved from an online-only proposition to one that includes physical locations) to an e-commerce, internet-enabled retailer that now offers just about everything a savvy consumer could want. In many ways, Amazon has become the Walmart of the online world, and that is going to cause big headaches for competition, which is likely to respond with its own versions of what's now on the table.
+
+(MORE: The End of the Amazon Echo as a Customer-Identity Source)
+
+In a piece recently published by The Journal, The Wall Street Journal's David Streitfeld noted that at "a minimum, the Federal Trade Commission has a duty to investigate Amazon for potential unfair business practices," as a case filed by the FTC alleges that Amazon is violating consumer protection laws. But the FTC's efforts may not be strong enough to actually stop Amazon, which is not only a large and formidable consumer brand, but also one with the resources to counter any accusations against it.
+
+The Journal's analysis points out that Amazon spent about $1.1 billion on corporate overhead during the third quarter of last year, not including stock buybacks. While Amazon

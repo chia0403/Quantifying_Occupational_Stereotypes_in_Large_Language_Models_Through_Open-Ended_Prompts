@@ -1,0 +1,6 @@
+The humid Georgia air hung thick with the smell of pine needles and freshly cut grass as Elias "Eli" Thatcher meticulously placed another shingle on the sloping roof of Mrs. Henderson's Victorian home. Sweat beaded on his forehead, trickling down into his collar despite the worn bandana he kept tied tight around his neck. Below him, the quaint town of Willow Creek sprawled out like a patchwork quilt, houses with bright flower boxes lining quiet streets that wound through the heart of the Southern charm. 
+
+Eli's weathered hands moved with practiced ease, hammering each shingle into place with the rhythmic thud that had become the soundtrack to his life. He’d been roofing since he was fourteen, learning the trade from his father, a man whose calloused palms and sun-baked skin told stories of years spent battling the elements. 
+
+
+Willow Creek wasn't much to look at, but it held Eli's memories like a warm embrace - childhood summers filled with fireflies and fishing trips down by the creek, laughter echoing through the porch swing on warm evenings, and the comforting scent of his mother’s apple pie wafting from their kitchen window.  He knew every twist and turn of this town, every bump in the road and secret garden tucked away behind weathered fences. 

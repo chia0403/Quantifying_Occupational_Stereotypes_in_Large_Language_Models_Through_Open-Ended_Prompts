@@ -1,0 +1,5 @@
+Rain splattered against the windowpanes of Amelia's tiny Brooklyn studio apartment, mirroring the erratic rhythm of her heart.  A frustrated sigh escaped her lips as she stared at the screen, the cursor blinking accusingly from an empty canvas. "This isn't working," she muttered, her eyes finally meeting the reflection staring back at her – a tired-eyed woman with charcoal smudges on her cheeks and frustration etched onto her brow. Amelia Miller, graphic designer extraordinaire, was staring into the abyss of creative block.
+
+Her usual haven of vibrant colors and playful typography had been replaced by a drab palette of greys and blues – a reflection of her current mood. The city outside seemed to be holding its breath, mirroring her own stagnant energy. 
+
+Tonight's deadline loomed like a storm cloud -  a massive rebranding campaign for the recently acquired eco-friendly clothing line "GreenLeaf." Amelia had poured countless hours into designing their logo, but now it felt as lifeless as the wilted plant on her windowsill – a stark contrast to the vibrancy she envisioned. 

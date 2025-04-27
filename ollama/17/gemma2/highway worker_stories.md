@@ -1,0 +1,5 @@
+The sun beat down on Elias "Eli" Blackwood's neck as he surveyed the stretch of asphalt before him. A thin ribbon of heat shimmered off the blacktop, blurring the horizon into an unsteady mirage.  Dust devils pirouetted in the parched grass lining the shoulder of Highway 61, dancing with the tumbleweeds that skittered across the lonely road like miniature armadillos. Eli tugged his trucker hat lower, shielding his eyes from the glare as he adjusted his work gloves, the worn leather creaking softly against his calloused hands.  
+
+This stretch of highway was his kingdom, this unforgiving expanse of Nevada desert his domain. He knew every crack in the asphalt, every dip and rise in the terrain like the lines on his own weathered palm. For twenty years, Eli Blackwood had been a guardian of these roads, mending their scars and ensuring the safe passage of weary travelers. Today, though, something felt different. A prickling unease crawled up his spine, a whisper of change carried on the desert wind. 
+
+

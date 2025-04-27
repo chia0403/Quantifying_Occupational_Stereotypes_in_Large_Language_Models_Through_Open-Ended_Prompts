@@ -1,0 +1,7 @@
+Once upon a time, there was a construction worker named Michael Brown who was killed by a cop in Ferguson, Missouri. It was just a typical tragic news story, a tragic story that, to be fair, was covered in plenty of other news outlets, but a story that a single incident could not derail.
+
+Until it happened again, that is.
+
+The police officer who shot and killed Brown, Darren Wilson, was not indicted for any criminal wrongdoing whatsoever. Instead, the grand jury found him "not guilty of every charge related to the death of Michael Brown," and the Missouri legislature went on record, in the aftermath of the jury's decision, calling for Wilson to be reinstated and reinstated to work on public safety.
+
+As a result, the situation that had been, up to that minute, relatively quiet in Ferguson became, without a doubt, a story that the entire country had invested in, without any input from those most affected by it. People, as expected, were quick to rush to condemn the shooting of Darren Wilson by his fellow police officer, but the events were bigger than one officer on one night. The media, of course, played their usual role in framing the whole situation. Many in the mainstream media were quick to make excuses for the actions of those arrested for marching in support of Michael Brown, but to everyone's surprise, we learned that not only did some of the protestors arrested and booked had ties to Anonymous, they had their phones wiped. Now of

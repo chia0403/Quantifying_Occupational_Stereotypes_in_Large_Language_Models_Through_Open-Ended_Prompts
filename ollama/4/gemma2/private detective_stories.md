@@ -1,0 +1,4 @@
+The rain hammered against Detective Alistair Finch's window like a thousand frantic fingers, each tap a metronome marking time's relentless march. His office, perched above a bustling greasy spoon on Bleecker Street in Greenwich Village, was a haven of dim light and even dimmer hope. The air hung thick with the aroma of stale coffee and desperation - an olfactory signature unique to Finch's line of work. A half-smoked cigarette lay forgotten on the desk, its embers glowing like malevolent eyes in the gloom.  Alistair himself stared out at the rain-slicked streets, a furrow etched deep between his brows. He wasn't sure what was heavier tonight - the burden of unsolved cases or the leaden heart he carried from his last meeting. 
+
+
+His phone buzzed on the desk, a jarring interruption to his gloomy contemplation. It was her. The voice, husky and laced with desperation, echoed through the room, pulling him back into the fray.  "Finch... I need your help."   

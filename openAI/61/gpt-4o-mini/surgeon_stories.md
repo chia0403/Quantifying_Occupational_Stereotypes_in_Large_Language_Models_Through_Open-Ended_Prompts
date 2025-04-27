@@ -1,0 +1,13 @@
+**Story Opening:**
+
+In the heart of Manhattan, where the skyline sliced through the clouds like a serrated knife, the scent of antiseptic and adrenaline filled the air of St. Michael’s Hospital. It was late evening, and the bustling city outside dimmed to a soft glow as streetlights flickered on, casting long shadows down the fluorescent-lit corridors. Inside the operating room, a world of precision and focus thrummed, underscored by the rhythmic beeping of monitors and the hushed whispers of the surgical team.
+
+At the center of this whirlwind of life and death stood Dr. Eleanor Arden, a renowned cardiothoracic surgeon, her brow furrowed in concentration. Clad in scrubs, her teal surgical cap tied neatly at the back of her head, Eleanor had transformed the pressures of a demanding career into steel-like resolve. With her deft hands poised above a delicate patient, she momentarily locked eyes with her lead nurse, who nodded in silent affirmation—the moment of incision awaited.
+
+Eleanor’s mind raced as she reviewed the chef d'œuvre of the day’s progress. This surgery was not just another procedure; it was a second chance for the young mother lying supine on the operating table, a flickering heartbeat that held the weight of her family’s dreams. The clock on the wall ticked down, each second a reminder of both urgency and hope. But as her scalpel glinted under the harsh lights, Eleanor’s thoughts flashed back to a time when that very heart had been vibrant and full of life, and she vowed to return it to its former glory, no matter the challenges ahead. 
+
+**Setting:**
+
+St. Michael’s Hospital is one of the most prestigious medical institutions in New York City, housed in a historic building with gleaming glass and steel extensions. The hospital’s surgical wing, where the air is always brisk with both the chill of the air conditioning and the intensity of the staff, exists in a state of controlled chaos. Hushed voices echo against the stark white walls, and the polished floors reflect the warm glow of overhead lights. In the background, the city’s hum filters in intermittently, a reminder of life beyond these sterile walls.
+
+Dr. Eleanor Arden’s office, a modest yet well-ordered space lined with medical texts and framed degrees, reveals her dedication to her craft. A small potted plant sits on the desk, wilting slightly—a reminder of the personal sacrifices she has made in pursuit of her career. Here, amid the clamoring demands of the hospital and the gravity of each life she touches, Eleanor strives to balance her role as a healer with the echoing loneliness that often shadows her long nights.

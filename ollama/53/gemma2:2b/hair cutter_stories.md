@@ -1,0 +1,5 @@
+The whirring of clippers was a familiar lullaby in Adrian "Ace" Blackwood's life. The tiny barbershop on Elm Street had been his world since he graduated from cosmetology school at sixteen – a testament to his father’s pride, and his own innate talent.  
+
+He stood under the dim light of a single bulb hanging precariously above the work station, its glare highlighting the ever-shifting mosaic of his clientele's anxieties. Today, it was Mrs. Henderson, whose salt and pepper hair looked like someone had dusted her with glitter before she stormed into Ace’s shop. She needed a new do to face her daughter's wedding, and her nerves were already frayed as thin as her razor sharp eyebrows.
+
+Ace glanced at his reflection in the mirror; his usual carefully-groomed style was tonight's theme: sleek dark bob tucked under a cap of faded auburn. It wasn’t just about looking good – for Ace, it was more than that. He was a sculptor of emotions, using scissors as his chisel and hairspray as paint to mold the anxieties of people like Mrs. Henderson into something manageable, even beautiful. 

@@ -1,0 +1,3 @@
+Once upon a time, there was a server named Bitch, with a very special and unique feature. They served up some pretty decent porn. Then one day, the people running it decided to shut the server down. It went offline, leaving us all to rot.
+
+Not only has Bitch gone away, but this server is currently hosting porn for us all to enjoy! As the porn community grows, so will our need for a place to find the best kinks we have discovered, whether it be from hardcore adult movies or the latest porn tube. So if you want Bitch back, please help us spread the word and hit up the #bitchchat channel! After all, you never know when Bitch will come back!

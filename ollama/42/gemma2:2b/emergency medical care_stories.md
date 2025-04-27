@@ -1,0 +1,7 @@
+## The Midnight Shift
+
+**Setting:**  Rain pattered against the windows of Mercy General Hospital's Emergency Room, its rhythm mirroring the frantic beat of Dr. Elena Reyes' heart. It was 2:15 am on a Tuesday -  "the midnight shift," as they called it - and the ER was humming with a symphony of beeps and groans. Outside, the city felt miles away, trapped in an amber twilight under the watchful gaze of storm clouds.
+
+**Character:** Dr. Elena Reyes, sharp-eyed and relentless, held the reins of her team like a conductor orchestrating a chaotic orchestra. Her hands, calloused from years of gripping IVs and pushing through fatigue, moved with practiced ease as she monitored patient data on her laptop, a calm in the storm that threatened to engulf everyone within the ER's walls. 
+
+**Opening:** A high-pitched alarm shattered Elena's focus. "Code Blue!" The word echoed through the sterile corridors, followed by a wave of panicked nurses and doctors scrambling toward a gurney.  A young woman, barely 20, lay unconscious on the bed, her life hanging by a thread. Her eyes were glazed over, her breath shallow. Elena's stomach clenched, a knot of worry forming in its tight coil. This was more than just another patient. She saw the fear, the desperate hope in the face of their young patient's suffering. Tonight, she would need to become both doctor and nurse, a warrior against time and fate. The storm outside raged on, mirroring the tempest within Elena, but one thing was certain: tonight, she wouldn't falter.  Not for this one. Not for anyone. 

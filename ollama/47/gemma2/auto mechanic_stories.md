@@ -1,0 +1,6 @@
+The scent of burnt oil and ozone clung to Elias Bartholomew "Bart" Thorne like a second skin. He'd been breathing it his entire life, ever since he'd been small enough to sit on his grandfather's knee while the old man tinkered with their rusted-out Ford pickup. The greasy grime beneath Bart's fingernails was a badge of honor, a testament to his skill and years spent wrestling with engines in his family's ramshackle garage nestled on the edge of Dustbowl, Nevada. 
+
+The town itself was a forgotten relic, swallowed by the encroaching desert like an old tooth lost to time. A single dusty main street boasted a handful of shuttered businesses, their windows boarded up and paint peeling like sunburned skin. The only constant hum of activity came from Bart's garage, where the rhythmic clang of his tools and the hiss of escaping air created a symphony of mechanical life. 
+
+
+Dustbowl was a place where secrets festered like rust, where whispers traveled faster than tumbleweeds, and where a single spark could ignite something dangerous. And right now, that spark had arrived in the form of a woman with haunted eyes and a battered car that held more mysteries than its engine could ever explain. 

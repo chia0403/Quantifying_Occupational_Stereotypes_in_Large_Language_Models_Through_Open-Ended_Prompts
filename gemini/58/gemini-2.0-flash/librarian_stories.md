@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** The biting January wind whipped across the cobblestones of Oakhaven, a small, almost forgotten town nestled in the Appalachian foothills of North Carolina. The sky was a sullen grey, threatening snow, and the air smelled of damp earth and woodsmoke. The Oakhaven Public Library, a squat, brick building built in the 1930s, stood staunchly against the elements, its frosted windows glowing warmly. Inside, the aroma of aged paper, leather-bound books, and a faint hint of lemon polish hung heavy in the air.
+
+**Opening:**
+
+Constance Amelia Blackwood adjusted her spectacles, the gold frames pinching slightly at the bridge of her nose. The rhythmic ticking of the grandfather clock in the main reading room echoed through the otherwise silent library, a comforting counterpoint to the relentless howl of the wind outside. Constance, head librarian and keeper of Oakhaven’s literary treasures for the past twenty-seven years, frowned at the dog-eared copy of "Wuthering Heights" someone had carelessly returned. Honestly, some people treated books with less respect than they did garden gnomes. She smoothed the battered spine, making a mental note to repair it later. As she reached for a roll of archival tape, a gust of wind rattled the windows, and a single, folded piece of paper slipped from between the pages of the Bronte novel. It wasn't a bookmark. This was something else entirely.

@@ -1,0 +1,5 @@
+The sun dipped below the hazy horizon of Santa Cruz, painting the sky in hues of burnt orange and bruised purple. Dr. Olivia Blackwood, with her ever-present white coat shimmering under the streetlamps, surveyed the scene with practiced ease. The air was thick with the scent of salt and seaweed, a familiar aroma that always brought a calming sense of peace to Olivia. 
+
+Her clinic, "The Furry Ferry," nestled amongst the bustling Victorian homes of East Beach, had seen better days. Its once vibrant turquoise facade now bore patches of peeling paint and rusting window boxes. Yet, its worn charm held an undeniable appeal for both human and animal residents of Santa Cruz. 
+
+Olivia's heart pounded against her ribcage as she approached the clinic’s main door. Her eyes quickly scanned the usual suspects: a nervous chihuahua huddled in the doorway, a grumpy tomcat perched on a rusty windowsill, and a stray tabby with a missing ear. They were the regulars, a motley crew that had come to rely on Olivia’s calm demeanor and gentle touch – even for the most neurotic of patients.  

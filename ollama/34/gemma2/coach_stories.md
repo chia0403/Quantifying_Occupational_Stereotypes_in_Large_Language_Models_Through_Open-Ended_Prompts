@@ -1,0 +1,3 @@
+The humid Florida air hung thick with the scent of chlorine and teenage angst as Amelia "Amy" Grace Carter surveyed her team. The pool shimmered under the relentless July sun, reflecting the anxious faces staring back at her.  Their regional championship meet was just two days away, and the pressure was palpable. Amy could feel it gnawing at their throats, constricting their usual playful banter into tense silences. 
+
+This wasn't just any competition. It was a chance for redemption. Last year, they had come agonizingly close to victory, losing by a single point in a nail-biting finish. The sting of defeat still lingered, a sharp reminder of the dream that had slipped through their fingers. 

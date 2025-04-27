@@ -1,0 +1,5 @@
+The scent of lavender and eucalyptus hung heavy in the air, a comforting cloak woven around Amelia Clementine's small sanctuary. Rain lashed against the windowpanes, blurring the world outside into a watercolour wash of grey and green. Inside, the warm glow of fairy lights danced across the polished wooden floor, casting long shadows from the potted ferns lining the walls.
+
+Amelia knelt beside her massage table, adjusting the soft fleece blanket with gentle fingers. Her own hands were familiar with the language of touch – the soothing glide over tense muscles, the deep kneading that released knots of stress, the feather-light strokes that calmed a frazzled mind. A symphony of creaks and groans emanated from the old Victorian house as it sighed under the onslaught of the storm.  
+
+But Amelia didn't mind the sound. It was a familiar lullaby, a soundtrack to her work, a reminder that she was a safe haven in a world increasingly prone to chaos. And tonight, she knew, someone needed that haven more than ever. The rhythmic tapping on the door announced her next client's arrival – a man shrouded in shadows and carrying the weight of unspoken anxieties.  

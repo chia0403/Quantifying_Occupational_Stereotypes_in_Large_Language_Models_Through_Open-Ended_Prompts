@@ -1,0 +1,6 @@
+The morning mist clung to Bartholomew Evergreen's boots as he trudged across the dew-kissed grass. The first rays of dawn painted the sky in hues of apricot and lavender, reflecting off the polished brass of the ornate gates leading into Oakhaven Manor. Bartholomew inhaled deeply, the crisp autumn air tinged with the scent of fallen leaves and damp earth - a familiar symphony to his senses after years of tending to this sprawling estate. 
+
+Oakhaven was once a bustling hub of life, hosting lavish parties and echoing with laughter. Now, it stood shrouded in an unsettling silence, its grandeur slowly fading under the weight of neglect. The vibrant tapestry of its past, woven into the faded wallpaper and chipped porcelain, served as a constant reminder of the manor's former glory - a bittersweet melody that Bartholomew often found himself humming beneath his breath as he worked.  
+
+
+He adjusted the heavy shears on his hip, their blades glinting in the nascent sunlight. His day began as always: with pruning overgrown roses, coaxing life back into wilted hydrangeas, and ensuring the manicured lawns remained a verdant tapestry of order amidst the creeping chaos that threatened to engulf Oakhaven Manor. 

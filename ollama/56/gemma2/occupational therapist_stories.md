@@ -1,0 +1,6 @@
+The flickering fluorescent lights of the therapy room cast an anemic glow over Amelia Beatrice Harper's desk, making her neatly stacked handbooks look like tombstones in a minimalist graveyard. Outside, the late afternoon sun painted long, lazy shadows across the manicured lawn of Meadowbrook Rehabilitation Center, a stark contrast to the muted grey of the walls within.  Amelia sighed, massaging the tension from her shoulders. Another day, another parade of broken bodies and shattered spirits. 
+
+She glanced at her schedule – Mr. Fitzwilliam, stroke recovery; Ms. Rodriguez, Parkinson’s disease therapy; young Billy, still struggling with the aftermath of a bike accident. Each name held a story, a struggle, a journey back to some semblance of normalcy. Amelia believed in them all, even when they struggled to believe in themselves. But today, she felt the weight of their stories pressing down on her, leaving her feeling drained before the day had even truly begun. 
+
+
+The door creaked open, interrupting her melancholy musings.  A woman stood hesitantly in the doorway, clutching a worn handbag and casting apprehensive glances around the room. Amelia smiled encouragingly. This was new territory – treating someone with anxiety so severe it manifested physically. Could she be the key to unlocking the woman’s hidden strength? 

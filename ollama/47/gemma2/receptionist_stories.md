@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia "Amy" Brighton's head, casting a sickly yellow glow over the reception area of Dr. Bartholomew's Holistic Health Clinic.  A worn, floral patterned rug softened the starkness of the linoleum floor, but did little to disguise the faint smell of lavender and patchouli that permeated every inch of the space. Outside, the bustling city thrummed with a frenetic energy, but inside, time seemed to move at a slower, more deliberate pace.  
+
+Amy sat perched on the edge of her chair, tapping away at a vintage typewriter as she waited for the next patient. The rhythmic clack-clack was punctuated by the occasional trill of her phone, which she answered with a practiced smile and soothing voice, even though most calls were just insurance companies inquiring about pre-authorization for treatments like "chakra alignment" or "crystals for emotional balance." 
+
+
+This wasn't the glamorous life Amy had envisioned when she moved to the city. But it was honest work, and Dr. Bartholomew was a kind soul, always willing to lend a listening ear and a cup of herbal tea.  Besides, something about the calming atmosphere of the clinic, despite its quirks, felt oddly comforting amidst the chaos of the outside world.

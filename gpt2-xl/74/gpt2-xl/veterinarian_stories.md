@@ -1,0 +1,7 @@
+Once upon a time, there was a veterinarian named Dr. Mertz. I don't know about you, but I'd rather be a Dr. Mertz than a pig in this country.
+
+Dr. Mertz had no training in, or interest in, the science of animal husbandry. He was, in the words of an article in the journal Applied Microbiology, "a novice in animal husbandry."
+
+To my knowledge, no other veterinarian has ever been held responsible for the death of an animal by the operation of a vacuum cleaner. And that was all because Dr. Mertz didn't know the difference between an insecticide and a pesticide, and the difference between a fungicide and a fungicide. He didn't know that a fungicide can be harmful or poisonous to bugs and insects. He didn't know that if someone was spraying insecticide that that person had to have a license to spray. He didn't know that there are dangerous side effects to the use of pesticides that you need a certificate to possess, a license to carry, and a license to use as well. And if you happen to get your hands on that pesticide, you risk being sentenced to an illegal act by the state. He didn't even know that he should be spraying pesticides at all, and why he should be spraying them.
+
+He didn't know: (1) the difference between insecticides and pesticides, (2) that when you use insecticides

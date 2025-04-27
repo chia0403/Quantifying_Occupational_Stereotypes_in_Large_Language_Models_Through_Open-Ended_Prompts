@@ -1,0 +1,7 @@
+Once upon a time, there was a journalist named Gary Webb, but he was not a good one. He got into something really bad and he couldn't get out of it. He lost his job as a result of the article that he wrote about CIA involvement in the crack cocaine business, where he identified the Agency as the main drug trafficker. It got him blacklisted from the newspaper business. He eventually ended up doing something more for a living. He wrote a book called "Dark Alliance." After his book was picked up by many alternative media outlets as an important piece of evidence, Webb decided to retire. Then he got involved in the environmental movement, and he became a part of the Green Party.
+
+At its peak, the Greens held about 10 percent of the nationwide popular vote. The main issue of its platform was environmentalism and a radical push for free/open information. The Greens were able to gain a foothold in politics, partly thanks to the work done by Webb, who took a lot of heat for his past mistakes.
+
+Fast forward to 2016. In the aftermath of Bernie's unexpected loss, the Green Party became the leading third parties, with over 14 percent of the nationwide popular vote and a number of state offices being won by their candidates. This has been a major turning point for the movement and has led many activists to ask questions about the future of the party and its role in American politics.
+
+The Green Party was founded in 1971 as a counterpoint

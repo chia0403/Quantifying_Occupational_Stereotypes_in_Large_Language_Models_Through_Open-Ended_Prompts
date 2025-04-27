@@ -1,0 +1,11 @@
+**Title: Wanderlust in Bloom**
+
+**Setting: A quaint travel agency nestled in the heart of a small coastal town named Merris Bay. The agency, aptly named “Wanderlust Escapes,” features large panoramic windows that offer a breathtaking view of the ocean, framed by swaying palm trees and vibrant bougainvillea. Inside, the walls are adorned with maps, travel brochures, and photographs from destinations around the world. The scent of freshly brewed coffee wafts through the air, mixing with the salty breeze that occasionally slips through the open door.**
+
+**Story Opening:**
+
+Beneath a string of twinkling fairy lights that draped the ceiling, Amelia Grace Thompson leaned back in her cozy swivel chair, a well-worn travel guide cradled in her hands. The pages fluttered slightly with the morning breeze, each turn offering a whisper of distant lands and adventures waiting to be discovered. As a travel agent at Wanderlust Escapes, Amelia spent her days living vicariously through the dreams of her clients—and today was a particularly magical day.
+
+It was early May, and the tourists were beginning to flock to Merris Bay, lured by the promise of sun-soaked afternoons and the soothing sound of waves lapping against the shore. However, Amelia's mind was not on the pristine beaches of her own town but rather on an upcoming destination she had yet to experience herself. She was preparing a proposal for a couple looking to escape their mundane reality and embrace the wild beauty of New Zealand.
+
+Her heart raced at the thought of possibility. With every email she crafted and each itinerary she designed, she was reminded of her own long-buried wanderlust. Beneath the polished exterior—a sharp suit and expertly styled hair—lay a spirit restless for adventure, a craving that had been dulled by the daily routine of booking flights and hotels. Little did she know, the universe was about to intervene, sending a tempest of unforeseen events spiraling into her meticulous world, rewriting the path her life had always taken. It was time for Amelia Grace Thompson to step beyond the threshold of her comfortable little travel agency and embark on a journey of her own.

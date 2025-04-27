@@ -1,0 +1,11 @@
+**Story Opening:**
+
+The late autumn sun hung low in the sky, casting long shadows across the crumbling brick buildings of the old city. Detective Lena Eloise Harper adjusted her scarf against the chill as she stepped out of her car, the crunch of gravel beneath her boots breaking the heavy silence of the almost deserted street. She had always preferred the city’s heartbeat in the summer, vibrant and alive, but there was something hauntingly beautiful about it now—its edges softened by the fog that wove through the alleyways like a ghost.
+
+Across the street, the weathered façade of the once-bustling library loomed, its windows dark and lifeless. It was here that Lena had grown up, hiding between dusty shelves as she lost herself in tales of murder mysteries and psychological thrillers. Little did she know that one day, she would be the person tasked with deciphering the minds of those who committed such crimes.
+
+Today was different. Today, she wasn’t just a detective but a forensic psychologist stepping into the realm of human behavior that had always both fascinated and terrified her. A series of chilling murders had gripped the city, leaving a trail of fear and confusion that echoed through its haunted streets. Lena had been called in to assist the police after they unearthed unsettling similarities in the patterns of the victims. It was a chance to dive deep into the psyche of a murderer, the kind of challenge that both exhilarated and unnerved her.
+
+She pulled her notebook from her bag, her fingers trembling slightly as she flipped it open. With a few strokes of her pen, she captured the moment—the cold air, the fading light, and the electric tension that buzzed just beneath the surface. Little did she know that today would set off a chain of events that would change her life forever, threading her own story into the very fabric of the shadows she studied. 
+
+As Lena made her way closer to the crime scene, she felt an unsettling sense of déjà vu, as if the city itself were whispering secrets she had yet to uncover. The past, it seemed, had a way of weaving itself into the present, and for Lena Eloise Harper, the lines between them were about to blur in ways she could never have anticipated.

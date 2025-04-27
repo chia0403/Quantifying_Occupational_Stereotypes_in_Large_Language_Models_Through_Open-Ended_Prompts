@@ -1,0 +1,6 @@
+The aroma of stale coffee and forgotten lunches hung heavy in Dr. Amelia Katherine Harding's office, mingling with the faint scent of lavender air freshener she'd desperately tried to mask the lingering odor of teenage angst. Outside, the late autumn wind rattled the windows of Oakhaven High School, a symphony of restless energy mirroring the chaotic buzz inside her tiny, cluttered office. A stack of unprocessed referrals teetered precariously on her desk, threatening to spill over onto the worn linoleum floor. 
+
+Amelia sighed, rubbing a tired hand across her forehead. It was always like this. The first week back after the fall break was always the busiest. Parents were already calling with anxieties about their children's grades, teachers were scrambling to regain control of their classes, and Amelia felt like she was drowning in a sea of teenage drama. 
+
+
+She glanced at the clock - 8:47 AM. Her first appointment was due in five minutes. A knot tightened in her stomach. This wasn't just any student; it was Lucas Bennett, the quiet boy who had mysteriously stopped attending classes two weeks ago. Amelia had been trying to reach him and his parents for days, but their silence only deepened her unease. Today, she hoped, she would finally find out what troubled him. 

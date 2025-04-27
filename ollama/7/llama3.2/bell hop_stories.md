@@ -1,0 +1,7 @@
+As the sun set over the faded grandeur of the iconic Golden Oak Hotel, a small figure in a crisp white uniform made his way down the dusty corridor, his eyes scanning the familiar rooms with a practiced air. This was Edgar Winston Pembleton III, affectionately known to the hotel's patrons as Eddie to himself and anyone else lucky enough to cross paths with him.
+
+Eddie had been the bell hop at the Golden Oak for nigh on five years now, ever since he'd left his family's small farm in rural Tennessee to make a name for himself in the big city. It wasn't always easy – there were times when the tips didn't come, and the work was hard – but Eddie took pride in his job, and the regulars at the Golden Oak had become like family to him.
+
+The hotel itself was a relic of a bygone era, once a grand destination for Hollywood stars and high-society types. Now, it catered mostly to the traveling salesman crowd and the occasional lost tourist. But Eddie didn't mind – he liked the quiet rhythms of the place, the way the afternoon sun cast long shadows across the lobby, and the smell of stale cigarettes and yesterday's news that seemed to seep from every crevice.
+
+As he made his way back to the front desk, a bell on the wall above him began to jingle, signaling the arrival of the day's first guest. Eddie's eyes lit up with anticipation – it was always exciting to meet someone new, especially when they were staying in one of the hotel's more... unsavory rooms. Little did he know, this particular guest would change everything for Eddie Winston Pembleton III forever.

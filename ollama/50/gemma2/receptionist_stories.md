@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia Brighton, their pale light casting an almost sickly glow on the worn carpet of the reception area. It was 7:58 AM, and the clock ticked impatiently towards eight o'clock – the moment when the phone would inevitably explode with calls from clients demanding urgent appointments and disgruntled patients questioning billing statements.  
+
+Amelia, perched behind the chipped oak desk, idly traced patterns in the dusty surface with her finger. The office smelled faintly of stale coffee and disinfectant, a familiar scent she'd grown accustomed to over the past five years at Dr. Evans’ bustling dermatology clinic. Outside, the city was beginning to stir, a low rumble of traffic slowly rising to its morning crescendo. But inside, Amelia found herself caught in a quiet stillness, a moment of peace before the storm. 
+
+
+Her gaze drifted towards the framed photographs on the wall: smiling couples celebrating successful surgeries, children beaming after treatments for birthmarks, even a few celebrities (though their names were discreetly scratched out). They were reminders of the clinic's purpose - to heal and improve lives. And though Amelia was just a receptionist, she felt a small sense of pride knowing she played a part in that.

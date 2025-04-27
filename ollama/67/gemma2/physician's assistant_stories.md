@@ -1,0 +1,6 @@
+The flickering fluorescent lights cast a sterile, almost sickly yellow glow over Dr. Eleanor Vance's cramped office. The air hung thick with the scent of antiseptic and stale coffee, punctuated by occasional coughs from the waiting patients huddled on mismatched chairs.  Eleanor, a petite woman with perpetually worried eyes framed by tired brown hair, glanced at her reflection in the dusty windowpane behind her desk. She adjusted her stethoscope, the silver glinting faintly in the dim light, and forced a smile for the next patient – Mrs. Garcia, clutching a crumpled tissue to her nose, waiting anxiously for some reprieve from her persistent cough.  
+
+The clinic itself was nestled on the edge of the city's industrial district, a dilapidated brick building with peeling paint and chipped windowpanes. The air outside was thick with the fumes of factories and exhaust, a constant reminder of the grittier side of life in this forgotten corner of New Orleans. Eleanor felt a familiar pang of frustration – she dreamt of working in a state-of-the-art facility, surrounded by cutting-edge technology, but for now, this was where her skills were most needed. This wasn't just a job; it was a calling.  
+
+
+Eleanor Vance, Physician's Assistant - she wore the title with pride, even in this faded haven of hope amidst the city's underbelly. 

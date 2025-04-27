@@ -1,0 +1,7 @@
+Once upon a time, there was a writer named Jack Kirby, whose life and career were tragically reduced to nothing.
+
+Born on Dec. 22, 1928, in Baltimore, Maryland, he joined the Navy and spent most of his 20s in the Pacific Theater. His adventures in the Far East brought him from Manila to the Philippines and back to Singapore, and eventually to California. The experiences from that and many other adventures have made him an enduring symbol of heroism and freedom. He inspired generations of writers, including Ray Bradbury, George Lucas, Chris Claremont and Chris Claremont and Chris Evans, to get off the couch and write.
+
+It is hard to overstate the sheer force of all that Jack did for comics and the comics industry. It must be recalled that there was a lot of competition then, even in the early 1970s, when comics were relatively new. Jack gave birth to a new style of storytelling, one that was bold and entertaining, with a comic book sensibility that has given many generations the thrill of reading one of Kirby's titles. We have grown up with Kirby's work. We've loved his characters and his adventures. As a writer, an artist, with a wonderful sense of humor, he influenced some of the writers in the industry today, many to this day. His life and legacy are remarkable, and not in a self-aggrandizing way.
+
+I am sure that the memories and sentiments I've expressed here have been said before

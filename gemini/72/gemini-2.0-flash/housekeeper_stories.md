@@ -1,0 +1,7 @@
+## Story Opening:
+
+The scent of lavender and lemon polish hung in the air, a fragrant testament to Emilia Rose Thorne's meticulous work. She buffed the mahogany dining table with rhythmic strokes, her movements practiced and efficient, a ballet of cleaning honed over fifteen years. Outside, the early morning fog clung to the manicured lawns of Greystone Manor, obscuring the distant rolling hills like a dream half-remembered. A chill seeped through the ancient, leaded glass windows, prickling Emilia's skin despite the warmth radiating from the polished wood. It was a familiar cold, one that settled deep in her bones, a constant reminder of the vast, unyielding chasm that separated her world within the Manor from the world of its inhabitants.
+
+## Setting:
+
+**Greystone Manor** is a sprawling, gothic-style estate perched atop a hill overlooking the Devon countryside. The house is imposing, built of dark grey stone that seems to absorb light. Ivy crawls up the walls, softening the harsh angles but also lending an air of ancient mystery. Inside, the rooms are large and sparsely furnished, filled with antique furniture draped in dust sheets and portraits of stern-faced ancestors staring down from the walls. The air is thick with the weight of history, secrets whispered in the echoing hallways and lingering in the faded tapestries. The manor is a relic of a bygone era, a monument to a family clinging to its dwindling fortune and increasingly irrelevant social standing.

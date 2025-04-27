@@ -1,0 +1,5 @@
+The fluorescent hum reverberated through Michael Thorne's skull like an incessant heartbeat. He adjusted his battered Stetson, sweat stinging his eyes from the searing summer heat clinging to the air in Phoenix. The air was thick with the scent of ozone and old wiring, a familiar aroma that brought him comfort amidst the chaos of his daily life. 
+
+His calloused fingers traced the intricate pattern etched into his worn toolbox - an ancient ritual he performed before every job. A quarter-inch wrench felt solid in his grip as he stepped onto the cracked concrete of the dilapidated apartment building. This was no ordinary repair; this was a descent into the heart of Phoenix's forgotten underbelly, a labyrinth of crumbling walls and exposed wiring that pulsed with the city's restless energy.  
+ 
+His task?  To restore power to Mrs. Alvarez’s unit after a storm knocked out the entire block, leaving her elderly cat, Luna, howling in frustration at the encroaching darkness. But Michael knew the true test lay not just in fixing the wiring but in navigating the maze of secrets that this old building held. 

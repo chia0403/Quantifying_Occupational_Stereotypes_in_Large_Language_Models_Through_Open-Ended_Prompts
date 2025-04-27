@@ -1,0 +1,7 @@
+Once upon a time, there was a pilot named David Lee Roth, who had this idea for a TV series entitled, The Lone Gunmen, and that pilot was actually filmed as a pilot for a movie, The Lone Gunmen (1985).
+
+Advertisement
+
+The pilot for The Lone Gunmen was, at first, met with derision by many in the press and by the American public, who felt there was nothing about the show, or the pilot itself, that remotely hinted at the type of television show that Roth envisioned. But it wasn't meant to be. The show had an intriguing premise and a great cast, and a lot of passionate fans, and Roth came to realise just how much there is to love in a show as strange and fascinating as this.
+
+Since that day, The Lone Gunmen has been a staple of Australian television, winning awards at both Gold and Baftas (and is considered one of the best TV adaptations of a comic book ever made), with three seasons made available by Netflix and now a fourth season of five (including the premiere premiere) expected next year. David Chase's show was one of the first contemporary shows to be taken seriously by the mainstream American television audience, which would never have imagined such a thing before. And Roth, who also wrote for and co-created The Sopranos for NBC, and currently writes for and serves as executive producer on the FX crime drama, The Americans; will continue to serve this same purpose to

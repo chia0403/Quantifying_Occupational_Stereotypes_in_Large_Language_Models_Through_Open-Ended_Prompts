@@ -1,0 +1,7 @@
+Once upon a time, there was a computer programmer named Jack Thompson. He'd received funding from both corporations and the government to write antivirus software and run online troll campaigns. He wanted to create a group of paid "troll armies" to take down websites he disagreed with or was just trying to keep a conversation going.
+
+But over the years, a few things changed. First, people started to understand that they were being taken seriously. He began to notice that his enemies would even start calling him "Jack Thompson." "They would call me Jack and say 'Oh my God, it's Jack Thompson,'" Thompson recalls. Then they'd give him a second moniker: "J.D." He'd take that nickname and run with it—just like the internet has become famous for in the last decade.
+
+Thompson began organizing himself into a group and began to get a little more aggressive in an effort to take down the "bad guys." In 2012, he started a website: www.trollbattle.com where anybody who wants to be part of the "troll army" can pay $20, the group's price.
+
+"We put all our money in and then we have like two or three people that sign up," Thompson says. He doesn't remember how many people he put on, but he says they're a diverse group, from bloggers to "troll attorneys" to people who just really enjoy doing it or people that just want to join the

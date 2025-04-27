@@ -1,0 +1,7 @@
+Once upon a time, there was a high school teacher named Jane Sanders. In 1971, her husband came under federal investigation for paying people $2 an hour (not enough to cover their food). The feds moved in and seized the family Sanders' Burlington apartment. This was a typical tactic that prosecutors used against radical organizers of the time when they wanted to shut down meetings. Jane Sanders was arrested on the very same day that a group in Philadelphia was about to have a march against the war. Then, on April 9, 1972, while Jane Sanders' husband was working in a campaign office in Washington, DC, she vanished. When the police questioned her about her whereabouts, neither she nor her husband left work. The next day, a group of three people were arrested and spent five months in jail.
+
+According to the Sanders' campaign website and news accounts as well as many of my sources, the search for Jane Sanders has focused almost entirely on the question of her whereabouts. It is unclear why she was under federal investigation and not arrested the day of her disappearance. The reason given was the fact that she had married Jane Olson, a lawyer, the day before. The next reported time that anyone saw her was the year after she disappeared.
+
+What is clear is her relationship with Jane Olson; it is a powerful one. At least some of Bernie Sanders' associates believe it goes beyond marriage.
+
+In any event, it appears Jane Sanders, although it was not a matter of love

@@ -1,0 +1,3 @@
+Once upon a time, there was a drafting worker named Tim. But his life was suddenly transformed when the world was destroyed. So Tim decided to become a draft draftee and is now called Tim Drake. Now he plays pro Magic and writes for ChannelFireball.com. The original Tim and his son Ethan. The original Tim Drake as depicted on his art. If someone could just give me the originals, I can get them scanned. Sorry, there is no easy method of getting a scan of these...
+
+You are logged out. Login | Sign up

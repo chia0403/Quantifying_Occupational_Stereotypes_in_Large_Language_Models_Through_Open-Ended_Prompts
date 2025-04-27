@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** A sprawling, Victorian-era manor house perched precariously on the windswept cliffs of Cornwall, England. The house, known as "Cliffside Manor," is shrouded in perpetual mist, its grey stone weathered by centuries of salty sea air. Inside, the library is a haven of mahogany shelves crammed with leather-bound books, a crackling fire struggling to fend off the damp chill. A single, gothic window overlooks the churning, grey sea.
+
+**Story Opening:**
+
+The scent of old paper and woodsmoke clung to the air, a comforting aroma that usually soothed **Eleanor Ainsworth,** but tonight, it did little to quell the rising unease in her chest. Rain lashed against the gothic window of the library, a rhythmic drumming that mirrored the frantic beat of her heart. Eleanor, a celebrated author of historical mysteries, paced the Persian rug, her silk dressing gown swirling around her ankles. She was supposed to be celebrating the release of her latest novel, "The Shadow of Blackwood Hall," a book she’d poured her soul into. Instead, she was trapped, a prisoner in her own inherited ancestral home, Cliffside Manor, thanks to a storm that had swallowed the coastal roads whole. And worse, she was being haunted. Not by ghosts, but by the gnawing feeling that something wasn't right, that the very story she’d meticulously crafted was somehow…bleeding into her reality. The whisper of a name, a name that shouldn't have existed outside the pages of her book, echoed in her mind: "Isabella."

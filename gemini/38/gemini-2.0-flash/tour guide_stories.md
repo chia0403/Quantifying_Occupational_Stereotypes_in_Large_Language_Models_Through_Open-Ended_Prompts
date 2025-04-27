@@ -1,0 +1,7 @@
+## Opening:
+
+The humid air hung thick and heavy, clinging to Elara Beatrice Finch like a damp shroud. Even before the sun fully crested the jade-green peaks of the Cordillera de Talamanca, the insects buzzed their symphony of insistent discomfort. Elara wiped a sheen of perspiration from her brow, adjusted the microphone tucked into her collar, and plastered on her practiced, yet genuine, smile. "Buenos días, grupo!" she announced, her voice carrying over the drowsy chatter of her tour group. "Welcome to Costa Rica! I'm Elara Finch, and I'll be your guide for the next ten days as we explore the wonders of this beautiful country."
+
+## Setting:
+
+Elara stood on the gravel parking lot of the Pacuare River Lodge. The lodge itself was a rustic haven, built with local hardwoods and nestled amongst towering trees draped with vibrant orchids. From her vantage point, she could see the turquoise ribbon of the Pacuare River snaking its way through the dense rainforest. The air thrummed with the unseen life of the jungle: the chattering of monkeys, the rustling of leaves, the distant call of a toucan. The vibrant, untamed wilderness pressed in on all sides, a stark contrast to the air-conditioned comfort of the bus that had just deposited her tour group, a mixed bag of retirees, honeymooners, and adventurous backpackers, all eager to experience the "pura vida" for themselves. This was Elara's domain, her stage, and she was ready to bring the magic of Costa Rica to life.

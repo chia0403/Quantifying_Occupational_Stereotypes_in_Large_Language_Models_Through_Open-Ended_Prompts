@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting, with the main character, who is an editor named Eleanor Iris Thorne:
+
+**Setting:** A cramped, cluttered office in the heart of downtown Boston. The building itself is a pre-war behemoth, all imposing granite and gargoyles, but Eleanor's office is tucked away on the seventh floor, a space perpetually battling against the encroaching chaos of overflowing bookshelves, stacks of manuscripts threatening to topple, and half-empty mugs of lukewarm coffee. Sunlight, when it manages to break through the neighboring buildings, casts dusty beams across the room, highlighting the faded floral wallpaper and the general air of comfortable disarray. The dominant sound is the low hum of the vintage space heater fighting a losing battle against the autumn chill.
+
+**Opening:**
+
+Eleanor Iris Thorne slammed her fist (perhaps a tad dramatically, she admitted) onto the manuscript in front of her. Dust motes danced in the weak sunlight. "Another one," she muttered, the words laced with a weary resignation that threatened to become permanent. "Another goddamn paranormal romance where the heroine is inexplicably drawn to a brooding, centuries-old vampire with abs that could grate cheese." She pushed her reading glasses up her nose, their worn frames sliding slightly. Honestly, was there no originality left in the world?
+
+The manuscript, titled "Crimson Kiss," was the latest in a seemingly endless parade of genre submissions that had landed on her desk. Eleanor, a senior editor at "Beacon Books," had seen it all, from bodice-ripping historicals to dystopian young adult novels filled with angsty teenagers. But this particular vampire saga, with its predictable plot and prose that could induce a coma, was pushing her perilously close to the edge.
+
+A sigh escaped her lips, and she reached for the chipped ceramic mug on her desk, hoping for a jolt of caffeine-induced inspiration. Instead, she was met with the lukewarm, bitter dregs of yesterday’s brew. "Fantastic," she murmured, adding the disappointing coffee to the long list of things conspiring against her today. She glanced at the looming pile of unopened submissions beside her. "At least," she thought with a touch of gallows humor, "I won't run out of things to be disappointed by anytime soon."

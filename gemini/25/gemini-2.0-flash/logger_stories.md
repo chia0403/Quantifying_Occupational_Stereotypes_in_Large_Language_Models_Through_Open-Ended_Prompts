@@ -1,0 +1,7 @@
+Okay, here's a story opening with the setting and main character introduction as requested:
+
+**Setting:** The dense, perpetually damp forests of the Olympic Peninsula in Washington State. The year is 1978, and the old-growth timber, giants of cedar and Douglas fir, still reigned, albeit with the ever-present growl of chainsaws and the crunch of logging trucks echoing through their ancient boughs.
+
+**Story Opening:**
+
+The smell of rain-soaked earth and freshly cut cedar clung to Silas Blackwood like a second skin. He spat a stream of tobacco juice onto the mossy forest floor, the sound swallowed by the endless green. Above, the sky was a low, bruised purple, pregnant with another downpour. Silas, a man built like a felled tree himself, with hands as rough-hewn as bark and eyes the color of storm clouds, wiped his brow with a forearm that could probably stop a runaway log. He surveyed the designated section of timber, marked with bright orange ribbons like morbid Christmas decorations. Today was going to be a Widowmaker day – the kind of day where dead limbs, loosened by the constant rain, could fall without warning and turn a man into a statistic. He could feel it in his bones, that uneasy prickle of premonition, a feeling he’d learned to respect over twenty years of wrestling with the giants of the Pacific Northwest. Silas Blackwood tightened the chain on his Stihl chainsaw and took a deep breath of the damp, sharp air. He had a job to do.

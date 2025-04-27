@@ -1,0 +1,7 @@
+Once upon a time, there was a bookkeeper named R.J. Dutton, who was as vain as any man (and much like the real-life L.J. Dutton), but also as sensitive to what his colleagues considered his lack of manners. He thought a person's reputation was much more important than their personal merits, and he was an especially harsh critic, often scolding his clerks for a bad note, or even for not reporting. Sometimes Dutton was on to a clerk who was only slightly corrupt, but with each bad report he gave them, more and more people fell under the suspicion of his scrutinizing eyes. When a new secretary got sick, Dutton said, the fact that he was a friend of the clerk would not give him an honorable pass; if it did, he would lose the clerk's friendship. On another occasion, a clerk had fallen asleep in his office, and Dutton was determined to catch him:
+
+When your first mistake is to have a friend, it is not too late to catch one, for as soon as it is discovered that his name has not been brought along with the rest, you can take a step to ruin him.... When a person is found sleeping, you know that there is a conspiracy on.
+
+He was not too happy about a new employee coming to the library, though:
+
+He should have waited till he had come to you; you had the reputation of being an excellent

@@ -1,0 +1,7 @@
+Once upon a time, there was a librarian named Alice who wrote books. Alice was great at keeping her books in order, and her love at keeping books in order earned her the title "master" of her town, with many more towns having them as well. She lived in a big, comfortable house, with lots of books, and her family, who loved her, didn't think much of her problems.
+
+One day, Alice was asked to lend her brother-in-law an extra book, and it wasn't long before she was asked if she could read the book at any time, even when she wasn't around. There were some changes that Alice did not like about the new arrangement.
+
+One of the problems with these books were that they always changed. While her brother-in-law was a decent and honest man, he knew nothing about books, and thus did not know they needed to change often. The other change in the old books was an inconvenience Alice was not used to. There were new chapters every now and then, changing chapters every few months. It was annoying, especially when she was trying to finish a book she wrote that was really hard to finish, and she missed the new chapters more than she needed to.
+
+One day, Alice decided to do something about the change in chapters. So she made a small, simple, program to make sure that chapters stay in the right order, or else they have to be redone.

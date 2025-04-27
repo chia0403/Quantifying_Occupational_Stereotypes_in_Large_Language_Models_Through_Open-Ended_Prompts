@@ -1,0 +1,6 @@
+The stale scent of coffee and desperation hung heavy in the air of Ms. Beatrice Periwinkle's cramped office. Her beige carpeted jungle, as she affectionately called it, was a haven for forgotten dreams and crumpled memos.  Beatrice herself, perched on her swivel chair like a weary sparrow, fought a losing battle against the encroaching stack of invoices threatening to consume her desk. 
+
+Her fingers flew across the keyboard, a blur of frantic typing punctuated by the occasional sigh that escaped her lips like a deflating balloon. The afternoon sun cast long shadows through the window, illuminating the dust motes dancing in its golden rays. Beatrice wished she could join them, spiralling freely away from this paper prison. But duty called. Mr. Bartholomew Bigglesworth, her boss and proprietor of Bigglesworth & Sons' Widget Emporium, demanded order, efficiency, and above all else, obedience. 
+
+
+Beatrice longed for something more than the predictable rhythm of filing, answering phones, and enduring Mr. Bigglesworth’s pronouncements on the merits of staplers versus paper clips. She yearned for adventure, for a story to be told about her life, not just transcribed onto his expense reports.   

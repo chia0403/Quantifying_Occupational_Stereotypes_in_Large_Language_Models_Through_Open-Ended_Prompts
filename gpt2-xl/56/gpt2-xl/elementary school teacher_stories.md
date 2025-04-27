@@ -1,0 +1,7 @@
+Once upon a time, there was a elementary school teacher named Jane. This is what Jane taught everyone back in the day:
+
+"The best part of any good relationship is when both the person you're with know the other one has the perfect personality and everything. But what I do also know is that there are people out there who think that what you've got is just not good enough — that they're better, they need to be better. And maybe that explains why they don't try as hard to fix it, why they try to take away the things you've learned. What I also know, though, is that you have to give each other so much credit. What you know you can do, they know they can be. That you know your friends are right in that respect, that they'd go just as far as you to try and do just that. There's also a lot of self-esteem in all this. No one ever wants to be left out. They just want to be included and have a relationship as good as anyone else's. But part of being a good friend is knowing the value of letting people know you're not perfect — that things are never just okay every night. Part of it is knowing when you have the best and when you have the best and you're not going to be perfect every day. It can be difficult."
+
+Advertisement
+
+Jane would be completely right. Unfortunately for the person on the receiving end of this, she

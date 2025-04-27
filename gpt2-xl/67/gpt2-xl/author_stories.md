@@ -1,0 +1,7 @@
+Once upon a time, there was a author named George R.R. Martin, the inspiration for this post. After a career of writing novels for young adults, Martin has turned to writing a fantasy novel, A Song of Ice and Fire, for adults. Despite their many differences, both are epic in nature, featuring epic battles, epic magic, and epic characters. The three first novels in the series, A Game of Thrones, A Clash of Kings, and A Storm of Swords, were each a #1 New York Times Best Seller, the second novel, A Dance With Dragons, was a #2 New York Times Best Seller, and the third novel, currently in development, A Dream of Spring, was #2 on Amazon.com's bestseller list. Martin is also the creator of the immensely popular game-building board game known as Dungeons and Dragons.
+
+So, this post is about the similarities and differences between a game of Dungeons and Dragons and an epic fantasy novel.
+
+The first differences:
+
+The character sheets: It is important that every player in the game has their own character sheet. That means you'll need 3 Character Sheets, one for each player. Your character sheet is also vital in order to keep track of events, quests, and all the other details of the game. If your players go off quest, or do something that the main character wouldn't approve of, they will get written up. That doesn't mean they should be penalized

@@ -1,0 +1,9 @@
+## Opening:
+
+The scent of antiseptic and stale coffee hung thick in the air of Ward C, a familiar, almost comforting, aroma to Dr. Anya Sharma. It was 7:58 AM, precisely two minutes before her shift officially began, and she was already weaving her way through the crowded hallway, a precarious stack of patient files teetering in her arms. A cacophony of coughs, beeping machines, and fragmented conversations followed her, the soundtrack to her professional life. She paused for a moment, shifting the files, and caught the eye of Mrs. Higgins, an elderly woman with a perpetually worried expression, sitting hunched in a wheelchair by the nurses' station. Anya offered a small, reassuring smile. "Morning, Mrs. Higgins. Ready to work on those wrist exercises today?" The older woman's face softened, just a fraction. Anya knew progress was measured in millimeters here, and she was prepared to fight for every single one.
+
+## Setting:
+
+**St. Jude's Rehabilitation Center, Chicago, Illinois**
+
+St. Jude's was a sprawling, multi-story brick building located in the heart of Chicago's medical district. Its exterior, though imposing, was softened by carefully tended flowerbeds and benches populated by patients seeking a breath of fresh air. Inside, the atmosphere was a strange blend of hope and resignation. The main lobby, with its polished floors and comforting pastel hues, felt more like a hotel than a hospital. But further in, past the bustling cafeteria and the brightly lit therapy gyms, lay the wards - long corridors lined with semi-private rooms, each a small battleground where patients struggled to regain lost function, rebuild their lives, and find hope in the face of adversity. Ward C, where Anya primarily worked, housed individuals recovering from strokes, traumatic brain injuries, and spinal cord injuries. It was a demanding place, filled with both heartbreaking setbacks and small, triumphant victories.

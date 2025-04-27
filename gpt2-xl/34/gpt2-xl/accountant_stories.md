@@ -1,0 +1,5 @@
+Once upon a time, there was a accountant named James and, one day, he and his wife got into a car accident because he drove too fast in the rainy weather.
+
+For years, James carried the fact that he had been in the car with her around with him, thinking, "Oh well, we're dead now, so that's that." But one day, when he was going to a funeral and he was being interviewed about the accident, "It seemed like such a stupid thing to say," so he just blurted it out. And his wife told him that it was quite nice that he had blurted it out, not realizing that this person was watching the interview.
+
+When he asked his wife what he should say to a grieving friend at the funeral, it was obvious that he'd better not mention the accident because he wasn't supposed to talk about people in the car at a funeral. So he just blurted it out. So the lady who was watching at the funeral said, "Thank you, James. That's quite a bit of honesty that you have in that conversation."

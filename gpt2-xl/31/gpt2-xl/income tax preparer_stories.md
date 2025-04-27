@@ -1,0 +1,7 @@
+Once upon a time, there was a income tax preparer named James who made his living on a salary. His main problem was that as a professional tax preparer, he was always late with his client payments — and yet he still kept paying his suppliers for their work — he also made money for doing so. It was only a matter of time before he started asking questions about how he could make it even more profitable.
+
+What he ended up doing is creating his own business — a tax return processor. He also invented a system that let his firm create its own database which he then used to process his clients' tax returns and report on any deductions and exemptions that he could take. He didn't know it, but he was getting himself involved in some legal trouble that would later be the subject of multiple class action lawsuits for breach of contract.
+
+In 2008, the IRS made some changes to the rules regarding "firm" services for tax preparers and their firms. Firms are now allowed to prepare tax returns on their own. And that means that a tax return preparer who has a second business as a tax return processor will soon be breaking the law. The IRS has also given a special new interpretation to the exemption from FICA taxes of tax return preparers who make an income report from two locations.
+
+James' practice was one of "firms." He was also very good at making money when it came to tax returns and tax reporting. So when he

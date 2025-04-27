@@ -1,0 +1,7 @@
+The flickering neon sign of the "Rusty Mug" cast long, distorted shadows across the rain-slicked alley.  Rain hammered against the corrugated tin roof, a relentless percussion that drowned out the muted cries of gulls circling overhead.  Inside, the air hung thick with the smell of stale coffee, cheap cigarettes, and something indefinably…magical.  This was where Elara Nightingale, a singer known only in hushed whispers as the "Nightingale of the Slums," found her refuge, her stage.
+
+
+Elara Nightingale, her auburn hair plastered to her forehead, traced a fingertip along the chipped paint of the bar's back wall.  A single, flickering candle illuminated the worn vinyl record nestled in her palm – "Misty Mornings" by a forgotten jazz artist.  She hummed a melodic counterpoint to the record's melancholy strains, a low, rich sound that echoed the dampness of the night.  Tonight, the few patrons clustered around the bar seemed more interested in the storm raging outside than the music inside, a rare disappointment for Elara, whose songs were meant to transport them to other realms.
+
+
+The setting:  A rain-soaked alleyway in the crumbling, forgotten heart of the sprawling city of Aethelgard, a metropolis known for its towering spires of progress and its equally stark pockets of poverty.  The Rusty Mug, a dive bar tucked away in one of these forgotten alleys, was a sanctuary for artists and outcasts, a place where the veil between worlds seemed thin.

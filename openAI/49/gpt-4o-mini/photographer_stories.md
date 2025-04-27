@@ -1,0 +1,9 @@
+Title: **Echoes of Light**
+
+**Setting:**
+The harbor town of Windmere cradled the coast like a forgotten treasure, where the salt-kissed breeze tangled with the scent of damp earth and wildflowers. Nestled between the rugged cliffs and the churning sea, the narrow cobblestone streets twisted and turned, revealing hidden gardens cloaked in ivy and timeworn shopfronts that whispered tales of the past. As dusk loomed, the golden hour cast a warm glow that enveloped the town, highlighting the weathered boats bobbing in the harbor, their colors dulled yet vibrant under the fading sun.
+
+**Opening:**
+Talia Elizabeth Carrington stood at the edge of the dock, her breath hitching as she raised her camera to her eye. The world around her transformed—boats creaked like aging storytellers, and the water shimmered with secrets. Talia’s heart raced, a steady rhythm that pulsed in time with the waves crashing against the wooden pilings. Each click of her shutter felt like a heartbeat, capturing fleeting moments that would otherwise slip into oblivion. 
+
+Tonight, she wanted more than just landscapes; she sought the soul of Windmere, the stories that lingered in its shadows. The townsfolk had always regarded her with a mixture of curiosity and caution. To them, she was an outsider—an artist in a place steeped in tradition—but her unyielding passion for capturing life through her lens had earned her a place among the whispers of the town. As she framed the horizon, a hint of nostalgia fluttered in her chest. This was where her journey had led her, to reflect not only the beauty around her but the echoes of her own past that resided within.

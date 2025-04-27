@@ -1,0 +1,6 @@
+The humid Georgia air clung to Amelia Beatrice Lawson like a damp blanket as she surveyed the dilapidated Victorian mansion. A shiver ran down her spine, despite the oppressive heat. The peeling paint on the once majestic facade resembled dried scabs, and the overgrown garden whispered secrets in the rustle of dead leaves. This was no ordinary listing; this was the infamous Blackwood Manor, notorious for its tragic history and rumored hauntings. 
+
+Amelia adjusted her designer sunglasses, trying to project an air of nonchalance as she approached the creaky front door.  Years of selling properties had taught her that even the most unsettling details could be spun into a charming narrative for potential buyers. But this house... this one felt different. A prickle of unease settled in her gut, a feeling she couldn't shake off. 
+
+
+The rusted doorbell chimed with a mournful clang, echoing through the empty silence. Amelia waited, listening to the unsettling stillness that seemed to press in around her. Was this house truly as haunted as the locals whispered? Or was it just an old house filled with creaking bones and dust-laden memories?  Either way, she had a job to do. And Amelia Beatrice Lawson never backed down from a challenge. 

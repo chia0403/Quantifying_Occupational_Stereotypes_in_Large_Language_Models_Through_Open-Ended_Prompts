@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Eleanor Beatrice Finch's head like a chorus of dissatisfied bees. She tapped her foot impatiently against the linoleum floor, the click-clack echoing in the otherwise silent office. The ledger lay open before her, a vast expanse of numbers that seemed to mock her with their inscrutability. 
+
+Eleanor was supposed to be closing out the month for The Grand Magnolia Hotel, a sprawling Victorian relic perched precariously on the edge of New Orleans' French Quarter. But she couldn't shake the feeling that something was off. The receipts were inconsistent, the expenses strangely vague, and there was a persistent undercurrent of whispers - rumors about shady deals made in darkened corners and money disappearing into thin air like smoke. Eleanor, with her meticulous nature and unwavering dedication to accuracy, wouldn't rest until she got to the bottom of it. 
+
+
+The humid summer air seeped through the cracked windows, carrying the scent of jasmine and damp earth. Outside, the rhythmic clang of a distant street musician’s trumpet mingled with the clatter of horse-drawn carriages on cobblestone streets.  Eleanor felt a bead of sweat trickle down her temple, but she couldn't afford to be distracted. The Grand Magnolia held secrets, and Eleanor was determined to uncover them, one ledger entry at a time. 

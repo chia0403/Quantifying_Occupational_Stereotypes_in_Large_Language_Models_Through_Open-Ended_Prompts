@@ -1,0 +1,7 @@
+Once upon a time, there was a pharmacist named Sam who used to buy a lot of medicine from pharmacies in the US that did not have their name listed. At least now this pharmacist has moved to another country, his name has been listed on the label with the name of the country of origin and this guy still delivers the goods to Australia and America, but the pharmacist is now at the same pharmacy in another state and he is supplying some countries and other pharmacists are supplying him with the medicine from some other pharmacies who are in another state. Which one of these guys is going to make a much higher profit than Sam ever did? Who's going to get the high end medicine?
+
+
+That is something we must examine if we want to understand capitalism. I'll get to that but if you want to see just the tip of the iceberg, look at this one, one of the top three or four leading drug companies in the US is a huge pharmaceutical company called Schering. It also manufactures, buys and resells other drugs from other countries such as the UK. Its share price has been on a tremendous upswing going from $5 to $85 since the election. All this money will be to the benefit of the big pharmaceutical companies. They will get access to huge quantities of higher quality and cheaper medicine than they could ever ever find in the U.S. in order to promote their drugs.
+
+
+This was the first drug company created to promote the sale of

@@ -1,0 +1,5 @@
+As the first wisps of dawn crept over the sleepy town of Willow Creek, Estelle Joyabelle LaRue stirred from her cozy apartment above the local beauty parlor. The air was thick with the scent of polish and lotions, a familiar aroma that filled Estelle's senses as she began her day. A skilled manicurist with a passion for artistry, Estelle had spent years perfecting her craft at LaRue's Lovely Nails, a beloved institution in the town's beauty scene.
+
+The sun peeked through the small window of Estelle's apartment, casting a warm glow over the cluttered space as she sipped her steaming coffee and reviewed the day's schedule. The sounds of upbeat pop music drifted from the parlor below, mingling with the gentle hum of nail dryers and the soft chatter of regular clients.
+
+With a deep breath, Estelle Joyabelle LaRue slipped on her favorite apron – adorned with tiny stars and glittering rhinestones – and prepared to tackle another day of pampering and creativity at LaRue's Lovely Nails. Little did she know, however, that this ordinary day would soon become anything but ordinary...

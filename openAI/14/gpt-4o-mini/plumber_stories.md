@@ -1,0 +1,9 @@
+In the heart of the bustling city of Brookhaven, where the tall buildings kissed the endless sky and the streets pulsed with life, there existed a hidden world beneath the surface. Crisscrossing pipes, secluded tunnels, and unyielding pressure formed the underbelly of this metropolis, and it was there that Arthur “Artie” Henderson found his true calling. 
+
+The day had begun like any other for Artie. The first rays of dawn filtered through the cracks of his small, cluttered workshop, located in a forgotten alley lined with graffiti-covered walls and the scent of fresh coffee wafting in from the nearby café. Artie, a burly man in his forties with a scruffy beard and calloused hands, stood over his workbench, meticulously organizing his tools. A faded blue cap adorned his head, while his standard-issue overalls bore the marks of his labor—stains from grease and paint that told stories of countless jobs completed.
+
+Today he had a particularly intriguing call—over at the old Merrick Theater, a relic from the 1920s that had seen better days. The theater was known for its grand chandeliers and velvet seats but had fallen into disrepair, now hosting only whispers of its former glory. Rumors swirled about strange occurrences beneath the stage, where plumbing issues had caused unsettling shadows and mysterious sounds. 
+
+As Artie grabbed his toolbox and stepped outside, the bustling sounds of the city enveloped him. He could hear the distant honking of horns, the laughter of children playing in the park nearby, and the rhythmic beat of construction work in full swing. But today, Artie was focused only on the path ahead as he navigated the crowded streets, his curiosity piqued by the legends surrounding the theater.
+
+Little did he know, the plumbing issue he was about to confront would lead him far beyond mere leaks and clogs, uncovering secrets that had lain dormant in the darkness for years...

@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named Jack who had some trouble with his accountant's wife. There are a million versions of when exactly this happened, but apparently it involved his accountant being shot, and then having a child with his own accountant. To make matters easier for him, Jack hired a guy to do the actual accounting for him so he wouldn't get too concerned about what he was paying for.
+
+Theatre
+
+Ralph Fiennes's accountant in The Iron Lady has a habit of not paying him for his work and not showing up for the audit. "Your taxes are up to date, so it don't bother me at all," Ralph quips when George tries to pay him.
+
+The title character in The Man with the Golden Arm has a rather amusing tale of an accountant in the early 80s to whom he owes money. The accountant, named Jack, is a hardass type. One day, Jack tells the actor a story about how one day one of his friends stole all of Jack's money and ran out of town. On another day, the actor asks Jack for $100 to set some dinner for him. Jack says that Jack didn't owe him $100, and Jack tells him that if Jack ever wants to work for Jack again, he wouldn't be asking this guy for money again… until the actor has become wealthy beyond even Jack's wildest wishes. Jack was able to convince Jack of the sincerity of his apology and the actor

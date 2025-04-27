@@ -1,0 +1,11 @@
+**Title: The Echoes of Elmwood Manor**
+
+**Setting:**
+Elmwood Manor, a sprawling estate nestled at the edge of a thick, ancient forest, has stood for over a century. Its weathered stone façade, once pristine, is now cloaked in ivy, the crumbling granite stained by time and neglect. Inside, the manor’s wide, dark hallways are illuminated only by flickering candles encased in glass holders, casting shadows that dance along the dust-laden walls. Ornate but forgotten furniture, draped in white sheets, whispers memories of lavish gatherings that are now just echoes in the stillness of the rooms. The air is thick with the scent of mildew and old wood, punctuated occasionally by the sound of scurrying mice that have made their home in the corners of this abandoned grandeur.
+
+**Story Opening:**
+Henry Albertson adjusted his cap as he pushed the old brass cart down the long corridor of Elmwood Manor, the wheels squeaking in protest against the worn floorboards. Clad in faded blue coveralls, he was a ghost within these walls, a figure often overlooked by the manor’s fleeting shadows. Each sweep of his mop revealed the stories hidden beneath the layer of dust—a forgotten tea set in the corner of the parlor, an exquisite chandelier covered in webs, and portraits of stern ancestors whose gazes seemed to follow him as he worked.
+
+Henry had taken the job three months ago, drawn not just by the paycheck, but by an inexplicable connection to the place. As a child, he'd often wandered the woods surrounding the estate, intrigued by the legends of Elmwood—stories of hidden passageways and treasures waiting to be uncovered. Now, as he polished the banister of the grand staircase, he felt a thrill reverberate down his spine, as if the manor were calling to him, teasing him with secrets long buried in its heart.
+
+Outside, the wind howled through the trees, and the laughter of distant thunder echoed ominously, bringing with it the promise of a storm. But Henry Albertson welcomed the rain as he flicked off a stubborn speck of grime from his cart. Little did he know that tonight, as lightning illuminated the desolate landscape, he would stumble upon something that would change the course of his life forever—a secret that had been waiting patiently, just like him, in the shadows of Elmwood Manor.

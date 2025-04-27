@@ -1,0 +1,9 @@
+**Title: Shadows of the Sanctuary**
+
+In the heart of a bustling metropolis, hidden behind the towering glass facades and echoing streets, stood the crumbling edifice of St. Augustine’s Cathedral. Its once-vibrant stained glass windows, dulled by time and neglect, cast fractured patterns of color across the cold stone floor. The air within was thick with the scent of aging wood and incense, remnants of a faith that once resonated loudly in the community. As day slipped into twilight, the cathedral's interior became a sanctuary for fleeting shadows and whispered prayers.
+
+In the dim light, the sound of a mop dragging across the floor echoed steadily, a murmur against the solemnity of the space. Here, amidst the flickering candles and the fading hymns, worked 49-year-old Leonard “Leo” Finch, the cathedral’s steadfast janitor. Dressed in a worn navy jumpsuit and sturdy work boots, he moved through the hallowed halls with a quiet determination, a man who found solace in the rhythm of his chores.
+
+Leo had been sweeping, mopping, and polishing the brass fixtures for over a decade. With graying hair and calloused hands, he navigated the grand space with both care and familiarity, tending to the remnants of countless services held by those who came seeking refuge or redemption. His life was a quiet one, largely unnoticed and uncelebrated, yet filled with a fierce dedication to keeping the cathedral alive, even as time threatened to swallow it whole.
+
+But on this particular evening, as Leo pushed the mop through the shadows and absorbed the soft glow of candlelight, something felt different. A chill swept through the nave, and he paused, spotting a figure cloaked in darkness between the towering pillars, watching him intently. Leo’s heart raced as he gripped the mop tighter, his senses sharpening. St. Augustine's had seen its share of odd occurrences, but this was different—this felt personal.

@@ -1,0 +1,5 @@
+The flickering neon sign outside Dr. Eleanor "Ellie" Vance's office cast an unsettling glow on the rain-slicked asphalt. The city itself hummed with a restless energy, a symphony of car horns and distant sirens weaving through the night air. Inside, Ellie sat in her dimly lit office, the scent of stale coffee mingling with the antiseptic smell of disinfectant. Her gaze was fixed on the woman across from her, Amelia Hayes, who fidgeted nervously in her chair, clutching a worn teddy bear to her chest. 
+
+Amelia's case had been referred to Ellie by the local police department – a missing person's report filed by a mother who claimed her daughter had vanished into thin air. The lack of any leads, coupled with Amelia's fragmented and unsettling story, left Ellie questioning the very nature of reality. Was Amelia hiding something? Or was she truly lost in a labyrinth of her own mind, unable to distinguish truth from delusion?  
+
+Ellie took a deep breath, steeling herself for another night unraveling the tangled threads of human experience. 

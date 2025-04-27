@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting featuring a Physician's Assistant named Eleanor Vance:
+
+**Setting:** The story opens in the bustling, slightly chaotic emergency room of St. Jude's Hospital in the fictional town of Havenwood, Maine. The year is 2024. Fluorescent lights hum a relentless, monotonous song overhead, competing with the urgent beeps of heart monitors, the crackle of walkie-talkies, and the muffled cries echoing from behind curtained treatment bays. The air smells faintly of antiseptic, stale coffee, and a persistent undertone of… something undefinable, something that spoke of human suffering.
+
+**Opening:**
+
+"Vance, we need you in Trauma 2! Possible OD, unresponsive." The voice, sharp and clipped, belonged to Nurse Brenda, and it cut through the general cacophony like a scalpel. Eleanor Vance, PA-C (Physician Assistant, Certified), barely had time to swallow the lukewarm coffee that had been languishing in her mug for the past hour before she was already weaving through the maze of gurneys and equipment. Her comfortable sneakers squeaked against the linoleum as she hurried, pushing past a distraught family clinging to each other outside the pediatric room. The adrenaline was already starting to pump, a familiar, unwelcome guest. Another overdose. Seemed like every other case these days was an overdose. Havenwood, for all its picturesque seaside charm, had a dark underbelly, one that Eleanor knew intimately, a web of addiction and desperation that was slowly suffocating the town. She just prayed she wasn't too late.

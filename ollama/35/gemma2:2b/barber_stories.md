@@ -1,0 +1,6 @@
+The scent of bay rum and stale sweat clung to the air like a second skin in Elara's small, cluttered barbershop.  Sunlight streamed through the dusty window, highlighting dust motes swirling in its beam, illuminating the worn leather chair that sat nestled next to a chipped porcelain sink. This was "Elara's Cut," a name plastered on an aged wooden sign above the door, and Elara's life - or at least what she thought of as her life. 
+
+For twenty years, Elara had been cutting hair in this sleepy town of Oakhaven, each day following the same rhythmic routine:  The hum of the clippers, the clink of metal shears against skin, the hushed conversations of the men and boys who sat in his chair - all were a symphony she'd learned to live with. But lately, an unsettling silence had begun to seep into her days.  It wasn’t the usual hush that came with an afternoon lull – this was different. The air felt thick, charged with a strange kind of stillness. And tonight, the town seemed even more cloaked in the darkness of impending change. 
+
+
+Elara adjusted his apron and looked at the reflection in the soapy glass of his sink -  the lines around his tired eyes seemed deeper than usual, mirroring the growing unease that had settled deep within her. Tonight, she’d be cutting more than just hair; tonight, she'd be facing a truth that felt as jagged as a broken razor blade. 

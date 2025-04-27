@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named Frank G. Burel. He was a very bad man. He started out as an analyst and quickly became a writer. His only talent was that he could make boring stories exciting. This led to Burel receiving a job writing for a newspaper.
+
+One of the first stories Frank told was about how the NFL players weren't getting paid for the travel expenses they incurred when they traveled during the NFL off-season. As usual, there was plenty of backstabbing so when Burel went to a meeting with owners and said what everybody else was saying, he wound up getting fired.
+
+Burel went on to have a very successful stint at the New York Times. He would work there until the late 1990s. Burel's tenure at the newspaper was not necessarily the best. The paper ran many, many bad stories including many about the Boston Red Sox. In 2001, the paper published an article that featured a character named "Porky Pig." Burel didn't seem to have a huge respect for his boss at the Times and was not a fan.
+
+It would be really easy to say that Burel couldn't do these types of things anymore. But a few years ago, a group of former NFL head coaches and general managers were in New York to talk about the NFL. This meeting was called the Leadership Development Initiative. During this talk, they were very impressed with

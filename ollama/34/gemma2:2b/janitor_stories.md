@@ -1,0 +1,5 @@
+The flickering fluorescent lights hummed a monotonous tune as Earl "Big Ed" Eldridge shuffled down the echoing hallway of the Grand Astoria Hotel. Dust motes danced in the shaft of light from his battered flashlight as he cleaned the grime off the ornate gold-leafed banisters, an almost ritualistic dance against the decaying grandeur of the once-celebrated landmark. 
+
+Grand Astoria. A symphony for dust bunnies and cobwebs now, its opulent lobby a faded memory only whispered about in hushed tones by hotel staff. The ghosts of forgotten parties still lingered in the air, swirling with the scent of stale champagne and long-gone dreams. Even Ed found himself imagining the grandeur he saw reflected in his own eyes – a time before he started this monotonous life, when he'd been a kid who dreamt of being something more than the janitor. 
+
+The Grand Astoria wasn't just a building; it was a living monument to the past, a testament to all that had faded away like morning mist. It was a place where legends died and stories were buried beneath years of neglect.  And Ed, the lone keeper of its secrets, was about to find something deeply unsettling in the shadows. 

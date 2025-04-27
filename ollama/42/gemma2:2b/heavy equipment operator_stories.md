@@ -1,0 +1,7 @@
+The wind howled like a banshee through the rusted skeleton of an abandoned coal mine shaft, clawing at the battered canvas tarp covering Bartholomew "Barney" Higgins' worn pickup truck.  He squinted into the frigid, gray morning light, the sun barely peeking over the jagged peaks of the Appalachians. The air hung heavy with the scent of pine and damp earth, a fragrance Barney knew intimately from decades spent navigating this unforgiving terrain. 
+
+Barney was a man carved from grit and grime. A symphony of aches thrummed through his aged bones; every calloused knuckle told a story of a life lived on the edge of civilization. He'd grown up in these mountains, learned to trust nothing but the feel of steel under his hands as he steered massive earth movers across the unforgiving landscape. 
+
+He tightened the straps of his worn leather gloves and surveyed his trusty equipment: a beastly Caterpillar D9 for excavating, nicknamed 'Big Bertha' by the locals. Bertha was a loyal companion, more than just an instrument of work; she was a testament to years spent under Barney's watchful eye. With every rumble of her engine, he felt a kinship, a silent conversation with the machine that spoke in low grumbles and clanks. 
+
+Today, however, even Bertha seemed subdued. The silence hanging over the mine shaft seemed more oppressive than usual, making even the rasping breath of the wind feel heavy with unease.

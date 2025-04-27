@@ -1,0 +1,7 @@
+The aroma of citrus and vanilla hung heavy in the air, thick enough to taste.  It was the perfume of Estelle's Salon, a cozy haven nestled between a dusty antique shop and a quaint bakery that smelled perpetually of cinnamon rolls.  Estelle, her emerald green eyes sharp beneath her meticulously styled silver bob, watched as Mrs. Henderson sat on the plush velvet stool, nervously fiddling with her pearls. 
+
+This was no ordinary client's visit. It was a trial, an audition for Estelle to be chosen by the esteemed "Frock and Flourish" magazine. The coveted title – "Hairdresser of the Year" - would catapult any stylist into the spotlight, showering them with opportunities for collaborations and prestige.  For Estelle, this wasn’t just about ribbons and accolades; it was about her dream – to finally establish a name for herself in a world where legacy and tradition often overshadowed individuality. 
+
+The salon door creaked open, sunlight illuminating a flurry of feathers as Mrs. Henderson's niece, Amelia, rushed in. Her vibrant purple hair seemed to glow like a sunrise against the muted background.  "Estelle," she exclaimed, her voice bubbling with enthusiasm, "They think you have something special!" 
+
+A familiar flicker passed over Estelle's face, a spark of excitement and trepidation mingling together. Today was not just about Mrs. Henderson's makeover; it was about proving to the world that a touch of magic could truly transform even the most ordinary woman into an extraordinary one.  

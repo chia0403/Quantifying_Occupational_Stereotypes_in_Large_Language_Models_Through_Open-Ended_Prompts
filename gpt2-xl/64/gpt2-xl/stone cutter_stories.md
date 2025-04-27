@@ -1,0 +1,7 @@
+Once upon a time, there was a stone cutter named Rufio. But a tragic accident put him through a dark period: his wife left him, and his childhood friend turned against him. He decided to seek revenge on his friend, to get back what he once had. He bought a magic stick from an enchanted forest, and made Rufio the first king of the magical kingdom called "Finnsburg" (with very dark lyrics). In other words, the first time magic is used in the movie, it's in the hands of a villain.
+
+Finnsburg is a huge place, as the movie tries to show. It's so big that it takes you five hours to drive from one end to the other. People from other places may visit the village for good or for evil. For those that live in the area, you'll see lots of different houses and people all over the country.
+
+The castle Rufio makes his headquarters is called "The Mountain," and is also, of course, dark. So you won't think of this as a typical fantasy movie, though fantasy can only really happen in a small place like the one presented in F.W. Murnau's "The Last Castle." "To Kill a Mockingbird" has an African setting, but, you know, there is no place like "Finnsburg."
+
+There is a little bit of humor in the movie, but it's mostly just the evil R

@@ -1,0 +1,9 @@
+**Title: Lines of Ambition**
+
+**Setting:**
+In the heart of a sprawling metropolis, where the skyline is marked by the sharp angles of steel and glass, lies a small drafting office nestled between high-rise buildings. The air is tinged with the scent of fresh ink and paper, and the buzzing of printers fills the space, mingling with the low hum of conversation. Sunlight pours through the large windows, casting long shadows across desks cluttered with blueprints and technical drawings. Each desk tells a story, splattered with sketches, notes, and the occasional coffee stain, remnants of late nights and ambitious dreams.
+
+**Opening:**
+Amelia Katherine Ross adjusted her glasses and squinted at the blueprint sprawled before her, a complex maze of lines and symbols that seemed to pulse with the energy of potential. The rhythmic ticking of the wall clock echoed in her ears as she meticulously traced a red line along the proposed park design for the new urban development. Each stroke felt like a promise—one she had made to herself under the flickering fluorescent lights of this cramped office: to be more than just a drafting worker, to leave a mark on the city that was her home.
+
+Behind her, the chatter of coworkers faded into the background as Amelia lost herself in the ink and paper, thinking of how she could shape the future with her designs. She dreamed of parks that breathed life into concrete jungles and buildings that stood as testaments to innovation. But with each passing minute, doubt crept in; could a drafting worker like her—still fighting for recognition in a male-dominated field—ever rise above the din of the everyday grind? The thought was a weight on her chest, yet she pressed on, determined to turn her aspirations into reality, one line at a time.

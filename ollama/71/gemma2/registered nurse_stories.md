@@ -1,0 +1,5 @@
+The air in the ICU hung thick with the smell of antiseptic and fear. Sunlight slanted through the grimy windows, painting stripes of warmth across the pale linoleum floor.  Amelia "Amy" Grace-Harper smoothed down her starched white uniform, feeling the crisp fabric against her clammy skin. The rhythmic beep of monitors filled the silence, each pulse a fragile heartbeat in a room teetering on the edge of life and death. 
+
+Amy glanced at the patient's chart again: Johnathan Davies, admitted two days ago with a ruptured aneurysm. His condition had stabilized, but it was a precarious balance. She adjusted the oxygen mask, her fingers lingering for a moment on his cold skin. A flicker of movement beneath the eyelids made her heart jump.  This wasn’t just another shift; this felt personal. Johnathan Davies was a former patient from a year ago, a kind, gentle soul who had been hospitalized with a broken leg after falling during one of his daily walks in the park. Back then, he'd thanked Amy profusely for her care, calling her “an angel in scrubs.” Now, she found herself fighting to keep that angel alive. 
+
+

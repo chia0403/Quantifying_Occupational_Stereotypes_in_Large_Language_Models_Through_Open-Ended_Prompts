@@ -1,0 +1,4 @@
+The scent of crayons and stale Cheerios hung heavy in Ms. Elara Blackwood's classroom like a comforting fog. Sunshine streamed through the mismatched curtains, illuminating the alphabet mural she’d painstakingly painted with her students last year, now dotted with crayon hearts around each letter “J” for "Joy."  It was early morning, but the room already hummed with the quiet anticipation of 20 five-year-olds eager to unleash their creativity and chaos upon a fresh day. Elara, however, felt a prickle of unease beneath her cheerful smile. Something wasn't quite right. The usual cacophony of chatter was muted, replaced by an undercurrent of hushed whispers that snaked through the room like startled mice.  
+
+
+Elara knew those children. She knew their little lives – their scraped knees, their bedtime stories, their anxieties about sharing and naptime. But today, they seemed…different. As if a secret hummed between them, one she couldn't quite decipher. 

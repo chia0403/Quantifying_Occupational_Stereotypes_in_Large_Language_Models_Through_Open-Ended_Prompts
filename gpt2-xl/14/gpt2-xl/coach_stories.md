@@ -1,0 +1,7 @@
+Once upon a time, there was a coach named Chuck Cooper, who was known for being on the defensive a lot and for giving you the most time possible before passing the ball. But Cooper was gone, and you didn't have to worry in those days about the clock being running out on the clock. Now, though, you were going to get your first real taste of play-clock management, because of the new rules. And the rule was changed to allow three seconds during possession-type stuff (see: a timeout). That makes it even worse that the Chiefs and Raiders didn't understand what the rule was saying.
+
+And yet, it turns out there was no issue with coaches at the back of the field being off and waiting for the game clock to move through the number of seconds the referees decided it should advance by. That's because the referees did not set a clock to advance in the preseason game in question. What's happening here is that the Broncos were actually running out of time, as they were losing the ball on downs to the Raiders. The game clock was not advancing as the clock wound down. The referees had to tell the two teams to get off the sidelines and stand at the coaches' station for one, so the game clock could advance.
+
+I mean, we're talking about the NFL here!
+
+There is no way the officials are purposely making an early stopwatch error, unless there are additional rules changes to be made to account for the new

@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named Jane Jacobs who spent four decades working with the poor in the slums of New York to show them how to eat. She called it a "food revolution." She also called what happened next something "the revolution of health." Jacobs wrote, in 1961, "There are two things that Americans must never do again: do not use antibiotics in the production of foods, and do not eat meat grown on antibiotics."
+
+Jacobs was right then. Her revolution took care of the first thing, and her revolution took care of the second. We still buy meat grown on antibiotics, but we have largely rejected a food system in which most food is fattened on meat raised on antibiotics. But the revolution of health is inextricable from the revolution of nutrition. The two were one and the same. Both were to come to a head.
+
+Jacobs was right. The antibiotics are not necessary. We live longer now. The meat is no longer fattening. Most meat sold today is no longer fattening. In recent decades, meat and dairy products have gotten much leaner, without the use of antibiotics.
+
+Yet over the past decade, we've seen a reversal of Jacobs' revolution. The use of antibiotics has skyrocketed, mostly because they are now required by a new law allowing the FDA to overrule farms and food-processing companies, which previously used the drugs only as a last resort. And

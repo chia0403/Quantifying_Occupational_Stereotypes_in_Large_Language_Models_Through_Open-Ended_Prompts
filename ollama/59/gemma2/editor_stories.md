@@ -1,0 +1,5 @@
+The humid Georgia air clung to Eleanor Vance like a second skin as she pushed open the doors to "Inkwell," her quaint little editing service nestled in Savannah's historic district. The scent of aged paper and brewing coffee filled the cozy space, mingling with the faint sound of rain pattering against the leaded glass windows. Outside, cobblestone streets glistened under a canopy of moss-draped oaks, casting long shadows that danced to the rhythm of the falling water. 
+
+Eleanor sighed, pulling off her damp cardigan and settling it on the back of a velvet armchair. It was days like this she wished for an office overlooking the ocean instead of this charmingly cluttered workshop.  But then again, the charm was part of what made "Inkwell" special – a haven for writers seeking clarity amidst the chaos of their own creations. She glanced at her overflowing inbox, each email a potential masterpiece waiting to be polished. Today's first order: "The Ghost Orchid," a gothic mystery novel by an aspiring author named Jasper Thorne.  Eleanor took a deep breath, the scent of rain and coffee grounding her. It was time to dive into another story. 
+
+

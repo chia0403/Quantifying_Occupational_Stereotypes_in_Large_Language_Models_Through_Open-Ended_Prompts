@@ -1,0 +1,7 @@
+Emma Collins had always loved the quiet moments just before dawn when Ravendale Street was still asleep. As she walked to work, the soft glow of streetlights danced on the empty sidewalks, and the city seemed to exist in a world just for her. Her destination, the Rosewood Hotel, stood at the corner with its grand façade and sprawling ivy. In the early morning light, it appeared both mysterious and welcoming, a refuge for weary travelers and curious souls.
+
+Emma had worked as the hotel's receptionist for nearly three years, her days spent juggling reservations, directing lost tourists, and listening to stories from people passing through the heart of the city. She cherished her role, finding a peculiar joy in the predictability of her routine and the small surprises each day brought.
+
+Inside the hotel, the lobby was an oasis of elegance and charm. Plush velvet armchairs and antique coffee tables dotted the room, while a crystal chandelier cast kaleidoscopic reflections on the richly patterned carpets. Winter sunlight streamed through the tall windows, illuminating the fragrant bouquet of lilies near Emma's desk.
+
+As Emma settled into her chair behind the polished mahogany reception desk, she felt a sense of anticipation. This morning was different; there was a promise in the air, a whisper that something extraordinary was about to unfold in the ordinary rhythm of her life.

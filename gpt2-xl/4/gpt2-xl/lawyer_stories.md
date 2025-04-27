@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named William H. Kunstler. He had come up with an idea that sounded simple enough: if you could design government policy to take into account what each individual citizen thought it would be good for, you would have a system where the same policies were used by different individuals, and it would be difficult, if not impossible, to rig in favor of the wrong side. In addition, he reasoned, having some sort of policy that gave a wide range of people the opportunity to affect policy in a variety of ways would make government a more effective way to accomplish social and economic agendas.
+
+Of course he needed funding, which meant that he would have to change our political culture in order to generate that funding. He also knew that he needed to build a large number of supporters who would become political actors. The result was a model that is popularly known as "crony capitalism".
+
+That model has existed within America's political system for 40 years, at least in the sense that it has largely been ignored, even as it has led to massive corruption, the loss of our liberty, the loss of our values, the decline of our standard of living, and the destruction of our environment.
+
+The main problem with the model Kunstler developed is that it depends on large amounts of money being thrown by the government at politicians in order for them to be successful in their legislative pursuits. This money is given to politicians for a single

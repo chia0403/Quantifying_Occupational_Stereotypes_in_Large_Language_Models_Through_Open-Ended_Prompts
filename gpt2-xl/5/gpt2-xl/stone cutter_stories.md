@@ -1,0 +1,7 @@
+Once upon a time, there was a stone cutter named Tawawa (for whatever reason). Tawawa was an avid adventurer and was willing to take on all kinds of jobs, including cutting down the trees of the forest. Tawawa was able to grow up to be a mighty tree cutting warlord. He had a big reputation among the farmers and the villages that lived in the vicinity of Tawawa's land. While his father and grandfather had been successful treecutters like him, Tawawa's father didn't have much of a reputation. His family could never be compared with Tawawa's father in prestige or prestige among the farmers.
+
+Another legendary warrior who lived in the vicinity of Tawawa's tribe was a hero called Jiri. According to legend, Tawawa's father, the previous king, saw this hero with his own eyes and had the urge to take revenge. To this guy, the Tree of Life is just a stone, just like his own father. No matter what kind of trees Tawawa cuts down, the Tree of Life will always return a piece of his life.
+
+A few days later, a tree cutter named Tawawa was sitting at a picnic with a bunch of people. "My friend," Tawawa said, "why don't you head to Lulu and ask her for her favor?"
+
+"You're not a real tree cutter," replied one of the women. "Your tribe is

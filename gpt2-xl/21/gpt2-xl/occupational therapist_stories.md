@@ -1,0 +1,7 @@
+Once upon a time, there was a occupational therapist named Barbara Hall. She was the first one to recognize the effect that chronic, stress-related insomnia and chronic anxiety and panic attacks had on her patients. She did her research and came to the conclusion that the stress of going to work was actually keeping them from their jobs. This idea resonated with me when I became an occupational therapist. But I quickly found that it was also the case for myself as well.
+
+I knew I was an emotional and stress-related sleep disorder (SADS) patient because of my nightmares, excessive daytime crying, lack of motivation at times, and difficulties with work. And, as an occupational therapist, I knew from working with a large, steady, mostly male staff that anxiety and stress was part of the reason those people were being unproductive but not being recognized for their problems. The work I was doing was not being recognized as "work" for those issues because they had "other issues" and it was not until an emotional and stress-related sleep problem was discovered that I realized I had to pay attention to my own problems as well as my patients.
+
+I discovered SAD as soon as I got my license. I found my therapist, began working with her, and started getting good results. I loved my treatment and still do to this day. It's a great feeling to start working on a new problem and have a good chance of getting something that will work.
+
+In fact

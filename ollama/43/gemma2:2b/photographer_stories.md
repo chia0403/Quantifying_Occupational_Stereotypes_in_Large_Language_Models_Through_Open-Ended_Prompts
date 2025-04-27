@@ -1,0 +1,7 @@
+Rain pattered against the dusty windowpane of Amelia Thorne's cramped studio apartment in Prague.  She stared out at the city lights blurring through the downpour, her eyes narrowed as she sifted through the negatives from yesterday's shoot.  Her usual cynicism had evaporated into an almost unbearable hope when she'd unearthed a single photograph tucked away in a corner of a box labelled 'Unidentified Subjects.' 
+
+The image was a riot of colour against the stark black and white. A woman, her hair woven with vibrant streaks of emerald green and sapphire blue, sat perched atop a crumbling statue of a forgotten Roman god, her eyes looking out across the city. The pose was dramatic, almost theatrical, and Amelia's gut twisted with an unsettling longing.  She had spent years chasing shadows in Prague’s forgotten corners - capturing urban decay, abandoned buildings, remnants of a past that had been swallowed by time. 
+
+But this photograph... this felt different. It whispered of secrets, of lives lived hidden behind the veil of anonymity. It was as if someone had slipped a key into her hands, unlocking a long-forgotten door to a world she had never dared to dream about.  Amelia closed her eyes for a moment, inhaling the scent of old paper and dust. The air crackled with a strange energy. This photograph wasn't just another shot; it was an invitation. 
+
+The question was, who was this woman? Where did she come from? And what secrets were buried beneath her enigmatic smile?  

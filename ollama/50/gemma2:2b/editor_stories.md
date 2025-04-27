@@ -1,0 +1,3 @@
+Rain lashed against the attic windows, each drop a tiny hammer against the old glasspane. Inside, Amelia Hawthorne, known professionally as "Amy" to all but her grandmother, huddled in the corner. A mountain of unprocessed manuscripts piled high on one side of the room, each holding a whispered promise of a forgotten tale. Outside, the storm raged; inside, a lone lamp cast an unsettling orange glow over dusty tomes and faded portraits that seemed to watch her every move. 
+
+The silence was thick with possibility and pressure. Amy wasn't just editing stories; she was trying to salvage souls, to breathe life back into words trapped in the brittle confines of forgotten dreams. It was a lonely pursuit, this dance between words and ink, but it was all she had ever known. 

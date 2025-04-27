@@ -1,0 +1,6 @@
+The air hung thick with humidity in the cramped confines of Elias Bartholomew Finch’s makeshift workshop.  Sweat clung to his brow as he hunched over the tangle of wires, transistors, and vacuum tubes that comprised his latest project – a jury-rigged shortwave receiver designed to pick up whispers from across the globe. 
+
+Elias, known to most simply as Bart, wasn't your typical radio technician. While others chased the newest models and sleek circuitry, he found solace in the dusty relics of bygone eras, coaxing life back into forgotten radios with a practiced touch. His workshop, tucked away in the attic of his grandfather’s rambling Victorian house on the outskirts of Savannah, Georgia, was a testament to this passion – a chaotic labyrinth of spare parts, cobbled-together antennas, and crackling speakers. Outside, the summer heat pressed against the eaves, but within Elias's domain, the air buzzed with the low hum of electricity and the promise of distant voices. 
+
+
+Elias traced his finger along the faded label on an antique crystal radio he’d rescued from a dusty flea market – "The Voice of the World."  It was ironic, considering that most of the world seemed to have forgotten how to listen. But Elias knew there were stories out there, waiting to be heard. He just needed to tune in. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a trucker named Tony "Tango" Hernandez who picked up loads of bananas in Miami Beach, loaded them on the back of a truck, and drove to St. Petersburg, where he'd sell and market the bananas, earning a profit of about $3,000 to $4,000 a week on a 40-hour workweek.
+
+One day, though, while hauling bananas around St. Pete he caught a cold. No sense in delaying the bananas any longer, so the trucker drove home.
+
+Once there, his wife began to worry. Tony had been doing this for months, but that was just one truck, and while it rained every day (except for two weeks that the truck had been traveling across the country), he had always had an adequate supply of bananas. When the rains came, though, Tony lost what he'd earned. The wife decided to leave for Minnesota and take another job. The money was better than what he was making in New Jersey, where his boss told him he had enough bananas. So Tony finally realized the only way to keep his job was to move to Minnesota.
+
+"I didn't want to get sick, and I didn't want to take off on some crazy trip," Tony recalls. So he packed up his things and moved from his truck to his house, hoping that in Minnesota, he'd make in a week what it'd taken him in Miami over a year to

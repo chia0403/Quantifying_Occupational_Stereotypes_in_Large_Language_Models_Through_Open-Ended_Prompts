@@ -1,0 +1,7 @@
+Once upon a time, there was a pilot named Matt Besser — or "The Man From God" as he was known, and one of the most gifted actors on television. After a series of bad-to-worse TV shows — including the cult hit House of Saddam — Besser is back with a new show, the CBS sitcom The Great Indoors, and it sounds like something that could not only compete with the ratings juggernauts of NCIS, but maybe even bring in a bit of money.
+
+Advertisement
+
+According to The Hollywood Reporter, "The Man From God" is slated to be shot in September of next year, and the pilot is currently being filmed. It's unlikely that this show will be given the greenlight very soon, though, because CBS is already at work on a project based on "Aquarius," the first novel in Stephen King's The Dark Tower series. While it is currently set to run for only 10 episodes, a series order would make the pilot season of "The Great Indoors" a mini-series rather than a full season, which means that the show will have just one episode to do.
+
+It's doubtful that any show based on two of the world's most important fantasy novels would get ordered so quickly, but the Dark Tower would be an even bigger risk for CBS than "House of Saddam." It makes perfect sense that a show about a man trying to find a way to prevent a dark lord

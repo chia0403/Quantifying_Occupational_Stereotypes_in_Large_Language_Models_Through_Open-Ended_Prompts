@@ -1,0 +1,7 @@
+Once upon a time, there was a janitor named Mr. Beasley. He did not get along with anyone he didn't like, and often took the fun out of his job. One day when he caught Mr. Lizzie cleaning too cheerily after a fire, Ms. Norris, her sister and a few friends walked over to him on a dare, because they knew that Mr. Beasley was a huge bully. Mr. Beasley had a huge reputation among the higher-ups in the building for his bullying and for his physical strength. As a result, it was usually impossible to do any work in that building without Mr. Beasley seeing it and making sure nobody got away with it.
+
+The janitor overheard all about it because he couldn't help but join in. He didn't really care how the others were offended at him about making fun of Mr. Beasley, so long as he could keep his job and get away with it. Mr. Lizzie and the others saw his plan to bully Mr. Beasley and called a meeting so that they could try to stop him. They called Mr. Beasley's name and, to their surprise, the janitor, who had been walking along the wall of their office, said, "Beasley, come here," and then walked over.
+
+"What's that look for?" asked Mr. Beasley without realizing who he was addressing.
+
+"It's a sign," said Mr

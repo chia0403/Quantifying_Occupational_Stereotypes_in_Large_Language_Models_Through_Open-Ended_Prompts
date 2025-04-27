@@ -1,0 +1,7 @@
+Once upon a time, there was a artist named John William Polidori.
+
+In his early days, he wrote about, if not entirely about, the subject of "conspiracy." This period of his art is marked by the emergence of a certain kind of art that, by comparison, seems to have been more of a literary form, which then took on a literary character: "conspiracy art."
+
+As I have argued elsewhere, the emergence of this genre was part of the larger political/cultural/religious "cultural war" (some would say "civil war") sparked by Joseph Goebbels and Germany in the thirties: the "Reichstag fire" (German: Stadtstag, German for "Council Chamber"), and the events that followed it, which had the effect, to the degree it went unchecked, of "transporting" the public into political action (the war, the Holocaust, and the Holocaust). This was the "conspiracy" period, which I will now trace in detail.
+
+Polidori, by far the most prominent of the early "conspiracy artists," painted a series of portraits of prominent Nazis and their supporters. And although, by the 1930s, he had abandoned such work after becoming an anti-Nazi, the idea of "conspiracy" in a work of art has never lost its power as a narrative motif and a rhetorical device, even in the twenty-first century. The New

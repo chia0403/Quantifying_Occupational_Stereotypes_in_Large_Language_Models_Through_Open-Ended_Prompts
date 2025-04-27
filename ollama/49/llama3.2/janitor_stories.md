@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The dim fluorescent lights overhead cast an eerie glow over the worn linoleum floor of Ravenswood Elementary School, where 32-year-old janitor, Ethan James Reed, had spent the better part of his adult life sweeping up after the chaos of children's classrooms. As he pushed his cart of cleaning supplies down the deserted hallway, the only sound was the soft hum of the air conditioning and the creaks and groans of the old school's aging infrastructure.
+
+The bell above the entrance to the main office let out a mournful clang at 4:05 PM, marking the end of another long day. Ethan had just finished cleaning the library for the final time, and was now making his way to the staff room to clock out and head home. It was going to be one of those days where he'd have to pretend to be interested in the sports highlights on TV while secretly counting down the minutes until he could leave this place behind.
+
+Ethan's thoughts were interrupted by the soft rustle of papers being shuffled from a nearby classroom. He turned his head, peering into the dimly lit room to see Mrs. Jenkins, his boss and the school's principal, huddled with one of her administrative assistants, whispering something in hushed tones. Ethan's curiosity was piqued - what were they up to now?

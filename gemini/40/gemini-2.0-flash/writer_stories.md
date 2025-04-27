@@ -1,0 +1,9 @@
+## Story Opening:
+
+The hum of the vintage Underwood typewriter was a constant companion, a rhythmic counterpoint to the city’s ceaseless symphony outside. Each tap was a breath, each clack a heartbeat in the story Florence Amelia Finch was painstakingly trying to resurrect. But the words refused to flow. They clumped and congealed like week-old gravy, refusing to coalesce into anything resembling art. She stared at the half-typed sentence, its stark black ink mocking her: "The fog, like a… like a… what?"
+
+Florence slammed her fist on the carriage return, sending a tremor through the rickety card table that served as her writing desk. Frustration, a familiar bedfellow these past months, tightened its grip on her chest. She rose from the creaky wooden chair, pushing it back with a groan that mirrored her own internal state.
+
+## Setting:
+
+Florence Amelia Finch’s “writing studio” occupied a corner of her cramped, fifth-floor walk-up in a brownstone building in the West Village. The year was 1932. The room, barely larger than a generous closet, was bathed in a perpetual gloom, the only natural light filtering through a grime-coated window that overlooked a narrow, brick-walled alley. Dust motes danced in the meager rays, illuminating the haphazard collection of her life: stacks of well-worn books threatened to topple from makeshift shelves constructed from repurposed crates; a chipped porcelain teacup sat abandoned next to a pile of crumpled rejection letters; and a threadbare Persian rug, its vibrant colors long since faded, attempted to inject a touch of elegance into the otherwise spartan surroundings. The air hung heavy with the smell of stale tobacco, cheap coffee, and the lingering scent of desperation, all hallmarks of a writer struggling to make ends meet in a city reeling from the Depression.

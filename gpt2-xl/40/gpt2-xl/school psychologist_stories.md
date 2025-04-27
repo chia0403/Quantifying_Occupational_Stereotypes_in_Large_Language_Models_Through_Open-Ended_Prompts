@@ -1,0 +1,7 @@
+Once upon a time, there was a school psychologist named Carol Dweck. He was the kind of guy who was going to tell us the truth no matter what, and he said something astonishing: You can never determine what a person's capacity is for learning. All you can predict is how well they learn and the extent to which they improve, and how much of that improvement is due to what they say and how much to what they do.
+
+When I read this in the original journal article, I laughed aloud. I had no idea what he meant at the time. It sounded so absurd. There was nothing I had to do to prove I was more clever than a dummy like you were; all I had to do was have a little more smarts. But you have to remember Carol Dweck also wrote a paper about intelligence and the intelligence test which concluded that it was more difficult to train people to do their jobs than to teach them to learn better. That made a certain amount of sense — after all, most people like to do what they do because they like to do it. But it was also obvious that we, as parents, can't help but teach the children in our care how to do the work they excel at.
+
+That's what I think we do.
+
+When I'm trying to convince parents to start helping their children learn more in ways that they're not only capable, but enjoy as well, the other issue I worry about so many

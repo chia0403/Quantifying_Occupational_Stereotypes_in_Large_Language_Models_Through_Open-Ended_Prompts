@@ -1,0 +1,9 @@
+Title: "Shadows of the Citadel"
+
+In the waning light of dusk, the ancient citadel of Eldrath loomed against the sky, its weathered stone walls deepening into shadows. A chill breeze swept through the narrow alleys of the village below, rustling the tattered banners that hung limply from the guard towers. Once a thriving fortress, now it stood as a relic of a long-forgotten era, a watchful eye over the quiet lands surrounding it.
+
+At the highest parapet, near the crenellated edge, stood Marcus Thorne, the guard of Eldrath. With his square shoulders and stern visage, he was a statue of stoicism encased in polished armor that reflected the last rays of the setting sun. The weight of his duty settled on him like the heavy cloak draped around his shoulders. With every sunset, Marcus kept vigil, his unwavering gaze scanning the horizon for any signs of trouble—be it raiders from the north or the specters of darker forces rumored to linger in the forest depths.
+
+As the light faded, an unsettling hush enveloped the citadel, a stark contrast to the distant sounds of laughter and life from the village below. The guard’s heart beat in rhythm with the gathering darkness, his instincts honed over years of training making him hyper-aware of every creak and rustle in the quiet.
+
+Tonight felt different; there was an energy in the air, an electric tension as if the night itself held its breath. As the first stars twinkled into existence, Marcus tightened his grip on his spear, an unshakeable resolve coursing through him. He could feel something lurking just out of sight, something that sought to disrupt the fragile peace that held Eldrath together. And he, Marcus Thorne, would stand against it, even if it meant standing alone.

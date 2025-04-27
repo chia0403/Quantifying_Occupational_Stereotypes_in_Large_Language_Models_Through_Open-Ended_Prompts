@@ -1,0 +1,5 @@
+The bell above the door chimed a jaunty tune as Eleanor Beatrice "Ellie" Cartwright adjusted her hairnet for the hundredth time that morning.  A plume of lavender-scented hairspray drifted from her meticulously curled auburn tendrils, mingling with the scent of freshly brewed coffee and peppermint shampoo that permeated her tiny salon, "Ellie's Enchanted Scissors." The cramped space, wedged between a laundromat and a dusty antique shop on Elm Street, was Ellie's kingdom. Every surface, from the chipped porcelain sink to the rainbow shelves overflowing with hair dyes, held the magic of transformation. 
+
+Outside, a summer storm brewed, turning the usually vibrant street into a grey and shimmering canvas. Rain lashed against the windows, mimicking the nervous tapping of Ellie's foot on the linoleum floor. She was waiting for Amelia, her most challenging client – a woman who arrived with a mane of untamable curls and an even wilder personality. Today, Amelia wanted to go "bold," which in Amelia’s vocabulary meant something that could rival a rainbow explosion.  Ellie sighed, smoothing down her lilac apron with trembling hands. It was going to be a long day. 
+
+

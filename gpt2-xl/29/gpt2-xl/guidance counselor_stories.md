@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named Mrs. White whose job it was to advise the young women of the Church on all their reproductive matters. One morning during one of her sessions, she noticed another counselor and two other women studying in the adjoining room. The other counselors did not stop their reading until it was their turn. One of the women asked Mrs. White, "What are you teaching us to do?" She answered, "Teach them to pray, for they will be needed so in the coming years, when the Church will have little power."
+
+President Monson has not been told what to do, only what to know. It has not been told which commandments are needed in the coming days. It does not have a blueprint to a future.
+
+There is also the issue of the priesthood. The Savior said, "Whosoever looketh on a woman to lust after her hath committed adultery with her already in his heart. And if thy right eye offend thee, rip it out and cast it from thee: for it is profitable for thee that one of thy members should perish, and not that thy whole body should be cast into hell" (Matt. 25:31–32). What does he mean by "look?" Not merely looking out a window but looking anywhere or anyhow. Such is the danger.
+
+And now, my dear, dear men and women of this Church, let me ask you to step back for a minute and

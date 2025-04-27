@@ -1,0 +1,6 @@
+The scent of turpentine hung heavy in the air, mingling with the salty tang of the ocean breeze that drifted through the open windows of Amelia Celeste Rivers' studio. Light streamed in from the west, bathing her canvases in hues of orange and gold as the sun dipped towards the horizon. The vast expanse of the Pacific stretched before her, a churning mass of indigo punctuated by the white crests of crashing waves. 
+
+Amelia, her hair tangled with strands of red paint, stood before a towering canvas, her brush poised mid-stroke. She was wrestling with a piece she'd dubbed "Tempestuous Tide," attempting to capture the raw, untamed energy of the sea that had become both muse and tormentor in equal measure.  The waves she depicted seemed to claw at the edges of the canvas, their crests jagged teeth against the fading light. It mirrored the tempest raging within her own heart.
+
+
+This was Amelia's sanctuary - a weathered, ramshackle studio perched on a cliff overlooking the tumultuous Pacific Ocean on the rugged Oregon coast. It was here, amidst the crashing waves and howling winds, that she sought solace and inspiration, pouring her soul onto canvas in vibrant bursts of colour and movement. 

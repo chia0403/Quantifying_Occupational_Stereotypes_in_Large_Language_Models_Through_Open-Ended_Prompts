@@ -1,0 +1,5 @@
+Once upon a time, there was a stone cutter named Richard. During that time, Richard and a fellow cutler found an object that gave them a vision of the future.
+
+As we all know, this object is the Fountain of Blood, or as its colloquial meaning states "where the Blood lives." The statue has been shown to attract certain creatures to it and also grants an additional effect once every 24 hours, which is to turn the statue to stone.
+
+The Stone to Stone spell, which was originally thought to be exclusive to druids, has been taken over by druidism. This spell works by concentrating on creating a wall of stone, so the spells effectiveness in this area is limited only by a creature's size. Due to this spell, it has been a common practice to form a group of druids to stand in front of the statue and create a permanent wall of stone. This wall will block any enemy creature coming close to it, but it can be broken after a short time so that the druid can move forward with their group to their next target.

@@ -1,0 +1,6 @@
+Rain lashed against the bakery window, blurring the neon glow of the 'Open' sign into an inky swirl. Inside, the air hung thick with the sweet scent of sugar and cinnamon, battling the sharp tang of rain-soaked asphalt and wet leaves carried in by the wind. Elias Blackwood, his apron dusted with flour and a tremor running through him, stared out at the tempestuous night. He wasn't a man of storms, not anymore. Not since... 
+
+Elias was a cook, a baker whose sourdough loaves had earned him a reputation as solid as the granite counter he kneaded upon. But tonight, even his usual calm seemed to be fading under the weight of the storm and a lingering ache in his chest that felt more like a shadow than light years away from the past. His grandmother's recipes were whispered into existence in the air between each batch; she had been a baker, just as he was, and every crumb held a piece of her legacy. Tonight, however, it seemed those memories were just salt-soaked ghosts that refused to be embraced.  
+
+
+**Setting:** A small, independent bakery nestled amidst the bustling streets of a seaside town known for its charming Victorian architecture and enduring traditions. The air hums with both the rhythmic clatter of baking trays and the gentle murmurings of the local community passing by. 

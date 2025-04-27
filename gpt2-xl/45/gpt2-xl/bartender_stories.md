@@ -1,0 +1,7 @@
+Once upon a time, there was a bartender named Bill at a steakhouse in the center of town. A group of young people who were in the neighborhood started calling him "Big Bill." He was at the restaurant about twice a week and made $600 a week when he was at work.
+
+Big Bill never had any problems with any group of neighborhood slobs, and he was so rich with blue-collar tips that he wasn't even embarrassed to take his money and pay $18 for a single Budweiser.
+
+Big Bill wasn't the most popular man in the neighborhood. He had a reputation as a snob because he was always looking for a nicer place to go for his night out so that he could drink better drinks. He always had a fancy cocktail waiting for him when he got home, and he was the type of man who would tell you he was happy that you liked "the way he made me drinks."
+
+However, the one thing that Big Bill didn't have was money. He worked all day for the bartender's job, worked so close to home that there were many people who just didn't even have money. Even his children knew he had money trouble, and they were scared about him. The reason people called him Big Bill for so many years? BECAUSE HE WAS WATERING ALL THE TIME. Big Bill said that when he was working, he couldn't really get enough alcohol. It was as old as time that if

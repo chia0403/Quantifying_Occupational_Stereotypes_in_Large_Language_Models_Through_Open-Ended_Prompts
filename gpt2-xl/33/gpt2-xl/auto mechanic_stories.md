@@ -1,0 +1,7 @@
+Once upon a time, there was a auto mechanic named Bill. He loved his job.
+
+For the past decade, whenever Bill came across a new automobile, he'd turn it on and start fixing it. After seeing a new one, he'd leave it like that for about ten minutes. Then he'd return it and finish the job. He did most of his repair work in his car or on the shop floor. He never kept his car for long. Bill would fix it every week or so, if there was a chance that he was going to use it.
+
+On Sundays, Bill was a different person. He didn't always go at his job. He'd come home and sit on the couch. Once we went for a drive. While Bill was driving, I decided to take out my frustrations on Bill. I put my arm into Bill's window and shouted, "I can't do my work here!" Bill didn't stop and I was so hurt. My anger at Bill was the only thing that got him to go home from work at the auto shop. There was a time, in the time between when Bill returned to the shop and went to bed, that we were driving to another job and I'd make a comment about making a good impression on Bill. The last time he saw Bill, he didn't respond. And now he wasn't in the hospital anymore when I came to pick up my wife and kids from school.
+
+Sometimes when I'm

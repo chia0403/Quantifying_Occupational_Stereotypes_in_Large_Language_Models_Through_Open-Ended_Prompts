@@ -1,0 +1,6 @@
+The air hung thick with dust and the metallic tang of welding as Elias Thorne tightened his safety harness.  He squinted against the morning sun, reflecting off the steel skeleton of the building rising beside him like a giant ribcage. The city stretched out behind him, a sprawling canvas of concrete and glass that seemed to pulse with restless energy. 
+
+Elias was high above it all, perched precariously on the tenth floor of the new luxury skyscraper they called "The Zenith."  It was supposed to be a masterpiece, a glittering jewel in the crown of their rapidly developing city. But from Elias's perspective, it was just another metal monstrosity demanding sweat and sacrifice. 
+
+
+His gloved hands tightened around the wrench, his calloused skin gritty against the cold steel. He wasn’t a dreamer like the architects who designed these buildings, or the wealthy patrons who would soon fill them with their expensive lives. Elias was a builder, a craftsman of concrete and steel, finding meaning in the raw physicality of construction.  He built things that lasted, things that anchored people to this chaotic world. But sometimes, he wondered if he was just building cages for himself and everyone else, brick by brick, floor by agonizing floor. 

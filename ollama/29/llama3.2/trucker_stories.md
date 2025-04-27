@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+The sun was setting over the vast expanse of Route 66, casting a golden glow over the desolate stretch of asphalt that stretched out before Jack "Hawk" Hawkins like an endless ribbon of possibility. Hawk, a rugged and weary truck driver with a lifetime of miles under his belt, gazed out at the view from the worn leather seat of his Peterbilt, its engine purring softly as he shifted into neutral. He'd been driving for hours, ever since leaving the outskirts of Oklahoma City behind, and the open road was his only companion.
+
+Hawk's truck, a trusty old girl that he'd named Bertha, had been his home away from home for years. She was a 1985 Peterbilt 359, with a faded red exterior and a rig that seemed to creak and groan in protest every time Hawk shifted gears. But she was reliable, if a bit temperamental, and Hawk knew her like the back of his hand.
+
+As he sat there, lost in thought, Hawk's mind began to wander back to the reason he'd left Oklahoma City in the first place - the trouble that had been following him for months, ever since his last stop had gotten out of control. He'd tried to put it behind him, but the memory of that night still lingered, like a ghostly presence lurking just beneath the surface of his consciousness.
+
+The darkness was starting to fall, and Hawk knew he needed to find someplace to spend the night soon. The only place in sight was a small truck stop off to his left, its neon signs flickering like fireflies in the fading light. He hesitated for a moment, weighing his options, before finally deciding that Bertha needed some rest too.

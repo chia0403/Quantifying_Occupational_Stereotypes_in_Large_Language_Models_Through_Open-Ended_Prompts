@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia Juniper’s head, casting a sterile glow over the bustling pre-op waiting area. Outside, the Texas sun beat down mercilessly, but inside the hospital wing it was perpetually cool and faintly antiseptic. Amelia, her name tag reading ‘Juniper - Phlebotomist,’  sat at her station, flipping through a dog-eared copy of “Medical Mysteries” while she waited for the next patient. It was a Tuesday morning, which meant routine blood draws for pre-op procedures. The usual suspects: anxious first-timers nervously tapping their feet, seasoned veterans calmly reading magazines, and the occasional child clutching a stuffed animal, eyes wide with fear.
+
+But Amelia had seen it all before. Years of drawing blood had made her almost immune to the nervous energy that buzzed around her station. She was adept at diverting attention, spinning tales about the marvels of the circulatory system, and finding the elusive vein with practiced ease. Today, however, something felt different. A prickle of anticipation ran down her spine, a feeling she couldn’t quite place.  
+
+

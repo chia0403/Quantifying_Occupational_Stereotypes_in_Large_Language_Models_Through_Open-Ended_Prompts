@@ -1,0 +1,7 @@
+## Opening:
+
+The rasp of granite against steel was the dawn chorus of Elias Thorne’s existence. It was a harsh, rhythmic song, born of muscle and patience, a song that reverberated through his bones and clung to the thick calluses on his hands. This morning, however, the song was fractured, a dissonant chord struck by a sliver of doubt that had lodged itself deep within his gut. He hammered harder, a futile attempt to silence the encroaching unease, but the granite, as always, remained stubbornly indifferent.
+
+## Setting:
+
+Elias Thorne’s workshop clung to the precipice of the Blackwood Quarry, a jagged scar ripped into the heart of the Onyx Mountains. It was a simple structure, built of rough-hewn timber and roofed with slate salvaged from the quarry itself. The interior was a chaotic ballet of stone dust, tools honed to razor sharpness, and unfinished sculptures. Sunlight, when it dared to pierce the ever-present mist, slanted through the open front of the workshop, illuminating motes of dust dancing in the air and casting long, dramatic shadows across Elias's chiselled features. Outside, the quarry yawned, a desolate landscape of grey rock and the constant clatter of picks and shovels, a constant reminder of the life-or-death dance between man and mountain. The air, even on the clearest days, carried the metallic tang of stone dust and the faint, earthy scent of ancient secrets buried deep within the earth. This was Elias's domain, a place where dreams were forged from stone and the weight of history pressed down upon every breath.

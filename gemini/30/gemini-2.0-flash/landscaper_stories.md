@@ -1,0 +1,7 @@
+## Story Opening:
+
+The smell of damp earth and crushed mint hung heavy in the morning air, clinging to Leo Maxwell's work boots like a stubborn lover. He straightened, the familiar ache blooming in his lower back, and surveyed his handiwork. The meticulously laid flagstone path, a tapestry of grey and ochre, snaked invitingly through the newly planted lavender bushes. Sunlight, still weak and watery, dappled through the ancient oak that dominated the garden, painting shifting patterns on the stone. Leo wasn't entirely satisfied. The path was perfect, the planting flawless, but… something was missing. Something that whispered of life, of personality. He frowned, rubbing the stubble on his chin. Sometimes, even the most beautiful garden felt sterile.
+
+## Setting:
+
+Leo Maxwell's landscaping business, "Rooted Revival," served the affluent, yet often surprisingly down-to-earth, residents of the small, picturesque town of Havenwood, Connecticut. Nestled in the rolling hills of Fairfield County, Havenwood was a haven, indeed, a place where antique shops mingled with farm-to-table restaurants, and sprawling estates bordered working apple orchards. The town was steeped in history, its architecture a charming blend of Colonial and Victorian styles. Leo thrived here. He possessed an innate understanding of the landscape, a deep respect for its history, and the ability to coax beauty from even the most neglected patches of earth. He considered himself a caretaker, a guardian of Havenwood's natural elegance.

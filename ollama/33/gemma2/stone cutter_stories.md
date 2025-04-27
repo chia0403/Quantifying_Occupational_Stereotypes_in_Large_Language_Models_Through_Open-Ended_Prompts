@@ -1,0 +1,5 @@
+The air in the workshop hung thick with dust motes dancing in the shaft of sunlight that sliced through the grime-coated windows.  Amelia Hawthorne, her forearms dusted grey from hours spent chiseling marble, wiped sweat from her brow with the back of her hand. The rasping sound of her chisel against the cold stone was a familiar rhythm in this small, cluttered space - her sanctuary, her livelihood. 
+
+The workshop itself was tucked away on a cobbled side street in the heart of Veridian City.  Buildings hunched close together, their brick facades weathered by centuries of storms and sun. The scent of baking bread mingled with the metallic tang of the forge from the nearby smithy, creating a heady aroma unique to this forgotten corner of the city. Outside, the midday sun blazed, painting long shadows across the worn cobblestones. But within Amelia's workshop, time seemed to move differently, dictated by the slow, deliberate strokes of her chisel and the ever-shifting shapes of the marble beneath her touch. 
+
+

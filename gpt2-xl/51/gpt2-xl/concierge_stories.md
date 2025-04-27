@@ -1,0 +1,7 @@
+Once upon a time, there was a concierge named Mandy in the hotel in Chicago. She was the hotel's best employee. It's difficult to believe now, but Mandy worked with a lot of old friends in the hotel. She would help them with problems they might face if they were the first ones in the hotel to see the opening. Mandy also went as far as helping them with issues concerning their reservations, including those placed for the night and those made in advance.
+
+She wasn't the only one in the hotel to be helpful, though. There were quite a few concierges that were also a part of the hotel. Some came from the hotels in Chicago, but it wasn't uncommon for people from all over to work in the hotel as a concierge. There were people from out of town that came to Chicago for work, but stayed in the city with family. They would stay in the hotel where their family was staying for a short while before returning home.
+
+The Concierge Hall
+
+One of the concierges that was located in the hotel was called the Concierge Hall. The Concierge Hall was one of the original buildings that was built by the hotel's founding fathers, the O'Connor brothers. That is why the concierge hall's name is so ironic: the name was actually O'Connor's. The O'Connors originally wanted to own a hotel when they purchased the building. The

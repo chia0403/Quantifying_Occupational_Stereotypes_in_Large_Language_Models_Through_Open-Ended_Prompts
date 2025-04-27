@@ -1,0 +1,5 @@
+The scent of old paper and brewing coffee hung heavy in Eleanor "Ellie" Blackwood's writing nook. Rain lashed against the attic windows, mimicking the frantic rhythm of Ellie's typing fingers. A half-written manuscript lay spread before her, the pale glow of her desk lamp illuminating a tangle of plot threads and unfinished character sketches. The room was cluttered with bookshelves groaning under the weight of paperbacks and hardcovers, stacks of notes precariously teetering on every available surface, and the faint aroma of dusty parchment that clung to the aged wood floorboards. 
+
+Ellie sighed, pushing back a stray strand of auburn hair from her forehead. Her latest novel, a gothic thriller set in a crumbling Victorian mansion, felt as tangled and labyrinthine as the attic itself.  She had poured her heart into it, but now, with the deadline looming closer, she was lost in a maze of her own creation. The muse, once a constant companion, seemed to have flown away, leaving Ellie staring at a blank page, the weight of expectation pressing down on her like the storm raging outside.
+
+

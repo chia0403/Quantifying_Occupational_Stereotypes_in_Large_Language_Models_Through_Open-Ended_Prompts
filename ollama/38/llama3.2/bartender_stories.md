@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The neon lights of MacTavish's Tavern reflected off the wet pavement like a scattering of fireflies on a summer night. Inside, the air was thick with the smell of cheap whiskey and stale cigarettes, the kind of place where dreams came to die and hope went to fade. Behind the bar, Emilia Mae MacDonald polished a mug with a dirty rag, her eyes fixed on the clock above the counter as it ticked closer to closing time.
+
+Emilia had worked at MacTavish's for five years, ever since she'd left her small town in Scotland to chase the promise of adventure and a steady paycheck. But now, as the last patrons of the evening filed out into the chilly night air, Emilia couldn't help but feel like she was just going through the motions. She'd seen it all from behind this bar - the good times and the bad, the broken dreams and the desperate pleas for help. And yet, every night felt like the same tired routine: pour drinks, listen to people's problems, and pretend like you cared.
+
+As she wiped down the counter with a flourish, Emilia's gaze drifted out into the darkness beyond the neon glow of MacTavish's. She knew the streets were home to some of the city's most hardened souls - the lost and the lonely, the desperate and the downtrodden. And in that moment, as the clock ticked closer to midnight, Emilia felt a shiver run down her spine. Tonight was different. Tonight, something felt off.

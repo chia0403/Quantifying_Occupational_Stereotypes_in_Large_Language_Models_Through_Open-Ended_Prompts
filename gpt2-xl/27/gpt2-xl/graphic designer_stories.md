@@ -1,0 +1,7 @@
+Once upon a time, there was a graphic designer named Robert Williams. He did not have a girlfriend, but you'd never know. He was the kind of designer who built all sorts of complicated designs in Photoshop. One day he was feeling kind of depressed when he sat down to his computer, picked up Paint.net, and started scribbling his own initials — ROB & B. — on a couple of computer monitors. He didn't draw anything; the whole thing was a simple, quick process of pen and paper.
+
+
+Once Bob finished his graphic work, he took a shower and fell asleep on his computer. When he woke up the next day, he noticed that his desk and back are covered with paint marks. He couldn't remember how he made the marks as his hand was numb and lifeless. So he called in the company. "Hey, I need help," he whispered to the receptionist, who promptly came in. The first thing they tried to do was to fix the blotches on Bob's desk with white lacquer, but he refused the offer on principle, and he soon made it clear to his technician that his computer was cursed. That technician fixed the machine and replaced it with a refurbished model. Soon after, Bob left the company to focus on his family.
+
+
+One day Bob looked at his painted hand and was dumbfounded to discover that every one of these lines had taken on shapes. He had come up with the very same graphic design that he

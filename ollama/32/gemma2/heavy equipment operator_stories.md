@@ -1,0 +1,6 @@
+The sun hammered down on the Arizona desert, turning the already dusty air to shimmering waves. Sweat dripped from Amelia "Amy" Cartwright's brow as she wrestled with the controls of her CAT 980H wheel loader. The behemoth machine groaned and shuddered beneath her, its massive bucket scooping up fistfuls of sandstone, pulverizing it into a fine dust that kicked up in miniature tornadoes around them.
+
+Amy was used to the heat, the grime, the endless monotony of this job - moving earth for the construction of a new solar farm stretching across hundreds of acres. It wasn't glamorous, but it paid the bills, and she took pride in her work. She was the best damn loader operator this side of Phoenix, known for her steady hand, keen eye, and unflappable demeanor, even when faced with a particularly stubborn rock or a surprise cactus patch. 
+
+
+But today felt different. A strange tension hung in the air, thicker than the dust devils swirling around their makeshift camp. The foreman, a grizzled veteran named Hank, had been acting skittish all morning, muttering under his breath about things he couldn't say out loud. And something about the silence of the desert seemed to press down on Amy, amplifying every creak of her machine and every chirping cricket in the distance.  

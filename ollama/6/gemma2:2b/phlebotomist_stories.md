@@ -1,0 +1,6 @@
+The fluorescent hum of the lab's ceiling lights was a constant backdrop to Amelia "Amy" Wright's workday. Even under the steady stream of light, the vials and syringes, each with its own tiny history, whispered secrets in the sterile air.  Her patient list for the day was already starting to pile up, another symphony of red-stained blood samples awaiting their turn in the centrifuge.  
+
+Amy took a deep breath, her fingers tracing the worn leather of her gloves. Outside, the October drizzle seemed to mimic the dreary tone of her thoughts.  Today's schedule had been unusually challenging; a mix of routine checkups and emergency procedures for the underprivileged community clinic she worked at. But one patient, an elderly woman named Mrs. Peterson with a history of chronic fatigue and unexplained bruising, had her attention focused.  It wasn't just the fear in Mrs. Peterson's eyes that worried Amy, but the unsettling pattern of the bruises - seemingly random yet somehow connected to her daily life.
+
+
+**Setting:** A rundown community clinic in an inner-city neighborhood, where poverty runs deep and resources are often stretched thin. The walls are faded and chipped, the furniture is worn down, and the air feels thick with both hope and despair. 

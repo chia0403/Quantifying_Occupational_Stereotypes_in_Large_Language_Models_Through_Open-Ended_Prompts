@@ -1,0 +1,7 @@
+## Opening:
+
+The biting wind, laced with the scent of salt and jet fuel, whipped at Amelia "Ames" Bellweather's parka as she tightened the chin strap. Dawn was a bruised purple bleeding into a stubborn gray on the horizon, mirroring the storm brewing in her gut. Today was the day. After years of dreaming, months of grueling training, and countless doubts whispering in her ear, she was finally soloing the Bell X-16 "Skyfire." It wasn't just *any* solo. It was the culmination of a Top Gun program unlike any other, focused on pushing the limits of aircraft performance and, some would say, sanity.
+
+## Setting:
+
+Edwards Air Force Base, California. Not the sleek, modern Edwards seen in glossy recruitment pamphlets, but the rough-edged, wind-battered outpost clinging to the edge of the Mojave Desert. The buildings were a jumble of weathered concrete hangars and modular units, baking under the relentless sun by day and freezing under the unforgiving desert chill by night. The air crackled with the constant hum of generators and the distant roar of engines being tested, pushed, and sometimes, broken. This particular area, nestled deep within the base's boundaries and heavily secured, housed the "Project Chimera" division – the clandestine program responsible for the Skyfire and a host of other cutting-edge, experimental aircraft. The landscape was a desolate expanse of scrub brush, cracked earth, and the ghosts of forgotten test flights, a stark reminder of the risks involved in playing with the edge of the possible.

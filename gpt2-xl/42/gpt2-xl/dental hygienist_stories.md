@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named William Foos (in the movie, there's a scene with Foos and a kid who calls him the name he gave him at the time; it's not a real doctor who's played by Foos; the kid is just a computer-generated dummy). When the kid's family falls ill, Foos takes them in and acts as their sole provider. However, when the child's father dies suddenly, he is forced to leave his job in the dental hygienist's office and take over the family home, while Foos becomes responsible for their care.
+
+
+The main character of the story is a woman named Edythe (played by Mary Steenburgen). She lives on a small farm with her two children (played by Zachary Quinto and Adam Baldwin). Edythe is an expert on her own health, even when it comes to the most obvious of subjects – cleaning her teeth. She can take care of herself in a fire, even a fire with a dozen demons chasing after her, but she must rely on Foos to remove the demon that has been feeding on Edythe's husband's body. During the course of the film, this connection between the two characters becomes increasingly apparent, and Edythe's own relationship with Foos is in a state of constant flux.
+
+
+Foos (played as a computer-generated dummy by Tim Curry) is a rather inept character

@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The sun had long since set over the small, coastal town of Ravenswood, casting a warm orange glow over the rugged shoreline and the quaint, weathered buildings that lined the streets. In a small, studio-style apartment above the local art supply store, Aurora "Rory" Wynter sat at her easel, lost in thought as she mixed a vibrant shade of turquoise on her palette.
+
+Aurora, or Rory to those closest to her, was a 28-year-old painter with a passion for capturing the beauty and drama of the ocean. She had grown up in Ravenswood, where the sea air and salt-scented breeze had inspired her love of art from a young age. Her parents, both retired teachers, had encouraged her creative pursuits, and Rory had gone on to study fine arts at a prestigious university in the city.
+
+Now, after years of struggling to make a name for herself in the competitive world of professional art, Rory was starting to feel like she was hitting a creative wall. She had recently taken on a teaching position at the local high school, but the job was stifling her artistic expression and leaving her feeling unfulfilled. As she dipped her brush into the turquoise paint, Rory couldn't help but wonder if she was truly cut out for this life as an artist...

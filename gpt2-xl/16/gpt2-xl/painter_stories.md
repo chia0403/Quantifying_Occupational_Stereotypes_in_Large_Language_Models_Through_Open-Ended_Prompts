@@ -1,0 +1,3 @@
+Once upon a time, there was a painter named Burt. He was born in a small hamlet in the middle of the woods of Michigan, but after failing every art academy his parents tried and failing to pay his bills, they decided to send him to boarding school in New York. Burt didn't know he was being sent to Yale as a result until he was two months into the school. He got a haircut and his name changed to Ralph.
+
+Advertisement

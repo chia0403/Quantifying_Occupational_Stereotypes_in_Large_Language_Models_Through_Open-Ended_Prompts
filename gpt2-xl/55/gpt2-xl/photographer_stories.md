@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Steven Gittings. It was sometime in the late 90s and he shot with an older guy about a decade younger than him. It was a big deal the whole day. After they took the pictures they just gave him his money back. Gittings looked over at the dude and told him to get a job. And then he did.
+
+And in fact, the man from Texas who's at the center of these photos is about to take a big step in his photographic career. And he's not an old guy either. In fact, he looked like a young kid when he came by this morning with his new, shiny Canon EOS M back camera.
+
+As he explained the camera to me, I knew it was the ultimate photographer's dream... a machine that works like a human eye. There's a small, but remarkable difference: When a person takes a photo of himself, there's no way to know how the image will turn out until the computer has processed it. But when something like this does all the work for you, people never know what they're going to see until it arrives.
+
+Like I said, the guy at the center of this shot's name is Scott. He's a photographer with his own site, ScottR.com, who specializes in portrait work. And the reason he's willing to do this sort of thing with a camera is that he thinks it might change the way

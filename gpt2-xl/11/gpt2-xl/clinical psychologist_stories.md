@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Dr. Ruth who helped find effective treatment for people struggling with their fears and phobias. I will go ahead and assume that she and her clients had never considered gender dysphoria to be a true fear, and that the idea of transitioning was alien to these people, and therefore they couldn't understand why they were uncomfortable with their bodies.
+
+Of course, that's how it goes with the trans community. Many may experience the term "transgender" as a way of describing a gender they're not comfortable with, but that doesn't make the dysphoria any less genuine: it's their bodies they're uncomfortable with, not the bodies of others.
+
+In fact, one of the first places I saw someone use this argument was an interview with a trans advocate and physician on the Today Show. I was immediately convinced the individual meant only to be referring to the feelings expressed by patients whose bodies didn't match their gender identity, so I quickly wrote a post about this mischaracterization and, later, linked to my story. Over time, though, I realized that I was making a very poor argument against gender dysphoria in general — I was arguing that people experiencing those feelings aren't actually "transgender" and actually experiencing gender dysphoria should be dismissed because it's "unjust."
+
+"Unjust!" howls the TransGriot in his rage. "Transgender oppression doesn't just go on in the shadows

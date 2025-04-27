@@ -1,0 +1,7 @@
+Once upon a time, there was a systems analyst named Steve that did penetration testing of software systems as part of his day job. He got a break one day, and used it to investigate a new threat in a new software application, a banking security application, called "Pricerino". As expected, he found vulnerabilities to access, and he reported them to their vendor; he did not disclose this vulnerability. He did, however, notify his co-workers and the security team and did not get a reprimand or a penalty from the security team because it was in line with the contract. Then one day the vulnerability was re-discovered in the new application, one more time by the same security team, and again by Steve, this time disclosing it.
+
+Instead of being in line with the terms of the contract Steve received a reprimand, and his supervisor, the chief information security officer, made his career end.
+
+The threat in question was as follows; "Pricerino will notify its user if the user enters a password, or the user is unable to access the page. An alert will be displayed to the user asking them to reset their password and if their password was reset a webmaster may have to do a manual authentication." In other words, users could be notified via their browser, instead of directly through their web browser, in order to take care of manual authentication.
+
+In this exploit, the attacker did NOT access the financial data. Nor

@@ -1,0 +1,7 @@
+In the heart of the bustling city, nestled between towering skyscrapers and narrow cobblestone alleys, stood the grandiose Hartwell Manor. Its stone facade, adorned with climbing ivy and intricate carvings, whispered tales of a bygone era. The manor was a beacon of history in a modern world, its windows casting a watchful gaze over the tree-lined avenue that framed its entrance.
+
+The air was brisk on this autumn morning, as golden leaves danced whimsically along the sidewalks. Inside, the scent of freshly polished wood mingled with the faint aroma of lavender, a signature touch of Hazel Montgomery, the manor's devoted housekeeper. Hazel, with her rich auburn hair pulled into a neat chignon and her crisp, navy uniform immaculate, moved through the grand foyer with practiced precision.
+
+Hazel Montgomery had been the heartbeat of Hartwell Manor for over a decade. Her days began before dawn, long before the city stirred to life. She took pride in maintaining the manor's storied elegance, ensuring every antique vase gleamed and each Persian rug was meticulously aligned. Her dedication was extraordinary, yet it was her warm presence that filled the halls, weaving a sense of home into the century-old mansion.
+
+As Hazel adjusted a vase of fresh hydrangeas in the sitting room, the sunlight poured through the floor-to-ceiling windows, casting a kaleidoscope of colors across the room. Today, she mused, felt like the kind of day where secrets long buried in the walls might come to light, where the whispered stories of the past were eager to be heard once more.

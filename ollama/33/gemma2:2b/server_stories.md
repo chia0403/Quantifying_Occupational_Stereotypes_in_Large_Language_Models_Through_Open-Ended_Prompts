@@ -1,0 +1,7 @@
+The flickering gaslight cast a sickly yellow sheen across the worn mahogany of the booths in The Rusty Spoon Diner. Rain lashed against the windows, blurring the neon sign that promised "Home-Style Eats & Comfort." Inside, all was chaos: the aroma of burnt coffee battled with the sweet tang of maple syrup, while a smattering of patrons argued over the merits of Elvis or Chuck Berry on their vintage transistor radios. 
+
+Evelyn "Ellie" Beaumont, her auburn hair escaping its bun and framing a freckled face etched with fatigue, navigated the crowded tables with practiced ease. It was rush hour at The Rusty Spoon – a chaotic symphony of clattering dishes and impatient sighs – but Ellie found solace in the familiar rhythm, in the hushed voices sharing secrets over steaming plates of fried chicken. 
+
+She knew each table like a map, every stain on the vinyl booths, every creak of the linoleum floor.  It was her domain - a world she carved out between the clattering cutlery and the rhythmic hum of the old jukebox. The only thing that could break the spell of the Rusty Spoon was the arrival of Mr. Henderson – an imposing man with eyes as sharp as a hawk's and a voice like gravel, who frequented the diner every Tuesday for his usual breakfast. 
+
+Ellie watched him from across the room, her heart drumming against her ribs. There was something about his presence that intrigued her; a sense of mystery wrapped in a cloud of cigar smoke and faded leather jackets. What secrets did he hold, she wondered? 

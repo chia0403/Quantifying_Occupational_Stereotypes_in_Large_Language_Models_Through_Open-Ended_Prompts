@@ -1,0 +1,7 @@
+Once upon a time, there was a coach named Andy Reid. Reid was a great football coach who coached his teams to six AFC Championship Games and two Super Bowl trips in nine seasons at the helm of the Kansas City Chiefs before moving on to Philadelphia. Reid did a great job of keeping the Chiefs winning while also instilling stability and consistency. His teams went to the playoffs three consecutive years, winning two divisional titles from 2002 to 2004 and three playoff games in eight years under Reid before moving to Kansas City.
+
+When Andy Reid retired and was replaced by Marty Schottenheimer, the Eagles started the year 5-5 and had the No. 6 overall draft pick, but lost five of six games after Reid resigned. On the flip side, Kansas City, which had acquired Reid's contract on the open market and promptly fired him, began the season 6-2 and went on to win its first Super Bowl.
+
+Schottenheimer took over after a 1-2 start, then won nine of his last 14 games to keep the Chiefs in playoff contention while the Eagles lost only eight games over the next eight years, winning three Super Bowls.
+
+Then, things changed for the Washington Redskins after the 2008 season. When Alex Gibbs was hired as the new Redskins coach, he immediately began changing the culture within the organization and changed the culture in the locker room. The results were astounding. The Washington Redskins went from a 2-14 record under Gibbs' first season to 4-12

@@ -1,0 +1,6 @@
+The scent of aged paper and leather clung to Amelia Beatrice Willow like a second skin. She inhaled it deeply, a comforting ritual before each day spent in the hushed sanctuary of the Blackwood Public Library. Sunlight slanted through stained-glass windows, painting the worn wooden floor with kaleidoscopic squares. Dust motes danced in the golden beams, illuminating the towering shelves that lined the walls, groaning under the weight of countless stories waiting to be discovered.  
+
+Amelia smoothed down her cardigan, a navy blue vintage piece adorned with tiny embroidered birds. She was a woman carved from quiet contemplation, her silver hair pulled back in a neat bun, her spectacles perched precariously on her nose as she adjusted them with a delicate finger. Her world revolved around the library's unspoken magic - the whispered secrets held within its pages, the connections forged between readers and stories, the solace found in ink-stained silence. 
+
+
+But today, the familiar hum of routine was shattered. A commotion echoed from the front desk, followed by a sharp gasp that sent a shiver down Amelia’s spine. This wasn't the usual flurry of misplaced Dewey numbers or overdue book notices. Something felt profoundly wrong. 

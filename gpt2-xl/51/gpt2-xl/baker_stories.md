@@ -1,0 +1,7 @@
+Once upon a time, there was a baker named Gavrilo Princip, who was a fan of the Serbian nationalist and anti-communist movements who had arisen in the years leading up to the Serbian civil war. He was also well-connected with the Vatican, which was attempting to mediate between the pro-Serbian government of the Serbian people in the early 1990s and the pro-independence Serb groups, whom many on the world stage regarded as Serbian agents.
+
+Princip had a theory — and a book — that if Serbia remained in the United Kingdom, and if it were to take part in the new Balkan Federation that the U.K. and France were negotiating, in which the U.K. would gain control of the entire region while Belgrade would gain independence, then Yugoslavia would break apart in two. The Serbian nationalist leaders — and, in fact, the whole U.K. government — were in agreement, but were too weak to put their plan into action. As Princip put it, "We don't want that."
+
+Gavrilo Princip in his prison cell in The Hague: His name was linked to the murder of King Franz Ferdinand of Yugoslavia. The Serbian nationalist leader was eventually executed for inciting hatred against a foreign ruler. (Courtesy of the Serbian Cultural Heritage Foundation in Belgrade)
+
+The assassination of Franz Ferdinand shocked the West, and the Serbs, who had become the undisputed masters of the region

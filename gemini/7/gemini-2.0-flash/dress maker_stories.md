@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting with a dressmaker main character:
+
+**Setting:** A small, sun-drenched village called Bellarosa, nestled in the Italian countryside, circa 1958. Bellarosa was a place where life moved at the rhythm of the olive harvest and the church bells. Whitewashed houses clustered around the central piazza, their window boxes overflowing with vibrant geraniums. The air was thick with the scent of rosemary, baking bread, and the distant tang of the sea. The days were long and hot, the evenings cool and filled with the murmur of families gathered on their stoops.
+
+**Opening:**
+
+The late afternoon sun streamed through the lace-curtained window of Signorina Gianna Emilia Rossi's atelier, illuminating dust motes dancing in the air like tiny, restless spirits. Gianna, her dark hair pulled back into a practical bun, squinted at the intricate embroidery she was adding to the bodice of a wedding gown. Her needle, a well-worn silver heirloom, moved with a practiced grace, stitching tiny, perfect roses onto the shimmering silk. Today was a day of both great anticipation, and great dread.
+
+Outside, the familiar sounds of Bellarosa hummed – the chattering of women haggling at the market, the distant rumble of a tractor, the playful shouts of children. But within the walls of her atelier, a quiet tension hung in the air, as thick and heavy as the rolls of velvet lining her shelves. For tomorrow, Isabella Bellini, the daughter of the richest family in Bellarosa, would finally wear the dress that Gianna had poured her heart and soul into. The success of this single dress could secure Gianna's reputation, and finally bring her the fame and fortune she had always dreamed of. But something felt off. Something was missing. And Gianna Emilia Rossi had a sinking feeling that the roses on this dress would soon become thorns.

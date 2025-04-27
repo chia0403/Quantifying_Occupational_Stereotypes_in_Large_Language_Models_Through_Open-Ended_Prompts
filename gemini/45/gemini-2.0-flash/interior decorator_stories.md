@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting featuring an interior decorator named:
+
+**Main Character:** Genevieve "Gen" Amelia Sterling
+
+**Setting:** A sprawling, sun-drenched villa nestled in the hills overlooking the Mediterranean Sea, specifically just outside of Florence, Italy. The villa, named "Villa Serenissima," is a sprawling, centuries-old structure currently undergoing extensive renovations. It boasts terracotta roofs, faded frescoes peeking from beneath scaffolding, and a wild, overgrown garden fighting its way back to life. The current year is 2024.
+
+**Opening:**
+
+Genevieve Amelia Sterling, dust motes dancing in the afternoon light around her head like tiny, rebellious sprites, squinted at the faded grandeur of the Villa Serenissima's ballroom. The room, currently stripped to its bare bones, echoed with the ghostly whispers of waltzes and whispered secrets from centuries past.  "Good heavens," she muttered, the Italian phrase "Mamma Mia" hovering on her lips, but replaced with the more appropriate internal monologue of a professional battling a minor existential crisis. "This is going to take a miracle, and possibly a small fortune in Carrara marble."
+
+She ran a gloved hand along the crumbling stucco wall, the texture rough and unforgiving beneath her touch. The air hung thick with the scent of damp plaster, old wood, and a hint of something floral struggling to survive from the overgrown garden outside. Just three weeks ago, Gen had been sketching minimalist apartments in Brooklyn, drinking overpriced lattes and fielding calls from demanding clients who couldn't decide between beige and off-white. Now, she was standing in a room the size of her entire apartment complex, tasked with transforming a crumbling Italian relic into a modern oasis of understated luxury for a notoriously private (and reportedly eccentric) tech mogul named Alessandro Rossi.  The pressure was immense, the stakes were high, and Gen, despite her carefully cultivated air of unflappable confidence, was starting to feel a distinct tremor of panic in her silk-clad stomach.  This wasn't just interior design; it was architectural resurrection, cultural preservation, and a potential career-maker, all rolled into one sun-baked, dust-choked package.

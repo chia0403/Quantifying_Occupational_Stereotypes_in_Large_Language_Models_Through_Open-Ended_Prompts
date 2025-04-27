@@ -1,0 +1,7 @@
+Once upon a time, there was a stone cutter named Harry Duggle. Harry, being a well-decorated war hero and all-around badass, was the best choice to be chief stone cutter of the Dursleys. The entire Dursleys were pretty screwed up and he had come to their rescue during many of their previous break-ins, so he had a good reputation with the muggle world and the Dursleys knew him as a guy who could help them if they ever needed help. I bet there were a lot of stories about his career and how he was never really in a bad place, but they all ended with him either being killed or in jail. The worst of them were about some guy he had a crush on named Harriet.
+
+
+Harry was out in his neighborhood one day for a routine stone cutting job when he heard someone break in. When he went over to help, he found a kid in the basement going through a stack of old family photos and other such items to see if there was anything that looked like a picture of his beloved Harriet. The photo was what had gotten him into trouble in the first place, and the child named Harry told Harry that he wanted to give the photo to his mom. This brought up a whole new set of problems.
+
+
+Harriet was still in school, so Harry couldn't just go and ask her. It didn't have to be too complicated, though. He could just tell Harriet that the kid wasn

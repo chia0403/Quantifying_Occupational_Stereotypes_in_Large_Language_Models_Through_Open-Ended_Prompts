@@ -1,0 +1,7 @@
+Once upon a time, there was a pilot named Captain Edward "Ted" Cruz, who, despite the fact that he had spent over a decade as U.S. Senator from Texas, had to fight hard for the Senate seat he wanted. Despite the fact that he was a conservative Republican – a fact that was never in question, even when he was a candidate for election – his opponents claimed that he was not conservative, but a liberal. While he was a member of the Freedom Caucus, which was an outlying group of conservatives who had different views with others in the GOP on the legislation in front of them, it was not a small group, so Cruz's decision to leave the organization and caucus was no small thing.
+
+However, even after his departure from the Freedom Caucus, Cruz was still the first and only Republican to be nominated by the party to run for president. By far, Ted Cruz is considered to be the most conservative candidate to run for president since Barry Goldwater in 1964, and that's something that the Republican party really did not like in the party since Goldwater. With the support of the Freedom Caucus and other conservative groups, Cruz defeated the first establishment run on the Republican ballot since 1964, and won the nomination with 65% of the vote.
+
+But what was the first step to making Cruz the right guy for the GOP presidential nomination, which was not the first step by any means, but certainly a huge step?
+
+One of the first things

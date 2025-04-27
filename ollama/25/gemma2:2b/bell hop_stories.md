@@ -1,0 +1,5 @@
+The air hung thick with the scent of lavender soap and despair in the Grand Hotel's lobby.  Rain hammered against the arched windows, each drop echoing like a hammer blow on Edgar Bellington's soul. He stood at attention, his crisp uniform feeling more like a straitjacket than a symbol of service. 
+
+Edgar was anything but stiffly formal today. The weight of three hundred pounds and a million missed opportunities had made him seem twice the size.  He'd been here for four years, ever since he graduated from a prestigious (yet hopelessly outdated) bellhop school in Chicago.  The Grand Hotel, with its gilded facade and whispers of lost grandeur, was his life, his dream, his last resort. 
+
+His name on a faded brass tag felt like a curse. It wasn't Edgar Bellington. It was just Edgar, forgotten, insignificant amidst the opulent chaos he worked to maintain. A lone figure in a sea of polished mahogany and fading silk. The world beyond the towering marble pillars seemed miles away, but tonight, it whispered promises. Tonight, under the storm-tossed sky, Edgar dared to imagine something more.  Something… real. 

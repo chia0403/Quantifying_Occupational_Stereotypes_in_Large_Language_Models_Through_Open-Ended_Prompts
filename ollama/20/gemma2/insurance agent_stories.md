@@ -1,0 +1,6 @@
+The humid Florida air hung thick as molasses, clinging to Amelia Beatrice Cartwright like a second skin. Sweat beaded on her forehead despite the flimsy canvas awning offering scant shade above her. She tapped a manicured fingernail against her notepad, the rhythmic click echoing in the near-empty street. Amelia was used to working alone, but this day felt different, heavier somehow. Maybe it was the relentless heat, or perhaps the lingering scent of ozone after yesterday's thunderstorm that left the air charged with an unsettling stillness. 
+
+Amelia adjusted the strap of her worn leather purse and stared down at the faded address scrawled on the note in her hand: 13 Oakhaven Lane. A shiver ran down her spine, unrelated to the heat. The handwriting was unfamiliar, spidery and frantic. It wasn't the usual neat script of her clients, and a prickling sense of unease settled in Amelia's stomach. Today's meeting wouldn't be about standard homeowners insurance; this felt like something else entirely. 
+
+
+This story is set in a small coastal town somewhere along the Gulf Coast of Florida. Think crumbling Victorian homes nestled between palm trees, the constant whisper of sea breezes, and a pervasive sense of simmering secrets beneath the sunny facade.

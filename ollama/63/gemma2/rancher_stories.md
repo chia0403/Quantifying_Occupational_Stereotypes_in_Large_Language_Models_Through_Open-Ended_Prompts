@@ -1,0 +1,4 @@
+The wind whipped across the plains, carrying with it the scent of sagebrush and dust. The sun, a relentless ball of fire in a sky the color of bruised plums, beat down on Silas Jericho’s weathered shoulders as he surveyed his herd.  His boots kicked up tiny clouds of dirt with each step he took, traversing the parched land of his family's ranch, Jericho Spur. For generations, the Jerichos had wrestled with this unforgiving landscape, coaxing life from the red earth and raising cattle that grazed under the ever-watchful eye of the Texas sky.  Silas, a man hardened by years under the sun and solitude, felt the familiar tug in his chest – the love for the land, the responsibility it held, and the deep-seated loneliness that came with it.
+
+
+Today, though, something felt different. The air hummed with an unseen tension, a disquiet that settled like a shroud over the sprawling ranch. 

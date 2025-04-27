@@ -1,0 +1,6 @@
+The dust hung heavy in the air, thick with the scent of granite and sweat. Each inhale felt like grinding sandstone against Amelia Thistlewood's lungs, a familiar sensation she wouldn't trade for anything. Sunlight, filtered through the grime-coated windows of her workshop, cast long shadows across the room, illuminating the half-finished sculpture she was working on – a majestic lion, its mane crafted from swirling slabs of rose quartz. 
+
+Amelia Thistlewood, with calloused hands and eyes as sharp as the tools she wielded, surveyed the piece critically. The lion's form was taking shape, imbued with a fierce dignity that spoke to the power hidden within every stone she touched.  Outside, the bustling marketplace of Veridian City echoed with the cries of vendors and the clang of blacksmiths' hammers, but here, in her sanctuary of stone, Amelia found peace. 
+
+
+But today, a different kind of pressure weighed on Amelia. A commission from the Grand Duke himself – a life-sized statue of his departed queen, carved from a single block of emerald that was rumored to hold ancient magic – rested unfinished on a pedestal at the back of her workshop. It was a task that could make or break her career, and Amelia knew she couldn't afford to fail. 

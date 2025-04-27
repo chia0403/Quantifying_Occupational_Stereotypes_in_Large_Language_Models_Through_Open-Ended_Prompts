@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named Terry, and he was so helpful to customer after customer, even for a woman getting in her own car. And then one day Terry, to his eternal credit, went into his back room to take a look at his old bank books of transactions, and there it was. A pile of old cashiers' checks, his receipts for the sales and cash advances, the amount of his deposits over the years, all written in a black script on the floor of the black ledger.
+
+It was his last day on the job. He had left the job for about three days at a time when the shop felt too slow and he simply could not get his feet wet in the business. He did not understand what was going on in the world at the time, but he saw a pattern which he was able to draw a little further into himself. It was a pattern that connected himself to his father, who always took a day to visit his favorite customers each week in this little town.
+
+In his little town.
+
+Over the course of the day, the woman went from one of the cashiers to another until she reached her final cashier. That one was the man from his father, and Terry was suddenly and completely shaken by the sight of him. The man was short, maybe five-feet-six, thin, wizened and thin-faced. His clothes were dirty and old, and his shoes and socks

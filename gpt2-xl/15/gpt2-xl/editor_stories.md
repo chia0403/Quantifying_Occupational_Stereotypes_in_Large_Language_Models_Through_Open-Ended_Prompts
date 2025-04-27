@@ -1,0 +1,7 @@
+Once upon a time, there was a editor named Jameson O'Neill, formerly of the New York Times, and a freelance journalist named Jon Landau. O'Neill had just finished a book called The Age of Innocence. To get the book published, he spent some years as a foreign correspondent and wrote a lot of his stories on foreign soil. During this period, Landau interviewed some of O'Neill's sources, and they both began speaking the same language: the English language. Landau read O'Neill's stories in this new language and was amazed to find that they looked just like old newspaper articles. Not in the least, did they read like the same old newspaper articles. It couldn't be! The editor, who happened to be Jameson O'Neill's widow, had her suspicions, and sent a colleague to an address to investigate. That colleague brought back some old newspapers with the most fantastic news stories, but they were in a foreign language!
+
+You've probably read plenty of old newspaper reports at this point; at this point, you've probably even read some of the foreign language ones. What happens when you combine the two styles? What the heck are newspaper reporters doing in Paris? How to tell them apart? When did they come here? This is what I call Newswipe Journalism.
+
+Newswipe Journalism
+
+Newswipe Journalism is a phenomenon that has taken hold over the last 10 years. In terms of a broad

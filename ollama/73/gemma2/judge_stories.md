@@ -1,0 +1,6 @@
+The humid Miami air clung to Judge Amelia Castillo like a second skin as she stepped onto the sun-drenched courthouse balcony. The turquoise waters of Biscayne Bay glittered in the morning light, a stark contrast to the grim faces lining up inside the building. She inhaled deeply, trying to savor the salty tang before facing another day of dispensing justice, or at least attempting to.
+
+The sounds of the city – the honking taxis, the distant thrum of construction, and the rhythmic pulse of salsa music filtering from a nearby cafe – formed a cacophony that usually faded into background noise for Amelia. But today, they seemed amplified, mirroring the anxiety churning within her. This wasn't just another day in court; this was the trial of Gabriel Santos, a local businessman accused of fraud, and the stakes were higher than usual. 
+
+
+Amelia knew Gabriel personally – his father had been a mentor to her late grandfather – making this case a personal minefield. Could she remain impartial? Or would the weight of their shared history cloud her judgment? As she straightened her black robe and prepared to enter the courtroom, Amelia couldn't shake the feeling that this trial was about to become something more than just another legal battle. It felt like the beginning of a storm, one that threatened to tear apart everything she held dear.  

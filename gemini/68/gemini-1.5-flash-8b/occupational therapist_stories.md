@@ -1,0 +1,4 @@
+The chipped Formica countertop gleamed under the harsh fluorescent lights of the occupational therapy clinic.  Rain hammered against the windows of the small, third-floor office, a relentless rhythm that mirrored the pounding headache thrumming in Amelia Petrova’s temples.  Amelia, a meticulous occupational therapist with a perpetually organized mind, felt utterly discombobulated.  The meticulously planned schedule, the color-coded charts, the carefully calibrated exercises – all were rendered useless in the face of this one, infuriating patient.
+
+
+Setting: A small, third-floor occupational therapy clinic in a bustling, urban hospital complex.  The office itself felt cramped and sterile, a stark contrast to the vibrant city outside.  The rain, a constant backdrop to Amelia's day, emphasized the feeling of being trapped within the four walls of her professional life.

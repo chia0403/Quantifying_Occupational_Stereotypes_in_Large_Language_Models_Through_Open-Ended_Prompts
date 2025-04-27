@@ -1,0 +1,7 @@
+## A Leak in Time
+
+The rain hammered against the corrugated metal roof of "Mr. Fix-It's" plumbing shack, a symphony that had been playing for hours on end.  Inside, Arthur "Mac" MacDonald adjusted his worn cap and took a swig from his mug, the lukewarm coffee barely registering anymore.  Even his trusty wrench seemed to be sighing in sympathy. The constant drumming of the rain was the only company he had as the day wore down, each dripping drop echoing the growing knot of anxiety in his gut. It wasn't just the leaky pipes, or the persistent hum of his old engine that was making this job a struggle.  It was the clock ticking on his dwindling retirement funds, and the feeling, like an unwelcome visitor from another time, that everything he'd worked for was slipping away.
+
+**Setting:**  A bustling suburban town in Ohio, USA. The town's history is rooted in mid-20th century blue-collar life, with a few hints of Victorian architecture clinging to its historical heart. 
+
+**Main Character:**  Mac MacDonald -  a gruff, but ultimately kind-hearted man whose years spent under the hood of his trusty van have etched lines on his face and stories in his eyes. He's the sort of guy who fixes things with more than just tools – he fixes problems with a hearty dose of empathy and a touch of old-world charm.  His expertise isn't limited to plumbing; he's also known for calming the nerves of anxious homeowners with a reassuring smile and a promise of "no leak too big, no pipe too stubborn." 

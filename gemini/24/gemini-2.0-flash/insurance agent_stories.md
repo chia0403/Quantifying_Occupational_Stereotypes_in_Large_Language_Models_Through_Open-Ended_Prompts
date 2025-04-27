@@ -1,0 +1,5 @@
+The air in New Orleans hung thick and heavy, the scent of damp earth and jasmine clinging to everything like Spanish moss to ancient oaks. Even inside the sterile, beige confines of "Secure Tomorrow Insurance," the humidity seemed to seep in, a tangible reminder that you were never truly separate from the swampy city outside.
+
+For Magnolia "Maggie" Devereux, battling the climate was a daily struggle. She was perpetually armed with a small, battery-operated fan that she strategically aimed at her forehead, battling the insistent sheen that threatened to ruin her expertly applied lipstick. Not that it mattered much. Today, she was battling more than just the weather.
+
+"Another claim denied," she muttered, the words barely audible above the whirring of her tiny fan. The claim file, thick and dog-eared, rested heavily in her lap. It concerned Mrs. Eloise Dubois and the unfortunate incident involving a rogue alligator and a prized collection of ceramic garden gnomes. Maggie had been over the file for hours, searching for any loophole, any reason to approve it. But the small print, as it so often did, had won.

@@ -1,0 +1,6 @@
+The scent of stale coffee and desperation clung to Amelia Beatrice Price like a second skin. It was 8:47 am, which meant exactly three minutes until Mr. Fitzwilliam, owner and sole inhabitant of the dusty antique shop "Yesterday's Treasures," would descend from his cluttered upstairs office with the day's receipts – a jumbled mess of sales slips, pawn tickets, and handwritten notes scrawled on napkins. Amelia, the bookkeeper, braced herself for the inevitable. 
+
+The shop itself was a labyrinth of forgotten objects: chipped china teacups whispering tales of bygone dinners, ornate gramophones frozen in mid-melody, and clocks perpetually stuck at half-past, their hands forever chasing a lost moment. Sunlight streamed through grimy windows, illuminating motes of dust dancing in the stagnant air, casting long shadows across the cluttered shelves crammed with treasures both valuable and utterly bizarre. 
+
+
+Amelia sat hunched over her worn desk, its surface covered in an ever-growing mountain of receipts. Her glasses perched precariously on the bridge of her nose, magnifying the worry lines etched around her eyes.  The antique shop's accounts were a tangled web she desperately tried to untangle, each misplaced receipt a knot tightening around her chest. 

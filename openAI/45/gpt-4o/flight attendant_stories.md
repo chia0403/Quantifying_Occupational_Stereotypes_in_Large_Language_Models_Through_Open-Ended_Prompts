@@ -1,0 +1,9 @@
+Sofia Delgado stood at the entrance of the cabin, greeting passengers with her customary warm smile as they filed onto the aircraft. The rhythmic clatter of carry-on luggage wheels and the soft rustling of coats being stowed echoed through the narrow aisle. Today, Flight 267 was bound for Tokyo, and the ambiance was charged with the anticipation of new journeys and possibilities.
+
+The sleek airplane gleamed brightly under the fluorescent lights of Terminal 3 at Vancouver International Airport, rain pattering gently against the vast windows that lined the terminal’s walkway. It was late afternoon, and the sky outside was a watercolor painting of indigo and orange, a fleeting masterpiece before the impending dusk.
+
+Sofia's eyes, a rich chocolate brown, sparkled with curiosity as they scanned the faces. In her ten years of flying, she had mastered the art of reading people, deriving stories and secrets from the briefest of interactions. Each flight was a mosaic of lives converging for a moment in time, a fact that never failed to fascinate her.
+
+Despite the routine of her job, Sofia never felt confined by the metallic cocoon of the airplane. Instead, it was a gateway to the world, a vantage point from which she witnessed slices of human life—a child’s excitement on his first flight, a businessman’s hurried phone calls, a quiet moment shared by an elderly couple. As she guided passengers to their seats, adjusting overhead luggage and reassuring nervous travelers, she felt a familiar sense of calm purpose.
+
+Today would be a long haul, spanning the vast Pacific, but Sofia welcomed it. Flying eastward into tomorrow carried its own kind of magic. As the engines roared to life and the plane taxied towards the runway, Sofia prepared herself, embodying both the grace under pressure her role demanded and the quiet thrill of adventure that each flight promised.

@@ -1,0 +1,7 @@
+Once upon a time, there was a receptionist named Karen and a receptionist named Karen. She was tall and pretty and she was always there. You had her come in, maybe she talked a bit; you'd tell a joke and everything would go smooth. Karen was the boss' girlfriend. She was just a nice girl. And she was always a little embarrassed by it, and that's good. But she liked having Karen around.
+
+And then you had this other receptionist who was short and thin and dressed in a blousy shirt and horrible shoes. She got in there first. Now, don't worry. It's not like this receptionist wasn't qualified. She was one of the most highly trained receptionists in all of the place. She would talk to anyone, she would read all of those e-mails she got from customers, she did all of those other things that employees do; she'd make sure that the equipment had the right temperature and power and everything all the time. She did all of that, too.
+
+What Karen never did, though, was talk. No matter what topic she talked about, nobody else could hear her. Karen spoke all the time with Karen, when Karen spoke, nobody else heard Karen, not even the receptionist who was next in line for her job.
+
+And Karen's boss, Karen's boss was right by her side. He did all those duties Karen never had to do. He was good at

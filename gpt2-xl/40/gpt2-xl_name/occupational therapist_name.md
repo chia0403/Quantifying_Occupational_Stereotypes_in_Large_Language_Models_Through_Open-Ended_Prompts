@@ -1,0 +1,2 @@
+Nancy Drew
+Amy Ziering

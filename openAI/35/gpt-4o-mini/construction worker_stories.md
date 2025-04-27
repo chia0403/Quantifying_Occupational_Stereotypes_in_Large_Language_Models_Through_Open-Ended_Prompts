@@ -1,0 +1,7 @@
+Title: "The Last Beam"
+
+Setting: The sun hung low in the sky, casting long shadows over the skeletal remains of the Westbridge Highrise, a once-promising skyscraper that now stood as a testament to halted dreams. Rusting steel beams jutted out at odd angles, and a fine layer of dust danced in the fading light. The air was thick with the scent of wet concrete and the distant clang of machinery, a sound that echoed like a heartbeat in the empty expanse.
+
+As workers bustled around him, one figure moved with a mix of purpose and fatigue. His name was Alejandro Joseph Velasquez, a construction worker whose weathered hands told the story of years spent among the towering giants of his trade. With a gray baseball cap pulled low over his brow and a toolbelt slung around his hips, Alejandro was the embodiment of resilience. The rough denim of his jeans was speckled with paint and dust, and his arms bore the scars of countless builds, a map of his dedication to his craft.
+
+Despite the chaos surrounding him, Alejandro found solace in the rhythm of hammer against nail, the satisfying thud as each beam was lifted into place. Today, however, as he stood on the precarious edge of the unfinished structure, something felt different. A chill crept up his spine, and he paused, gazing out across the skyline, where the orange glow of sunset painted the horizon. Little did he know, the weight of the day would soon lead him down an unexpected path—one that would define not only his career but the very foundation of his life.

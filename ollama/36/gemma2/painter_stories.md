@@ -1,0 +1,4 @@
+The salt-laced wind whipped Amelia Rose Hawthorne’s crimson hair around her face, stinging her cheeks with icy droplets from the churning Atlantic. She tightened her grip on the easel, its sturdy wooden legs groaning against the uneven ground of the craggy clifftop. Below, the waves crashed against the jagged rocks, their white foam a fleeting counterpoint to the brooding grey sky. Amelia, however, was oblivious to the tempest brewing around her. Her world existed within the canvas before her, a palette of vibrant greens and blues swirling on the surface, capturing the wild beauty of the storm-lashed coastline that had become her sanctuary. 
+
+
+Amelia had come to this remote corner of Ireland seeking solace, escaping the stifling expectations of London's art scene and the suffocating weight of her family name. Here, amidst the crashing waves and windswept cliffs, she could be simply Amelia, a painter searching for truth in the raw beauty of nature. 

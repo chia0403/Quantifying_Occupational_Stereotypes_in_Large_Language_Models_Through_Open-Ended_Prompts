@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The high-pitched whine was back. Amelia Corvus sighed, a puff of condensation misting in the frigid air. Not the good kind of whine, the kind that meant a perfectly tuned circuit singing its song, but the kind that suggested something was about to fry. Her gloved fingers danced across the worn dials of the aging vacuum tube radio, trying to isolate the source. The rhythmic flicker of the gas lamp above her cast elongated shadows that danced with her movements, making the cramped space feel even more claustrophobic. Outside, the howling wind battered against the stone walls of the lighthouse, a symphony of despair that echoed the growing knot of frustration in Amelia's stomach. Another night, another mystery. She just hoped this time, she could fix it before the storm took everything, including her sanity.
+
+**Setting:**
+
+The story is set in the year 1938 on the remote, wind-lashed island of Blackwood Rock, several miles off the coast of Maine. The island is dominated by a towering, weathered granite lighthouse, built in the mid-19th century. The lighthouse interior is a stark contrast to the untamed beauty of the surrounding landscape. The lower levels are damp and cold, smelling of salt and mildew. Amelia's workspace, a converted storage room just below the lamp room, is crammed with vintage radio equipment: oscilloscopes with glowing green screens, breadboards littered with tangled wires, and stacks of dusty schematics. The walls are lined with shelves overflowing with vacuum tubes, resistors, and other components, a testament to Amelia's dedication and resourcefulness. The only source of light, aside from the flickering gas lamp, comes from the intermittent flashes of the lighthouse beam, which paint fleeting, ethereal patterns on the walls. The constant drone of the foghorn, a low, mournful bellow, serves as a constant reminder of their isolation and vulnerability.

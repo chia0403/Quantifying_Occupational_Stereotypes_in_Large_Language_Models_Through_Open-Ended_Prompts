@@ -1,0 +1,7 @@
+Once upon a time, there was a architect named Thomas Henry Huxley. He was the son of an architect. And he thought he knew everything in the world. He said, "If you say, 'If you build it, they will come!' I'll be an architect!"
+
+Well, he didn't say it out loud; he said it inside his very head. And he figured we shouldn't do that because all of a sudden we had to build a bunch more houses. "And they'll come!" he said to himself, "and we'll have to wait twenty years and build more houses!" And we did wait. And we bought a bunch of houses and built them. And they didn't come. When we built houses, there were no architects. We built them for ourselves. And we paid someone else to build them. There's no way.
+
+Today I would say, "Build that damn house." Because if you don't, if you don't go out and spend as much as you can right off the bat, it's never going to happen. It's like building a house. If you build a house, you know, it may look nice, it may sound neat. But unless you want to spend all your money building a house, the house's never going to be there in the end.
+
+When your first business fails, it's very hard to take anything positive out of it. It's probably the only thing in your

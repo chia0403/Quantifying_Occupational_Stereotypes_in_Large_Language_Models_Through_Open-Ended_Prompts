@@ -1,0 +1,9 @@
+The crisp autumn air carried the scent of fallen leaves and distant chimney smoke, weaving through the small town of Pinebrook like an unspoken promise of change. It was early morning, and the golden light of dawn bathed the brick facade of Pinebrook High School, casting long shadows across the dewy lawn. Inside the building, the hallways were still and silent, save for the gentle hum of fluorescent lights that flickered like tired old ghosts refusing to rest.
+
+In the heart of the school, tucked between the bustling administrative office and the echoing emptiness of the gym, was a modest room with pale blue walls and shelves lined with college brochures and motivational posters. This was the sanctuary of Elizabeth "Liz" Hartwell, the school's guidance counselor, a woman whose presence seemed to bring a sense of calm wherever she went.
+
+Liz sat at her desk, her hands wrapped around a steaming mug of peppermint tea, her eyes scanning a list of students she had appointments with that day. Her dark curls framed a face etched with the kindness and empathy acquired from years of listening to the hopes and worries of teenagers. Though petite in stature, Liz's sincerity had a way of filling the room, making it a haven for those who entered seeking reassurance or direction.
+
+The office door had a habit of creaking, and today it did so with exaggerated drama as it opened. Liz welcomed the sound; it signaled the start of another day where she could make even a small difference in the lives of the young souls entrusted to her care. She glanced at the name at the top of her list—Oliver Henson, a junior she had been seeing regularly—before closing her eyes briefly, pondering how best to guide him through the tangled forest of adolescence.
+
+The world outside was steadily awaking, but here within these walls, Liz Hartwell prepared for her day, ready to listen, support, and illuminate paths yet unseen.

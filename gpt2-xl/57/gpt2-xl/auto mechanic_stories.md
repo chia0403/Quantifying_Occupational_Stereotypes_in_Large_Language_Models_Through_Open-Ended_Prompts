@@ -1,0 +1,7 @@
+Once upon a time, there was a auto mechanic named "Dr. Doom". He was a genius inventor. The Doctor's parents were dead, and the Doctor believed that his father's inventions were responsible. One day, a car accident killed his parents. The Doctor had become his father's assistant, and was learning his father's secrets. The doctor also discovered his mother's diary, where he found that his father was an evil genius who created monsters for his experiments. The Doctor vowed never to reveal this part of his true identity to his father. Years later, Doctor Doom stole the Time Lord's TARDIS, and was searching for a perfect body to inhabit. In his quest to find that perfect body, he kidnapped the TARDIS' crew and took them to Latveria. In order to acquire the Doctor's body, the Doctor was forced into a battle with the Latverian army. When a soldier told the Doctor that Dr. Doom had his TARDIS with him, the Doctor realized that he must stop Doom.
+
+He went against his will and saved the army and Doom, thus stopping him. The Doctor then took Doom's TARDIS, but did not give him the body.
+
+Travelling with the Doctor
+
+Eventually, Doctor Doom returned to Earth. Since they had left Latveria, the Doctor and Ace had returned to Earth. As soon as the Doctor and Ace got back to the TARDIS, they found out that Doom had re-captured

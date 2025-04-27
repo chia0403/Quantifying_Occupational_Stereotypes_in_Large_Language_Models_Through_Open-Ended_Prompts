@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named Mungo Park who was a student of Robert Hooke (the man who coined the term "inverse square law").
+
+Pleasantly surprised by the discovery of some new plant materials, he sought out the help of a friend John Dalton, one of nature's most respected biologists. The two men went off to London, learned about the work of the physiologist William Thomson (who had discovered the laws of thermodynamics), and began their own studies of the life-giving properties of plants.
+
+In 1768, Newton wrote to Dalton asking him how far he knew about the growth and reproduction of plants:
+
+I have already written to you on the subject, & find, that, according to the laws of the sun, the vegetation of that country, in its season, must be as the growth of a plant in a warm weather; it is just the same when in Autumn as in Summer. For this reason, it is that in our Garden, which has the greatest space of grass to spare, we have found that plants, instead of producing their leaves (or buds) in two weeks, actually produce their leaves, without any kind of seed, before a great deal of snow, with a great heat; their fruit is produced in the following manner. When the frost comes, they produce their fruit as well as their leaves; but it is never, I think, more than once in ten

@@ -1,0 +1,11 @@
+**Title: Earth Movers**
+
+**Setting:** The small, dust-choked town of Shale Ridge, nestled at the foot of the rugged Graystone Mountains, is a blend of old-world charm and industrial grit. Once a thriving mining town, Shale Ridge has recently pivoted to focus on heavy equipment operations, drawing in workers from surrounding areas who seek both adventure and a fresh start. The echo of clanging metal, the roar of engines, and the hum of power tools fill the air—all mixing with the warm scent of earth and diesel.
+
+**Story Opening:**
+
+As dawn broke over the jagged skyline of the Graystone Mountains, a pale orange glow spilled into the cramped cab of a Komatsu 350 excavator. The rhythmic shudder of the engine reverberated through Paul Edwin Jenkins’ chest like some mechanical heartbeat, steady and reassuring in the stillness of early morning. Paul adjusted his hard hat, the familiar weight providing a sense of comfort against the cool air as he scanned the vast stretch of land before him—a half-finished site for a new commercial development that dared to promise economic rebirth for Shale Ridge.
+
+At thirty-six, Paul was a seasoned heavy equipment operator, his hands calloused and strong from years of handling machines that could snap a tree trunk like a twig. He had come to Shale Ridge seeking a clean slate, a way to escape the ghosts of his past that lurked like shadows behind him. With a fierce determination, he had put his skills to work, digging into the earth not just to make a living, but to carve out a new life, one scoop of gravel at a time.
+
+Today, as he prepared for another long day, Paul couldn’t shake the anticipation that coursed through him. There was something different about this project—something that whispered promises of change. He tightened his grip around the worn steel levers, ready to orchestrate the dance of raw power, unaware that this day would uncover more than just layers of soil; it would unearth buried secrets that had long lain hidden beneath the rubble of Shale Ridge.

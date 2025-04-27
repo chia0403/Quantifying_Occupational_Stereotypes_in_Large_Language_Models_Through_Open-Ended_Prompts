@@ -1,0 +1,6 @@
+The flickering fluorescent lights hummed above Amelia Beatrice Finch, casting a sickly yellow pallor over her keyboard.  She squinted at the lines of code scrolling across the screen, each one a tiny puzzle piece in the gargantuan jigsaw of the Global Network Security Protocol, affectionately known as "GNSP" by those brave enough to delve into its labyrinthine depths. Amelia was one of them.
+
+Amelia’s office, cubicle 37B, nestled deep within the sprawling basement of CyberSolutions Inc., felt more like a tomb than a workplace. The air hung thick with the scent of stale coffee and unfulfilled dreams, punctuated only by the incessant whirring of cooling fans and the rhythmic click-clack of keyboards. Outside, the cityscape of Neo-Tokyo shimmered under a perpetual twilight sky, a stark contrast to the sterile, dimly lit world Amelia inhabited. She was surrounded by her colleagues - ghosts hunched over their terminals, each lost in their own digital battlegrounds. 
+
+
+But tonight, Amelia wasn’t fighting a virus or patching a vulnerability. Tonight, something felt different. A tremor of unease ran through the system, a ripple in the normally predictable flow of data. It was subtle, almost imperceptible, but enough to prickle her antennae – she knew something was wrong.  Very wrong. 

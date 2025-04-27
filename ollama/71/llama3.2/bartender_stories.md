@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the small town of Willow Creek, California, Emilia Rose Thompson polished a glass with a white apron wrapped around her waist, surveying the quiet evening crowd at McGillicuddy's Pub. The neon sign outside cast a gaudy glow over the dimly lit interior, where patrons huddled in booths and at the bar, nursing beers and sharing stories of their lives.
+
+The hum of the jukebox provided a soothing background noise, while Emilia's own thoughts wandered to the long day she'd just endured behind the bar. It had been a typical Wednesday for McGillicuddy's: the usual assortment of regulars, the occasional tourist looking for a taste of small-town life, and a few locals who had stopped by after work or school.
+
+As the door swung open, letting in a gust of cool evening air, Emilia's gaze met that of her boss, Sal, a gruff but kind-hearted man who owned the pub with his wife. His eyes crinkled at the corners as he nodded in approval. "Good job, Em," he said, his voice low and gravelly. "You're running things smoothly."
+
+Emilia smiled, feeling a sense of satisfaction wash over her. She had worked hard to earn Sal's respect, and it was moments like these that made all the late nights and early mornings worth it. But as she turned back to the bar, her eyes caught sight of something out of the corner of her eye – a stranger, standing by the window, nursing a whiskey on the rocks.

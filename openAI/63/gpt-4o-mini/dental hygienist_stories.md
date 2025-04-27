@@ -1,0 +1,7 @@
+Title: "Beneath the Surface"
+
+The early morning sun poured through the large bay windows of Crestview Dental Clinic, casting a warm, golden glow across the pristine, white-tiled floor. The scent of fresh mint lingered in the air, mingling with the faint aroma of disinfectant, creating a bizarrely comforting atmosphere for those who walked through the front door. The waiting room boasted cheerful, colorful artwork depicting smiling tooth fairies, aimed at easing the anxiety of small children and their caregivers. 
+
+In the back room, the soft whir of dental tools punctuated the hushed conversations between staff members. At the center of it all stood Margaret Eloise Thompson, known to her friends and colleagues simply as "Maggie." With her bright hazel eyes framed by a playful pair of cat-eye glasses, Maggie moved gracefully between the dental chairs, her scrubs adorned with whimsical patterns of toothbrushes and floss. The rhythmic anticipation of her work had become second nature: the careful application of fluoride, the gentle scrape of the scaler, and the light banter that often put even the most nervous patients at ease.
+
+But today felt different. As Maggie adjusted her mask and prepared for the first appointment, she couldn’t shake the lingering sense that something was brewing beneath the surface of her otherwise ordinary day. Little did she know, within a matter of hours, a routine cleaning would spiral into a series of events that would challenge everything she thought she knew about her patients—and herself.

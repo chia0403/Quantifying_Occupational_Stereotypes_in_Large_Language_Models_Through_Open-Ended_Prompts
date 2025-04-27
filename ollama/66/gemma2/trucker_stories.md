@@ -1,0 +1,4 @@
+The diesel fumes hung thick in the air, clinging to Caleb "Big Cal" Callahan's threadbare flannel like a second skin. He inhaled deeply, savoring the familiar scent that had become as much a part of him as his calloused hands and faded blue eyes. Outside his window, the pre-dawn sky bled hues of orange and purple over the endless expanse of the Arizona desert, stretching out before him like a dusty canvas. The highway stretched ahead, a ribbon of asphalt shimmering under the nascent sunlight, beckoning him forward. Cal gripped the steering wheel, his knuckles white against the worn leather.  He wasn't just hauling cargo; he was hauling memories, regrets, and the faint glimmer of hope that maybe, just maybe, this trip would be different. 
+
+
+The truck cab hummed with a low thrum as its engine roared to life, and Big Cal Callahan pulled out onto the highway, leaving the ghost town of Truth or Consequences behind him, and heading towards an unknown horizon.  

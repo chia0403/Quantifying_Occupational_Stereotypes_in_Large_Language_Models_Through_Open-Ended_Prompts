@@ -1,0 +1,5 @@
+The stale air hung heavy in Probation Officer Amelia "Amy" Hayes' tiny office, thick with the scent of cheap coffee and unfulfilled promises. Rain lashed against the grimy windowpanes, blurring the view of the dilapidated industrial park across the street. A faded motivational poster plastered on the wall, depicting a sunrise over a mountain range, seemed to mock her current reality.  
+
+Amy stared at the file in front of her: "James "Jimmy" Riley -  Felony assault, resisting arrest, vandalism." Another name added to her ever-growing list of cases, each one a tangled web of desperation, regret, and broken dreams. She rubbed her temples, already feeling the familiar ache starting behind her eyes. 
+
+This job wasn't glamorous. It wasn't about heroic rescues or solving intricate mysteries. It was about small victories, navigating bureaucratic nightmares, and holding onto hope for people who had long forgotten how to grasp it themselves. A sigh escaped Amy’s lips as she picked up the phone, ready to begin another day in the trenches of her world.  

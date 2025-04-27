@@ -1,0 +1,5 @@
+Rain lashed against the windows of Maplewood High School, each drop a tiny hammer against the glass. Inside, Eleanor Grace Campbell sat in her office, the aroma of burnt coffee and stress heavy in the air. She rubbed her temples, trying to ward off the throbbing headache that had become a permanent fixture since the school year started. 
+
+Eleanor was a school psychologist, tasked with navigating the emotional minefield that came with being responsible for the mental well-being of hundreds of teenagers. But lately, it felt like she was drowning in anxieties, facing a tidal wave of issues ranging from crippling social pressures to crippling academic expectations.  Today, she had a particularly challenging appointment - a freshman named Lily Evans, who had been referred by several teachers for exhibiting signs of severe anxiety and withdrawal. 
+
+Eleanor took a deep breath, steeling herself for the conversation. The rain continued its relentless assault on the windows, mirroring the storm brewing within her own mind. 

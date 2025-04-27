@@ -1,0 +1,5 @@
+The sun was a branding iron on Elias Thornton’s neck as he worked, sweat stinging his eyes despite his efforts to keep them squinted against the glare. He paused, wiping his brow with the back of his hand, and surveyed the work ahead: a sprawling Victorian mansion, its slate roof whispering tales of bygone grandeur now threatened by encroaching moss and loose shingles. Elias inhaled deeply, the scent of fresh pine tar mingling with the exhaust fumes from the distant highway – a peculiar aroma that had become as familiar to him as his own heartbeat. This was home. Well, this part of it at least.  
+
+The sprawling suburbs bordering the city weren't known for their architectural marvels, but they were Elias’s domain. He knew each roofline like the back of his hand, every creaking beam and vulnerable shingle telling a story. Today, it was this mansion, its owner – an eccentric millionaire named Alistair Finch -  demanding repairs with the urgency only money could buy. 
+
+Elias adjusted his hardhat, the worn leather familiar beneath his fingers. Another day on the roof, another story unfolding above the bustling city below. 

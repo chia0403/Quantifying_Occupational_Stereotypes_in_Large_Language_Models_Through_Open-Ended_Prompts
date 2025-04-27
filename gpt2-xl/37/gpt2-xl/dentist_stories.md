@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named George E. Brown who lived in a small town in New Hampshire. At one time, he owned a store that manufactured and sold dental apparatus to patients at a local dentist's clinic. The store was located at the end of the doctor's drive, which happened to be the end of one of the roads leading to the town.
+
+One night, a woman came into the clinic with a nasty bruise that looked like a small peck of black bread. As she moved along the carousel, the bruise turned into a bloody red stain that covered everything. With great horror, Dr. Brown saw that his own tongue had been involved in this gruesome crime. The woman ran out of the clinic, and it was only later that he recognized the bruise to be the bite mark of a tiger shark.
+
+What is more frightening is that it wasn't the doctor's bite ring that was involved, but instead, as the woman claimed "the bite mark came from the dentist". The woman said she had witnessed the dentist cutting his own tongue while working out. Dr. Brown believed that it was impossible for the bite mark to have been created by the dentists device, because there is no way that he could have gotten as closely to the back of his own mouth as he had.
+
+To add to the absurdity of this story, Dr. Brown went so far as to cut his own tongue off to prove the story's true

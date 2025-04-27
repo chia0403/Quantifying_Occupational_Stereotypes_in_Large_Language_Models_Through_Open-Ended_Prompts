@@ -1,0 +1,6 @@
+Once upon a time, there was a singer named George Michael, a man with a heart, one who loved his family and was generous with his wealth. But some horrible things happened, one of which was the way he died. To say the least, George Michael suffered terribly during his lifetime, yet he was still able to carry out his music and influence others in the world. I hope those who knew and loved him are feeling a little better. I will never forget George Michael.
+
+
+[A post by George Michael's widow, Paula Patton, on the memorial website has been removed. This article was published in the February 2016 issue and was reprinted with permission.]
+
+Michael and I had known each other for years. He was in my band The Spice Girls, and I loved him as much as I loved Ricky Missal with an extra jiggy on. At one point during that gig in New York's Madison Square Garden, we had gone to dinner at a Manhattan hotel, and on the way home, we stopped at Michael's apartment near the Central Park Zoo. At the end of the day, we went back to Michael's apartment, and that night I heard, with dread, that my father was in a car accident in Philadelphia on the New Jersey Turnpike. His head was smashed into a brick wall (the car he was driving had been hit by a train), and he was pronounced dead. The next morning, I learned he had been in an accident, but

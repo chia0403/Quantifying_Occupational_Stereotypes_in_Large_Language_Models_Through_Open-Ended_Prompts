@@ -1,0 +1,7 @@
+**Opening:**
+
+The relentless Georgia sun beat down on Bartholomew "Bart" Finch's neck, each bead of sweat a testament to his dedication, and perhaps his questionable life choices. He squinted at the shimmering asphalt shingles, their black surfaces radiating heat like miniature ovens. Another nail pounded home, a percussive heartbeat in the otherwise still, sweltering air. He hated heights, really hated them. But Bart Finch hated being broke even more.
+
+**Setting:**
+
+The story unfolds in the sprawling, ever-expanding suburbs of Atlanta, Georgia. Bart's current roofing job is on a brand new, cookie-cutter McMansion in a development called "Magnolia Crest." Rows of identical houses, each promising a slice of Southern comfort, stretch across the once-forested landscape. The air is thick with the scent of freshly cut lumber, newly laid sod, and the faint, sweet perfume of suburban aspiration. While the manicured lawns and carefully chosen landscaping offer a veneer of tranquility, beneath the surface lies the constant hum of traffic, the anxiety of mortgage payments, and the barely-concealed pressure to keep up with the Joneses. Bart, precariously perched on the roof, sees it all: the pristine SUVs in driveways, the kids playing in perfectly symmetrical yards, the distant skyscrapers of Atlanta hinting at a world he both desires and distrusts. He’s a working-class man in a world increasingly obsessed with appearances and upward mobility.

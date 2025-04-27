@@ -1,0 +1,5 @@
+The sun dipped behind the imposing Victorian mansion on Sunset Boulevard, casting long shadows across the perfectly manicured lawn. A gentle breeze carried the scent of jasmine and freshly-cut grass, but all Amelia "Em" Wright could smell was the metallic tang of sweat clinging to her spandex shorts. 
+
+Her eyes scanned the faces before her, a kaleidoscope of youth and determination, all gathered for "Fit & Fabulous," her signature fitness class. The sleek, modern gym inside the mansion seemed miles away in this twilight hour as Em's gaze fell on the young couple holding hands by the oak tree. Their bodies reflected a mixture of youthful energy and growing tension, mirroring the anxieties brewing within their hearts. 
+
+Em was about to start the final segment, an invigorating cardio session, when she caught sight of a crumpled note tucked beneath the water bottle in front of her.  The familiar script on its edges - "For Em," it read.  It must be from John, the owner's son, who had been missing for almost three weeks. His father's heart was heavy with worry, and so was hers. 

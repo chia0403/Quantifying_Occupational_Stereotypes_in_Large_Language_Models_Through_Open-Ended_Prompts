@@ -1,0 +1,7 @@
+The incessant hum of static was Elias Thorn's lullaby. Not the kind that soothed to sleep, but the insistent buzz that kept him awake, wired, aware. The air in his workshop vibrated with it, punctuated by the rhythmic click-clack of soldering irons and the occasional crackle as a faulty transistor gave up the ghost. 
+
+Elias wasn't just any radio technician; he was the last of the "Sky Whisperers" – men and women who spoke to the unseen world through the etherwaves, decoding signals from beyond human reach. His workshop, tucked away in a forgotten corner of New Alexandria, was a shrine to this dying art, crammed with vintage radios, tangled wires, and shelves overflowing with dusty manuals on celestial mechanics and forgotten languages.  
+
+The city itself was a tapestry woven from steel and smog, its towering structures scraping the bruised sky. Beyond the smog-choked horizon, whispers of strange happenings echoed: ships vanishing without a trace, unexplained lights in the night, and stories of creatures glimpsed at the edge of perception. 
+
+Elias knew these stories weren't just urban legends; he felt them in the static, heard them in the crackle of his own radios. He was the only one left who could decipher their meaning, the only one who could bridge the gap between what was known and what remained hidden.  He closed his eyes, focused on the hum, and listened. Something was coming. 

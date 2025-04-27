@@ -1,0 +1,7 @@
+The humid air hung heavy as Rowan Blackwood led his group through the labyrinthine alleys of Old Cairo.  "Welcome to the heart of history," he announced in his booming voice, earning him the usual chorus of excited gasps from the tourists. His face, framed by unruly brown hair and accented with a mischievous twinkle in his eyes, reflected the historical grandeur around them. "Just remember, we're not just standing on stones; we're walking through time itself!" 
+
+Rowan was no stranger to the stories whispered by the weathered walls of ancient buildings. He had grown up listening to tales from his Abu, a former guide himself, about hidden chambers and forgotten pharaohs. These stories fuelled his passion for the city and its history, which he now shared with every tour group that passed through.  His small hotel nestled within the bustling marketplace was where Rowan often found solace after guiding tourists through the chaos of this once-forbidden city.
+
+As Rowan led them towards a crumbling mosque, a lone figure caught his eye. A man, cloaked in black, stood at the end of the alleyway, hidden in the shadow of towering buildings. Rowan's keen eyes followed the man as he shifted, glancing around nervously before disappearing into the bustling marketplace. An unsettling chill brushed against Rowan's skin, and a sudden sense of foreboding settled on him.  The air buzzed with unspoken secrets, waiting to be unearthed like long-forgotten treasures. 
+
+

@@ -1,0 +1,7 @@
+The sun had long since set on the small town of Red Rock, Arizona, casting a warm orange glow over the dusty streets and crumbling adobe buildings. The air was thick with the smell of creosote and mesquite, and the only sounds were the distant hum of crickets and the occasional rumble of the nearby highway.
+
+In a rundown garage on the outskirts of town, Jack "Hawk" Hawkins sat perched atop his trusty Caterpillar 325R excavator, his eyes scanning the horizon as he listened to the whispers of the desert wind. A ruggedly handsome man in his mid-40s with a thick beard and a mop of curly brown hair, Hawk had spent years operating heavy equipment for a living, but tonight was different.
+
+Tonight, Hawk was on a mission to investigate a mysterious report of a long-abandoned mine shaft deep in the nearby mountains, rumored to be filled with gold and other precious gems. The pay was too good to pass up, and Hawk's curiosity had gotten the better of him. He had spent years working as a heavy equipment operator for local mining companies, but this was his first solo venture - and he wasn't sure what to expect.
+
+As he gazed out into the darkness, Hawk's thoughts turned to his estranged wife, Sarah, who had left him six months prior citing "irreconcilable differences." The pain of their divorce still lingered, but Hawk had vowed to prove himself as a capable and self-sufficient man. This expedition was his chance to do just that - and maybe, just maybe, find some redemption along the way.

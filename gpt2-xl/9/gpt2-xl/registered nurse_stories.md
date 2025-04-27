@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named Margaret Farragut, whose work and the lives of some of her patients were the subject of an Oscar-nominated movie starring Meryl Streep. Margaret was the first to bring the practice of nursing home monitoring to the forefront, and she played a major role in helping us fight the "nutritional neglect" epidemic of the 1980s. Unfortunately, her book published in the mid 1990s is not a particularly popular read for laypersons today, and a lot of it gets twisted and conflated with nutritional supplements. The two are, in fact, two very different pursuits.
+
+The Nutrition Revolution
+
+Nursing houses were once the primary source of food for their residents, however, after World War II, the decline of the industrial food distribution industry drove more and more people to rely on homes where relatives could provide them with a small allowance and a food box. At the same time, the economic downturn of the early 70s put a strain on these homes. For a while, it seemed like the solution to these problems lay in the home, but, unfortunately, many of Margaret's observations came true.
+
+Margaret Farragut and her husband Arthur were both in the nursing field. Arthur was a nurse in private practice, and Margaret had some experience as a nurse's assistant at a nursing home in Pittsburgh. However, neither had the training to serve as a leader in that setting. It was the

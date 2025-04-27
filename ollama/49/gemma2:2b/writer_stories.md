@@ -1,0 +1,5 @@
+The biting North Sea wind whipped Amelia "Amy" Frost's hair across her face as she stared out at the grey expanse before her. The lighthouse, perched precariously on a craggy cliff, seemed to groan in protest against the relentless assault of wind and waves. It was here, amidst this symphony of salt spray and crashing thunder, that Amy had come to find inspiration.  Not just any inspiration, mind you. She was looking for the words to capture the essence of despair she felt within her own soul. 
+
+The manuscript on her desk, titled "Ghosts of Hope Harbor," lay untouched. It was supposed to be a tale of lost love and second chances set against the backdrop of a once-vibrant coastal town drowning in its own history. But Amy couldn't seem to find the magic that would breathe life into it. The characters felt hollow, their struggles lacking the weight she craved. 
+
+The storm raged on, mirroring the turmoil within her heart. She pulled her worn wool scarf tighter around her neck and fought back a wave of despair, determined not to succumb to its icy grip. This lighthouse, this very moment - it was all that stood between her and complete ruin or redemption.  

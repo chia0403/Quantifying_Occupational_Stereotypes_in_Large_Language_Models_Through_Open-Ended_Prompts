@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting:
+
+**Opening:**
+
+The flickering fluorescent lights of the office hummed a maddening tune, a soundtrack to Amelia Stone's encroaching deadline. She glared at the shimmering cursor on her dual monitors, a stark white taunt against the muted color palette of the website design she was supposed to be finalizing. Outside, a late afternoon storm was brewing, painting the glass walls in a shifting kaleidoscope of grey. Thunder rumbled in the distance, echoing the rising anxiety in her chest. This wasn't just another website; this was for the grand opening of "The Albatross Apothecary," a quirky, Victorian-inspired tea shop owned by her eccentric Aunt Mildred. And Aunt Mildred was not someone you wanted to disappoint. Especially not when she possessed the kind of intuitive herbal knowledge that could either cure a headache or, Amelia suspected, inflict one with equal efficiency. The client, and her aunt, were beginning to become one and the same.
+
+**Setting:**
+
+The story takes place in the sprawling, open-plan office of "Pixel Perfect Design," a mid-sized graphic design firm located in downtown Portland, Oregon. The office is on the 12th floor of a modern glass and steel building, offering panoramic views of the city and the Willamette River. Exposed brick walls are softened by strategically placed potted plants and brightly colored abstract art. The atmosphere is generally energetic and collaborative, with a constant buzz of conversations, keyboard clicks, and the occasional burst of laughter. However, pockets of focused intensity, like Amelia's corner desk, exist, marked by headphones, stacks of reference materials, and a general aura of "do not disturb." The firm prides itself on its hip, creative culture, evidenced by the kombucha on tap, the beanbag chairs in the break room, and the mandatory "fun Fridays" that Amelia usually tried to avoid.

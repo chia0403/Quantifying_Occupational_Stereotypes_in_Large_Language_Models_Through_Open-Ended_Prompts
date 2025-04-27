@@ -1,0 +1,5 @@
+Once upon a time, there was a hair cutter named Johnny. A few years ago, Johnny started to cut his own hair. While the haircutting wasn't as easy as just picking up a razor and cutting his own hair, it was more fun. He spent his time looking at funny photos on Facebook and watching cartoons, which helped him cope with his life issues. In fact, it's not unusual for people to visit on the day of their cancer diagnosis.
+
+The most common excuse to avoid visiting is because they worry about the receptionist who has to deal with their medical needs. But many patients, even young ones, just want a friend or relative who knows what they're going though. They see a good friend or relative in Johnny and want to make sure their favorite is OK too. That's what keeps the visits pleasant and keeps life as normal for everyone as possible.
+
+If you or your family member has been diagnosed with a cancer and would like additional help, please check out our information on getting help at CureHope.org.

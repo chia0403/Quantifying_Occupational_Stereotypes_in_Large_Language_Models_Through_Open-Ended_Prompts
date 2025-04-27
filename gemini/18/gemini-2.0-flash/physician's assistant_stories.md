@@ -1,0 +1,9 @@
+## Story Opening & Setting
+
+**Opening:**
+
+The persistent hum of the fluorescent lights overhead did little to soothe Amelia "Millie" Beatrice Dubois’ frayed nerves. She tapped her pen against the worn clipboard, the rhythmic click a counterpoint to the anxious beat of her own heart. The patient file in front of her blurred slightly, the handwritten notes swimming into a jumbled mess of Latin abbreviations and symptom descriptions. She’d reviewed this case a dozen times, yet the diagnosis still eluded her. Mrs. Henderson's cough, the insidious fatigue, the faint crackling in her lungs… it all pointed to a dozen different possibilities, none of them comforting.  Millie sighed, the sound lost in the sterile scent of disinfectant that clung to everything in the small examination room. Today, the weight of responsibility felt heavier than usual.
+
+**Setting:**
+
+The story takes place in the small, rural town of Harmony Creek, nestled in the foothills of the Appalachian Mountains in Western Pennsylvania. Millie works at Harmony Creek Family Medicine, a single-story, brick building that’s been serving the community for over fifty years. The waiting room is perpetually filled with mismatched chairs and outdated magazines, a testament to the clinic's limited budget and unwavering dedication to its patients.  Outside, the landscape is dominated by rolling hills, dense forests, and the occasional winding country road. Harmony Creek is a place where everyone knows everyone, and the clinic serves as more than just a medical facility; it's a community hub, a place where locals come to share stories, seek advice, and find comfort in times of need.  The clinic itself feels worn but welcoming, its walls adorned with faded photographs of local sporting teams and hand-drawn thank-you notes from grateful patients.

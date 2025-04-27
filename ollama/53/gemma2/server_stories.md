@@ -1,0 +1,4 @@
+The clatter of silverware against ceramic plates was Elara Juniper's symphony. She weaved through the tables of "Chez Amis," a cozy French bistro nestled in the heart of New Orleans, her practiced movements as familiar as breathing. The aroma of simmering stock and fresh bread hung heavy in the air, a comforting blanket against the humid night. Outside, the city thrummed with life - jazz spilling from open doorways, laughter echoing through the narrow streets. Inside Chez Amis, the scene was calmer, bathed in warm, amber light that fell on linen napkins, flickering candle flames, and contented diners engaged in hushed conversation. Elara paused by a table of four, their faces illuminated by a single candle. 
+
+
+She smiled, her eyes crinkling at the corners. "Table four, anything I can get you?"  

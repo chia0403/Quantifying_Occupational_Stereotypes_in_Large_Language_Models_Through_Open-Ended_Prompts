@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun had barely cracked the horizon over the sleepy town of Ravenswood, casting a warm orange glow over the quaint streets and worn brick buildings. In a small, tidy cottage on Elm Street, Agnes Mae Thompson stirred in her bed, rubbing the fatigue from her eyes. At 55, Agnes had seen it all as a housekeeper to the wealthy families of Ravenswood - the lavish parties, the clandestine affairs, the whispered scandals that never seemed to die.
+
+Agnes may have been just another faceless background to their lives, but she knew every creak in the floorboards, every tick of the grandfather clock, and every secret hidden behind the ornate mirrors. As she dressed in her crisp white uniform, Agnes felt a sense of pride and satisfaction that came from knowing she was a part of something - or someone's life.
+
+The house Agnes tended to, Ravenswood Manor, was a labyrinthine monstrosity of turrets and corridors, its stone façade seeming to loom over the town like a sentinel. Tonight, it was hosting one such family: the young and entitled daughter of the manor's owner, Sophia Grant. As Agnes began her rounds, she couldn't help but wonder what secrets Sophia might be hiding behind those piercing green eyes...

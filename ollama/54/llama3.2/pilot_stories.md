@@ -1,0 +1,5 @@
+As the sun set over the vast expanse of the Pacific Ocean, Captain Evelyn Mae Thayer banked her small charter plane to the left, the engines roaring as she lined up with the runway at Kona International Airport on the Big Island of Hawaii. The warm glow of the setting sun cast a golden light over the lush green hills and palm trees that lined the approach path, a stark contrast to the rugged volcanic landscape that dominated the surrounding islands.
+
+Evelyn, a seasoned pilot with over 10,000 hours of flight time under her belt, felt a sense of calm wash over her as she began her descent. She had spent years flying for the US Air Force before transitioning to civilian aviation, and now worked as a charter pilot, ferrying tourists and cargo between the islands of Hawaii.
+
+As she touched down on the runway, Evelyn couldn't shake the feeling that something was off. A sense of unease had been building in her chest all day, ever since she received a cryptic message from an old acquaintance. The message read simply: "Meet me at Kona. Come alone."

@@ -1,0 +1,7 @@
+The dust motes danced in the shafts of sunlight that pierced through the gaps in the barn's corrugated iron roof.  A thin layer of grime coated everything – the rough-hewn wooden beams, the worn leather aprons hanging on hooks, and most importantly, Elias Stonehand's weathered face. His brow furrowed as he scrutinized a block of granite, its surface scarred with imperfections that his practiced eye could already envision transformed into smooth curves and sharp angles.
+
+Elias Stonehand, a man whose name whispered through the cobblestone streets of Havenwood like the sound of chisels against stone, was renowned for his ability to coax beauty from the unforgiving earth. He worked in a quiet corner of the bustling port town, his workshop nestled within an abandoned barn on the outskirts, its walls smelling faintly of sawdust and sea salt.  Havenwood thrived on trade, ships laden with exotic spices and vibrant silks arriving daily at its weathered docks. Yet, Elias found solace in the simplicity of his craft, the rhythmic thud of his hammer against granite a comforting counterpoint to the bustling life of the town. 
+
+He knew every vein, every flaw, within the stones he shaped. His fingers, calloused and strong, moved with the grace of a dancer as he guided the chisel, leaving behind a trail of glittering dust.  But today, something felt different. A knot of unease tightened in his chest, a premonition whispering of change on the wind. 
+
+

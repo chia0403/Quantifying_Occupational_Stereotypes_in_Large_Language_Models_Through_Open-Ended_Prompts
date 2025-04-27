@@ -1,0 +1,6 @@
+The neon lights of Magnolia Bay cast a sickly yellow glow across Detective Amelia "Amy" Brighton's rain-slicked trench coat. The air was thick with the scent of saltwater and desperation, a familiar cocktail in this seaside town where secrets clung to the fog like barnacles on a hull.  A mournful wail pierced through the rhythmic drumming of raindrops against the pavement – the sound of a siren cutting through the melancholic symphony of the storm.  Amy adjusted her cap, pushing back a stray strand of auburn hair that refused to be tamed by the wind whipping around her. 
+
+It was another night in Magnolia Bay, another call, another mystery begging to be unraveled. This one, however, felt different. The urgency in the dispatcher's voice had been palpable –  a missing person, a frantic mother, and a chillingly vague warning whispered into the phone: "The tide will take her."
+
+
+Amy stared at the rain-streaked windows of the station, her gaze fixed on the swirling chaos outside. Something about this case felt heavy, like an anchor dragging her down into the depths of the bay itself.  She took a deep breath, steeling herself for whatever awaited her in the darkness beyond the neon glow. This was Magnolia Bay, and tonight, the tide was rising. 

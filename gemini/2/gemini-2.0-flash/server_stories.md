@@ -1,0 +1,14 @@
+## Opening:
+
+The scent of burnt caramel and desperation clung to the air in the "Sweet Surrender" diner like a persistent, unwanted suitor. Amelia Rose Hawthorne wiped down table four for the third time that hour, her movements robotic and devoid of enthusiasm. Outside, the midday sun beat down on the dusty asphalt of Harmony Creek, baking the small town in a simmering, lethargic heat. Inside, however, the oppressive humidity was replaced by a stifling air conditioning that rattled like a dying cough and did little to quell the sticky dread that clung to Amelia’s skin.
+
+She hated this place. She hated the sticky tabletops, the cloying sweetness of the saccharine-drenched pies that lined the counter, and most of all, she hated the saccharine smiles she was forced to paste on her face for the meager tips she earned. She’d dreamed of escape, of bustling cityscapes and the crisp scent of ambition, but Harmony Creek, population dwindling and dreams decaying, had a way of holding onto its inhabitants like a stubborn vine.
+
+Today, though, something felt different. A prickle of unease danced on the back of her neck, a whisper in the drone of the diner’s fluorescent lights. It wasn’t just the usual pre-lunch rush jitters. This felt…deeper. As she straightened a crooked napkin holder, a new car, sleek and black and utterly out of place, pulled up outside. And for the first time in a long time, Amelia felt a flicker of something other than resignation in her chest.
+## Setting:
+
+**The "Sweet Surrender" Diner:** A classic American diner located in Harmony Creek, a small, rural town in the American Midwest. The diner is a local landmark, but showing its age.
+
+*   **Interior:** The walls are painted a faded pastel pink, adorned with vintage advertisements for sodas and local businesses. Booths upholstered in cracked vinyl line the perimeter, and mismatched Formica tables fill the center space. The floor is checkered black and white, perpetually sticky despite Amelia's best efforts. A long counter with swivel stools faces the open kitchen, where the gruff cook, Earl, works his magic (or lack thereof) on burgers and fries. A large glass display case showcases a rotating selection of homemade pies, their sugary aroma filling the air.
+*   **Exterior:** The diner sits on the main street of Harmony Creek, its faded neon sign flickering intermittently. A small parking lot in front is usually filled with pickup trucks and older sedans. The surrounding area is mostly comprised of small shops, a gas station, and a post office, all with a slightly rundown appearance.
+*   **Atmosphere:** Generally a sleepy, unhurried atmosphere, punctuated by the clatter of dishes and the murmur of conversation. Locals gather for coffee and gossip in the mornings, and families come for dinner in the evenings. However, the diner is always tinged with a sense of quiet desperation, a reflection of Harmony Creek's declining fortunes.

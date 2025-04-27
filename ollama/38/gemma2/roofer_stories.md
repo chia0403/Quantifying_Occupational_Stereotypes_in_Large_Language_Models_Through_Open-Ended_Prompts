@@ -1,0 +1,5 @@
+The July sun beat down on Bartholomew "Barty" Crane's neck like a blacksmith's hammer. Sweat stung his eyes as he maneuvered another bundle of shingles up onto the roof of Mrs. Peabody's Victorian house. The air hung thick and humid, heavy with the smell of freshly cut grass and the distant whiff of barbeque smoke. Barty squinted at the street below, watching children chase a runaway soccer ball down the sidewalk, their laughter echoing off the clapboard houses that lined Maple Avenue. This quiet, tree-lined street in Oakhaven was his usual stomping ground – familiar faces, predictable problems, and roofs that always seemed to need attention after a particularly fierce spring storm. 
+
+But today felt different. A prickle of unease crawled up Barty's spine, as though something was amiss beneath the placid surface of this sleepy town. He dismissed it as nerves. Mrs. Peabody’s roof was notoriously tricky, and he hadn't slept well last night.  He gripped the shingle bundle tighter, steeling himself for the climb. 
+
+

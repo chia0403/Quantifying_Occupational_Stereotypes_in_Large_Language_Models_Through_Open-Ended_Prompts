@@ -1,0 +1,7 @@
+Once upon a time, there was a private detective named Dennis Hopper, who was looking for a hooker named Jackie O. But when the hooker falls for him, he finds himself in an exciting story about a woman who goes on a crazy rampage when she finds out her boyfriend is an undercover cop. The title of this story is as weird as it sounds, and that's exactly the kind of thing that Hopper likes. The story has a lot of sex, as well as some pretty bizarre situations. If you're in the mood for such adventures, you're in the mood for The Haunting of Hill House.
+
+4. The Haunting of Molly Hartley (1978)
+
+This one's got enough creepy elements to be a classic. It's about a young woman (played by Melanie Griffith) who is haunted by a nightmare from her past that could only be described like this:
+
+"Her hands trembled and her eyelashes swung wildly as she struggled with the image of her father's face, his lips turned down by a cruel sneer. The pain came and went like the roar of a train. From every pore of her body she felt the presence of whatever had drawn her away so years before…It was then that she realized that the image of her father's face was no longer haunting to herself, but had become the very personification of the fear she felt. A cold presence, as cold as the snow covering her driveway, followed her

@@ -1,0 +1,6 @@
+The morning mist clung to Bartholomew "Bart" Thistlewick like a damp shawl as he wheeled his rusty lawnmower across the dew-kissed grass.  Bartholomew was a man carved from the very earth he tended. He wore his years – fifty-two of them, and every one etched into his weathered face – with a quiet dignity, his hands calloused and strong from decades spent coaxing life from the soil. The grounds of Ashton Manor, where Bart had worked since he was eighteen, were his domain.  
+
+The grand manor itself loomed over him, a Victorian behemoth of brick and turrets, draped in an air of faded grandeur. Once a bustling hub of society balls and lively gatherings, Ashton Manor now stood mostly silent, its opulent rooms echoing with the ghosts of laughter long past.  Bart knew every inch of its grounds - the sprawling rose garden that smelled like summer afternoons, the ancient oak tree that sheltered a family of squirrels, the hidden grotto where he occasionally found forgotten treasures from happier times. 
+
+
+Today, though, something felt different.  A strange stillness hung in the air, even more pronounced than usual. The birds seemed to have hushed their morning songs, and Bart couldn't shake the feeling that he was being watched. He cast a nervous glance over his shoulder, but saw only the whispering willows swaying gently in the breeze. 

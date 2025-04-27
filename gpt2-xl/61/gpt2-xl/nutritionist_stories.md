@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named Dr. Robert Atkins—yes, I'm a vegan—who was very enthusiastic about eating the body fat we could generate by being sedentary. Now he's a famous cardiologist who believes in carbohydrates and fat as the foundation of the diet you choose, just as you chose your clothes and shoes and your friends. If you're lucky, like me, you have colleagues who believe in the same thing as you but who are less zealous and less well-paid.
+
+When I began vegetarianizing I was pretty sure I'd wind up back in the gym. Then, one Monday in April, I went to a health club for the first time in a week to learn about the Paleo—a healthy eating plan promoted by Robert Atkins, a vegetarian. It's not hard to find a Paleo instructor in virtually any city as long as you have the time and the money, and it was the best thing I had ever stumbled across to lose weight. The gym was closed: all the people here had a gym membership and a yoga instructor, and they were out exercising. The yoga instructor looked at us both and said we shared an interest in weight-loss.
+
+And here was the twist: I was a vegetarian.
+
+At my first class, it struck me (incorrectly) that we might be vegetarians first because we were practicing a spiritual practice that is typically practiced by men, not women. We didn't want

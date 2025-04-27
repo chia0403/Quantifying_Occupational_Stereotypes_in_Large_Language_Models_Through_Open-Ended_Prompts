@@ -1,0 +1,5 @@
+The setting was a Tuesday morning in late September, the kind of day that taunted with the ghost of summer, whispering warm promises that vanished with the slightest breeze. Leaves were just beginning to blush crimson and gold on the maples that lined Elm Street in the quiet, almost painfully picturesque town of Havenwood, Connecticut. The air, sharp and clean, carried the scent of damp earth and burning wood from a distant fireplace.
+
+Overhead, the sky was a brittle, flawless blue, perfect for anything but roofing.
+
+And up on the roof, wrestling with a stubborn roll of underlayment, was Bartholomew "Bart" McKinley. Bart hated days like this. The perfection of the weather only highlighted the imperfection of his job, the sweat and strain that seemed even more pointless under such a benevolent sky. He swore under his breath, a low rumble that was quickly swallowed by the breeze. He’d much rather be hiking through the woods, breathing in that crisp air, than battling gravity and asphalt shingles on Mrs. Hawthorne’s Victorian monstrosity.

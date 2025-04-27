@@ -1,0 +1,5 @@
+Once upon a time, there was a stone cutter named Mike, and he was a good guy. There was a little feud with him, but Mike was kind of a nice guy. Mike started to cut the wrong side out of an oak tree. He ended up killing his brother's dog and he was arrested. I'm a nice guy too, so when I got to jail, I got off on a technicality. My dad used to say to me, "Just go and have a baby." So as for that, I was like, "Okay, whatever. I just don't want to kill a dog."
+
+Then one day, I woke up and the world had been changed. I was a young guy, and I had never seen a fucking dog die before. He was just standing there, lifeless and silent. I just had this gut feeling. I couldn't leave my friend. He was like a second father to me. I couldn't see him go like that. I couldn't do it.
+
+I told my friends, "Just wait till you see what I can do." When you have ten pounds of body fat, it's impossible to keep that weight off. When I had gone through that, my ass was killing me. I was fucking breaking shit. I used to rip the shit down the fence post and throw it on the ground. My leg was so broken and so scarred that I couldn't even get out of bed and go to school

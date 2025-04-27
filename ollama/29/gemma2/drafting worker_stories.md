@@ -1,0 +1,7 @@
+The whine of the drafting table's adjustable lamp was almost as constant a hum as the clatter of Amelia Beatrice Hawthorne's steel ruler against vellum. Her brow furrowed, her tongue peeking out from the corner of her mouth in concentration. The faint scent of charcoal and erasers hung heavy in the air, mingling with the dusty aroma of forgotten blueprints piled high on shelves that groaned under their weight. 
+
+Amelia worked at the firm of Thornton & Sons, a venerable architectural design house nestled in the heart of London's bustling West End. Its facade, a stoic brick monolith, seemed to whisper tales of grand Victorian cathedrals and elegant Edwardian townhouses - projects Amelia dreamed of contributing to someday. For now, though, she was tasked with meticulously copying existing blueprints for a new wing being added to the Royal Albert Hall. 
+
+The task itself was tedious, but Amelia found solace in the predictable rhythm of her work. The precise lines she drew on the vellum felt like a calming meditation, a counterpoint to the chaos brewing outside her window.  London, even at this early hour, thrummed with life – horse-drawn carriages clattering over cobblestones, hawkers peddling their wares, and the distant rumble of industry awakening. But inside Thornton & Sons, Amelia found a haven, a world confined to the measured strokes of her pen and the silent whispers of blueprints come to life. 
+
+

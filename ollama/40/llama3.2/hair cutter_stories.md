@@ -1,0 +1,5 @@
+Here's a potential story opening:
+
+The sun had long since set on the bustling streets of Tokyo's Harajuku district, casting a warm orange glow over the crowded sidewalks and neon-lit billboards that seemed to stretch on forever. Amidst the chaos, a small, unassuming salon stood tucked away on a side street, its sign creaking in the gentle breeze: "Kokoro Hair Co." The salon's owner, Emiko Nakahara, was busy prepping for another long night of cutting hair and chatting with her clients, her bright pink streaks gleaming under the fluorescent lights. She worked as a freelance hair cutter, taking on clients from all over the city who came to her for her unique blend of artistic flair and empathetic listening skills. Tonight, Emiko had a new client scheduled - a shy young woman named Yuna who was nervous about trying something new with her hair.
+
+How would you like me to proceed?

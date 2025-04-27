@@ -1,0 +1,7 @@
+Once upon a time, there was a secretary named Monica.
+
+We'll call her Monica; we'll ignore her being a middle-aged, obese white lady. She was the secretary to the CEO of the company. The CEO was Bill, a brilliant man with very expensive tastes who loved wearing silk shirts and making outrageous gestures to attract women. He liked to dress up as a cartoon bear named "Pinky" because he thought ladies, especially younger girls, would find his cartoon bear face adorable.
+
+Bill and Monica spent a lot of time together. At first it had just been about giving their clients advice on the most complicated deals they were attempting, but it turned out that they spent a lot of time meeting up, drinking, and kissing each other on the lips until it became obvious what they were all about. It was an unhealthy relationship filled with cocaine, Viagra, and sex. (Bill was so rich he could fly first class on commercial flights, fly roundtrip to the Caribbean and pick up all the girls in their hotel rooms, and only pay $25/hr to do so.) Monica had a high-paying job in a major New York law firm and Bill was working as a hedge fund manager where he made $90,000 a year with a bonus each month (he didn't sleep with the girls as an employee if they weren't his girlfriend).
+
+One night, Bill showed up at Monica's flat one evening after a long day of getting new contracts

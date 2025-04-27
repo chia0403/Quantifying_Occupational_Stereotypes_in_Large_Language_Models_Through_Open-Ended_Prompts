@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named David Nussbaum, who made his living as a defense lawyer for the government, trying to make the government get its case out in a court of law. But he had to come up with some new ideas. For one thing, he had to become so good at his job that he could make the government pay, so he became the best defense lawyer since Socrates. He was also the son of a successful doctor.
+
+You are a defense attorney who has to work with a government agent on the biggest government case the United States has ever seen. You have to be the best man for the job, by any standard you like. You have to be the most aggressive, resourceful, and cunning lawyer that the government has ever seen.
+
+Is this your real life? We believe so. We made up those characters, wrote the script, and then casted the game into our living room. We knew we wanted a story for the next version, too. We wanted something fresh and innovative and not just another clone of a television show. We couldn't believe it when we found out that the government was so desperate to get this case out in the public that they sent a man in to the streets named Agent Wilson to try to bring that case to a resolution. Our first impression of that man's powers was almost exactly as we described it. The way Agent Wilson was depicted in the script made us go "Wow!"
+
+When

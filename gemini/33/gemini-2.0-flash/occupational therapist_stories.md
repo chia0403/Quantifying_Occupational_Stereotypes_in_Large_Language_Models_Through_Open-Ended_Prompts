@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting with an occupational therapist as the main character:
+
+**Setting:** The bustling, sun-drenched rehabilitation wing of St. Jude's Hospital in Miami, Florida. The air hums with the low thrum of machines, the rhythmic beep of heart monitors, and the constant murmur of voices – therapists encouraging patients, families offering support, and the quiet sounds of recovery slowly unfolding. Sunlight streams through the large windows, offering a view of swaying palm trees and the sparkling Biscayne Bay, a stark contrast to the sterile, functional environment inside.
+
+**Opening:**
+
+Dr. Eleanor Vance adjusted her name tag, the plastic glinting under the harsh fluorescent lights. Today was Monday, and Mondays always felt like a race against the clock in the rehab wing of St. Jude's. Eleanor breathed in the scent of antiseptic and determination that permeated the air, a familiar comfort after five years in occupational therapy. She pulled back the curtain of room 302, a cheerful splash of color against the beige walls, and met the anxious eyes of Mrs. Rodriguez, whose stroke had robbed her of the use of her left hand. "Buenos dias, Mrs. Rodriguez," Eleanor said, her Spanish far from perfect but always appreciated. "Ready to get those fingers moving?" Before Mrs. Rodriguez could answer, a frantic call crackled over Eleanor's pager, displaying a red-lettered message: "ER Consult - Critical - RUSH." Eleanor sighed. The day had barely begun, and already, the orderly chaos of St. Jude's threatened to spin out of control.

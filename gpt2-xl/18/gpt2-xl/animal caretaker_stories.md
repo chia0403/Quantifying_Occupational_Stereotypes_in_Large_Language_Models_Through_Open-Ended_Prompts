@@ -1,0 +1,7 @@
+Once upon a time, there was a animal caretaker named Mr. Kwan.
+
+That's wrong. Mr. Kwan was never part of the main cast; he was just in love with the show. In fact, he liked working as much as working with the guys himself. And so he helped out, making notes and doing double duty, even when one of them was busy. Kwan also introduced some of the other characters, like Captain Harlan or the Red Menace. He even did the voice of Captain Marvel – that's how he discovered the character – and later played him in some comics as well.
+
+While the original Star Wars trilogy had about 20-25 years in between its inception and release, the Star Trek franchise has, since its inception, been around for over 60 years. While there's been some characters in various stages of the show's history before he was, well, 'Kwan', Mr. Worf was there at the very beginning. And for a long time, he was so enamored with the cast – and especially the crew – that he decided to stay, even as his character would be relegated to a minor role for most of the 1990s.
+
+So we're going to revisit Mr. Worf and find out what his real feelings might be about returning to the main cast, if he is not part of another movie. Does he want to? Is he willing to? Maybe. Maybe not. We don't

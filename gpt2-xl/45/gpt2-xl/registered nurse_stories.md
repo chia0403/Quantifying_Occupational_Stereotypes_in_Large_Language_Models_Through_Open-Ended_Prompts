@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named Jennifer Guevara who specialized in delivering babies. She was happy, healthy and had her own home. She told me a lot about her life and how easy it was to become a nurse in California, especially if you went to Berkeley, the "birth-friendly paradise."
+
+Suddenly, her doctor told her she was losing her hair in a certain spot from radiation. He ordered radiation treatments for about 10 years. One day, he informed her that his cancer was not as deadly as she thought, and when he told her that he could put it in his will that she could keep her hair, she accepted it.
+
+At first, some people in her neighborhood didn't understand what was going on but after a few years, they accepted her and everyone who knew her started calling her "Nurse Jen." Jen became the best of friends, with many children who loved her and her hair. In 2010, she reached "Aunty Jen's limit" when she passed away from brain cancer that came from radiation exposure.
+
+What Jen's story is about is a story many California nurses have gone through too, I am sure, so this piece does not specifically cover it. However, what it does are some interesting statistics about the death rate of California nurses in that time period. The report, called "Deaths of Nurses Working in California," says the death rate for nurses was "3.8 per 100,

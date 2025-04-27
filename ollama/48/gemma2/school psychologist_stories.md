@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Dr. Eleanor Vance’s head, casting a sterile glow on the cramped office. Papers cluttered her desk: student reports, IEPs, therapy notes – each one a tiny puzzle piece in the ever-shifting mosaic of teenage angst. Outside, the wind whipped through the maple trees lining the school grounds, their leaves skittering like restless spirits against the windows. The late October air was sharp and cold, whispering of winter’s imminent arrival, but inside Dr. Vance's office, a different kind of chill settled – the quiet anticipation of the day’s most challenging case.  
+
+Today, she was meeting with seventeen-year-old Liam Carter, known around school for his quiet intensity and talent as a writer. But lately, Liam’s stories had taken on a dark, disturbing edge, culminating in a poem titled "The Shadows," which Principal Thompson described as “unsettlingly violent.” Dr. Vance braced herself. This wasn't just another case of teenage angst; something felt deeply wrong, and she was determined to find out what lurked beneath the surface of Liam’s troubled words. 
+
+

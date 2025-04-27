@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named Bill. Bill was a nice enough guy with a great passion for training and fitness. He was also a very strong and confident young man who really cared about his training. Bill was a real trooper who was so determined to make the best of his new life as an aerobics instructor, he did whatever it took. He had a lot going on – he was a big brother to our other friends and a loving husband of 8 years. Bill was also very strict and demanding of our exercise routines. He had us do 25 minutes of aerobics on a bike just 20 minutes after our training. It wasn't that Bill wanted us to get up and fly about! He didn't want us to be jacked up from running on the treadmill at the gym. He just wanted us to exercise and stay clean.
+
+Bill was also strict when he came through the doors of the aerobics studio. For training, his gym manager would send him out with his athletes to perform high stress cardiovascular exercise. Bill would arrive in their clothes all ripped so they would have to work out on the floor. Then when they came to the aerobics class, Bill wanted them to change out of the ripped outfit and just wear jeans and T-shirts.
+
+So a week before his birthday, I sent Bill an e-mail:
+
+Here is a picture of us getting ready to do the aerobics class, with the ripped

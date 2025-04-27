@@ -1,0 +1,11 @@
+## The Story Opening:
+
+The damp chill of the autumn morning clung to Elowen Finch like a shroud. She hunched deeper into her worn woolen coat, the collar scratching against the back of her neck, and blew on her gloved hands. Wisps of white vapor puffed out, momentarily obscuring the gargoyle leering down from the eastern edge of the wrought-iron gates. The gargoyle, named Bartholomew in Elowen’s own private, slightly eccentric naming system, seemed to disapprove of her tardiness. He always did, even though he was stone and incapable of any kind of actual judgement.
+
+Elowen sighed and fumbled for her keys. It was going to be another long day, another battle against the relentless creep of nature on the manicured façade of Blackwood Estate. Another day spent talking to plants, a habit she wasn't entirely sure anyone knew about, and a habit she certainly wouldn’t admit to if they did. She just hoped that today, at least, the rhododendrons wouldn't decide to be particularly temperamental. They were prone to fits of drooping drama, and Elowen had learned, much to her amusement, that they responded quite well to flattery.
+
+## The Setting:
+
+Blackwood Estate was a sprawling Gothic Revival mansion perched on a craggy bluff overlooking the churning gray waters of the North Sea. Built in the late 1800s by a wealthy shipping magnate with a penchant for dramatic architecture, it was a monument to both opulence and isolation. Gargoyles glared from every corner, turrets pierced the perpetually overcast sky, and stained-glass windows depicted somber scenes of biblical history. The gardens, meticulously planned and once renowned throughout the region, had fallen into a state of elegant decay after the Blackwood family fortune dwindled. Now, they were maintained, just barely, by Elowen Finch, the sole groundskeeper, and her tireless efforts to keep the wilderness at bay.
+
+The estate itself was located just outside the small, windswept village of Cliffside, a place where the ocean was a constant presence, both visually and in the salty tang that permeated the air. The nearest neighbor was miles away, and the only access road was a winding, pothole-ridden track that discouraged casual visitors. Blackwood Estate was a place of shadows and secrets, a place where the past felt as tangible as the biting sea wind.

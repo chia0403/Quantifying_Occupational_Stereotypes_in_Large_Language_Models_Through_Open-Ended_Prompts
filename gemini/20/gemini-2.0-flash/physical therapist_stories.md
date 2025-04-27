@@ -1,0 +1,9 @@
+## Story Opening:
+
+The scent of antiseptic and lingering sweat clung to the air in the therapy gym, a familiar and almost comforting aroma for Dr. Anya Petrova. Sunlight streamed through the floor-to-ceiling windows, illuminating the dust motes dancing in the air and reflecting off the chrome of the parallel bars. Anya adjusted the headrest on the traction machine, a low hum vibrating through her fingertips. Today was Mr. Henderson's last day of treatment, and a bittersweet wave washed over her. She was thrilled he'd regained nearly full function in his shoulder after his rotator cuff repair, but she would miss their Tuesday morning chats about his prize-winning dahlias.
+
+"Alright, Mr. Henderson," she called out, her voice echoing slightly in the cavernous space. "Let's get you loosened up and ready to show off those blooms at the garden club next week."
+
+## Setting:
+
+**The Brightstone Rehabilitation Center** is a modern, well-equipped facility nestled in the heart of suburban Meadowbrook, Connecticut. The main therapy gym is the central hub, featuring a variety of specialized equipment, from weight machines and balance boards to a hydrotherapy pool and a simulated rock-climbing wall. Large windows line one wall, offering views of a meticulously landscaped courtyard dotted with birch trees and flowering shrubs. The walls are painted in calming shades of blue and green, and artwork featuring local landscapes adds a touch of warmth. The atmosphere is generally cheerful and encouraging, despite the often-challenging circumstances that bring patients through its doors. Beyond the gym are individual treatment rooms, an occupational therapy suite, and a dedicated pediatric rehabilitation area. Brightstone is known for its cutting-edge therapies and its commitment to patient-centered care, making it a sought-after destination for those recovering from injuries and illnesses.

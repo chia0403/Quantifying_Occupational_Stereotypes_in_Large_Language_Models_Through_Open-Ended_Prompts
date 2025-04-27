@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Jon Fitch. He was in Las Vegas for an event. As a result, the hotel bar had a pool table. If you'd like to know where the pool table is now, please find someplace else.
+
+The New York Knicks have been losing since February 28th. The only reason they're not going dead just yet is because they still have the fourth pick in this year's draft. The Knicks can't pick for now, if the Knicks keep tanking, because they have cap room; at least, they do this year.
+
+There were two reasons this Knicks team won 33 games last season. First, the Knicks played better defensively. Since Jan 15th, they are allowing 86.5 points per 100 possessions, which is the lowest mark in the NBA. The Hornets are a good example of how to play better defense. To a man, that team played hard, played together, was good on defense in the half court, and had a head coach.
+
+The Knicks also did a lot of good things at times last season. Carmelo Anthony is still a better player than the rest of that Knicks roster. Even if Derrick Rose returns, Anthony probably won't have to shoulder more of the burden, because he'll still do a good job of being the lead ball handler and running the pick and roll with his teammates. The Knicks also have Tyson Chandler to protect the rim. With Anthony back, the Knicks

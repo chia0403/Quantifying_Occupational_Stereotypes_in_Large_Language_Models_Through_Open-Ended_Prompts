@@ -1,0 +1,8 @@
+The sterile scent of antiseptic clung to Evelyn Thorne like an unwelcome second skin as she walked down the corridor of Mercy General Hospital.  It wasn't the smell that bothered her; it was the silence, a suffocating hush punctuated only by the soft beeping of monitors and the distant hum of medical equipment. It had been three days since she last saw the faces of patients beyond their charts, three days since she had truly felt human connection outside of her own family unit.  
+
+Evelyn, with her sharp hazel eyes and hair pulled back in a tight bun, was a force of nature in the chaotic symphony of the hospital.  She'd been a registered nurse for fifteen years now, navigating the intricate dance between life and death with grace and unwavering dedication. But lately, even her calm exterior had begun to falter.  A new shift, a new ward, a new wave of patients. It was all too much.
+
+Evelyn stopped at the end of the corridor, gazing out into the dimly lit night sky. The moon hung like a pale coin in the darkness, its light barely penetrating the oppressive gloom. She took a deep breath, trying to remember what it felt like to breathe freely, to feel truly alive.  "Just another night," she muttered to herself, her voice echoing through the empty corridor. "Another night." But even as the words left her lips, Evelyn knew that this wasn't just about work; this was about something deeper, something that threatened to consume her whole being: a feeling of isolation creeping in like a silent thief. 
+
+
+**Setting:** Mercy General Hospital - a large, bustling city hospital, where life and death are intertwined through its various wards.  

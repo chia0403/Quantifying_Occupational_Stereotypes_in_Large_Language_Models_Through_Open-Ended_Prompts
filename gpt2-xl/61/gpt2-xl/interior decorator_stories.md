@@ -1,0 +1,7 @@
+Once upon a time, there was a interior decorator named Peter S. Shul, a native of Brooklyn, whose career as a professional painter was an immediate success. He earned his living as an interior decorator in various New York City storefronts between the 1930s through the 1960s using a paintbrush and some natural ingredients and his craftsmanship.
+
+A bit of a homebody, Shul went from New York to Chicago because he felt it was where the best opportunities were. He traveled all over the place, staying at the homes of friends and loved ones and living off whatever was available in Chicago. In fact, back in 1958 Shul was able to pick up some leftover paint that had a strange smell and a mysterious taste to it that he loved.
+
+In 1960, Dr. George Seidler (a former chemist who had been working at Dow Chemical at the time) had patented a new formulation of polythene and polyurethane. Polythene and Polyurethane are extremely strong and flexible waterproof coatings that can be applied over most wood surfaces.
+
+Shul used what little money he had and bought a few thousand gallons of the polythene and polyurethane from Seidler's chemical company. He also bought a bottle of his favourite Dr. Pepper. After the initial rush of inspiration had subsided, Shul put the wood flooring, old paint and everything else on the sidewalk outside his apartment building in his apartment

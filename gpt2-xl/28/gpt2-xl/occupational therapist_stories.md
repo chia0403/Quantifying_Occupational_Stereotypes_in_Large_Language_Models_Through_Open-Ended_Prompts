@@ -1,0 +1,7 @@
+Once upon a time, there was a occupational therapist named John Rinaldi who was hired to treat patients with Tourette's syndrome. One day, she was listening to a tape and noticed the word "I" at the end of a sentence. "Oh no, my child has Tourette's," she thought. She called her husband, who immediately had his therapist re-record the tape. His first impulse, when the re-record failed, was to ask, "He's got Tourette's? You have to stop! Stop!"
+
+He told her not to worry. This is just who he is.
+
+It is hard to fathom how the world came to be made of Mr. Toure and Mrs. Jardine, how a story about two people so desperate for companionship could have come to be told by an author like Ms. Murnaghan, but the case of these two is typical. From childhood to adult life, millions of people have a story of trying to make sense out of the world around them only to hit the wall and give up. As the saying goes, you can tell the story, but you can't make it go away.
+
+Yet with all the difficulties of a world that keeps making you mad, sometimes the story still seems to make sense. That is the way it was for me, and it was the way it is for nearly all of us with Tourette's syndrome, which affects an estimated 4 million Americans

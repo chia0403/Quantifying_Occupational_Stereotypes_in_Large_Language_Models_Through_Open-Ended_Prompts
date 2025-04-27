@@ -1,0 +1,6 @@
+The air hung thick with humidity and anticipation, buzzing like a hive just before the swarm. Neon signs cast lurid colors across the slick pavement of Bourbon Street, each reflecting in the puddles left by the recent downpour. The smell of stale beer, fryer grease, and cheap perfume clung to everything, creating an intoxicating cocktail unique to this corner of New Orleans.  
+
+Amelia Josephine Dubois, or Amy as everyone knew her, adjusted the strap of her sequined microphone holster. Her crimson dress, a fiery splash against the urban canvas, swished around her ankles with each nervous step. Her heart hammered in her chest, a frantic rhythm against the bassline thrumming from the open doorway of "The Blue Moon."  Tonight was the night. Tonight, she would finally audition for the legendary Mardi Gras Ball competition. 
+
+
+This wasn't just any gig. This was Amy's shot at breaking out, escaping the endless cycle of dive bars and backroom gigs that had become her life. She dreamt of singing on a grand stage, her voice soaring over the cheering crowd under the glittering lights of the city she loved.  The Blue Moon, dimly lit and crowded with hopefuls, felt like a launchpad into that dream. Amy took a deep breath, steeling herself against the swarm of nerves, and pushed through the doorway.  She was ready to show them what she had. 

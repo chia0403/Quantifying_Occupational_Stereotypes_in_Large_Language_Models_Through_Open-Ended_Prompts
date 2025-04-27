@@ -1,0 +1,8 @@
+The air hung thick with the scent of acetone and jasmine nail polish as Seraphina Rose meticulously filed Anya's nails into perfect almond shapes. The bell above the door chimed softly as another customer entered "Nails by Sera," but Seraphina didn't look up, her focus solely on the woman in front of her, a whirlwind of blonde curls and designer handbags.
+
+Seraphina's salon was nestled between a boisterous burrito place and a hushed yoga studio on a bustling street in downtown Austin. It was a vibrant mix of old world charm and modern flair: exposed brick walls adorned with abstract art, vintage clawfoot tubs repurposed as nail stations, and a soundtrack of indie music that never quite crossed into "too loud" territory. 
+
+Her clients were as diverse as the city itself – tech entrepreneurs, yoga instructors, college students, even the occasional celebrity escaping the paparazzi's glare. But Anya, with her manicured eyebrows and perfectly sculpted lips, was a regular fixture, always ready with gossip about the latest charity fundraiser or designer collaboration. Seraphina listened patiently, filing away details for later use in her own social climbing – she wasn't just a nail technician, she was a curator of connections in this city that thrived on them.
+
+
+But today, as she applied a shimmering gold polish to Anya's nails, Seraphina felt a shift in the air. A prickle of unease danced across her skin, like an approaching storm cloud.  It wasn't just the familiar anxieties of running a small business – this felt different, more visceral, a warning whispering on the wind that something was about to change.

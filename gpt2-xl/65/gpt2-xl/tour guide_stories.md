@@ -1,0 +1,7 @@
+Once upon a time, there was a tour guide named Marge who helped her visitors with all sorts of questions. (A question we've all heard or had to deal with at one time or another.)
+
+But when the young men at the tour start talking about the tour, they quickly become more and more interested in what she's got cooking! (I've had my own "Cooking is my passion" moments in my past, where I've tried a recipe I knew I wouldn't like, only to end up devouring the dish. It was pretty gross.) In most parts of Mexico City, the restaurant tours and food tours are very common and quite nice. What is different about it is that, in some cases, the tour guide and the cook are one and the same. So, in some cases, the chef-guide is a female. I found this interesting, as the female tour guide was always trying to look pretty by wearing very nice clothes and makeup. I'm still not sure if people actually think tour guides are men or if they just dress male-like.
+
+Marge did have a husband (yes, there are male tour guides) and a baby who helped take care of the other children, but she still worked as a tour guide.
+
+When you walk through the Mexican Museum, the first thing you will see is a display of historic people or events that are associated with that place. You will also find a lot of the paintings in the

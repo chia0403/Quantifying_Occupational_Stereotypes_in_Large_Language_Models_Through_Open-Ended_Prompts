@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** The biting wind whipped off Lake Michigan, swirling dead leaves and grit around the ankles of anyone foolish enough to venture out on Chicago's Navy Pier in late October. The Ferris wheel groaned in protest against the gusts, its normally vibrant lights dimmed and flickering. A smattering of tourists, bundled in overpriced sweatshirts and clutching cups of lukewarm coffee, hurried past, heads bowed against the wind.
+
+**Opening:**
+
+Agnes Petunia Plum, the "Petunia" she stubbornly insisted on retaining on her business cards despite years of mockery, shivered, pulling her cashmere scarf tighter around her neck. The promised buyer, a young tech mogul rumored to be worth more than the entire GDP of a small island nation, was already fifteen minutes late. Agnes, a top-producing real estate agent for "Prestige Properties of the Magnificent Mile," prided herself on her punctuality. She believed it spoke volumes about her professionalism, her respect for others' time, and her general competence. Right now, however, standing in the blustery cold, clutching a stack of glossy brochures for the penthouse condo overlooking the city, she felt anything but competent. She felt… cold. And slightly ridiculous. "He said Navy Pier, right?" she muttered to herself, the question lost in the roar of the wind. She consulted her phone for the tenth time in as many minutes. No messages. No missed calls. Just the grim reminder of the battery life dwindling precariously close to single digits.

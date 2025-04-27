@@ -1,0 +1,9 @@
+The air hung thick and heavy with the scent of salt and seaweed as Amelia "Amy" Rivers adjusted her worn fedora and squinted at the approaching dawn.  Her voice, normally brimming with enthusiastic energy, was a hushed murmur, barely audible above the ceaseless roar of the Atlantic waves.
+
+"This...this is where it all began," she whispered to her small group, their faces illuminated by the pale blue glow of daybreak. "The very place where Captain Blackwood's legendary ship ran aground on these treacherous rocks centuries ago." Amy's voice trembled slightly as she pointed towards a rocky outcrop jutting from the shore. The remnants of the once majestic galleon were now just a skeletal silhouette against the dawn sky, its timbers twisted and broken by time and tide.
+
+The Isle of Aisling, a place shrouded in myth and legend, lay before them.  Amy's voice rose again as she started to weave the tale of Captain Blackwood, his ruthless ambition, and the curse that clung to the island like sea fog. "Some say he hid stolen treasure deep within these rocks," she said, her eyes gleaming with a mixture of fear and fascination. "Others whisper of hidden tunnels leading to a world beyond our own."
+
+It was a tale Amy knew by heart, but every time she stood in front of the crumbling wreckage, it felt fresh and real. The biting salt air, the crashing waves, and the ghostly echoes of her ancestors' stories made the legend come alive before her very eyes.  Tonight would be different. Tonight, Amy Rivers wasn't just a tour guide; she was a witness to the island's secrets. 
+
+"Are you ready for what lies beneath?" she asked her group, her smile both playful and serious. They were a motley crew of adventurers seeking thrills in the form of a forgotten history lesson. Tonight, under the watchful eye of the old vessel, they would uncover the truth.  

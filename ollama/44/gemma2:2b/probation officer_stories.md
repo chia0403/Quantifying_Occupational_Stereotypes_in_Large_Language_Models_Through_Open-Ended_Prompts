@@ -1,0 +1,7 @@
+Rain lashed against the grimy windows of Amelia "Amy" Finch's office, mirroring the storm brewing inside her.  The flickering fluorescent lights cast long shadows over the worn leather furniture and overflowing files scattered across her desk. The air hung thick with an unsettling blend of stale coffee and a palpable sense of dread.  
+
+She stared at the photograph on her desk – a vibrant snapshot of a smiling woman, hair sun-bleached blonde in the summer light. Her mother's eyes held a mischievous twinkle that Amy often reminisced about, before the cancer had stolen her laughter and her life in one fell swoop. 
+
+Amy Finch, probation officer extraordinaire at the notorious Northside Community Corrections Center, was facing one of her toughest cases yet:  Marcus "The Hammer" Thompson. A convicted murderer with ties to a ruthless street gang, Thompson had been placed under Amy's supervision for parole. Her job, as she knew it, was supposed to be about guidance, rehabilitation, and keeping the young man – a volatile force in their community – from re-offending. 
+
+But tonight, a chilling wind of uncertainty blew through her heart. A single line scrawled on a flimsy note taped to Thompson's door screamed at Amy: "Don’t let him see you." It was signed simply, “D.”  And all she could think about was the man in the photograph – the one whose life was teetering on the edge of redemption. 

@@ -1,0 +1,6 @@
+The aroma of caramelizing sugar and warm yeast hung heavy in the air, a comforting blanket against the damp chill creeping in from the cobblestone streets of Edinburgh. Amelia Thistlewood, her hands dusted with flour and her face flushed from the heat of the oven, surveyed her latest creations with a critical eye. Rows of crusty sourdough loaves lined one shelf, glistening raspberry tarts tempted on another, and a towering three-tiered wedding cake sat proudly in the centre, adorned with delicate sugar flowers that looked almost too perfect to eat. 
+
+Amelia’s bakery, “The Golden Crumb,” nestled on a quiet lane just off the Royal Mile, was her sanctuary. It wasn't just a business; it was an extension of herself, filled with the memories of her grandmother teaching her to knead dough and her father patiently explaining the nuances of sourdough fermentation.  Each loaf, each tart, each cake held a piece of her heart, baked with love and a sprinkle of magic that made people crave more than just the taste. 
+
+
+But today, something felt different. A prickle of unease ran down Amelia’s spine as she glanced at the empty street outside. The usual bustle of tourists and locals seemed absent. This quiet, this stillness, was unsettling.  

@@ -1,0 +1,5 @@
+The scent of stale coffee and burnt toast clung to Amelia Croft’s office like a bad habit.  She sighed heavily, picking up her worn coffee mug. The steam swirling from it momentarily obscured the photo on her desk: a smiling woman with eyes that crinkled at the corners, holding a beaming baby boy. “You wouldn't believe what my day has been,” Amelia murmured to the empty room, "It’s just one disaster after another.”  
+
+Amelia wasn't new to this chaos; insurance claims were her lifeblood. Every day she dealt with unforeseen tragedies – car accidents, fire-ravaged homes, and even freak bird attacks on unsuspecting families. Each claim was a puzzle, demanding meticulous attention to detail and endless amounts of paperwork. Her desk, cluttered with folders and stacks of documents, was a testament to this constant whirlwind.  
+
+She sat back in her worn leather chair, the familiar creak a quiet echo against the growing silence of another Monday morning. Amelia's world had always been defined by numbers and deadlines, but today felt different. Today, there was something heavier, something more personal at stake. 

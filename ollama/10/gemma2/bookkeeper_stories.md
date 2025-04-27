@@ -1,0 +1,3 @@
+The faint scent of lavender hand sanitizer hung heavy in the air, competing with the stale aroma of dust and aging paper that permeated Mildred Beatrice Hemmings' entire existence. Her cramped office, tucked away in the back corner of the dusty antique shop, was more akin to a forgotten library than a place of business. Sunlight struggled to penetrate the grime-coated windows, casting long shadows over rows upon rows of ledgers bound in cracked leather. 
+
+Mildred, perched precariously on a rickety stool behind her ancient oak desk, meticulously analyzed the figures before her. A headache was building behind her eyes, a familiar companion whenever she delved into the tangled financial history of the shop's eccentric owner, Mrs. Elara Blackwood.  

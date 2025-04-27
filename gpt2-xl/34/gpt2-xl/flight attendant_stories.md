@@ -1,0 +1,3 @@
+Once upon a time, there was a flight attendant named "The Rock" and the president of the United States. The president was named Ronald Reagan and the flight attendant was named Nancy Reagan. It must have been in a bar because nobody would be surprised if the president is the President, Ronald Reagan and Nancy is Flyway. It happened, and that was it.
+
+The Rock and Nancy are still, by every rule, married and it would be wrong of me to tell them otherwise. It also would be wrong of me to call Ronald Reagan, The Rock, since he has, in the past, had much better things to do with his time.

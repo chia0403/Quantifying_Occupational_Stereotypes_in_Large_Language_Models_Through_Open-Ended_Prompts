@@ -1,0 +1,7 @@
+The aroma of burnt coffee clung to Mrs. Eleanor Beaumont like a second skin.  She stared out the rain-streaked window of her classroom, watching the grey sky mirror the bleakness in her own soul. The bell for sixth period was about to ring, but Eleanor wasn't prepared. She hadn't been prepared all week. Her energy, usually vibrant and infectious, had dwindled to a flicker, consumed by the mounting pressure of deadlines, student apathy, and the relentless hum of loneliness that had become her constant companion. 
+
+Eleanor pushed her unruly auburn curls behind her ears, smoothing out the wrinkles on her once crisp blouse.  The classroom, normally bursting with the chaotic symphony of teenage energy, was eerily quiet. Even the dust motes dancing in the weak light seemed to move with a melancholy resignation. The setting sun cast long shadows across the cluttered desks and faded posters, highlighting the emptiness that threatened to engulf her.
+
+Sixth period: Advanced Placement English Literature.  The very thought sent a wave of exhaustion crashing over her. It felt like an insurmountable mountain she was doomed to climb alone. Eleanor took a deep breath, trying to summon the strength to face another day in this monotonous cycle of grading papers, battling distractions, and pretending that somewhere beneath the surface, passion still flickered.  But today, even the flickering seemed dim. 
+
+

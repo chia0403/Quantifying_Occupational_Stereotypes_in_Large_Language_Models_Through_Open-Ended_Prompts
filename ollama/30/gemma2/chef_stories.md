@@ -1,0 +1,6 @@
+The rhythmic clang of knives against steel echoed through the cavernous kitchen, a symphony only Isabelle "Izzy" Marchand could truly appreciate.  Steam from simmering sauces swirled around her like spectral dancers, their fragrant melodies filling the air. The heart of this culinary ballet was Izzy's domain – “La Petite Cocotte,” a charming French bistro tucked away on a cobblestone street in Montmartre, Paris. 
+
+The sun, a molten gold coin slipping below the horizon, cast long shadows across the worn, terracotta tiles. Through the open kitchen window, the Parisian night began to unfold - twinkling lights strung between ancient buildings, and the gentle murmur of conversation filtering from tables bustling with patrons.  Izzy, her brow furrowed in concentration, deftly flipped a crepe filled with caramelized apples and creamy chestnut sauce, each movement precise and practiced. This was her sanctuary, where flour transformed into ethereal pastries, vegetables bloomed into vibrant colors on plates, and every dish told a story – a story only she could write. 
+
+
+Tonight, however, something felt different. A prickling tension hung in the air, a dissonance in the familiar rhythm of the kitchen. Izzy couldn't quite place it, but a shadow loomed over her normally joyful space, threatening to disrupt the carefully constructed harmony of La Petite Cocotte.   

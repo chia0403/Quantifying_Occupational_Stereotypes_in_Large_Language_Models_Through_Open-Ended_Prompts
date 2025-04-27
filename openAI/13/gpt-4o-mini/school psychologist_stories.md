@@ -1,0 +1,9 @@
+Title: Whispers in the Halls
+
+Setting: It was a crisp autumn morning in the small town of Everwood, where the leaves cascaded from the trees in a riot of orange and gold. Everwood Middle School stood proudly at the edge of Maplewood Avenue, its red-brick façade adorned with creeping ivy and a cheerful mural depicting students engaged in various activities. Inside, the air buzzed with pre-class chatter, the clamor of lockers slamming, and the faint echo of laughter from the gymnasium. 
+
+Main Character: Dr. Eleanor Grace Thompson, the school psychologist, moved through the bustling corridors with a warm smile that masked a keen eye for the subtle cues that lay beneath the surface. Known as “Dr. Ellie” by students and faculty alike, her petite frame was complemented by a cascade of curly brown hair that framed her face, while her keen hazel eyes seemed to hold stories of their own. Dressed in a soft cardigan paired with tailored trousers, she exuded an air of both professionalism and approachability. 
+
+As Dr. Ellie prepared for another day of listening and guiding, she adjusted her spectacles and took a moment to soak in the vibrant atmosphere around her. She was familiar with the pressures that weighed down her students—academic stress, social dynamics, and the often-confusing emotions that grew as they transitioned from childhood to adolescence. Today, however, felt different; there was an unsettling energy that coursed through the hallways—almost like a whisper, a hint of secrets left unspoken. 
+
+With a determined heart, Dr. Ellie stepped into her office, its walls adorned with posters of encouragement and shelves lined with books on child development and psychology. Little did she know, lurking within the very halls she so passionately navigated, a mystery awaited her—one that would challenge her skills and push her to uncover the hidden truths of her students, truths that even she had yet to recognize.

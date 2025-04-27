@@ -1,0 +1,7 @@
+The late afternoon sun cast long shadows across Dr. Eleanor Rosalind Vance’s cluttered desk, turning the dust motes dancing in the air into shimmering specters. She leaned back in her ergonomic chair, the worn leather sighing under her weight, and rubbed her temples.  Eleanor had spent the last hour wading through the labyrinthine narratives of another patient, a construction worker plagued by nightmares of crumbling skyscrapers and his own hands turning to dust. It was the kind of case that burrowed into your bones, leaving you feeling hollowed out long after the session ended. 
+
+Her office, nestled in a quiet corner of Boston’s Beacon Hill, wasn't particularly inviting either.  It was crammed with bookshelves groaning under the weight of psychology texts and dog-eared novels, faded tapestries hanging on the walls depicting scenes from Greek tragedies, and mismatched armchairs that creaked ominously with every movement. The air hung heavy with the scent of old paper and simmering chamomile tea, remnants of a failed attempt at creating a calming atmosphere.
+
+Eleanor sighed, pushing aside a pile of case files that threatened to engulf her.  A wave of exhaustion washed over her, but it was a familiar feeling, one she'd learned to manage over the years. She reached for her mug of lukewarm tea, its aroma offering little comfort. The doorbell chimed, signaling the arrival of her next patient. Another story waiting to be unraveled. 
+
+

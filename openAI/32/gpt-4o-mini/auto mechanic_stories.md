@@ -1,0 +1,9 @@
+Title: **Wrenches and Whispers**
+
+**Setting:**
+In the heart of Riverton, a quaint town nestled between dense oak forests and meandering rivers, lies "Mason's Garage," a bustling auto repair shop that buzzes with the symphony of clanking tools and the aroma of motor oil. The garage is a modest brick building with peeling paint, and its large glass windows offer a glimpse into a world alive with movement—mechanics hard at work, cars lifted on hydraulic jacks, and a rainbow of spark plugs and wrenches scattered about like a chaotic artist's palette. Just outside, the local diner, the "Silver Spoon," serves as a gathering spot for town gossip, and the ever-watchful eyes of the townsfolk often peek through the garage's open doors, eager to see what miracles are being wrought inside.
+
+**Main Character:**
+Winston "Winnie" Samuel Carter, a thirty-something auto mechanic with tousled dark hair and a perpetual smudge of grease on his cheek, is the heart and soul of Mason's Garage. He’s a man of few words, opting instead to communicate with his hands and tools, but his warm smile and a soft chuckle can light up the shop like a well-placed halogen bulb. Winnie has an uncanny ability to diagnose a car's ailment with a mere touch, a gift he credits to his late grandfather, who instilled in him the love of machines and the importance of listening—both to the intricate workings of an engine and to the stories of the people who bring their vehicles to him. 
+
+In the evenings, as the sun sinks low and paints the sky in hues of orange and violet, the garage doors open to reveal the quiet streets of Riverton. It is in these moments, with the hum of cicadas fading into the dusk, that Winnie finds solace in the rhythmic pulse of his work—until a vintage Ford Mustang pulls up, its engine sputtering like an old man clearing his throat. Little does he know, the motor isn’t the only thing that will need fixing that night.

@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named "George" who introduced his students to his favorite workout. They were all surprised because it was never done in those days — at least not with the training we were familiar with when George started it.
+
+George was a tall, skinny, short, white man. His body type was just about perfect for "leg day" — so much so that it seemed like it would be impossible to do leg training that included any degree of muscle tension. George would perform a lot of leg exercises and the weight was always lighter than what you would have for squats.
+
+He would perform sit-ups, crunches, lunges, good mornings, and "leg curls", a combination of sit-ups and leg curls. Leg curls are just a fancy term for leg lifts performed while "hanging on" to a leg, or to the floor, or behind the back. George would show his students that if they did one "leg curl", each one of them would be able to do several leg workouts using this form of training over the next three to four weeks.
+
+As you can see, the bar was always lighter than those he had been trained to use to perform leg workouts. He would tell us to sit down into the leg and think about sitting down while lifting the weights, "bouncing" or "riding" it for a minute or so. And "bouncing" doesn't mean moving with the legs

@@ -1,0 +1,11 @@
+**Opening:**
+
+The scent of burnt caramel hung heavy in the air, a casualty of Amelia Pearl’s distraction. Normally, she’d have whisked the sugary mishap into the disposal with a practiced flick of her wrist, humming along to the vintage jazz station that streamed through the speakers of “The Pearl Clutch,” her salon. But this morning, even the smooth crooning of Ella Fitzgerald couldn’t soothe the knot of anxiety tightening in her chest.
+
+Amelia stared out the rain-streaked window, her reflection a ghostly overlay on the already dreary cityscape. It had been five years since she'd bravely taken the leap and opened The Pearl Clutch, five years of carefully curated vintage vibes, expertly applied vintage waves, and a loyal clientele built on more than just good haircuts and vibrant colors. It was built on trust, on genuine connection, on a feeling of belonging. And that feeling, Amelia feared, was about to be swept away by a storm brewing far outside the salon's cozy, rose-tinted walls.
+
+**Setting:**
+
+The Pearl Clutch was nestled in the heart of Portland's vibrant Alberta Arts District. Its storefront, painted a whimsical robin's egg blue, was adorned with a vintage wrought-iron sign featuring a string of luminous faux pearls. Inside, the salon was a carefully constructed time capsule, a love letter to the golden age of Hollywood glamour.
+
+Antique vanities, salvaged from estate sales and meticulously restored, lined the walls, each lit by a warm, flattering glow from Art Deco sconces. Framed photographs of silver screen icons, like Audrey Hepburn and Grace Kelly, smiled down on the patrons, their timeless beauty a constant source of inspiration. Plush velvet chairs, in shades of emerald green and dusty rose, offered comfortable seating while clients waited their turn for Amelia's magic touch. The air was always filled with a blend of floral perfume, hairspray, and the occasional, now-burnt, hint of caramel – a comforting, familiar scent that spoke of creativity and transformation. Even the music was carefully selected, a playlist of classic jazz and swing that transported everyone who entered back to a simpler, more elegant time. The Pearl Clutch was more than just a salon; it was an experience, a sanctuary, a little piece of magic in the modern world.

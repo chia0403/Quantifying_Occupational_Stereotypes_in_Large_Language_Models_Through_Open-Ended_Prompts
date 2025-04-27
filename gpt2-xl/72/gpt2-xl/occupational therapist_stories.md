@@ -1,0 +1,7 @@
+Once upon a time, there was a occupational therapist named Dr. Mary E. Lomax who worked in the New York-Presbyterian Hospital. Her job was to help patients with mental disorders develop healthy social skills and develop the skills necessary to perform their jobs. Lomax had the unique job of providing training to other therapists to learn what techniques worked well with patients, so they could then use them for themselves.
+
+
+Lomax would ask patients questions like "Do you like the colour pink?" and then would record the answers in her notebooks. These notebooks are filled with pictures of happy, smiling patients who would happily sit in front of a bright light, for example, and Lomax would ask them, "Do you like the colour blue? How about pink? How about yellow? How about green?" What you can see in those picture notebooks are patients who were clearly enjoying and developing friendships with other patients. They were excited to be talking to other people and having activities together.
+
+
+Lomax was able to prove that healthy relationships are healthy relationships by interviewing patients and listening to their stories. Lomax believed that patients who develop good friendships are less likely to later develop depression. A more recent study from this same New York-Presbyterian Hospital that uses a similar group of patients has found some amazing results. They found that the patients who were the happiest in their relationships were also less likely to develop depression. This proves that the environment you are in affects not

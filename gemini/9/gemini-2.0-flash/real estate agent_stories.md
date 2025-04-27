@@ -1,0 +1,7 @@
+## Story Opening & Setting:
+
+**Setting:** The humid, salt-laced air hung heavy over St. Augustine, Florida. Cobblestone streets, lined with historical buildings sporting wrought-iron balconies overflowing with bougainvillea, shimmered under the relentless midday sun. The air buzzed with the lazy hum of tourists and the distant cries of seagulls.
+
+**Opening:**
+
+Beatrice Eleanor "Bea" Carmichael adjusted her oversized sunglasses, the sweat already beading on her forehead despite the sea breeze. She smoothed down her linen skirt, a futile attempt to ward off the Florida humidity that seemed determined to wrinkle everything it touched. She was standing in front of 12 Aviles Street, a majestic, albeit slightly dilapidated, Spanish Colonial Revival mansion known locally as "The Castillo House." Today, Bea was scheduled to give a private tour, and a shiver of nervous energy ran through her. This wasn't just any listing; The Castillo House was legendary, rumored to be haunted by the spirit of a lovesick conquistador. Bea wasn't a believer, but she knew its reputation could either make or break a sale. And Beatrice Eleanor Carmichael needed this sale. Her reputation, her livelihood, and possibly her entire future rested on the success of this tour. She checked her watch. 2:58 PM. Right on time. She could just make out the sleek, black luxury SUV turning onto Aviles Street. Here we go, she thought, putting on her most practiced, reassuring smile. Let the show begin.

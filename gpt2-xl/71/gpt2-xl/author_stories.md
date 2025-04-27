@@ -1,0 +1,7 @@
+Once upon a time, there was a author named Daniel Quinn. He was the first to admit that "fiction is simply a device to explore characters, and in doing so to create a world, and also to show us the way forward. It's in fact the most perfect medium." Quinn's books were popular amongst younger generations, many of whom found inspiration from his work. But it was in the 1980s, during Quinn's most famous project, that he set out to write something truly original.
+
+
+"I didn't want to have my characters in the same universe as my readers. If I had to come up with a new story, I needed a place I could go somewhere. I needed to imagine a new universe. I needed to invent it to. All I had to do was look back at my own childhood and look for clues that I could use to see other worlds in front of me. So, my job was to construct the world around them. I had to invent my world, because that's where the audience was going to be."
+
+
+Quinn created a world far removed from any he'd ever known: the world of Tanya Huff, a young woman haunted by a horrible childhood story that seems to have been written by The Lord of the Rings. So horrific that even the authors never shared the experience with her. The story involves a girl who is kidnapped by a gang of thieves in the middle of the night, and is imprisoned in a castle for five years

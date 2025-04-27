@@ -1,0 +1,7 @@
+Once upon a time, there was a hairdresser named Muffy. Muffy was so popular that she was able to keep her salon open by promising the customers that if they had to go to other hairdressers, they could send their business to her. They loved Muffy so much that by the time she was old, they had sent all their business to him.
+
+Now of course, in the world that Muffy and Muffy's customers lived in was that there were no other shops. Everyone had to go to Muffy's to buy hair products, and to get her product everyone had to go to Muffy's again. As you may well imagine, this was not really a good combination.
+
+One day, one of Muffy's customers came there and asked what kinds of products she sold. The hairdresser told him that she did make all kinds of hair products. But not for hair. No, instead she sold products that allowed people to be good students or good workers. One of the customer's friends happened along and was having a trouble at his old high school. He couldn't seem to get anyone to like him; they all thought he was a loser from some other town. One day he saw Muffy's hair products and was instantly hooked. But he didn't want his friendship to come at the expense of his future career. He called Muffy to tell her about his new desire.
+
+Muffy was really pleased

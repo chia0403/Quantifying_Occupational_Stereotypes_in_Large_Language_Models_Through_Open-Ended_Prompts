@@ -1,0 +1,5 @@
+The flickering fluorescent lights buzzed overhead, casting a sickly yellow pallor over Dr. Amelia Sinclair's cluttered office. Papers overflowing from filing cabinets spilled onto the floor like autumn leaves, mingling with stray crayons and forgotten building blocks. A faint aroma of hand sanitizer lingered in the air, battling against the scent of stale coffee and nervous sweat. This was her battlefield: a cramped corner room at Elmwood Elementary, where broken dreams, whispered anxieties, and burgeoning traumas were laid bare under the watchful gaze of her trained empathy.  
+
+Amelia sighed, pushing back her auburn braid as she glanced at the clock. 8:57 AM. Her first appointment of the day was due any minute, a fourth-grader named Ethan Jones who'd been referred for "aggressive outbursts." Amelia hoped this wouldn't be another case of misunderstood anger, another child lost in the labyrinth of societal expectations. She longed to see past the label, to understand the root cause of his pain and help him find a path toward healing. The door creaked open, breaking her reverie.  A small, tense figure stood hesitantly in the doorway. 
+
+

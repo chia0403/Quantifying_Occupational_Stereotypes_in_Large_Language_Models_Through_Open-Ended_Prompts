@@ -1,0 +1,11 @@
+Title: "The Night Sweep"
+
+Underneath the flickering neon lights of the downtown college campus, an air of mystery cloaked the corridors after dusk. Beyond the last echoing footsteps of students eager to head home, and the distant hum of traffic, the halls took on a life of their own. This was a world few were privy to, where whispers of the day settled in the shadows, and every room held secrets of tomorrow's promise.
+
+At the heart of this quiet realm was Benjamin "Ben" Thompson, the steadfast janitor of Redwood University. Ben was a man whose presence was as constant as the rising sun, though his work began when most others had ended theirs. He was a tall, unassuming figure, whose frame had grown accustomed to the utility belt slung low around his hips, jangling with keys and tools. His eyes were a calm, deep blue, like the ocean at midnight, and carried the weight of countless stories spoken softly in passing. 
+
+Each night, as the world shrank to the glow of his mop bucket and the rhythmic swish of mop against tiles, Ben embarked on his own odyssey. The empty classrooms and solemn libraries were his to discover, like forgotten planets orbiting an unseen sun. He knew the squeaky truths of every floorboard and the rusted whispers of every stubborn hinge. Ben harbored a respect and care for this environment that went beyond duty; it was as if the walls of Redwood breathed with him, recognizing his hands as part of their being.
+
+The janitor's closet, tucked beside the art department, was Ben's domain. A small, inconspicuous room, filled with the aroma of pine-scented cleanser and the dusty allure of timeworn mystery novels stacked haphazardly on a shelf. Here, Ben would retreat for moments of quiet reflection, away from the bustle of broom and dustpan, to sip on instant coffee from a chipped mug bearing the college emblem.
+
+As he shuffled out into the cool corridor, the soft click of his cart echoing like a familiar tune, Ben began his nightly patrol. Tonight, like every night, he would traverse these solitudes with a practitioner's ease until the early hours of dawn invited the sun's debut. Each step a benediction, each swish a silent conversation with the echoes that lingered long after students and professors had departed, leaving Ben Thompson and his silent stewardship to hold sway over the night.

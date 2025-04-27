@@ -1,0 +1,5 @@
+The announcement crackled through Amelia Grace Hawthorne's headset, "Captain, preparing for descent into JFK International. Please advise on landing runway." Amelia glanced out the window at the sprawling cityscape glittering below, the lights like fallen stars against the twilight sky. She adjusted her crisp blue uniform, the star-shaped pin glinting against the navy fabric, and checked her reflection in the mirrored surface of the galley cart. A quick touch of lip balm, a smoothing of her short auburn hair, and she was ready for the final leg of this transatlantic flight from London Heathrow. 
+
+Her smile felt practiced, but beneath it, Amelia couldn't shake a feeling of unease. Something about this flight had been different from the start, a prickle of tension that hadn't quite dissipated despite the smooth journey and well-behaved passengers.  As she prepared for landing, she couldn't help but wonder what awaited her on the tarmac, in the heart of the bustling New York City night.
+
+

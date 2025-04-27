@@ -1,0 +1,8 @@
+The late afternoon sun slanted through the floor-to-ceiling windows of "Maison Celeste," casting dusty golden rays across Amelia Winthrop's workspace. She stood in the center of the room, surrounded by swatches of velvet and silk, carefully arranged within an elaborate system of hanging rods. The air was thick with the heady scent of expensive fabric, wood polish, and something faintly reminiscent of burnt sugar - the phantom aroma that always lingered after a late-night session with Mrs. Peabody's prized antique china doll collection.
+
+Amelia Winthrop had built "Maison Celeste" from scratch. Her father, a former architect, had bequeathed her his workshop space in a historic townhouse on the edge of New York City's charmingly chaotic SoHo neighborhood. Amelia knew every crack in the floorboards and the history whispered by the faded portraits hanging above the fireplace. She'd poured years into transforming this once-dusty haven into a vibrant canvas for her clients' dreams, each project a carefully orchestrated symphony of textures, colors, and function.  But today, an unusual unease settled in Amelia's gut. A visitor was on his way, one who promised to turn her world upside down - literally. 
+
+
+**Setting:** A beautifully restored townhouse in the heart of SoHo, New York City. Filled with vintage furniture, antique artifacts, and a sense of history that permeates through every room.
+
+**Main Character:** Amelia Winthrop (known affectionately as "Amy" by friends) is an interior decorator known for her exquisite taste and ability to transform ordinary spaces into breathtaking works of art. 

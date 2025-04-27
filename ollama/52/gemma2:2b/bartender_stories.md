@@ -1,0 +1,5 @@
+The amber glow of the "Rusty Mug" saloon bathed Elara Thorne's face in an orange sheen.  A symphony of clinking glasses and boisterous laughter filled the air as she weaved through the throng of rough-hewn patrons, their boots kicking up dust on the worn wooden floorboards.  Elara, with her nimble fingers already stained from years of pouring whiskey and her midnight-black hair pulled back in a tight bun, was as much a fixture at "The Mug" as the chipped bar itself. 
+
+Tonight was particularly rowdy. The annual county fair had brought its share of grizzled miners, swaggering cowboys, and enough saloon brawls to fill a dozen barrels. Elara knew better than to get tangled in it all - she'd learned her lesson during the infamous "Whiskey War" that left half the town singin’ and salisin' for weeks.  The air itself felt thick with tension. Elara wished she could drown out the din with another shot of rye, but duty called. She needed to be the calming eye in a storm of drunken revelry, serving up her potent concoctions like medicine to the wounded souls of this wild frontier town. 
+
+

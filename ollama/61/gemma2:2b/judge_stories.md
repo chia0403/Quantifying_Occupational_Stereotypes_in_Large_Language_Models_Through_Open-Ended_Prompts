@@ -1,0 +1,7 @@
+Rain lashed against the ornate glass windows of the Judge's chambers in the Grand Hall of Justice, the storm mirroring the turmoil brewing inside Honorable Judge Aric Sterling.  His usually impeccable courtroom demeanor was fractured, replaced by an icy unease that tightened his jaw and made his eyes seem too large for their sockets. The clock ticked with mockingly measured silence as he stared at the single black rose on the desk - a cruel, silent mockery of the hope blooming within him for the last 12 hours.  
+
+He was about to hear the verdict in the case that had haunted him since the moment it came before his court: the disappearance of young Amelia Bellinger, her family utterly consumed with grief and suspicion swirling around every corner of their lives. Aric's legal mind had meticulously dissected the evidence - a broken locket found near the docks, her diary entries hinting at a secret admirer, and a strange mark on Amelia's body that defied explanation. But nothing truly made sense. 
+
+His own daughter, a budding artist just like Amelia with eyes that shone with an innocent curiosity, was leaving tomorrow for the prestigious Academy of Arts in Paris. The thought triggered a sharp pang of longing as he imagined her stepping into the world without any threat - without the weight of this case and its chilling uncertainty. Tonight, however,  he had a responsibility to his legal duties, to ensure justice would be served – even if it was something beyond the confines of the courtroom. 
+
+

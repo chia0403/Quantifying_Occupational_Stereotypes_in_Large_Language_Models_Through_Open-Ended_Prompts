@@ -1,0 +1,5 @@
+The air hung heavy with the scent of brine and decay in Port Aisling's crowded market square. Sunlight glinted off the cobblestones slick with spilled ale and fish guts, highlighting the grime that clung to everything like a second skin. Above, gulls screeched their discontent as they circled a butcher who hawked his wares with an unyielding cheerfulness. 
+
+Sergeant Alistair Thorne tugged his worn leather jerkin tighter against the chill wind whipping off the harbor. He scanned the throngs of merchants, sailors, and locals, his hand hovering near the hilt of his broadsword. The annual Feast of the Tide was a time for celebration, but it also drew its share of troublemakers - those looking to exploit the revelry for their own gain, or just plain rowdy souls eager to test the limits of Port Aisling's simmering lawlessness. 
+
+Alistair, with his weathered face and piercing blue eyes, had seen enough of both. He was a veteran of the city guard, known for his quiet competence and unflinching loyalty to the Captain and their duty to keep Port Aisling safe, even amidst the chaos that seemed to follow every tide.  

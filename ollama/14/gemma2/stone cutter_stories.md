@@ -1,0 +1,6 @@
+The wind whipped through the narrow valley, carrying with it the scent of salt from the distant sea and the grit of crushed granite.  Alistair Finnian MacAllister, his weathered hands calloused and scarred from years of working with stone, hunched deeper into his thick woolen coat. The early morning sun was a pale disc behind the rolling grey clouds, barely piercing the gloom that clung to the valley floor. 
+
+Alistair's workshop, nestled against the hillside in this forgotten corner of Skye, was a symphony of chaos. Rough-hewn blocks of granite lay scattered about, remnants of chisel work littered the worn wooden floor, and a plume of dust hung heavy in the air, illuminated by the flickering light of his oil lamp. He ran a calloused thumb over the surface of a half-finished sculpture – a fierce eagle carved from the heart of a storm-swept mountain. The wind howled outside, mimicking the eagle's imagined cry, and Alistair felt a familiar thrill course through him. This was where he belonged, amidst the raw power of stone, the solitude offering solace, the creation a testament to his own enduring spirit. 
+
+
+He took a deep breath, the cold air stinging his lungs, and began the day’s work.  

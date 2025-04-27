@@ -1,0 +1,9 @@
+The morning sun painted the sky in hues of gold and pink, casting a soft glow on the quiet streets of Willowbrook. In this small town nestled between rolling hills and winding rivers, life moved at a gentle pace, and the rhythm of the surrounding nature was a comfort to its residents. Along Main Street, with its quaint shops and coffee houses, people began to stir, greeting the new day with familiar routines and hopeful anticipation.
+
+Within this serene setting stood Willowbrook General Hospital, an institution dating back nearly a century, where the corridors were lined with potted plants that thrived under fluorescent lights and the scent of antiseptic mixed with fresh flowers from the nearby florist. It was here, among the bustling nurses and bustling patients, that Lisa Warwick began her day.
+
+Lisa Warwick, RN, had always known she was meant to care for others. With her compassionate nature and quick mind, she was a calming presence amidst the steady hum of hospital life. Her crisp white uniform was a perfect match for her bright eyes and the warm smile she wore like armor against the challenges of the day. As she made her way through the hospital’s familiar halls, she knew each turn and doorway, each sound and smell, as if it was part of her very being.
+
+For Lisa, the hospital was more than just a workplace. It was a canvas upon which life unfolded in all its complexities. It was here that she found extraordinary stories of hope and heartbreak, cherished connections with patients and colleagues, and the daily reminder of the vital role she played in the lives of others.
+
+This morning, as she approached the nurse's station, Lisa took a deep breath and prepared herself for whatever the day might bring. Little did she know, it would be a day unlike any she had experienced before, one that would challenge her skills, her beliefs, and her very understanding of what it meant to be a nurse.

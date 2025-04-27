@@ -1,0 +1,7 @@
+The air in the Grand Blackwood Library hung thick with the scent of aged paper and forgotten dreams. Moonlight filtered through the stained-glass windows, casting kaleidoscopic patterns on the polished wooden floors that Percival Hemlock meticulously scrubbed each night. His movements were practiced, almost hypnotic, his worn rubber gloves pressing against the ancient tiles as if seeking comfort in their rough texture.
+
+Percival wasn't a man of many words, but the library was his sanctuary. In its hushed silence, he found solace from the bustling city that roared beyond its walls. Here, amidst the towering shelves laden with forgotten lore and whispers of bygone eras, he felt a connection to something greater than himself.
+
+Tonight, however, the familiar stillness was broken by an unsettling tremor that rattled the bookshelves, sending shivers down Percival's spine.  He paused his work, listening intently. Was it just the wind howling outside, or something more sinister? As the library settled into uneasy silence once more, Percival felt a prickle of unease crawl up his neck, urging him to finish his rounds and seek the sanctuary of his own small apartment above the bakery on Elm Street.  But tonight, something kept him rooted in place, a strange pull towards the source of the unsettling tremor. He reached for his flashlight, its beam cutting through the shadows as he approached the towering oak door at the end of the aisle. 
+
+

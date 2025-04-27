@@ -1,0 +1,9 @@
+The fluorescent lights of "Pump & Grind" Fitness studio hummed a nervous energy, reflecting off the chrome dumbbells and sweat-slicked faces. It was 5:45 AM, and the air, thick with the smell of industrial cleaner and nascent B.O., vibrated with the thumping bass of Rihanna. Outside, Chicago was still slumbering under a blanket of pre-dawn darkness, oblivious to the pain and potential unfolding within these walls.
+
+Twenty minutes ago, a gaggle of bleary-eyed regulars had shuffled in, clutching travel mugs and muttering about the weather. Now, fueled by pre-workout and the grim determination to earn their morning bagel, they were a writhing, grunting mass of humanity, desperately trying to keep pace with the human tornado at the front of the room.
+
+That tornado was Eleanor Magnolia Thorne, but everyone just called her Ellie. Dressed in neon pink leggings and a cropped black tank that showcased the sculpted landscape of her back and shoulders, Ellie bounced on the balls of her feet, her energy contagious, if somewhat terrifying. Her blonde ponytail whipped back and forth like a metronome set to "insane," and her voice, amplified by a headset microphone, cut through the music like a perfectly sharpened knife.
+
+"Alright, people! Let's FEEL that burn! Ten more reps! You're stronger than you think! Dig deep! THINK of that swimsuit season...or just think of me yelling at you for another hour! Either way, PUSH IT!"
+
+Ellie flashed a dazzling, if slightly manic, smile, and launched into another set of explosive squats, her movements a blur of controlled power. But even amidst the carefully orchestrated chaos of her spin class, a flicker of something else played behind her bright blue eyes. A worry. A question. A premonition that this Tuesday morning, things were about to get a whole lot more complicated than just burpees and biceps.

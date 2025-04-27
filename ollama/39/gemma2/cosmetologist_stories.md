@@ -1,0 +1,6 @@
+The air in "Hair Apparent" was thick with the scent of lavender shampoo and nervous energy. Sunlight streamed through the dusty windows, illuminating strands of hair caught in the whirring fan above. Amelia "Amy" Rosewater adjusted her tool belt, the familiar weight of clippers and combs reassuring against her hip.  It wasn't just another Tuesday at her salon on bustling Sycamore Street; today was the day Mrs. Hawthorne, the most demanding client Amy had ever encountered, was getting a brand new 'do. 
+
+The bell above the door jingled, announcing Mrs. Hawthorne's arrival. A woman with a face like a plucked eyebrow and eyes that could curdle milk sashayed in, her perfectly coiffed grey bob bobbing slightly as she surveyed the salon.  "Let's get on with it," she barked, her voice sharp enough to slice through the chatter of Amy's assistant, Kevin. 
+
+
+Amy took a deep breath, reminding herself that this was just hair. It wasn't rocket science, even if Mrs. Hawthorne treated it like brain surgery. Besides, Amy had a secret weapon: a vintage, hand-me-down curling iron passed down from her grandmother, rumored to possess magical straightening powers.  Today, she planned to use it on Mrs. Hawthorne, hoping to tame the lioness's mane and maybe even earn a rare smile. 

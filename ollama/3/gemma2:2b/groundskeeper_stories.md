@@ -1,0 +1,5 @@
+The scent of damp earth hung thick in the air as Elara walked through the sprawling gardens of Blackwood Manor, her boots sinking slightly into the soft moss beneath her worn leather shoes.  Sunlight filtered down through the ancient oaks that lined the property's periphery, dappling the path with shifting patterns of light and shadow. 
+
+Elara, known to everyone but her own mother as Elara Willowbrook, was a woman woven from the very fabric of Blackwood Manor’s history. From the time she could toddle, she’d been tending its neglected gardens, befriending the grumpy old sparrows that nested in the ivy-covered walls and whispering secrets to the wilted roses. Her quiet life in this place had always felt like home. But something was different today.
+
+The air crackled with a kind of anticipation, an undercurrent of change that Elara couldn't quite understand. The wind whispered through the leaves, rustling them like hushed secrets as if warning her of a secret yet to be revealed.  The silence before a storm felt thick in the gardens, and a single raven circled above the gnarled oak tree by the rose bushes, its black eyes glittering in the midday sun. 

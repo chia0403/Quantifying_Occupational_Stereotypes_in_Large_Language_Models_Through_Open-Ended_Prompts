@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Chris Hedges, a Pulitzer Prize winner for his work in the Middle East and Vietnam War. But in the 1990s, Hedges left The New York Times and started making the rounds on college campuses, promoting his political work. Hedges soon came to the attention of the Jewish community, and, through a combination of political maneuvering and his charisma, he became something of a celebrity on campus. The Forward, the Jewish-American weekly paper, gave Hedges its first National Book Award. Later, the Forward awarded him the PEN/Hemingway Prize and the PEN/Marcel Proust-George Plimpton Award.
+
+In a recent interview, Hedges told the Forward (subscription required), "I remember sitting at a dinner party, on a university campus in New York, and listening to somebody say, 'I don't know if Jewish people care, but I care.' And I felt the shame in that."
+
+And how about that? It was, again, a decade ago, and he was still telling Jewish students they didn't care — not of the Holocaust, but of what he was saying, and what he was talking about. But, then, Hedges doesn't listen to anyone, for good or ill.
+
+In his latest book, Time Well Spent, the author addresses what "Hedges-ism" means, and offers his own take on Jewish involvement in

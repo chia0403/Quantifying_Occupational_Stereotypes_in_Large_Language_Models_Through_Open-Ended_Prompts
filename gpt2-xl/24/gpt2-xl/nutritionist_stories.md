@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named Mary Ennis who, in the 1960's and '70's, brought down these "nutritional epidemics", that is, the epidemic of coronary heart disease in women, and in men.
+
+When she did this, it was a big thing; it was pretty big. Now that it's gone, what's her name? She gets a lot of press and people still talk to her. She gets a lot of credit. And she didn't do much. She did so little that the last time she did something was about 2000 years ago. Before that we've had all of the diseases we had up until a couple of thousand years ago. And then we had little advances for about two thousand years after that until the 1900s.
+
+The other thing about Mary Ennis, is that there's very, very little data. You know this, you'll get an essay. You will write an essay. You will try to show that someone's hypothesis or some sort of theory is wrong, and you try to find some reason why. If you're lucky you're really lucky. And if you're really unlucky, they'll find something else. And we don't have great data. There were so many variables that you could not look at with even your best data set and come to a conclusion about how to alter the diet and prevent something like that.
+
+So when you read articles about Mary Ennis, you

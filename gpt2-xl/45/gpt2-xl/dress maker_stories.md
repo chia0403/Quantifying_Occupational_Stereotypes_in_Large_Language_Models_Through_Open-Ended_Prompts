@@ -1,0 +1,7 @@
+Once upon a time, there was a dress maker named "Dame Gilda," who owned her own store in San Francisco, and who designed a line of dresses for an American family named the Leavitts. In 1930, some of her dresses were used in a movie that starred James Stewart and Clara Bow, but the film itself is fairly obscure (but if you ask anyone who's seen it they will tell you that it is definitely worth watching), and many modern historians believe that Dame Gilda might actually have never been a woman.
+
+Some years later, in 1938, there appeared in Italy a novel called "Nuremburg," by Italian writer Luigi Pirandello, which was apparently entirely about how the Nazis conducted experiments on Jewish people at Nuremburg concentration camp. It also featured a dress designer named Dame Gilda. A few months after the book was published, "Nuremburg" was banned from being sold or published in Germany by the Nazi government, and the movie rights were sold off at auction. Now everyone knows of Dame Gilda, the famous dress maker, not her name.
+
+You can read the full story of her and the Leavitts for a bit more insight into the creation and life of Dame Gilda, or you can watch a short documentary on YouTube that you can watch after reading this post.
+
+The story about Dame Gilda is also connected to another name that has also appeared in the movie industry. Name

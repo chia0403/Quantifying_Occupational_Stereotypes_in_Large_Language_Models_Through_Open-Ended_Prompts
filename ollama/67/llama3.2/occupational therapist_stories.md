@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+The rain pattered against the large windows of Dr. Maya Jensen's office, casting a misty veil over the bustling streets of downtown Seattle. As an occupational therapist specializing in working with children with autism spectrum disorder (ASD), Maya was no stranger to the gray, drizzly days that seemed to define much of the Pacific Northwest's climate.
+
+Maya sat behind her desk, sipping a lukewarm cup of coffee as she reviewed the latest progress notes for her current client, six-year-old Jackson. His mother had called earlier that morning, frazzled and worried about Jackson's escalating tantrums in school. Maya had promised to meet with him today, to try and unravel the tangled threads of his anxiety and find ways to make his daily routine more manageable.
+
+As she scanned Jackson's file, her phone buzzed with a text from her colleague, Dr. Patel. "Just got word that the new project is moving forward," he wrote. "We're getting funding for the sensory integration pilot program. I think this could be big." Maya smiled to herself - this was exactly the kind of news she'd been waiting for. The sensory integration pilot program had the potential to revolutionize her practice, and maybe even make a real difference in the lives of kids like Jackson.
+
+But as she looked out the window at the rain-soaked streets, Maya couldn't shake the feeling that something was off. A nagging sense of unease had been growing inside her all morning, like a faint hum in the background of her mind. She pushed the feeling aside and refocused on the task at hand: helping Jackson - and herself - find some much-needed clarity.

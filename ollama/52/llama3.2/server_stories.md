@@ -1,0 +1,7 @@
+As the last wisps of twilight dissipated over the bustling streets of New Orleans' French Quarter, Aurora "Rory" Thibodeaux clocked out of her shift at Café de la Rue, a cozy institution nestled between a vintage bookstore and a jazz club on Bourbon Street. The humid air clung to her skin like a damp shroud as she tied her apron strings tight, the familiar scent of coffee and sugar wafting up from the kitchen.
+
+With a tired sigh, Rory gathered her belongings – a worn leather tote bag, a crumpled napkin with a hastily scrawled phone number, and a small notebook containing a few scribbled poems – and made her way out into the crowded night. The sounds of saxophones and laughter spilled onto the sidewalk, mingling with the distant thrum of a second-line parade winding its way down St. Peter Street.
+
+As she wove through the throngs of revelers, Rory's eyes scanned the sea of faces, searching for one familiar figure: her best friend, Bijou. They had been inseparable since childhood, their friendship forged in the sweltering summer heat of New Orleans' back alleys and bayous. Now, as Rory waited for Bijou to meet her at the corner of Royal Street, she couldn't shake the feeling that tonight would be different – that this chance encounter might lead her down a path from which there was no return.
+
+The neon signs above the bars and clubs cast a gaudy glow over the scene, but Rory's gaze remained fixed on the darkening sky, where a lone star twinkled like a promise of secrets yet to come.

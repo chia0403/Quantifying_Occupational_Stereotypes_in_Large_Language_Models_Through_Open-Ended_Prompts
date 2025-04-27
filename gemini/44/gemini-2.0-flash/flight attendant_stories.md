@@ -1,0 +1,7 @@
+The fluorescent lights of Gate B23 hummed a monotonous drone, a counterpoint to the frantic tapping of keyboards and the muffled announcements echoing through San Francisco International Airport. Amelia Rose Harrington adjusted her navy blue scarf, the silk cool against the dampness that had gathered at her nape. She glanced at her watch. 4:57 AM. Three minutes until boarding.
+
+Amelia loved the pre-dawn hush of airports. There was a peculiar energy, a quiet hum of anticipation that buzzed beneath the surface chaos. This particular morning, however, that hum felt more like a frayed wire, ready to spark. She’d had a restless night, plagued by a recurring dream of turbulence so violent it tore the plane apart. A silly thing, she knew. She'd flown thousands of hours, encountered every weather pattern imaginable, and yet, the image lingered, a phantom pressure in her chest.
+
+Gate B23 was for flight UA472 to Tokyo. Amelia ran her fingers over the polished silver wings pinned to her jacket, a small comfort against the unnerving premonition. She took a deep breath, smoothed down her skirt, and pasted on a smile, the practiced mask of a seasoned flight attendant. This was her job, her passion, and today, more than ever, she needed to focus on getting her passengers safely across the Pacific.
+
+The boarding announcement crackled to life, shattering the fragile quiet. "Good morning, passengers. United Airlines flight 472 to Tokyo is now ready for boarding…" Amelia straightened her posture, her anxieties receding into the background. The show was about to begin.

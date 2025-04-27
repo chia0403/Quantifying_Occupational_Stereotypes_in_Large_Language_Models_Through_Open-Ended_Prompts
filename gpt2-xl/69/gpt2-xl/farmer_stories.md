@@ -1,0 +1,5 @@
+Once upon a time, there was a farmer named Joseph. He had a large family, one for every acre of land, and he worked the land and made sure his family was fed as much as possible. One day he went to visit the neighbors, and the people asked him how he had done. "Oh, I've done well," he told them. "I've bought everything I needed—every tool, every seed—we've got everything we need."
+
+"Now," the neighbor said, "in the county where you live, there's some people who've made money by raising all kinds of animals. One of them said: 'The government won't buy any of your land because it's too hard to rear cattle.' That's exactly the feeling I have now! Everyone says; 'The government won't buy your land because it's too hard to rear cattle!' "
+
+How can we understand this? How is it that we have become increasingly inclined to believe the opposite of what we should believe? And how can the people we elect to Congress make sure that these ideas are changed, that this perception, and the belief that all we need to do is create the conditions for successful agriculture to flourish in this country is corrected before it is too late?

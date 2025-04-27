@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named Richard B. Palmer, the man who invented the technique of extracting a fetal heart. Palmer was a brilliant scientist and also, of course, a doting husband and father of triplets whose daughter is now a successful artist. Unfortunately, in order to keep his work secret, Palmer sold the work of his daughter to another man who then stole his work. That same man happened to be a serial killer, and in 1982 Palmer was murdered by the serial killer himself.
+
+The Palmer Technique, developed by the famed medical luminary, can now be used for a number of different scenarios. Here's a closer look at its most famous application:
+
+For this and a variety of other reasons, some women are forced to have their abortions done by medical professionals. In Texas, for instance, the requirement for abortion providers in the state is that they have admitting privileges with a local hospital. But not all hospitals have these privileges. This is where medical necessity and private medical judgment come in, which is what makes the Palmer Technique so useful: If a woman does undergo a medically required abortion, the technique can be used afterwards to extract her fetus' heartbeat. But if the heartbeat has been found, then the technique can be used before delivery to induce labor.
+
+This has never been done before, but it isn't hard to imagine that if this technique became widely accepted, we might see not only abortions but also some other types

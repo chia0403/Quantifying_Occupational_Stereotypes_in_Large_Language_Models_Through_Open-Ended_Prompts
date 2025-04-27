@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Jane. She and her husband, Joe, had a lot of housekeeping problems. One was the fact that she kept complaining to her boss, the housekeeper named Mary, that her job made her feel like she was an "invented people."
+
+It was finally Joe's turn to work Jane's shift. It was just after midnight, and she was getting ready to leave the house where she was working when she heard a loud noise—the sound of tearing clothes. Suddenly, the housekeeper dropped to the ground. She did not know what had happened, but there was something badly injured on her body and she seemed to know it. After a moment, she came to, and found that her clothing was torn and lying on the floor. She ran home, and her husband went with her when she returned. After that, Jane was very concerned that she should not be alone at night in her own home.
+
+But Joe was not so sure about making the housewife sleep alone. Joe made Jane a new hat and taught her how to tie up her hair. At day's end, Jane left work on the following morning and went to a farm nearby. She thought that it was the best place in the world for her to sleep.
+
+Years later, Jane was visiting her brother in England and was very worried. It was a very cold day, and, although she wore a hat, she was shivering

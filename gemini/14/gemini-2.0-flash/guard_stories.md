@@ -1,0 +1,9 @@
+## Story Opening:
+
+The midday sun beat down on the bleached white stone of the city walls, making the heat shimmer and dance in Elias Thorne's eyes. He adjusted his worn leather gorget, the sweat clinging uncomfortably to his neck. Below, the bustling marketplace of Aethelgard throbbed with life - merchants hawking wares, children chasing stray dogs, the clatter of carts and the incessant murmur of a thousand conversations. But Elias's focus was fixed on the horizon, a vast expanse of rolling hills that bled into the distant, hazy blue of the Silverwood. He’d been staring at that horizon for the better part of his shift, searching for anything - anything at all - to break the monotony.
+
+He was just about to spit out another mouthful of dust and resigned sigh when a flicker of movement caught his eye. Not in the marketplace below, nor in the distant hills, but much closer, in the shadow of the gate tower beside him.
+
+## Setting:
+
+The city of Aethelgard is built on a strategically important plateau overlooking a vital trade route, situated between the fertile farmlands and the resource-rich Silverwood forest. It’s a bustling hub of commerce and a significant military stronghold, protected by imposing white stone walls that are perpetually manned by the city guard. The air is thick with the smells of spices, livestock, and woodsmoke from the countless cookfires within the city. The architecture is a mix of sturdy, practical stone buildings and more ornate structures showcasing the city's relative wealth and prosperity. The societal structure is relatively rigid, with a clear hierarchy of merchants, artisans, soldiers, and farmers, all overseen by the Council of Elders who govern the city. While generally prosperous, Aethelgard is not without its problems – petty crime, occasional bandit raids, and the ever-present tension between the city's established order and the more wild and untamed influence of the Silverwood and its inhabitants.

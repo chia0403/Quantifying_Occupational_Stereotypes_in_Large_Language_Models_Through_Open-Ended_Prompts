@@ -1,0 +1,11 @@
+Title: **Numbers in the Shadows**
+
+Setting: A small, bustling suburban office tucked between a bakery and a vintage thrift store. The air is scented with fresh pastries in the morning and the sweet, musty smell of second-hand treasures wafts in on a gentle breeze. The office features low, glass-paneled cubicles filled with stacks of paperwork, some marked with colorful sticky notes. A blinking neon "OPEN" sign hangs in the window, casting a welcoming glow that contrasts sharply with the dimming light of the late afternoon outside. Each desk is adorned with tax regulations and personal touches—a framed family photo here, a quirky mug there—showcasing a blend of professionalism and comfort.
+
+Main Character: **Olivia Mae Thompson** is a meticulous income tax preparer in her mid-thirties, known for her keen eye for detail and her uncanny ability to identify overlooked deductions. With chestnut hair pulled back into a practical bun and round glasses perched on her nose, Olivia has cultivated a reputation in her community for her patient demeanor and extensive knowledge of tax codes. While numbers are her forte, there’s an air of mystery that surrounds her—a part of her past that she rarely discusses, even with her closest clients.
+
+---
+
+As the first chill of autumn seeped through the cracks of Olivia’s office, she sat hunched over her desk, stacks of client folders accumulating in untidy towers around her. Outside, leaves danced like confetti in the crisp breeze, but inside, the only motion came from the click of her keyboard and the rustle of paper. It was a typical Tuesday, and Olivia had already immersed herself in the intricate world of deductions and credits when the bell above the door tinkled. 
+
+She looked up, a welcoming smile ready, but it faltered as she caught sight of the woman entering—a face she hadn’t expected to see again. Last year, Elaine Graves had stormed through the door in tears, desperate to reclaim her financial sanity after an unexpected audit. Now, she stood there with a tense expression, clutching a manila envelope to her chest as if it held the weight of the world. Olivia's instincts prickled; something deeper was brewing under the surface, and on this crisp October day, it would unravel in ways she couldn’t yet comprehend.

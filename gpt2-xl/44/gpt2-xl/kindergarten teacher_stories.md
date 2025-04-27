@@ -1,0 +1,7 @@
+Once upon a time, there was a kindergarten teacher named Susan, and she hated the homework she had gotten for being a parent. The students had started to bring up their homework as they were about to fall asleep, and she would tell them how she hated that homework just as she hated her chores. The students would take it to heart, and the more homework she could put off, the less work she'd have to do. This would last for a few weeks until something happened. One day, when Susan came home from a field trip to find her daughter crying, she couldn't take it. She came home with a bottle of what had to be her favourite brand of perfume, and sat down in front of the girl, and said loudly and clearly, "I hate the smell of you". And then, nothing happened. She took a bath, and the same thing happened. Then she put a sock over her head, put salt on her stomach and poured a bottle of white vinegar in her mouth, and sat in the bathtub, and a few hours later, she woke up. Nothing.
+
+This happened until Susan decided to call the principal. Her mother was her biggest advocate, and she did want her daughter to go to college, so she called her and had her call Susan's father. However, that did get Susan the attention she needed.
+
+"What is this story you want me to tell?" asked her mother.
+
+Susan just said, "I think

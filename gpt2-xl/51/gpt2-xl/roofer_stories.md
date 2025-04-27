@@ -1,0 +1,7 @@
+Once upon a time, there was a roofer named Harry. He lived in the city. One day, he walked into a bar, where he happened to stumble across a young girl named Mandy. Mandy had a cute head of pink hair and was wearing a pink dress. Harry, having never heard of her, just went by Harry, asked her how her day was and asked about the weather. Mandy, confused, told him about what day the rain was coming out of, what her name is and how much water she needs to make her hair wet. Harry got the girl's attention and introduced himself.
+
+"Oh, Harry, this is Mandy!" Mandy exclaimed, holding up her hand to be shaken. Harry did so, and was surprised to see it was genuine.
+
+"This is the first time I've ever met a girl out here," said Harry, shaking away the embarrassment. After getting all his identification out, the two fell into a friendly conversation.
+
+Harry learned that Mandy was an eighth grader in the school. She was originally from London, and lived in the London district after moving to England as a newborn. When Mandy said she was eighth grade, Harry told her that he didn't know her from any of his friends. "Are you out every day?" asked Harry, surprised that she knew about England. "You've only seen me on two occasions since I moved here. What about I go to school?"

@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+As the sun set over the bustling streets of downtown Manhattan, Emily Alexandra Waters stepped out of her sleek black sedan and onto the sidewalk, taking a deep breath of the crisp evening air. The bright lights of the towering skyscrapers reflected off the wet pavement, casting a kaleidoscope of colors across the concrete jungle. With her designer handbag slung over her shoulder and her stilettos clicking on the pavement, Emily Waters was a force to be reckoned with in the high-stakes world of New York City real estate.
+
+As a top-tier agent at the prestigious luxury brokerage firm, Waters & Co., Emily had spent years honing her skills and building a reputation as one of the most cunning and effective deal-makers on the Upper East Side. Her clients adored her – who wouldn't want to be represented by a charming, intelligent, and razor-sharp woman with an uncanny ability to sniff out hidden gems in even the most unlikely of neighborhoods? But Emily knew that her success came at a price: she was always on, always connected, and never truly off-duty.
+
+Tonight was no exception. As she glanced down at her watch – a sleek, silver Omega that had been passed down from her grandmother – Emily noticed that the caller ID on her phone displayed an unfamiliar number. She hesitated for a moment before answering, her heart beating just a little bit faster as she waited to see who would be on the other end of the line...

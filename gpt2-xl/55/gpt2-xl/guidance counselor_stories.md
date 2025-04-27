@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named Mr. Yip who had a passion for teaching us Chinese language and cultures. You know him as the guy who would sing all the way round the world. Or so it seemed. Well, one day Mr. Yip woke up and realised what his life was really about. But before he could say anything, he was kicked out of the country by a Communist Party of China. Now he's living in the United States, doing some Chinese language classes, and has no idea how to earn a living.
+
+But don't worry, he has decided to go back to China and find the help he's looking for. This story will follow him through Chinese cities, with all our favourite characters, all the way through the border of China, and on his journey back to Taiwan. Yes, this is a very long story.
+
+This documentary is about more than just Mr. Yip getting to China. It's about the story of Chinese language and culture in recent history, from the original Chinese immigrants to the more recent waves of immigration. I want to show the journey of this country's development through the language as well as how foreigners have come to play an important role in this development.
+
+By the end of the documentary, viewers may find themselves crying because they have been touched by the stories of friends who have made it back to Taiwan. With so many years to go, I want to capture some of these personal,

@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Arthur Percival Worthington III’s head, casting a sickly yellow pallor over his meticulously organized spreadsheets.  He ran a hand through his thinning hair, the faint scent of stale coffee clinging to his fingertips. Outside his window, the Chicago skyline blurred into a watercolor wash of grey and orange as dusk settled, a reminder that even in this sterile, air-conditioned world, time marched on. 
+
+Arthur wasn't one for daydreaming, but tonight, amidst the neat columns and rows of figures, a rogue thought took root: what if numbers weren't just cold, hard facts? What if they held hidden stories, whispered secrets waiting to be deciphered? He pushed the notion aside, returning his focus to the balance sheet. A perfectly predictable Tuesday night at Worthington & Sons, Arthur’s family business for three generations. Yet, tonight, a strange sense of unease prickled at the back of his neck. Perhaps it was the unsettling silence from his wife, Clara, who had been unusually quiet all day. Or maybe it was the nagging feeling that something, somewhere, wasn't quite adding up. 
+
+

@@ -1,0 +1,5 @@
+Rain hammered against the leaky roof of Melody's tiny apartment, each drop exploding in miniature geysers of water on the dusty piano that dominated one corner. The faint flicker of her old lamp cast long, dancing shadows across the room as she sang, her voice, husky from disuse and infused with an undercurrent of raw emotion, spilled out into the pouring night. The melody was a lullaby; soft notes about longing and loss, but tonight, even her own soul felt too heavy for its weight.  
+
+Melody's name wasn't just Melody – it was a nickname, like a whisper in the wind, born from the way she sang with an ethereal beauty that belied the years etched on her weathered face. She had been known as "The Nightingale" in her younger days, but now, even after years spent pouring her heart out across the stage, her voice felt empty and fragile, clinging to the threadbare memories of a brighter past. 
+
+Tonight was different though. Tonight, she had something to fight for. A chance to reclaim the fire that had dwindled into embers in her soul. She just needed to find the courage to let it burn again.  

@@ -1,0 +1,11 @@
+## Story Opening:
+
+The scent of petunias, thick and honeyed, hung heavy in the humid morning air, a stark contrast to the bitter taste clinging to Edward Thomas Blackwood's tongue. He spat a wad of dirt onto the manicured lawn, the brown lump a rebellious act against the pristine green. At 5:48 AM, he was already knee-deep in Mrs. Van Derlyn's prize-winning 'Cascading Crimson' roses, wrestling with a stubborn root system that seemed determined to remain stubbornly attached to the earth. 
+
+Edward straightened, stretching his aching back with a groan. Another day, another perfectly sculpted nightmare. He glanced towards the house, a monstrous Victorian behemoth looming over the meticulously curated landscape. Even at this hour, the blinds were drawn tight, shielding the occupants from the reality of the sweat and toil it took to maintain their illusion of effortless wealth. 
+
+He reached for his trowel, the cold metal a familiar comfort in his calloused hand. He preferred working with the earth, coaxing life from the soil. But lately, it felt like he was just rearranging it to fit someone else's idea of perfection. Today, that feeling was particularly oppressive. Maybe it was the lingering taste of last night's cheap whiskey, or maybe it was the dawning realization that he was another summer away from thirty and still digging holes for a living. Whatever it was, Edward Thomas Blackwood was feeling decidedly… restless.
+
+## Setting:
+
+The story opens in the affluent coastal town of Atherton Heights, Connecticut. The town is characterized by its sprawling estates, manicured lawns, and an air of understated elegance. The specific location is the backyard of the Van Derlyn estate, a sprawling property overlooking Long Island Sound. The house is a Victorian mansion with turrets, gables, and wraparound porches, indicative of old money and a desire to maintain a certain image. The garden is a testament to meticulous landscaping, featuring carefully planned flowerbeds, sculpted hedges, and perfectly manicured lawns. Everything is in its place, creating a visual representation of order and control. However, beneath the surface of this pristine exterior, lies a sense of stifled energy and unspoken discontent.

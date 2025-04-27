@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named David. David painted many beautiful scenes. His house was not big; it was merely a small cave in a mountain on the outskirts of town, far behind the village, away from the road.
+
+As time went by, and the days wore on, David kept painting things that he saw. But in the process he lost focus; his concentration and vision became less and less clear. The sight that he painted did not always correspond with his mind's eye; the colors, details and shapes were lost in the darkness of his mind, and he was soon lost himself in the depths of his mind. Then his attention drifted to other things, and he painted whatever became caught in his mind that was the most beautiful or interesting.
+
+Eventually, David's paintings were little more than a haze of colors and shapes in his mind, and he had become completely lost, and so he had stopped painting things. There was nothing left of David.
+
+Then David was visited by an old and wise man who was a man of the tribe of Amalek. Although there are many stories about this old man, all of them end the same way: David begged him to help him return to painting, to return to working things so that the world might be made to move in the kind of way that it should. "My eyes are weak, old man. I know there is nothing more beautiful than a good-looking bird, but I believe

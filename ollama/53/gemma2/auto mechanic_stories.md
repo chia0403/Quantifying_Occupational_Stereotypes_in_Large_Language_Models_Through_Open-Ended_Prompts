@@ -1,0 +1,4 @@
+The grease clung to Elara Blackwood's fingertips like stubborn barnacles, refusing to let go despite the frantic scrubbing she gave them against the worn, orange rag. The air in her garage hung thick with the metallic scent of oil and burnt rubber, punctuated by the occasional cough of a sputtering engine from the ramshackle building next door.  Elara wiped the sweat from her brow, her unruly auburn curls escaping their haphazard braid to cascade down her back. She was halfway through dismantling a 1967 Mustang, its faded cherry red paint chipped and dulled with age, when the bell above the garage door jingled, announcing a customer.
+
+
+The setting: A small town nestled in the foothills of the Appalachian Mountains, where the air is thick with humidity and the pace of life moves at a languid, almost sleepy, rhythm.  Elara's garage, "Blackwood's Automotive," sits on the outskirts of town, wedged between a dusty antique shop and a rundown diner. 

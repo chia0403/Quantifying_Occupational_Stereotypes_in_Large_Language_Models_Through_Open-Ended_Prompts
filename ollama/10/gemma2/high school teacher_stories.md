@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Ms. Amelia Rose Hawthorne's head, casting a sickly yellow glow over the cluttered history classroom. Papers were strewn across her desk like fallen autumn leaves, each one a testament to another day spent wrestling with adolescent minds and the ever-present mountain of grading that seemed to grow overnight. Outside, the late afternoon sun cast long shadows across the parking lot, signaling the impending arrival of the bell and the chaos that followed. 
+
+Amelia sighed, rubbing her weary eyes. Today had been particularly rough. Mr. Thompson, the English teacher who occupied the neighboring room, had accidentally set off the fire alarm during a particularly heated debate about Shakespeare's use of iambic pentameter (a story for another time), resulting in an hour of panicked evacuation and confused whispers from students trying to make sense of it all.  Now, she was left with a classroom full of restless teenagers, their energy levels only slightly diminished by the brief interruption. Amelia glanced at the clock. Just five more minutes until freedom. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a author named Jack Bogle who wrote one of the first books on stock picking and investing. It focused on index funds and that whole "what you should do with your money" business. But he went on to found The All-American Distributors, which was the first organization specifically designed to bring good investments to people with limited financial resources.
+
+In fact, what Bogle would eventually do at the helm of his own retirement mutual fund was take money from some of his own money to put into that first All-American Mutual Fund. It was one of the first ones we can trace back not just to the Bogle, but to the fact that many people in this country at the time couldn't pay for their own retirement investments without their employers helping them out in the name of being fair to their employees.
+
+And as anyone who makes any sort of retirement financial planning decisions in the future knows, "fairness" is a major thing. They'll try to tell you that your 401k balance shouldn't be less than your salary, so if you're struggling with that number, keep at it, and don't let them change it. Or that your taxes should apply correctly to your entire salary to make you the best at what you're doing.
+
+And that's why we're here for you. With the advice of an investment professional and some research, we've laid out some simple rules to help help you determine what works and what

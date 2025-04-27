@@ -1,0 +1,5 @@
+Once upon a time, there was a hairdresser named Daphne. But then he got married. Then he took her and moved away from Washington, D.C., just in time for her to graduate from college. And so on. Now Daphne is living among the stars and the galaxies, with three children and a happy husband named Peter.
+
+The good news: Peter has no hair and is completely bald. The bad news: Peter has decided to take Daphne out on an all-expenses paid, five-show road trip to Jupiter.
+
+On the road, Daphne slowly learns more and more about what life has in store for her. Her ex-husband, James is gone for a month and she's left alone with a small child and two older children. When she finds out that Peter has sold all his holdings, she decides to take him up on his offer before it's too late. Her choice: She can quit her job and stay home to look after the kids while Peter puts his money away. Or… she can leave Peter alone forever-she will always be his wife.

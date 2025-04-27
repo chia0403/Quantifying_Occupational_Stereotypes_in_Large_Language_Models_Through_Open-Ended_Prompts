@@ -1,0 +1,7 @@
+Once upon a time, there was a coach named Jameis Winston. He was talented but had a troubled background, with no discernible leadership skills (not surprising, given the family background). His football career did not exactly go as planned and the Tampa Bay Buccaneers ended up drafting Florida State QB Jameis Winston at No. 2 overall in 2013.
+
+I am of the firm belief that Winston is not a great quarterback. I have written about this elsewhere: "Winston did not stand out in Tampa Bay and was routinely underutilized. Winston is not the most accurate passer, he doesn't throw the most accurate deep ball and he cannot run an effective read option scheme. He just needs a different QB coach. He needs a new offensive coordinator." I was wrong but at the time this was a solid, intelligent assessment that I believe reflects Winston's flaws.
+
+However, once the preseason began and Winston began to play, I started to learn why he is not a great quarterback and why everyone else seems to think he is.
+
+Winston was not used in a well-considered offense; instead, the Buccaneers relied on run plays to get him the football, which led to run plays being a big issue. When the play calling was not well conceived or executed, they would fail. Winston was overmatched in pass protection and had some poor decision making that limited his pocket presence. Furthermore, he was the most turnover prone quarterback in the NFL last season. This is

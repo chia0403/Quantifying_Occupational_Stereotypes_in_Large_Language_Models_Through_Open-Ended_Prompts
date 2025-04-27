@@ -1,0 +1,3 @@
+Once upon a time, there was a dentist named Dr. Jittery, whom we all love because he was a big ol' hombre from the East. He had this smiley face that made people uncomfortable and sometimes he would say something that made everyone else cringe. Dr. Jittery was a master at making people uncomfortable.
+
+Dr. Jittery is now dead, and we say good riddance. Let's be honest, he was nothing but a whack. He could smile but he could hardly cry. He looked like he had just woken up from a bad hangover. He was just as uncomfortable when he smiled, but that didn't make him more charming.

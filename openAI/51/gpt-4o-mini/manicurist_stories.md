@@ -1,0 +1,7 @@
+**Story Opening and Setting:**
+
+The sun hung low in the sky, casting a warm golden hue over the bustling streets of Magnolia Lane, a quaint neighborhood known for its colorful storefronts and the aroma of fresh pastries wafting from the nearby bakery. Among the lively chatter of patrons and the distant sound of laughter, a small nail salon named “Polished Perfection” stood out, its vibrant pink exterior adorned with hand-painted flowers. 
+
+Inside, the air was perfumed with floral scents and the faint sounds of upbeat music played softly in the background. Brightly colored nail polish bottles lined the shelves, each one a burst of personality waiting to be unleashed on a client’s fingertips. At the center of this lively hub, seated at a sleek, stylish manicure station, was Levi Fitzgerald, a skilled manicurist known for his artistic flair and attention to detail.
+
+Levi, in his early thirties, had a flair for creativity that transformed mundane nail services into exquisite works of art. With tousled dark hair and an infectious smile, he was beloved by his clients, who often found themselves sharing more than just their manicure stories. But today, as he carefully applied a delicate floral design to a client’s nails, he couldn’t shake the feeling that something extraordinary was about to happen—and it would change not only his work but the very fabric of his life in Magnolia Lane.

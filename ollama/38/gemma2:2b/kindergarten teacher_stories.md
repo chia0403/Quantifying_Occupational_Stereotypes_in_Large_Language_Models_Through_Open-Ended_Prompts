@@ -1,0 +1,3 @@
+The morning mist clung to Mrs. Eleanor Thistlewick's red scarf like a ghostly embrace as she surveyed her classroom. The bright yellow paint of the "Welcome" banner on the wall seemed almost too cheerful against the overcast sky, which mirrored the uncertainty swirling in her stomach. Today was the first day back after winter break, and with it, the yearly tradition of the children's nativity play. 
+
+Mrs. Thistlewick, affectionately known as "Ellie" by the kids, knelt down to peek at a group of giggling five-year-olds huddled together.  Their faces were flushed, their eyes wide with anticipation. The air buzzed with a kind of child-like magic that only December had the power to conjure, and Mrs. Thistlewick was swept away in its gentle current. 

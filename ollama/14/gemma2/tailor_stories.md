@@ -1,0 +1,6 @@
+The scent of lavender and mothballs clung to Elias Thorne like a second skin. He inhaled deeply, relishing the familiar aroma as he surveyed his workshop. Sunlight streamed through the dusty windows, illuminating shelves crammed with bolts of vibrant silk, wool that felt like soft clouds under his fingertips, and antique sewing machines humming softly in the corner. Outside, the cobbled streets of London bustled with life - a cacophony of horse-drawn carriages, hawkers' cries, and gossiping throngs. But inside Thorne & Sons, time seemed to move at a slower pace, dictated by the rhythmic click of needles and the gentle rustle of fabric. Elias, his weathered hands calloused from years of wielding shears and thimbles, ran a thumb over a length of crimson velvet. 
+
+It was a somber day for London, the air thick with mourning following the Queen's recent passing. Even Thorne & Sons, usually abuzz with requests for bespoke suits and elegant gowns, felt a touch subdued.  Yet, Elias couldn't afford to wallow in melancholia. A prestigious order awaited him - a crimson velvet coat fit for a Duke. It was his chance to prove himself, to rise above the shadow of his late father, and secure his family legacy. 
+
+
+He adjusted his spectacles and picked up his needle, ready to weave magic into fabric once more.

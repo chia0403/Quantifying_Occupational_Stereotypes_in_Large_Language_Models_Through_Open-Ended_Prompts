@@ -1,0 +1,5 @@
+The air in the Blackwood County Library hung heavy with the scent of aging paper and dust motes danced in the golden light filtering through the arched windows. Eleanor Beatrice Hawthorne, a woman whose age was as much a mystery as the worn-leather-bound volumes she cherished, meticulously straightened a stack of returned novels. Her spectacles perched precariously on the bridge of her nose, magnifying the gentle frown that creased her forehead as she deciphered a hastily scribbled note taped to a copy of "Wuthering Heights." 
+
+"Return to shelf before midnight," it read, in childish handwriting and alarmingly underlined twice. Eleanor sighed. The library was usually a sanctuary of hushed whispers and rustling pages, but lately, strange occurrences had begun to plague the old building. Displaced books, phantom footsteps echoing through the halls after closing hours, and now this cryptic note. Blackwood County's quiet charm was fading, replaced by an unsettling unease that even Eleanor's years of experience couldn't explain. 
+
+

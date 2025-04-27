@@ -1,0 +1,7 @@
+Once upon a time, there was a groundskeeper named Tom. Tom had many jobs to do, but he had the biggest prize in mind: He wanted to be your groundskeeper. So he set out to earn your trust, and he did not go to you for advice or approval. Oh, no, he really went out of his way to prove how important he was.
+
+Tom was born with the kind of personality and personality qualities that can only come about if you are a hard worker. And we're told that hard work has some good things, right? It is definitely the thing that got Tom going. So he set out to earn your trust. He worked hard at work until he earned it, and then he worked even harder at school until he was the top of his class. He worked the hardest there because that's what your teacher told you, right? And you can work hard at school because your teachers tell you to, right? He did.
+
+But this kind of hard work, right? Or even smart work, if you want good grades? This sort of hard work. This sort of hard work where you are doing something for someone else and also you are accomplishing some personal goal. And that is the way to a future where you are trusted to handle an important position. That is the way to go far, and we believe that is the way to success, too. So this is called "work ethic."
+
+Your Work Ethic Is

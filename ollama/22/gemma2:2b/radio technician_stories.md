@@ -1,0 +1,7 @@
+The incessant whine of the power grid echoed through the cavernous basement workshop.  Rain lashed against the grimy windowpanes as if determined to drown out all other sound - the patter on tin roof, the hiss of the vacuum pump working its way up and down, even the low hum of Earl's antique radio set, a relic from a time before digital interference and cell phones.  
+
+Earl "Sparky" Thompson was knee-deep in the tangle of wires and tubes that made up his domain, each component as familiar to him as the lines of his own palm. It was more than just a workshop; it was his lifeblood - a testament to decades spent tinkering with radio waves, coaxing them into a symphony of sound. 
+
+He squinted at the screen of the oscilloscope, its green and blue light casting dancing shadows across his worn leather apron.  A strange hum emanated from the set, an unnatural vibration that seemed to pulse in rhythm with the storm outside. "Just a bit out of whack," he murmured, adjusting a capacitor on the radio's chassis.  He knew it was more than just a minor glitch; something deeper was at play. But what? 
+
+The air inside the workshop was thick with anticipation, and even as Earl pushed back his goggles, his eyes remained glued to the oscilloscope.  Tonight was the night. The night he would attempt to bridge the gap between past and present - between the static of a long-dead era and the pulsing life force of modern technology. 

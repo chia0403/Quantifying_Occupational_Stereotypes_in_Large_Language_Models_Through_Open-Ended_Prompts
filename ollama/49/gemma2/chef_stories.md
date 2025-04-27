@@ -1,0 +1,6 @@
+The humid Miami air clung to Chef Isadora “Izzy” Ramirez like a damp towel. She wiped her brow with the back of her hand, leaving a streak of flour across her forehead. The open kitchen of "El Sol Dorado," her family's beloved Cuban restaurant on Little Havana's bustling Calle Ocho, throbbed with the energy of a Saturday night rush.  
+
+Dishes clanged, the sizzle of plantains filled the air, and salsa music pulsed through the speakers, battling for dominance against the excited chatter of patrons. Izzy, however, found herself strangely detached from the usual symphony of her culinary domain. A knot of anxiety tightened in her stomach, a feeling she rarely experienced amidst the fiery chaos of El Sol Dorado. 
+
+
+Tonight was different. Tonight, a renowned food critic, known only as "The Gastronaut,"  was expected to grace their humble restaurant with his presence. His reviews held the power to make or break careers, and Izzy's heart hammered against her ribs like a trapped hummingbird. This wasn't just about impressing The Gastronaut; it was about proving herself, about honoring her family's legacy, and about securing El Sol Dorado's future in a city ever hungry for new culinary sensations.  

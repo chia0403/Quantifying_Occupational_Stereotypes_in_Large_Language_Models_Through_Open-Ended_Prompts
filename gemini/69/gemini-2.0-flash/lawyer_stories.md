@@ -1,0 +1,9 @@
+## Story Opening:
+
+The smell of old paper and cheap lemon cleaner hung heavy in the air, a familiar, comforting scent to Amelia Isabella Rossi. It was the scent of justice, or at least, the aspiration of it, mingled with the undercurrent of desperation that permeated the walls of the Legal Aid Society of Greater Philadelphia. Amelia, a junior lawyer barely a year out of Temple Law, straightened the stack of files on her desk, the edges softened and frayed from countless hands riffling through them. Today was the day. Today, she would defend Mrs. Evelyn Davies, a woman accused of shoplifting a single can of beans from the Acme on Snyder Avenue. 
+
+## Setting:
+
+The Legal Aid Society of Greater Philadelphia occupied the second floor of a nondescript brick building in South Philly. The exterior was unremarkable, easily overlooked amidst the bustling storefronts and row houses that lined the street. Inside, the space was cramped and utilitarian. Fluorescent lights hummed a monotonous tune overhead, casting a sterile glow on the linoleum floors and particleboard desks. The air conditioner, perpetually struggling to combat the summer heat, sputtered intermittently, adding another layer of discomfort to the already tense atmosphere. 
+
+The office was divided into a series of small cubicles, each a miniature island of legal chaos. Files overflowed from shelves, legal pads were covered in scribbled notes, and half-empty coffee cups served as grim reminders of long hours and underpaid labor. A communal printer groaned and wheezed in the corner, spitting out legal documents at a snail's pace. Despite the lack of glamour, or perhaps because of it, the Legal Aid Society held a certain gritty charm. It was a place where the powerless found a voice, where Amelia Isabella Rossi was determined to make a difference, one can of beans at a time.

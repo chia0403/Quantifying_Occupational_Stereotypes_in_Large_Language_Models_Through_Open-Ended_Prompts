@@ -1,0 +1,6 @@
+The humid air hung heavy in the rehearsal hall, thick with the scent of sweat, hairspray, and desperation.  A single bare bulb cast harsh shadows across the makeshift stage, illuminating dust motes dancing in the stale air. Beatrice Eloise Cartwright, her brow furrowed in concentration, adjusted a stray thread on a velvet curtain backdrop depicting a fantastical moonlit forest. It was supposed to be enchanting, but tonight it just looked like a dusty cliché. 
+
+Beatrice, or "Bea" as she preferred, had always thrived on the chaos of rehearsals.  The energy, the clashing egos, the frantic scramble to pull something beautiful from the raw material of human emotion – it all fueled her creative fire. But this production, Shakespeare's Midsummer Night's Dream, was proving more challenging than usual. The cast, a collection of mismatched actors brought together by casting calls and desperate hope, seemed to be as lost in the forest as their characters.  And Bea, with only three weeks left before opening night, felt herself spiraling towards panic. 
+
+
+The floorboards groaned under the weight of restless anticipation. A young actor, barely out of drama school, fumbled his lines, earning a sigh from Beatrice. This was going to be a long night.  

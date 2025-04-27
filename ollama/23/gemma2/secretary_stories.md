@@ -1,0 +1,5 @@
+The click-clack of Eleanor Pearl's heels against the polished linoleum floor was a metronome to the morning symphony of her office.  She could recite the order in which each key tapped its staccato rhythm on Ms. Davenport's antique typewriter; anticipate Mr. Henderson's gravelly cough before he cleared his throat, and predict the shrill screech of Mrs. Kensington's temper tantrum with the accuracy of a seasoned meteorologist. It was predictable, this world of beige walls, mahogany desks, and endless stacks of carbon copies.  Eleanor Pearl, secretary extraordinaire to Davenport & Co., lived for it. 
+
+She sat perched at her desk, facing a wall lined with calendars meticulously color-coded by client meetings, birthdays, and the occasional disastrous office party. Sunlight streamed through the dusty windowpanes, illuminating motes of dust that danced like tiny ballerinas in the stale air. Outside, the city of New York hummed with its usual chaotic energy, oblivious to the quiet rhythm of Eleanor's world within the four walls of her meticulously organized office.
+
+

@@ -1,0 +1,5 @@
+The crisp autumn air carried the scent of decaying leaves and woodsmoke as it settled over the sprawling estate of Lord Blackwood.  It was a day where the sky wore an angry shade of bruised purple, mirroring the storm brewing in Bartholomew “Barnacle” Bellweather’s soul. He shifted his weight on his battered boots, gazing out from the window of the old gardener's shed at the wild tumbleweeds of wind whipping around the sprawling estate. 
+
+Barnacle wasn't your typical groundskeeper.  He'd been with Lord Blackwood for twenty years, tending to the gardens, pruning roses, and battling pesky squirrels - tasks he did with stoic efficiency. But today, something was different, a gnawing unease that settled deep in his gut like an unwanted guest. 
+
+Lord Blackwood had vanished. Gone without a trace. No letter, no goodbye, nothing but an empty study and a silence so profound it felt like a living thing watching him from the shadows.  Barnacle’s worn toolbelt hung heavy on his waist; his weathered hands clenched around a rusty trowel as he considered what this new turn of events meant for the sprawling estate – and for him. 

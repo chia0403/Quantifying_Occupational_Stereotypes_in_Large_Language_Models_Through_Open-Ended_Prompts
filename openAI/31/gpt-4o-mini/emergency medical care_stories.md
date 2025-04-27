@@ -1,0 +1,9 @@
+**Story Opening:**
+
+The night sky loomed over the city, thick with clouds that hung heavy, threatening rain. Fractured neon lights flickered through the damp streets of Blackwater, reflecting off the puddles that gathered in the uneven pavement. Sirens wailed in the distance, echoing through empty alleys and bouncing off the high-rise buildings that stood like sentinels against the storm.
+
+In the midst of this pulsating chaos stood Karina Elise Foster, an emergency medical technician with the heart of a warrior and the resolve of steel. Dressed in her navy blue uniform, emblazoned with the insignia of the Blackwater Emergency Response Team, she walked with purpose toward the waiting ambulance, the familiar scent of antiseptic and rubber filling her senses. The atmosphere buzzed with urgency as her fellow responders, a dedicated crew she had trained with for years, prepared for their next call.
+
+Karina's thoughts raced with the faces of those she'd helped and the lives she had fought to save. Tonight, she knew, was just like any other shift—full of unpredictability. A flash of lightning illuminated the horizon, momentarily revealing the silhouette of the local hospital, a comforting landmark against the turbulent weather. Her confidence was buoyed as she recalled the countless times she had been the difference between life and death.
+
+As she slipped into the back of the ambulance, the doors clanging shut behind her, Karina felt the familiar thrill ignite within her. Outside, the storm began to rage, matching the chaos that often came with her job. But inside the ambulance, among the whir of equipment and the low hum of the engine, Karina Foster was exactly where she belonged, ready to answer the call—whatever it might be.

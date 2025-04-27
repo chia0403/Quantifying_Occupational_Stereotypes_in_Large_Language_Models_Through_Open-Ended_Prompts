@@ -1,0 +1,7 @@
+Once upon a time, there was a chiropractor named Bill Cusimano in Colorado Springs. I asked the old timers in the business how that was possible. I was told that his mother had given him the name after learning of his mother's cancer. (That's not exactly a stretch, but Cusimano has made his "career" so successful that the family now lives in a mansion and spends some of its money on Cusimano's various charity ventures.)
+
+But when my wife and I visited Cusimano's office in 2014, he had a serious face and not a tic in his neck -- yet he had still turned down an invitation to attend this year's White House correspondents' dinner. This was not because he didn't want the money (which was, by his own admission, substantial) or to keep the president from seeing the crowd that night. Nope. It was because Cusimano was offended by two phrases in President Obama's prepared remarks.
+
+There were those that would have gotten a good laugh out of the president's joke -- "Hey look, another person with the same name."
+
+There were the ones that would have offended him even more, as in a reference to "the old days" when Cusimano would do a back flip and send the crowd into a fit of groans. I'd heard this joke at a birthday party that my son was invited to and thought it was very clever

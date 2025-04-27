@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named John Doe. Each July 14th, he would drive to a location in western New Mexico, and he would pick up a group of "citizen editors," or people who had been selected by the New Mexican Society of Journalists to receive a job in the state legislature. The job in question, of course, was journalism — in the sense that the work would be aimed at informing the citizens of New Mexico, and by extension the rest of America, of what their government was doing regarding the state's needs.
+
+It was a job that required a great deal of focus and endurance, and meant no vacation. To have a chance at doing it well, and to get a job and not have your head explode, they needed to work like crazy and have a good time doing it. Those people — people like that were the backbone of the state's news media, and it wasn't about them being nice, nice, nice — it was about being really damn reliable and dedicated to their work.
+
+So John's job in July was as the editor-in-chief of the New Mexico News, filling in for the person who was away. It was a pretty cushy gig by any standard.
+
+He called it "work," because it was. It was in the mountains, it was on his own, it meant no one else to call upon for help and to help him out if in need, it meant no vacations

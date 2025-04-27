@@ -1,0 +1,9 @@
+**Story Opening:**
+
+The biting November wind whipped at Amelia Eleanor Davies' coat as she stood huddled against the granite wall of the old courthouse. Rain, more like icy needles, hammered down, blurring the already indistinct figures hurrying across Broad Street. Amelia, a seasoned reporter for the *Philadelphia Enquirer*, pulled her wool scarf tighter, its familiar scent of lavender and old newsprint a small comfort against the grimness of the day. She’d been covering the sentencing for the notorious "Silk Scarf Strangler" for weeks, poring over crime scene photos and witness testimonies, her initial professional detachment slowly eroding into a gnawing sense of unease.
+
+Today was the culmination, the final act in a macabre drama that had gripped the city for months. Justice, she hoped, would finally be served. But as she watched the crowds gather, faces etched with a mixture of morbid curiosity and raw grief, a nagging feeling whispered in the back of her mind. Something about this case, about the carefully constructed narrative the prosecution had presented, felt…incomplete.
+
+**Setting:**
+
+The story begins in present-day Philadelphia, Pennsylvania, predominantly around the historic city center, particularly Broad Street and the area surrounding City Hall. The weather is a key element, contributing to the story's overall mood of unease and foreboding. Key locations will likely include the Philadelphia City Hall (housing the courthouse), various residences and businesses scattered throughout the city, and potentially some of the less glamorous, more neglected corners of Philadelphia where the victims resided. The story leans into the city's rich history and the stark contrast between its grand architecture and its underbelly, a breeding ground for secrets and shadows.

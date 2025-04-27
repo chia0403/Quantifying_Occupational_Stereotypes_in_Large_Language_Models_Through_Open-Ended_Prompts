@@ -1,0 +1,7 @@
+Once upon a time, there was a tailor named Bucky and a tailor shop called Blustery and Dyer. Blustery and Dyer are the two titular gentlemen's tailor (which in this narrative are the same person, by the way). Bucky and Blustery are the ones who decide to have a go at making blouses for themselves and have a ball, and also help the newly commissioned surgeon, Dr. Fuddington, in his attempts to save his daughter (from her husband), and ultimately do good in the world, and save other people's lives. This is a very classic story, told as a set of dialogue and stories, with a few small bits of humour thrown in, as well as a couple of twists that we've picked up from other stories throughout the series.
+
+
+(spoiler-ish bits)
+
+
+So, back to the beginning. At the hospital, Dr Mervyn is in the middle of a case. He has been given this incredibly large chest of a patient and his wife is furious. Her son, Danny, is being kept in this chest (and I've mentioned this elsewhere) as he needs to be protected. Anyway, while he was out of bed, the Doctor is found locked in by a woman, (a rather large woman, I might add) who is very attached to a large dog. And then, Danny appears. Danny takes off his shirt. She takes off the dog. Then, they

@@ -1,0 +1,7 @@
+The sun hung low on the horizon, casting long shadows across the dusty expanse of Highway 66 as it snaked through the heart of Arizona. The burnt orange glow of sunset painted the sky in brilliant swathes of pink and purple, but inside the cab of his freightliner, fifty-two-year-old Roger Lee Hargrove barely noticed. The hum of the engine was his constant companion, the road his therapy. After twenty-five years crisscrossing the country, he had developed a rhythm, one that synced seamlessly with the mile markers flashing by. 
+
+Roger had a rugged face that told stories of countless sunrises and sunsets seen from the road. A weathered ball cap perched on his head, shielding his tired blue eyes from the glare of the setting sun. With his flannel shirt and jeans, he looked every bit the part of an old-school trucker, a man comfortable in his skin but longing for something he couldn’t quite name.
+
+Every night was a dance with the highway—could he make it to the next town before nightfall? There was a thrill in the unknown, an anticipation that had kept him chasing the horizon. This evening, however, an odd sense of restlessness gnawed at him. He flipped the radio tuner and settled on a country station, letting the twangy melodies wrap around him like an old friend.
+
+Little did he know, fate had other plans as his headlights pierced the dusk, illuminating not just the asphalt, but a fork in the road that would change everything he thought he knew about his life out there on the open road.

@@ -1,0 +1,6 @@
+The stale scent of new carpet hung heavy in the air, mingling with the faint, metallic tang of fear. Elias Thorne adjusted his tie, smoothing out the wrinkles that seemed to multiply faster than customers on Black Friday.  His smile felt plastered on, a mask hiding the gnawing anxiety that clawed at his insides. The grand opening of “Throne’s Treasures,” his very own antique shop, had been less of a roaring success and more of a polite silence punctuated by the clinking of silverware in the display case.
+
+Elias surveyed the scene from behind the ornate mahogany counter. A handful of curious onlookers poked around, their gazes flitting over chipped teacups and dusty gramophones with a barely concealed boredom. He needed a miracle, a single spark to ignite the interest that seemed so elusive. 
+
+
+The shop itself was a labyrinthine delight, crammed with eclectic finds from bygone eras. Sunlight streamed through stained glass windows, illuminating rows of antique books bound in leather, faded velvet curtains draping over forgotten portraits, and gleaming silver trinkets scattered across tarnished shelves. Elias had poured his heart and soul into curating this collection, each piece a whisper from the past, waiting to be unearthed and cherished. But so far, the whispers were going unheard. 

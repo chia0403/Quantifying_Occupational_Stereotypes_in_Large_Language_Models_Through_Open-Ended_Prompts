@@ -1,0 +1,6 @@
+Rain hammered against Dr. Eleanor Vance’s window, each drop a tiny explosion against the glass. She sat hunched over her desk in her cluttered office at the Boston Police Department, the fluorescent lights buzzing overhead like an agitated hive.  Her notes on the latest case lay scattered across the surface, a labyrinth of scribbles and half-formed theories. 
+
+The city outside was a symphony of chaos - sirens wailing, wind whipping fallen leaves into miniature tornadoes. Inside, Eleanor found solace in the familiar weight of her pen against paper. Her mind, a finely tuned instrument for dissecting human behavior, worked best when fueled by order amidst the storm. This particular case, however, refused to yield its secrets. A young artist, brutally murdered in his studio, his canvases slashed and splattered with crimson paint. No witnesses, no motive, just an eerie silence where inspiration once thrived. 
+
+
+Eleanor pushed back her chair, stretching stiff muscles honed from countless hours hunched over cold cases.  She needed fresh air, a change of scenery, something to jolt her mind out of its stagnant loop. Tonight, the storm was more than just weather; it was a reflection of the darkness engulfing her investigation. 

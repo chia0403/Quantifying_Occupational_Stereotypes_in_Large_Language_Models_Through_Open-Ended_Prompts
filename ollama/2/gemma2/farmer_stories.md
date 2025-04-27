@@ -1,0 +1,5 @@
+The sun beat down on Amelia Rose Hawthorne's back as she wrestled with the stubborn hoe. A bead of sweat trickled down her temple, stinging her eye. It was the kind of heat that turned the world hazy and muffled sound, making even the buzzing of bees seem distant. The air hung thick with the scent of dry earth and ripening peaches, a smell Amelia usually found comforting. Today, it felt oppressive, mirroring the tension knotting her stomach.
+
+Her small farm, nestled on the rolling hills just outside Harmony Creek, had been in her family for generations. But this year, the crops were struggling. The drought had taken its toll, leaving the soil cracked and thirsty, the once vibrant corn stalks drooping like wilted flowers. Amelia’s father, a man who could coax life from even the most barren land, seemed defeated. 
+
+She glanced at his hunched figure in the distance, pushing a rickety cart filled with withered tomatoes. A wave of sadness washed over her. She had to do something, anything, to save their farm, to keep their legacy alive.  

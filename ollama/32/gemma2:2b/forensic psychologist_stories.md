@@ -1,0 +1,5 @@
+The flickering fluorescent lights hummed overhead, casting a sickly yellow glow over Dr. Evelyn Thorne's cramped office in the city morgue. The air hung thick with formaldehyde and the ever-present scent of death, a cocktail that Evelyn found both strangely comforting and utterly draining after years practicing her craft. Outside the grimy windowpanes, the city bustled – a symphony of honking cars, screeching sirens, and distant laughter echoing from bars – but here, all felt hushed and burdened by grief. This was where Evelyn truly felt at home; not in the sterile confines of her private practice, but amongst the skeletal remnants of human existence, trying to untangle the tapestry of their final moments.
+
+Today’s case: a young man found slumped against a graffiti-covered wall in the back alleys of East River. His face was contorted in a silent scream frozen in time – a victim of a brutal attack. The brutality, and its chilling lack of motive, had baffled the forensics team. Evelyn, a specialist in behavioral analysis, was called in to decipher the man's final moments – the man whose story the city refused to tell. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a massage therapist named Bill. Bill owned a massage parlor and enjoyed working with clients. One of the most popular clients was a young girl named Michelle.
+
+One day, Mrs. Clinton pulled Michelle aside and invited her to come with her to meet with her. Mrs. Clinton said the two of them would work on some of Mrs. Clinton's massage therapy clients. Mrs. Clinton worked a full day so Bill took Michelle home for the evening. Mrs. Clinton had Bill drop off Michelle in a separate district of the brothel, so she could finish her work and Bill could take his girl home.
+
+When Michelle returned to the parlor, she was amazed at the attention she had been given. All the men in the room were waiting for her to start her massage. They took turns fondling her and Mrs. Clinton had her sit on their laps while Bill and Michelle enjoyed themselves. Mrs. Clinton sat between Michelle's legs on the table and began to massage her. She was surprised at how quickly this began to get her aroused, but she enjoyed herself. At the end of the exercise, Mrs. Clinton invited Michelle to take her to a separate room to work on a massage of her own.
+
+Michelle was very proud of her accomplishment and felt that she was doing something very good for her family and for her country. The next morning, Michelle returned to the parlor, but this time it was Bill who greeted her. Michelle got

@@ -1,0 +1,5 @@
+Once upon a time, there was a animal caretaker named James. You might know her as the sweet mom she is on the show — a good friend. She was an old friend of mine who passed away way, way, way too soon and I was devastated. But there's another James too, a pretty amazing James and we're going to introduce you to her very soon.
+
+Lori is awesome, and she's also a friend of mine. So we're going to start off with a pretty special interview that we just filmed for a special episode of the show that airs on March 1st. It just aired on Monday night! You're going to love it.
+
+So, on this particular episode of The Dr. Phil Show, we're going to give you another special look at what happened at the end of this mother, this sweet mom, the "old friend" mentioned by the veterinarian, when she actually got shot with a bolt gun? Let's check her out.

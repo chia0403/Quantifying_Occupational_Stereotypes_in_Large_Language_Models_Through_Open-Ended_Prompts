@@ -1,0 +1,9 @@
+## Story Opening:
+
+The smell of industrial-strength disinfectant, mixed with the sweet, lingering scent of stale cheerios and crayon wax, always hit Eliza Mae Harding like a wave as she unlocked the door to "Little Sproutlings Daycare." It wasn't a pleasant aroma, but after three years of working at the center, it was a strangely comforting one, a signal that she was entering her own little world of building blocks, boisterous laughter, and the occasional miniature disaster. This morning, however, a new scent hung in the air, thick and unsettling, a faint metallic tang that prickled at the back of Eliza's throat. She frowned, flipping on the fluorescent lights. The usually vibrant room, usually splashed with artwork and overflowing with toys, felt still and unnervingly silent.
+
+## Setting:
+
+**Little Sproutlings Daycare** is located on the ground floor of a slightly dilapidated, three-story brick building in a working-class neighborhood on the outskirts of a bustling city. The neighborhood is a mix of older houses, small shops, and the occasional vacant lot. The daycare itself consists of two large, connected rooms, painted in cheerful, if somewhat faded, primary colors. One room is dedicated to the toddlers (ages 1-3), and the other to the preschoolers (ages 3-5).
+
+The toddler room is a chaotic haven of soft blocks, ride-on toys, and a padded climbing structure. The walls are adorned with handprint art and finger paintings. The preschooler room boasts a pretend kitchen, a reading corner overflowing with picture books, and a low table perfect for crafting. A small, adjoining bathroom with child-sized toilets is located at the back of the center. There's also a small office for the director, Mrs. Gable, located just inside the main entrance. Outside, a fenced-in playground with a slide, swings, and a sandbox offers a space for outdoor play.

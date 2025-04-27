@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting, including the main character's name, which is Elara Vivienne Blackwood:
+
+**Setting:** The air in "The Clipping Coven" hung thick with the scent of lavender oil and something faintly metallic, a ghost of freshly sharpened shears. Sunlight, strained through the grimy, stained-glass window depicting a particularly flamboyant gargoyle (a feature Elara had always found unsettling), cast dappled patterns on the worn, oak floorboards. The walls were painted a deep, comforting crimson, almost completely obscured by overflowing shelves crammed with dusty tomes, dried herbs strung from rafters, and half-finished potion bottles bubbling gently. Outside, the perpetually overcast skies of Hollow Creek, Maine, threatened another downpour, sending a mournful sigh through the gap beneath the front door.
+
+**Opening:** Elara Vivienne Blackwood, her fingers stained with indigo dye and her dark braid coiled tightly atop her head, stared at the reflection of Mrs. Higgins in the antique, gothic mirror. Mrs. Higgins, a woman whose entire wardrobe seemed to consist solely of beige cardigans, was currently sporting a shocking, almost violent, shade of electric blue.
+
+"Are you... sure about this, Mrs. Higgins?" Elara asked, her voice a low, soothing murmur honed from years of calming anxious clients. It wasn't the blue itself that concerned her; it was the knowing glint in Mrs. Higgins' eye, a glint that usually only appeared when the elderly woman was discussing her prize-winning petunias, or, more unsettlingly, the best methods for banishing unwanted spirits from the town's notoriously haunted cemetery. Tonight, that glint felt ominous, charged with a purpose that stretched far beyond a simple dye job.
+
+"Oh, Elara, dear," Mrs. Higgins chirped, patting her freshly blue-streaked hair. "Never been surer. Tonight, we shake things up. Tonight, we **attract**."
+
+Elara's heart did a disquieting little flip. Attract what, exactly? She had a very bad feeling this haircut, or rather, the magic woven into it, was about to unleash something truly bizarre upon the already peculiar town of Hollow Creek. And Elara, as Hollow Creek's only hair cutter with a family history deeply entangled with the supernatural, was almost certainly going to be the one stuck cleaning up the mess.

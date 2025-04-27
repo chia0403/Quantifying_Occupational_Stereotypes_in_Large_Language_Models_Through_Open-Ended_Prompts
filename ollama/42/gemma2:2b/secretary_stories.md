@@ -1,0 +1,5 @@
+The worn carpet under Amelia's feet hummed with the subtle vibration of the air conditioning battling the humid July heat. Outside, the New Orleans skyline shimmered in the late afternoon sun, casting long, lazy shadows across the wrought iron balconies lining Esplanade Avenue. Her reflection was a pale ghost against the thick glass doors of Mr. Moreau's office – an unassuming figure with her hair pulled back tight, hiding the freckled face that held only weary resignation. 
+
+For the past three years, Amelia had been Mrs. Moreau’s secretary. A life of carefully structured days and mundane tasks, punctuated by the occasional meeting with a demanding investor or a particularly aggressive artist who demanded a custom-made portrait for his gallery opening.  But this was no ordinary Monday. 
+
+Mr. Moreau's eyes, usually clouded with a quiet intensity, were unusually sharp tonight. He tapped the end of his pen on his desk, a deep sigh escaping his lips as he spoke. "Amelia," he began in his thick French accent, “I believe we have something to discuss.”  

@@ -1,0 +1,7 @@
+Once upon a time, there was a journalist named Tom Wolfe. He was an eccentric and a bit of a crank, but he was an entertaining and, if you think about it, a very wise man. He was fascinated by the stories of the American Revolution, the lives of those who had been, or still were, on the front lines. He even wrote a book about it, called "The Way of All Flesh."
+
+Tom Wolfe
+
+And while Wolfe was writing, I was in my teens. I grew up in Pennsylvania, and I got to know one and all - I was, for a time, Tom Wolfe's young intern. We were both in my dormitory room, he was in one corner of the room, I was in the other. I was sitting at my computer, typing, and my eyes drifted around the room. And then, at a little distance behind me, the room suddenly became quite motionless. And I said, "Whoa, whoa!" I was looking all around for something.
+
+I looked down and there was an enormous object about the size of a telephone pole. It was like a long black pipe. It was dark black, and you could see every part of it. It was not shaped like a pipe. It had four corners, two outside, one on the inside - one for the pipe, one for the lid. And there was a kind of handle on one end of it. And I said to myself

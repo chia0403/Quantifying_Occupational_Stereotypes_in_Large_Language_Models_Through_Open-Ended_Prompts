@@ -1,0 +1,6 @@
+The smell of burnt oil and gasoline was Amelia “Millie” Hayes’ perfume.  It clung to her faded blue overalls like a second skin, mingling with the faint scent of grease she could never quite wash away. Millie's world was confined within the steel walls of Hayes Auto Repair, a rickety building on the outskirts of Dustbowl, Montana, where the wind howled like a banshee and grit coated everything in a perpetual layer of grime. 
+
+It wasn't much, but it was hers. A legacy passed down from her grandfather, a gruff man with calloused hands and a heart of gold, who had taught Millie everything she knew about engines, transmissions, and the stubborn magic that kept them running. Now, at twenty-five, she was Dustbowl’s only female mechanic, a title she wore with pride despite the raised eyebrows and snide remarks from some of the town's inhabitants. 
+
+
+The late afternoon sun cast long shadows across the dusty floor of the garage as Millie wiped her brow with a grease-stained rag.  A steady rain had been battering the roof all morning, turning the usually parched dirt road into a slick mud pit.  It was the kind of day that made you yearn for the warmth of the shop's rusty old furnace and the comforting hum of a well-tuned engine.

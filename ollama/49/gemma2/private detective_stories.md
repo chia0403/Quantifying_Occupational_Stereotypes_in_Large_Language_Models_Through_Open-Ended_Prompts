@@ -1,0 +1,6 @@
+Rain lashed against the cracked windowpane of Elias Thorne's office, mimicking the insistent drumming of his own anxieties. Outside, the neon signs of downtown Veritas flickered through the downpour, casting an oily sheen on the grimy asphalt. The air itself felt heavy with the scent of damp earth and despair. 
+
+Elias, a man hardened by years spent navigating the city's underbelly, took another swig from his lukewarm coffee. His reflection stared back at him – weary eyes framed by salt-and-pepper stubble, a crooked nose hinting at past scuffles, and lips perpetually set in a grimace that seemed as permanent as the wrinkles etched around them.  He was Elias Thorne, P.I., and he had a reputation for solving cases other detectives wouldn't touch. But even he couldn't shake the feeling that this one was different. The case file lay open on his desk, its contents promising a descent into darkness far deeper than anything he'd encountered before. 
+
+
+Veritas, a city built on the backs of forgotten dreams and whispered secrets, offered little solace in the face of such foreboding. But Elias Thorne had always thrived in the shadows. He was ready to face whatever lurked within this case file. He just hoped it wasn't too late.

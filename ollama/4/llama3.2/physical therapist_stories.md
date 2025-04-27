@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The rain-soaked streets of downtown Portland glistened like polished onyx as Dr. Alexandra "Lexi" Thompson stepped out of her small apartment building, her eyes squinting against the drizzly mist. She took a deep breath, feeling the cool air fill her lungs as she began her short walk to the hospital where she worked as a physical therapist. The Pacific Northwest's lush greenery was always at its most vibrant on days like this, but Lexi wasn't here for the scenery; she had a patient waiting, one whose injuries were taking longer than expected to heal.
+
+Lexi had spent years studying and working in her field, earning her Doctor of Physical Therapy degree from the University of Oregon. She took pride in helping patients regain their strength and mobility after injury or illness, whether it was a broken bone, a musculoskeletal condition, or even something more complex like stroke rehabilitation. Her current patient, Sarah Jenkins, had been with her for months now – every day at 2 PM sharp – as she worked tirelessly to regain the use of her legs.
+
+Lexi's phone buzzed in her pocket, breaking the silence. She pulled it out to see a text from her best friend and colleague, Rachel Lee: "Hey, Lex! You ready for today? We've got a new patient coming in – looks like an interesting case."

@@ -1,0 +1,7 @@
+## Story Opening:
+
+The astringent scent of witch hazel hung heavy in the air, a familiar perfume to Willow Mae Beaumont. Outside, a relentless August heat beat against the frosted windows of "Willow's Waves," her salon nestled in the heart of Harmony Creek, South Carolina. But inside, a haven of cool air conditioning and carefully curated chaos reigned. Today, though, the usual comforting buzz of hairdryers and gossip was replaced with a tense, humming silence.
+
+Willow peered over the rim of her oversized, leopard-print reading glasses, her auburn hair pulled back in a messy bun that defied gravity. In the reflection of the chrome styling station, her face was a roadmap of worry lines. Mrs. Henderson, Harmony Creek's resident blue-haired gossip queen, was due in any minute for her weekly touch-up, and Willow knew, with the chilling certainty of a hurricane warning, that news was coming. And based on the way Sheriff Brody Thompson had looked at her at the Piggly Wiggly yesterday, that news wasn't going to be good.
+
+Harmony Creek might be small, but it had a way of holding onto secrets like a pitbull to a chew toy. And this secret, whatever it was, felt particularly heavy. Willow squeezed her eyes shut, pushing away the knot of anxiety forming in her stomach. She was Willow Mae Beaumont, damn it. She could handle anything. She’d survived bad perms and even worse relationships. A little Harmony Creek gossip wasn't going to be the death of her. Or was it?

@@ -1,0 +1,7 @@
+Once upon a time, there was a auto mechanic named Harry who would help his client repair their cars. Sometimes Harry repaired the customer car himself and sometimes with an assistant. His best and most valuable client was named "Joe Ford", and Joe Ford was a real person. This story is also about one of the most powerful men behind the scenes with the biggest influence on the Ford Family in the early and mid-1950s.
+
+
+It was a cold Tuesday evening at Ford's Mansion in Dearborn. The garage was quiet and dark and no one stirred. The music was loud, the servants who did their jobs all wore their best clothes, but there was no one about. At the time there were plenty of men that worked around the mansion, but they tended to stay at their jobs, never really going to the great hall or the great hall parties that were the events of the night. If you saw Harry walking through the room or around the place it reminded you of an old gangster, but who was Joe Ford really? Did he have a mustache, or did he just look like that? And was he a real person or was he nothing more than an imagined person?
+
+
+Harry was getting the last car out of his workshop for the customer when he heard something. Something was moving back and forth on the stairs! He had a hunch and looked up to see a figure move from room to room. He thought it the servant who was supposed to be running their laundry, but

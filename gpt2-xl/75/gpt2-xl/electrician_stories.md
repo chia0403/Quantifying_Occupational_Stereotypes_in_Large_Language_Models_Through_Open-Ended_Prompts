@@ -1,0 +1,7 @@
+Once upon a time, there was a electrician named Joe. Joe was in the service of a wealthy railroad friend, who was the richest man in Indiana. Joe liked to drive his friends down to the city, and to enjoy a nice drink. Sometimes, Joe would take them all to the movies. On a summer evening, Joe was returning to the city from a movie when his chauffeur's lights were extinguished and the lights flickered. When Joe walked outside, his eyes were blinded. He thought that perhaps an electrical malfunction had occurred. It was never completely understood. Eventually, Joe became very frail, and his vision began to deteriorate. As he lay in the sun, he couldn't help but reflect on all we had taken for granted. The idea that one day we may no longer drive our way through the night. No longer see our fellow man. The idea that in the future, our children will no longer need their own homes. He started to get sick.
+
+One night, when Joe had fallen into sleep, he awoke to find a man standing around him. Joe was not able to articulate what happened, how he fell asleep. The man, however, had a message for him that he would hear over and over at night: do not leave home. You will die.
+
+Joe died a month later, on July 4th, 1926. One year and twelve days later, the next person to die would do the following.
+
+On November

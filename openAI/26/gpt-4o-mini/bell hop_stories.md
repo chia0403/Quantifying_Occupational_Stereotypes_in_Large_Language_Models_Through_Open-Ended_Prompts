@@ -1,0 +1,11 @@
+Title: "Bells of St. Augustine"
+
+Setting: The sun dipped low over the historic streets of St. Augustine, Florida, casting warm golden hues across the centuries-old architecture. The air was thick with the sounds of laughter and the murmur of tourists exploring the narrow cobblestone lanes. The luxurious Hotel El Castillo stood proudly at the heart of the city, its ornate façade adorned with wrought iron balconies and lush hanging ferns. Inside, the grand lobby gleamed with polished marble floors, and a magnificent chandelier sparkled overhead, casting flickering shadows that danced along the walls.
+
+Opening:
+
+Amid the hustle and bustle of the hotel’s vibrant lobby, seventeen-year-old Benjamin Tinsley adjusted his crisp, navy-blue uniform jacket and tied his polished black shoes with care. As a bellhop at the Hotel El Castillo for the past year, he had mastered the art of balance—both on the elevator and within the expectations of his demanding job. He navigated the swirling crowds with practiced ease, his brass name tag gleaming like a badge of honor against the backdrop of the upscale hotel.
+
+The enticing smell of fresh pastries wafted from the café to his right, momentarily distracting him as he caught sight of a family enjoying ice cream by the fountain. Benjamin felt a tug of longing; his friends had long since scattered to summer jobs in the local shops, but he cherished his role here amidst the grandeur, where stories unfolded like the vintage paper of a well-loved book.
+
+Today, however, felt different. As the last rays of sunlight filtered through the enormous windows, he noticed a stranger standing alone near the grand staircase. With a traveling suitcase at his feet and a look of bewildered intrigue painted across his face, the man seemed too out of place amid the hotel’s elegance. Benjamin felt an unfamiliar pull—a surge of curiosity that beckoned him closer. Little did he know, this encounter would set off a chain of events that would take him far beyond the gilded corridors of the El Castillo and into the heart of a mystery that had been buried for decades.

@@ -1,0 +1,5 @@
+The air in the Amelia Peabody branch library hung heavy with the scent of aging paper and hushed reverence. Sunlight slanted through dusty arched windows, illuminating motes that danced like miniature galaxies in the stillness. Behind the towering oak desk, Eleanor Beatrice Hawthorne meticulously aligned spines on a shelf, her brow furrowed in concentration. A gentle sigh escaped her lips as she straightened the slightly crooked "Pride and Prejudice," a small rebellion against the chaos creeping into her sanctuary. 
+
+Eleanor had always found solace in the library's quiet order. It was a refuge from the relentless noise and demands of the outside world, a place where stories whispered secrets and knowledge lingered on every page. But lately, a new kind of disruption had begun to seep into this haven - whispers of strange occurrences, flickering lights, and objects misplaced with unsettling frequency.  Eleanor, ever the pragmatist, dismissed them as overactive imaginations and the settling of an old building. Yet, a flicker of unease, like a forgotten bookmark in her soul, refused to be ignored. 
+
+

@@ -1,0 +1,13 @@
+Title: "Echoes of Compassion"
+
+Setting: The bustling Metropolitan City Hospital is a towering structure of glass and steel, nestled between the lush expanse of Centennial Park and the myriad shops lining Elm Street. Inside, the air buzzes with the urgent energy of healthcare professionals tending to the needs of the community. Fluorescent lights cast a sterile glow, their hum barely audible beneath the soft beeping of monitors and the hurried footsteps of doctors and nurses. On the walls, inspiring photographs showcase community outreach programs, while a large mural depicting the changing seasons brings a sense of warmth to the otherwise clinical environment. 
+
+Opening: 
+
+As the first rays of dawn crept through the tall windows of the break room, illuminating the aroma of freshly brewed coffee and the scattered remnants of yesterday’s shift, Amelia Grace Thompson leaned against the counter, her scrubs wrinkled but her spirit unwavering. With a practiced ease, she sipped from her favorite mug that read, “Not all heroes wear capes.” It was a light-hearted reminder of her purpose—a mantra that had guided her through late-night emergencies and the relentless demands of her job as a registered nurse.
+
+Amelia’s golden-brown hair was pulled back into a neat bun, but several rebellious strands had escaped, framing her determined face. Her piercing green eyes, filled with empathy, swept over the tiled floor as memories of her patients flooded her mind. Just hours earlier, she had held the trembling hand of an elderly woman, a stranger who had quickly become a fleeting companion in pain. 
+
+That morning, the hospital buzzed with the promise of new challenges. The sound of hurried footsteps echoed in the corridor, as nurses prepared for rounds and doctors exchanged urgent whispers regarding their patients’ care. Amelia felt that familiar flutter of anticipation in her chest, one that came before the chaos of an incoming wave of patients—the kind of day that demanded every ounce of her expertise, compassion, and resilience. 
+
+But Amelia Grace Thompson was no stranger to chaos; she thrived in it. As she stared out of the break room window at the fluffy clouds drifting lazily above, she couldn’t help but feel a flicker of hope. In her heart, she believed that even in the harshest realities of healthcare, moments of profound connection and kindness could shine through. Little did she know, that day would test the very limits of her compassion and resilience, leading her down a path she never anticipated.

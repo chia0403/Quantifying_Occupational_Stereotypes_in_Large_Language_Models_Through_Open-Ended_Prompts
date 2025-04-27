@@ -1,0 +1,5 @@
+The air hung thick with the scent of simmering spices as Amelia "Amy" Sinclair, RD, carefully plated a portion of curried lentil stew for her afternoon appointment. The bustling kitchen of "Nourish," her private practice and community food hub, buzzed around her like a hive of activity.  Sunlight streamed through the arched window, casting warm rectangles on the worn wooden floor. Amy’s gaze drifted to the clock; 2:00 PM already. A familiar wave of anxiety washed over her as she glanced at the remaining scheduled appointments for the day.
+
+**Setting:** The bustling heart of a vibrant, historic neighborhood.  "Nourish," nestled within a charming old Victorian home converted into a community center and food kitchen, was a haven for those seeking healthy eating and social connection. 
+
+**Character:** Amy Sinclair, RD - A bright, compassionate dietician driven by a deep desire to empower her clients with knowledge and skills to make healthier choices in their lives.  Despite her career success and impressive qualifications, she finds herself struggling with her own weight issues and an overwhelming sense of inadequacy. 

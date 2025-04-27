@@ -1,0 +1,5 @@
+Dr. Penelope Grace Willoughby adjusted her glasses and peered through the large bay window of her seaside dental practice, "Willoughby Smiles." The sun dipped low on the horizon, painting the sky in hues of lavender and gold. Nestled atop a cliff overlooking the tumultuous waves of the Pacific, the quaint, whitewashed building with its blue shutters and cheerful flowerboxes exuded a warmth that matched the smile of its owner. 
+
+Inside, the walls were adorned with framed photos of her patients—grinning faces showcasing their pearly whites, testimonials of her gentle hands and sincere approach. As a child, Penelope endured her own share of dental terror, which fueled her passion for creating a calm, welcoming environment for others. A set of wind chimes jingled softly outside, their melody mingling with the faint sound of crashing waves, creating a soothing backdrop for the afternoon’s last appointment.
+
+Penelope took a sip from her trusty thermos of chamomile tea, her mind already racing toward the evening ahead. As the clock ticked closer to five, she could only hope

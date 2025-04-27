@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named Matt Damon. And he was such a terrible cook, he was fired from the restaurant. But he started a new restaurant across the street and became a huge star overnight. That's called the Matthew Modine Effect. And he became one of the best known chefs in America.
+
+And he could have kept doing a normal job. But instead, he became all kinds of different things – writer, actor, movie star, and so on. He's constantly being reinvented and reinvented again and again. And that's the Matthew Modine Effect, that's the "It's never over. Never stop. Never stop. Never stop!" factor.
+
+And you can apply that rule for yourself when you're creating a novel. When you're working on a book, just keep changing and experimenting and changing and experimenting. And if at any time you get inspired, whether by a comment that someone makes or an illustration you see or a book you read or a TV show you look up to, keep writing. And as you're writing, you'll realize, Oh! That would have been good if I had done that a year ago. Or Oh! That would have been great if I had done it a decade ago.
+
+Or it might just happen by accident – there could be a piece of inspiration that happens once or twice in your life and comes just from your own writing. For example, I recently got called for an interview

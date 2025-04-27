@@ -1,0 +1,7 @@
+Once upon a time, there was a computer programmer named Bob. Bob was brilliant and, not surprisingly, highly popular with his fellow programmers. But he was also lonely. So whenever he had time, Bob would find some way to get a few people together in an office and play video games or, the more exciting of those, take up tennis.
+
+Bob had lots of female friends and a girlfriend, Emily. He loved her deeply and would spend his days at the university, his evenings playing tennis, and his evenings at home in their townhouse playing with Emily. And one day, Bob, who always hated having to work on projects, threw a wrench into their perfect romance. He was in the middle of trying out a new programming language: COBOL on the IBM-68k. Bob wanted to add support for COBOL's realtime features; the programmers in the group had no interest in COBOL's realtime, because they didn't know what it was.
+
+So Alice, whom Alice had started dating the previous year, took the plunge and learned COBOL, working part-time for Bob. Unfortunately for Alice, COBOL's time-sharing mode was built in: if she and a colleague could write a solution by midday the following day, then that was all that would get turned into a working software product.
+
+Alice was appalled. The problem, she realized, was that it was just impossible for a person to program in real

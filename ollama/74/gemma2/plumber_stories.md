@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of Bartholomew "Bart" Copperbottom's rusty van, each drop a tiny drumbeat in the symphony of the approaching storm.  He squinted through the greasy windshield, his weathered face illuminated by the flickering glow of the dashboard radio. The static-laced announcer was droning on about some local festival being postponed due to inclement weather, but Bart barely registered it. His mind was focused on Mrs. Fitzwilliam's call, a frantic plea for help with a burst pipe in her century-old Victorian mansion.  
+
+The setting sun cast long shadows over the cobblestone streets of Willow Creek, a town clinging precariously to the edge of a windswept coastline. The air hung heavy with salt and the scent of decaying seaweed, a stark contrast to the warm, spiced aroma wafting from the bakery across the street. Bart pulled up to Mrs. Fitzwilliam's imposing house, its ornate facade barely visible through the driving rain. It was a place steeped in history, whispered rumors of secret tunnels and ghosts flitting between the rooms, but right now, all that mattered was stopping the deluge threatening to drown the entire house. 
+
+

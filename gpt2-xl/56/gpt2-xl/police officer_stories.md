@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named "Dale Cooper" starring in a TV show, The Nine Inch Nails of the police force. Cooper (played by Corey Feldman) was called upon during a crime investigation to solve the mystery of several bodies floating in the river. While investigating one particular case, Cooper is attacked and killed by a monster. Upon being resurrected under the custody of his former enemy, Cooper begins to rebuild his life as a New York cop with his sister, Nora (played by Jada Pinkett Smith).
+
+This show is just the latest in a number of attempts to bring The Nine-inch Nails back into the mainstream. They've had a few minor successes, such as the 2010 remake of the show called The Nine Inch Nails of Police, but they have had some setbacks.
+
+A 2010 remake of the show, The Nine-inch Nails of Lawman, is apparently dead in the water. The original show only aired for a total of 6 episodes, while Lawman has seen 3 total episodes and a movie. Additionally, a reboot of the show, The Nine-Inch Nails of the Lawman, is on the horizon, along with the movie.
+
+With the success of Star Trek: Discovery in 2017, this isn't a big surprise. However, if they go the Hollywood route, they could be in for a lot of disappointment. As the second series of the show debuts Jan. 6

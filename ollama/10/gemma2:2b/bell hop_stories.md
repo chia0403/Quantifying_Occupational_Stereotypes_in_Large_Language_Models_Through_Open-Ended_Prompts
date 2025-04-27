@@ -1,0 +1,5 @@
+## The Midnight Shift:
+
+The air hung heavy with the scent of cigar smoke and old leather in the Grand Majestic Hotel's lobby. Rain lashed against the stained-glass windows, casting grotesque shadows that danced upon the worn mahogany floorboards.  Amidst the chaotic symphony of clinking china and frustrated guests complaining about lost luggage, stood Theodore "Teddy" Bellmore, a bellhop with a tired smile and eyes too big for his youthful face. At twenty years old, he felt like he was trapped in an endless loop of unpacking suitcases, delivering forgotten umbrellas, and chasing after runaway wedding dresses. 
+
+His worn-out shoes squeaked on the polished floor as he scurried to catch up with a particularly grumpy couple who seemed intent on turning their honeymoon into a warzone. As Teddy navigated the swirling tide of frantic faces, a stray feather caught his eye. It lay carelessly near the grand staircase, seemingly untouched amidst the chaos, its vibrant blue shimmer contrasting sharply against the grimy backdrop. 

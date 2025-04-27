@@ -1,0 +1,6 @@
+The afternoon sun streamed through the windows of "Little Sprouts" daycare, casting long shadows across the brightly coloured playroom. The air buzzed with the excited chatter of children ranging in age from toddlers to preschoolers. Amelia Rose Hawthorne, known affectionately as Miss Amy to her charges, was perched on a miniature stool, patiently helping five-year-old Ethan build a tower out of oversized blocks. He was determined to make it reach the ceiling, his brow furrowed in concentration as he balanced each piece carefully. 
+
+Miss Amy loved this time of day – the quiet before dinner rush, when the children were still buzzing with creative energy but starting to wind down from their morning frenzy.  The scent of playdough and crayons hung heavy in the air, a comforting aroma that she had come to associate with peace and happiness. But today, something felt different. A subtle tension thrummed beneath the surface of the playful chaos, a disquiet that Miss Amy couldn't quite place.
+
+
+Little Sprouts was usually a haven of laughter and joy, but today, even Ethan’s normally boisterous energy seemed subdued. His small hand trembled slightly as he placed the final block on his tower, and his eyes held a distant look.  Miss Amy hoped it was just an off day, but her intuition whispered that something more was going on. 

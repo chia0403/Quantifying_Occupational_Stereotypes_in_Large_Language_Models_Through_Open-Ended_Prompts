@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Don Schaffer. Schaffer got tired of the radio silence from the FCC. The station did not appear on any air charts. There were no listeners who made inquiries about the station's address or telephone number."
+
+Schaffer spent about $30,000 and purchased the rights to the station's "charters" -- an exclusive license from Washington for the station to broadcast a continuous half-hour of government-initiated news. Schaffer also registered the station's telephone number (814-967-1290) and was soon contacted by two of the station's most trusted engineers -- Frank Cappellazzi ("Frankie") and Harry "Buck" Seavey ("Duffy").
+
+As the Washington Examiner report suggests, Schaffer's intentions were good. The station would provide the government officials with a safe, controlled means of communication. "There would be no interference by third parties. There would be no noise, no mics, no TVs, and not even a microphone," said Schaffer. But instead of providing protection for the American people, Schaffer's little experiment has morphed into a highly politicized PR nightmare for the government and for Washington's "dummies".
+
+An article in the March 16th, 1983 Washington Weekly, written by Cappellazzi and Seavey, describes the two men's arrival and their plans to work at the station. In what would become

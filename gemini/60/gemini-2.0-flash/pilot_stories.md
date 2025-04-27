@@ -1,0 +1,7 @@
+## Story Opening:
+
+The hiss of oxygen filled Amelia Grace Thorne's ears, a comforting counterpoint to the frantic drumming of her heart. Sweat plastered her dark curls to her forehead as she wrestled with the joystick, the aged P-51 Mustang groaning under the immense strain. Ahead, the inky blackness of the storm was a swirling, malevolent maw, threatening to swallow her whole. Lightning cracked, illuminating the cockpit in stark flashes, revealing the etched lines of worry that deepened with each passing second on Amelia's face. Damn the fuel gauges. Damn the radio silence. Damn everything. She had a package to deliver, and she wasn't about to let a little squall - or even a monstrous one like this - stop her.
+
+## Setting:
+
+The year is 1948. The setting is the vast, untamed expanse of the American Southwest, specifically the skies above the Arizona desert. Amelia, affectionately known as "Thorn" to her fellow pilots, operates a small, independent air delivery service out of a dusty, forgotten airfield near the ghost town of Redemption. The airfield itself is a patchwork of salvaged materials and sheer grit, a testament to Amelia's ingenuity and determination. The surrounding landscape is a tapestry of red rock canyons, shimmering mirages, and endless skies, a breathtaking but unforgiving environment. The post-war era hangs heavy in the air, with a sense of both promise and uncertainty. The desert, with its hidden secrets and whispers of the past, seems to hold its breath, waiting to see what the future will bring.

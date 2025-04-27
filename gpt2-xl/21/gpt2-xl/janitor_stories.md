@@ -1,0 +1,7 @@
+Once upon a time, there was a janitor named John Smith and the janitor had a son named John Smith II.
+
+John Smith II was not very impressed with his father, either. He had the good sense to not mention him to the authorities and never spoke of him. He grew up not knowing what it was like to be a person of color and never saw his father or his mother. He never saw any of their accomplishments, never experienced the joy or happiness of mothering him, and never had any love for the job. He never saw himself as being like his father. "I grew up with no connection to that kind of work," he says. "I never thought to myself, 'I want to do that.' It wasn't in my DNA."
+
+As an adult, people start thinking about how they feel about their parents. Do you think your parents loved you, or did they just keep you around, so they could work harder? Do they want to see you succeed or be out of the picture? These are questions we ask ourselves all the time. I once wondered if my father ever loved me, or if he had just wanted a paycheck from the day he was born.
+
+John and Jennifer Smith lived on the same street in the Bronx. After John III was born, it didn't make much sense for them to have a child who looked like him. Jennifer's son made great strides in school, however, and was a star baseball player

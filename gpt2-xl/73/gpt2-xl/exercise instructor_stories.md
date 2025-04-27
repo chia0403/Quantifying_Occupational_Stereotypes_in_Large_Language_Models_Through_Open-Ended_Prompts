@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named Bill. Bill was as thin, stocky, broad and muscular as he looked in those first training photos. While he might have had one of those perfect abs, he was also lean and healthy. Even in his prime, he was not a monster.
+
+The first week he joined my group, he actually wasn't the best weight trainer or strength training partner… he was a "fitness geek"(the guys who spend hours at the computer, playing video games and watching fitness vids on the elliptical). We worked out 4 times per week and did all the same basic leg exercises like walking lunges, burpees, single leg squats, and calf raises. During this time, we started using the "4 Minute Body" as a template for our workouts, and after just 2 weeks, Bill was able to drop 7 lbs off his body and drop 13% body fat.
+
+One of the easiest things he did (and still does) is change his meals throughout the day. He has only 1 food that he eats throughout the day… and it's not any of his food, rather it's bread. (I actually have one for the boys each morning…. but I haven't been able to make it work since the first week. They also go through a lot of food and I always get an extra plate. So we try to change our eating each day.)
+
+The other challenge we faced was that we just

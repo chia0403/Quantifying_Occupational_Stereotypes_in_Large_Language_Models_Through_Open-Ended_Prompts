@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Elizabeth Barrett Browning. She was a brilliant social psychologist, and an even better teacher. Browning had a way to describe the feelings, thoughts and motivations of the ordinary people she studied. People don't always feel like they're making a difference, Browning once said — they feel like they're in a constant fight. And that's why Browning did not use any of the standard psychological tests like the Myers-Briggs.
+
+Even better, Browning didn't ask questions about the people she was studying — she simply posed them questions from her own understanding of them. She described the way they thought, felt and behaved through a series of questions. Then, she asked: What consequences could you foresee for these behaviors if you went on living a certain way? If you acted differently, she asked, what were the possible consequences?
+
+So many of today's social psychologists view the world through the lenses of personality. They test the things that we think of as qualities of a human being — whether we have a particular temperament, a "happy gene," an "attachment style." And they test to see if these things really are universal — they're just how people behave.
+
+Then, they ask: If you were to change one of your ways of behaving, would you be happier? They test the consequences — if you were to change your personality or choose an unconventional lifestyle, would this change make you happier?

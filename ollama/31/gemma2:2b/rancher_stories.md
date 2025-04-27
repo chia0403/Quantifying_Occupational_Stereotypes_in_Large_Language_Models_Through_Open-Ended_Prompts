@@ -1,0 +1,7 @@
+The midday sun beat down on Caleb Thorne's weathered face as he surveyed his cattle herd from the dusty porch of his adobe house.  A cloudless sky hung over the arid plains of New Mexico, leaving the landscape sweltering and shimmering under its gaze. A lone wind whispered through the dry brush, carrying with it the faint scent of sagebrush and a hint of something else, something earthy and unfamiliar.  This was Old Man's Ridge, Caleb’s legacy for generations, his own piece of paradise amidst the endless expanse of the southwest. 
+
+Caleb Thorne, his calloused hands gripping the worn leather reins of his weathered mare, adjusted his Stetson and sighed. The silence of the ranch pressed in on him, broken only by the distant chirps of cicadas and the rhythmic creak of aging wood. It had been a tough year. Drought had clung to them like a shadow, drying up the once-fertile earth, leaving the pastures parched and skeletal.  His son, Ethan, was gone fighting in another country far from this land he called home, and Caleb felt a gnawing loneliness deeper than the arid soil that cradled his soul. 
+
+The wind picked up, swirling around him with a newfound urgency, carrying with it a strange hum, almost like a low, mournful tune. Caleb squinted at the horizon as if searching for the source of this unsettling melody. The air held an unfamiliar tang - something musty and ancient. It was as if the earth itself was holding its breath, waiting to release a hidden whisper on the wind. 
+
+

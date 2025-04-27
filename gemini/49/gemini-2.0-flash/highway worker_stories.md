@@ -1,0 +1,7 @@
+## Story Opening:
+
+The asphalt hummed beneath Arthur Leopold Finch’s boots, a low, constant thrum that vibrated up his spine and settled behind his eyes. He spat a stream of tobacco juice into the dusty ditch lining Highway 39, the coppery taste a familiar comfort against the grit and relentless sun. He shielded his eyes with a calloused hand, squinting at the shimmering horizon where heat waves twisted the distant silhouette of Mount Rainier into a hazy, surreal mirage. It was shaping up to be another scorcher.
+
+## Setting:
+
+The story is set on a lonely stretch of Highway 39, slicing through the vast, arid landscape of Eastern Washington State. The highway itself is old, cracked in places, patched up with more asphalt than original road. Sagebrush and tumbleweeds crowd the shoulders, a testament to the unforgiving climate. The nearest town, Othello, is a good twenty miles away – a cluster of dusty buildings baking under the relentless sun, barely clinging to life like a withered vine. Arthur's work crew, a handful of men and women hardened by the sun and the grind, is currently tasked with repairing a particularly treacherous pothole that has been swallowing tires whole. The air is thick with the smell of hot asphalt, diesel fumes, and the dry, earthy scent of the desert. The only sounds are the rumbling of passing semi-trucks, the clank of tools, and the occasional screech of a hawk circling overhead.

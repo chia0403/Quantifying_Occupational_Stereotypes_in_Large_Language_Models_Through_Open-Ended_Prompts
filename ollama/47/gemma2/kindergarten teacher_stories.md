@@ -1,0 +1,5 @@
+The scent of crayons, glue sticks, and something vaguely resembling burnt toast hung heavy in the air. This was Ms. Eleanor Primrose's reality every morning, and she wouldn't have it any other way. Her tiny classroom at Maplewood Elementary hummed with a chaotic symphony of giggles, sniffles, and off-key renditions of "Twinkle Twinkle Little Star."
+
+Sunlight streamed through the rainbow-colored blinds, painting stripes across the worn linoleum floor. Construction paper planets hung from the ceiling, some meticulously crafted and others looking suspiciously like lopsided macaroni monsters. A hand-painted sign proclaiming "Kindergarten is Where the Magic Happens!" adorned the wall beside Ms. Primrose's desk, which was buried under a mountain of coloring books and misplaced sippy cups. 
+
+Ms. Eleanor Primrose took a deep breath, steeling herself for another day filled with sticky fingers, glitter explosions, and the endless stream of "Why?" questions that only kindergartners possessed.  She smiled, her heart swelling with a familiar warmth. This messy, magical chaos was where she belonged.   

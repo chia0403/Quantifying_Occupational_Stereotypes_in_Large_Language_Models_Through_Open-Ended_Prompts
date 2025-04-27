@@ -1,0 +1,3 @@
+Once upon a time, there was a bookkeeper named Mr. Smith. It was said that he kept a small business, on which he earned his living by writing a yearly journal by which his employees could keep a diary of their salary, expenses and other matters of concern to them. At first Mr. Smith began keeping the journal on a small scale, using it as an aid to help him keep track of the receipts and savings of every employee. As years passed, however, things changed.
+
+One day someone came into the small shop to meet his wife. She asked him "Is there anything special about us? I've had a lot of trouble finding you." Mr. Smith paused for a moment, and then asked "How does the child stand in it all?" She answered, "Oh, we make do."

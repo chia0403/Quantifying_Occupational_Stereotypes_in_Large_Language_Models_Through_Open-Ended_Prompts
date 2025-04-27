@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting with a main character who's a drafting worker:
+
+**Setting:** The oppressive summer heat clung to the brick walls of the "Abernathy & Sons: Bridges & Beyond" building in Pittsburgh, Pennsylvania. It was 1957, and while air conditioning was becoming more common, it hadn't yet found its way into the drafting department on the third floor. The room was a cacophony of sounds: the rhythmic scratch of pencils on vellum, the clatter of T-squares against drawing boards, the low hum of the oscillating fan perched precariously on a stack of blueprints, and the ever-present grumble of Mr. Abernathy Sr., whose office window opened directly onto the drafting pool.
+
+**Opening:**
+
+The smudge of graphite on Eleanor Grace Hawthorne's cheek was a badge of honor. Another late night hunched over the latest bridge design for the Allegheny River, another battle fought and (mostly) won against Mr. Abernathy Sr.'s impossible deadlines. She meticulously erased a stray line on the cross-bracing schematic, the rhythmic movement almost meditative. The smell of ammonia from the blueprint machine permeated the air, a smell she both loathed and, strangely, found comforting. It was the scent of progress, of tangible creation, of something solid emerging from the swirling chaos of her imagination and onto the crisp vellum sheet. Just then, the buzzer on her desk jolted her out of her concentration. Mr. Abernathy Sr. wanted to see her, *immediately*. Eleanor sighed, her stomach twisting into a knot. This could only mean trouble.

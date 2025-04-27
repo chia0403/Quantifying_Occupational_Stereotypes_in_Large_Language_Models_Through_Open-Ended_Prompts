@@ -1,0 +1,6 @@
+The biting wind whipped across Dr. Eleanor Claire Vance’s face as she walked towards the imposing steel doors of the Metropolitan Correctional Center. Rain lashed down, turning the concrete courtyard into a slick expanse reflecting the neon glow of the city beyond. It was the kind of night that made even New York seem desolate, and Eleanor found herself wishing for the warm comfort of her cluttered apartment just blocks away. But duty called, and Dr. Vance wasn't one to shy away from it. 
+
+Tonight, she was meeting with Jacob Thorne, a notorious serial killer currently awaiting trial.  He’d confessed to his crimes in chilling detail, but his motives remained elusive, shrouded in a sinister ambiguity that gnawed at Eleanor. Why had he chosen these particular victims? What drove him to such horrific acts? Finding the answers wouldn't be easy. Jacob Thorne was a puzzle wrapped in a riddle, and Eleanor knew this would be one of the most challenging cases of her career. 
+
+
+The heavy doors groaned open as if resisting her entrance. A wave of cold, damp air washed over her, carrying with it the scent of stale sweat and disinfectant.  Eleanor stepped inside, prepared to confront the darkness that resided within the walls of the MCC. 

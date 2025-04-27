@@ -1,0 +1,6 @@
+The sun hung low over Blackwood Manor, casting long shadows that stretched like grasping fingers across the manicured lawns. Dew clung to the emerald blades of grass, shimmering like scattered diamonds in the fading light. Alistair Hawthorne, head groundskeeper for the past twenty years, surveyed his domain with a practiced eye.  His weathered hands, calloused from years of wielding shears and trowels, tightened around the leather handle of his gardening rake. 
+
+Alistair’s world was one of meticulously sculpted hedges, vibrant flower beds bursting with color, and ancient trees that whispered secrets on the wind. The manor itself, a gothic masterpiece of crumbling grandeur, loomed over it all, its dark stone walls seeming to absorb the light like a thirsty beast. He knew every inch of this sprawling estate, every twist in the rose arbors, every hidden pathway leading to secluded nooks.  He considered Blackwood Manor his life's work, a living testament to beauty and order amidst the encroaching chaos of time.
+
+
+But today, something felt different. An unsettling tension hung in the air, heavier than the humid twilight. It was as if the manor itself held its breath, waiting for something – or someone – to break the silence. 

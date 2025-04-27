@@ -1,0 +1,6 @@
+The bell above the door jingled its lonely welcome as Elijah Nathaniel Blackwood swept a stray strand of auburn hair from his work station. The afternoon sun, filtering through the dusty windowpane, illuminated a cloud of golden motes dancing in the air. He sighed, the sound echoing in the almost empty salon. 
+
+Elijah's "Shear Perfection" wasn't exactly bustling with clients today. In fact, it was a Wednesday, and Wednesdays were usually quiet. The week started slow, picked up on Thursday and Friday, then died down again over the weekend. He loved the solitude of these slower days, the peace that settled in the otherwise vibrant space he’d built with his own two hands. But even Elijah needed a bit more than the company of clippers and mirrors to keep him going.
+
+
+The quaint Victorian building nestled on Elm Street was bathed in the warm glow of late afternoon light, a stark contrast to the gray sky threatening rain just beyond the window.  He glanced at the clock - 3:15 pm. Maybe someone would wander in before closing time. He hoped so. Elijah craved connection, not just the kind that came from snipping and styling hair, but the deeper sort that resonated beyond the mundane. But for now, he was content with the quiet hum of the fan and the rhythmic click of his scissors against the shears.  

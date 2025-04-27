@@ -1,0 +1,7 @@
+Once upon a time, there was a architect named Michael Van Vliet of Portland, Oregon. In 2011, Van Vliet (whose LinkedIn page has since been taken off the Internet) was working as Senior Executive Architect and Principal Architect at JMI Architects, a firm in Seattle. Van Vliet had a son who did not have a college degree. Though Van Vliet did not have college and only a high school diploma, he decided to pursue the "adult way" of self-education by enrolling at a community college. The community college's online architecture courses weren't particularly compelling to him so Van Vliet did not take them.
+
+Van Vliet went to work at Microsoft in Redmond, where his employer at the time offered an annual stipend of $150,000 to the highest performing candidate who completed a six-month internship at a software engineering role. So Van Vliet took the Microsoft training and enrolled in Microsoft's architecture program in May 2010. And he did not learn a whole lot.
+
+"I graduated high school in 1998, my first year at college in 1999, so I went through a whole thing of college in high school but nothing in college," Van Vliet told me this morning, over email, over coffee. "By 2004 I just didn't feel like it. I was more interested in coding and just felt like [Microsoft] was a better place to go."
+
+Van Vliet is the kind

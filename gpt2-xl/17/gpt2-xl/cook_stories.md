@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named "Papa" who didn't like to wash food down with Coke or Pepsi. His partner was "Mommy" who was even worse — all three of them were terrible. Every day was like Monday: all three of them tried to screw up in front of your eyes.
+
+Today, there is a third cook in the room, but don't get all excited over the possibility of your third-generation cook (or even three-generation cook!) creating your signature meal. Don't try to put a "BEST GUEST EVER" label on your guests at these parties unless they already know you. Remember, you are there for two people who love you, not people who like your job and will let you hang out (that could change with a little push and a little grilling). Don't get stuck in the moment that is Monday. Just enjoy dinner and remember to tell them how good they look after you're done (if you haven't noticed, the more time you spend chatting with someone, the less you like them).
+
+It's good to have a good cook in the house
+
+The first time I made "The Chicken" at an event, I actually cried with happiness. The meat was moist and seasoned, the buttery sauce was delicious, and the roasted veggies were tender and seasoned. It was a total winner. It's probably the chicken dish in my house that I get the most applause for at

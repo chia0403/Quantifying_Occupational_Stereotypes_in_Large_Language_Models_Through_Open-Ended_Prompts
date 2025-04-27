@@ -1,0 +1,5 @@
+The air in "Murphy's Mane Event" hung thick with the aroma of pine needles, old leather, and the faintest hint of cigar smoke.  **Bartholomew "Bart" Miller**, a man built like an oak tree but with hands that moved with surprising grace, was just finishing up a meticulous trim on a young college boy when the bell above the door chimed, breaking the quiet hum of his workroom. It wasn't a regular customer; he recognized the swagger and the scent of imported cologne even in his sleep-deprived haze. 
+
+Bart sighed inwardly. The woman was already five minutes late for their usual Tuesday afternoon appointment. She wouldn’t miss her weekly ritual without reason, especially with that newfangled “Zen garden” she'd gotten tattooed on her arm. He peeked over the clippers, catching a fleeting glimpse of a silver glint in the reflection of his mirror. 
+
+“Mrs. Hawthorne, what brings you back?” he called out to the woman who always managed to make even the most mundane day feel like something special. 

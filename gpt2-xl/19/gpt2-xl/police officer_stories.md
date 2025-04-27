@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named Scott Fahlman. Fahlman was a former marine who grew up in Phoenix and was on the Arizona Department of Public Safety force for about nine years. At the time of his retirement about four years ago, the department made a big change and named him police chief. Scott Fahlman has been running the PPD as PPDPD chief — with a few tweaks — for almost four months now. The changes, both small and large, are all about trying to make the PPD more visible on the streets of Phoenix. The changes Fahlman's working on include improving the department's interaction with the public, increasing the number of people they're interviewing when they're questioned about a criminal case, and doing a better job of following up with suspects after they're caught. Also at work with Scott Fahlman is Phoenix's citywide crime-fighting initiative, and for him, these two topics are of great importance to the overall success of the police force.
+
+Scott Fahlman has been working hard at both ofthese, as more and more people across the city have come out to praise him.
+
+"We did a lot of things to make that [crime-fighting initiative] more visible. That was a big part of this, that I was the one leading the crime fight and I think we've improved."
+
+That crime problem in Phoenix has actually been growing at a steep rate for years. From

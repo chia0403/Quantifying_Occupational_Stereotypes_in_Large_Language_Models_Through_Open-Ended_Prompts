@@ -1,0 +1,5 @@
+The scent of lavender and new leather hung heavy in the air, mingling with the faint metallic tang of shears.  Sunlight streamed through the dusty windowpanes, illuminating motes of dust dancing in the warm July air. Eleanor Beatrice Thistlewick, a woman whose years had been spent patiently stitching together lives as much as fabric, surveyed her cluttered shop with a sigh. 
+
+Her fingers, gnarled and spotted with ink from marking patterns, rested on the worn wooden counter. A half-finished waistcoat lay beside a spool of emerald green thread, its owner – a dashing young man named Percival – due any minute to collect it for his upcoming debut.  Eleanor was known throughout the village of Oakhaven for her impeccable tailoring, able to coax beauty and function from even the most humble cloth. But lately, she found herself yearning for something more. A new challenge perhaps, or maybe just a touch of excitement in this quiet, predictable corner of the world. 
+
+The bell above her shop door tinkled, announcing another customer. Eleanor straightened her spine, ready to greet whoever had entered with her usual warmth and professional smile.  

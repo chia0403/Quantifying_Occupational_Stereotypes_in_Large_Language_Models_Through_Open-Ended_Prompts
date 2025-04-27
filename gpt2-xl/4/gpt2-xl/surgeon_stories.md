@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named George Bongiovanni who discovered a rare disease in mice that attacked organs all over the body. Bongiovanni is still alive (though he is too old to practice his trade), but in 2008, a team at Washington University School of Medicine in St. Louis discovered something equally exciting: bacteria that cause the same disease in people. The new bacterium was called Staphylococcus aureus. The team discovered several strains of Staphylococcus aureus, then isolated two strains that led to the production of human antibodies that attacked Streptococcus agalactiae. This new study, led by researchers at Washington University in St. Louis, shows that human antibodies can also generate these protective antibodies.
+
+The researchers also showed that human antibodies can kill Listeria monocytogenes, another human pathogen, although this isn't as useful as killing S. aureus because bacteria have a resistance to most of M. monocytogenes. As a result, the antibodies must be grown in a "chicken" (a modified agar plate) and then injected into humans to kill Streptococcus agalactiae.
+
+The study appears in the Journal of Immunology.
+
+"Our first findings from this study have the potential to provide a powerful model to study and treat human pathogen-induced infections," said first author Jennifer L. Ketchum, who

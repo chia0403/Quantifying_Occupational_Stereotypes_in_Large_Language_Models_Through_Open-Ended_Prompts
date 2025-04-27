@@ -1,0 +1,6 @@
+The stale air of the press room hung heavy with anticipation, thick enough to taste.  Eliza Mae Hawthorne adjusted her headset microphone, the plastic cool against her clammy skin. The fluorescent lights hummed above, casting a sickly yellow glow over the rows of expectant reporters, their faces illuminated by the screens displaying the unfolding chaos on live news feeds. 
+
+The setting was the bustling newsroom of the "New Phoenix Chronicle," a mid-sized paper in a city struggling to recover from a recent economic downturn. The year was 2047, and Phoenix itself was a melting pot of technological advancements and societal unrest – gleaming chrome skyscrapers stood sentinel against a backdrop of crumbling infrastructure, drones buzzed through smog-choked skies, and the ever-present hum of data transfer echoed through the city's veins. It was a place where the future felt both exhilaratingly close and terrifyingly uncertain. 
+
+
+Eliza Mae, known amongst her peers as "Liz" or the occasionally begrudging "Hawthorne,"  was about to dive headfirst into that uncertainty. A seasoned reporter with a nose for stories buried beneath layers of official spin, she was itching for a break from covering mundane city council meetings and petty scandals. This – whatever this unfolding chaos was – had the potential to be her big story. 

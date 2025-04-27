@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Story Opening:**
+
+The rhythmic beep of the scanner was practically a heartbeat to Eleanor Vance. She could probably scan a family-sized bag of kettle chips blindfolded, deciphering the barcode from the texture alone. Tonight, however, even the familiar monotony couldn't soothe the gnawing unease in her stomach. The fluorescent lights of the "Everything Emporium" buzzed with an unnatural ferocity, mirroring the buzzing anxiety that had settled deep within her. Another customer approached, a harried-looking man wrestling a wailing toddler and a mountain of discount toilet paper. Eleanor pasted on her most convincing customer service smile, the kind that promised understanding and efficiency, and braced herself. It was going to be one of *those* nights.
+
+**Setting:**
+
+The "Everything Emporium" was a big-box discount store located on the outskirts of Harmony Creek, a sleepy town nestled in the foothills of the Appalachian Mountains. It sprawled across a vast, asphalt-covered lot, a beacon of cheap consumerism in a landscape defined by rolling hills and dense forests. The store itself was a labyrinth of brightly colored aisles crammed with everything from canned goods to garden gnomes, cheap electronics to questionable clothing. The air inside was a blend of artificial scents – a sickly sweet mix of potpourri, cleaning solution, and the faint, lingering aroma of popcorn from the break room. The floors were perpetually sticky, and the overhead speakers blared a never-ending loop of upbeat pop music, occasionally interrupted by announcements for forgotten children and blue-light specials. At night, under the harsh glare of the parking lot lights, the "Everything Emporium" felt less like a store and more like a purgatory for tired souls and impulse buyers.

@@ -1,0 +1,7 @@
+Rain lashed against the windows of Jack Thorne's office like angry fists, mirroring the turmoil swirling in his gut.  The air hung heavy with cigarette smoke and stale coffee, punctuated by the rhythmic clinking of his old brass desk clock. Outside, neon signs from the nearby bars reflected on the rain-slicked pavement, casting a sickly yellow glow over the grimy alleyway behind Thorne's office. 
+
+Jack himself was a study in contrasts - sharp cheekbones framed by unkempt hair and eyes that held both weary wisdom and a spark of restless curiosity.  He ran a hand through his salt-and-pepper beard, his gaze fixed on the worn photograph clutched in his hand. "Evelyn Bell," he muttered, the name a painful whisper against his tongue. 
+
+Evelyn Bell was gone. Vanished without a trace, her luxurious penthouse apartment a silent testament to her absence. The police hadn't given much hope; they called it a disappearance of no apparent consequence, a void left in the bustling city's heart. But Jack knew better. He had been hired by Evelyn's estranged husband, Arthur, who was desperate for answers and driven by an unyielding grief that seemed to crackle like static through their phone calls.
+
+Jack Thorne, with his knack for sniffing out hidden truths amidst a sea of lies, was about to dive into the murky depths of Evelyn's life - even if it meant wading through muddled memories and unraveling twisted secrets in the neon-lit underbelly of the city. 

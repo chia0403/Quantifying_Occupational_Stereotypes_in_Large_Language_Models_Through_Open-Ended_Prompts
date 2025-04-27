@@ -1,0 +1,7 @@
+Once upon a time, there was a travel agent named Lise in the game. You could meet her in the same area as the rest of Lise's friends in the game. The same area that had a giant stone head with no face. But unlike those guys, she was much more interesting than that. She liked to talk, and she liked to tell terrible jokes. And on top of that, her husband had two children. As you would guess, I was never very fond of that idea.
+
+Lise was the kind of girl that made everyone around her feel like they needed to be very careful around her, and I never really liked that feeling. She was the kind of person that you made sure you got to the bathroom very quickly and did everything on time. She was a huge pain in the ass sometimes, but she was the kind of person that made you work your ass off to overcome her, which is something that I always admired in girls.
+
+Anyway, Lise was a fun girl, but she also was very ambitious, and was determined to make some money one way or another. She was always on about getting in at the front door, and I wanted to avoid getting into anything with her.
+
+But then in a fit of jealousy, I got into a conversation with her over this one thing or another. She knew I was being a bitch, because she had noticed I was being such a bitch around her husband, but she didn't like

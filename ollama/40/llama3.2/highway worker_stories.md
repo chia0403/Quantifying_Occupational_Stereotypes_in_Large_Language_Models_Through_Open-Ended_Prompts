@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded beyond the rolling hills of rural Oregon, Highway Maintenance Worker Ryan Elliotson trudged wearily towards his truck, parked at the edge of the deserted highway. The smell of asphalt and diesel fuel clung to him like a familiar blanket as he pulled open the creaky door and slid into the driver's seat.
+
+The night air was crisp with the scent of damp earth and decaying leaves, a stark contrast to the sweltering summer heat that had plagued Ryan all day. He took a deep breath, feeling the tension in his shoulders begin to ease as he gazed out at the darkening landscape. The highway stretched before him like a black snake, its steel beams glinting with a soft, ethereal light.
+
+Ryan's thoughts turned to the repairs job he'd just finished – patching potholes on the stretch between Portland and Eugene, where the constant flow of tourists had worn down the road's foundation. It was work that required precision, attention to detail, and an endless supply of grit. Ryan Elliotson had spent years honing his craft as a highway worker, learning the ins and outs of the job from his father, who'd done the same before him.
+
+As he started the engine and pulled out onto the deserted stretch of highway, Ryan's gaze lingered on the dark shapes of the trees, their branches etched against the sky like skeletal fingers. He felt a shiver run down his spine – it was moments like these that made him wonder what secrets the Oregon night might hold, secrets hidden beneath the surface of its quiet beauty.

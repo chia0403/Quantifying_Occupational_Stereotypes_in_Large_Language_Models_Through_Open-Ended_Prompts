@@ -1,0 +1,7 @@
+## The Scent of Smoke
+
+The air hung thick with the scent of woodsmoke and the tang of iron, clinging to Dr. Eleanor "Ellie" Hayes like an unwelcome second skin.  Her crisp white coat felt constricted under the weight of this strange town's humidity. It was a small, forgotten crossroads nestled between rolling hills and whispering pines, a place where time seemed to have stopped its inexorable march.
+
+Ellie adjusted the strap of her bag, her eyes scanning the dilapidated wooden buildings that lined the main street. The air buzzed with an unsettling silence punctuated only by the distant clank of horse-drawn carts rattling over the uneven cobblestones. It had been a whirlwind few days since she’d arrived in Harmony Creek, tasked with covering for Dr. Thorne during his unexpected, and somewhat unexplained, absence. Ellie had grown accustomed to the rhythm of city life, but this place, with its ancient buildings clinging precariously to the hillside and its inhabitants seemingly stuck in a time warp, felt both exhilarating and isolating.  Ellie took a deep breath, willing herself to face the strangeness that awaited her. 
+
+Harmony Creek was more than just a town; it held a history steeped in whispers and secrets, a legacy woven from forgotten dreams and whispered tragedies. A storm of questions swirled in Ellie's mind: Why had Dr. Thorne left so abruptly?  And what were the true stories hidden behind the veil of Harmony Creek’s silence? 

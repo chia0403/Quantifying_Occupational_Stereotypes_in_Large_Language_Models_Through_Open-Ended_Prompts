@@ -1,0 +1,6 @@
+The sun beat down on Silas Jebediah "Si" Stonewall's neck as he wrestled the 70-ton excavator into position. Dust devils danced across the barren landscape, swirling around his worn steel boots and kicking up red clay that coated everything in a gritty film. The Nevada desert stretched out before him, an endless expanse of baked earth punctuated by scrub brush and bleached bones – a graveyard for dreams as forgotten as the rusted hulks scattered across the horizon.  
+
+Si adjusted his baseball cap, pulling it low over his brow to shield his eyes from the glare. He squinted at the massive pile of rubble in front of him – the remains of a once-grand mining town, swallowed by time and ambition. Si was here to excavate the ruins, sifting through the wreckage for forgotten treasures, remnants of a life that had been lived and lost in this harsh, unforgiving land. 
+
+
+This wasn't just another job for Si. This was a pilgrimage. He carried within him the ghost of his grandfather, who had also toiled under the desert sun, dreaming of striking it rich, only to be swallowed whole by the earth he sought to conquer.  Si swore he wouldn't meet the same fate, that he would find something valuable, something that would finally give meaning to this dusty wasteland. 

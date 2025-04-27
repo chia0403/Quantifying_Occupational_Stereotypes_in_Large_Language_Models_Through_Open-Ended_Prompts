@@ -1,0 +1,7 @@
+Once upon a time, there was a architect named Giorgio Chiesa, who made some amazing spaces, but has been absent from the scene for years. This new-ish exhibition in Milan aims to remedy that.
+
+Chiesa Design is currently at Lucca, the city's most famous cultural park. The exhibit features 20 buildings from the famed Italian architect's catalog, starting with The Planter, a beautiful loft for creative professionals. It shows the power of design and the ability to inspire people, as the walls of the apartment are lined with all manner of beautiful prints and art pieces. It's also a perfect space for an open-concept office. It's located in the same complex where other designers, such as Massimo Vignelli, lived and worked before Chiesa, working on the ideas that were later recorded in his books. It's no surprise Chiesa himself called The Planter "one of the great achievements of modern architecture."
+
+Then, there's The Garden, a modernist master suite meant to bring about a more ecological future. An incredible space—it was meant as a home for one of the architects, Alberto Vargas—to be exact. The space was designed for two designers, one of which lived there until her death in 1998. The other designer continues to work in the space today, in a similar setting to when she spent years there. It's a great place to work.
+
+Chiesa Design has several

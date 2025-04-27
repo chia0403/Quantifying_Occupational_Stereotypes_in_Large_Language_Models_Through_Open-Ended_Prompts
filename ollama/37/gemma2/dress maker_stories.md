@@ -1,0 +1,5 @@
+The air hung thick with the scent of lavender and lilac, a familiar perfume that clung to the velvet curtains in Eleanor Adelaide Beaumont's workshop. Sunlight streamed through the lace-trimmed windows, painting shimmering squares on the worn wooden floorboards. Outside, London buzzed with the clamor of hansom cabs and hawkers peddling their wares, but within these four walls, time seemed to move at a slower pace, dictated by the rhythmic click of Eleanor's shears and the gentle hum of her sewing machine. 
+
+Eleanor, a woman whose age was as indecipherable as the intricate patterns she wove into silk, sat hunched over a bolt of shimmering emerald fabric, her brow furrowed in concentration. Her hands, though gnarled with time, moved with practiced grace, manipulating needles and thread like an alchemist transforming raw materials into something beautiful. Today, however, a knot of worry twisted in her usually placid stomach.  The Countess had requested a dress for the upcoming ball, a masterpiece that demanded not just skill but inspiration - and Eleanor was struggling to find it. 
+
+

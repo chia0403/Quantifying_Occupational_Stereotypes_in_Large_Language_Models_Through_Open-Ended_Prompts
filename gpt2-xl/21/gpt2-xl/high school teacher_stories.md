@@ -1,0 +1,7 @@
+Once upon a time, there was a high school teacher named Steve who was a really bad boyfriend/girlfriend/parent. This is no longer me. Steve was a former child prodigy and currently sits on the NFL Draft board as a potential first-round selection. Steve was a perfect guy to talk to about your NFL dreams because the man never got tired of reminding you exactly why "The NFL is the ONLY career that matters" and reminded you of the benefits of a team-oriented approach to life, and I will always love him because of that.
+
+Before we get into my conversation with Steve, I'd like you to hear some of his advice to my former girlfriend as she approached the idea of entering a professional football league in high school:
+
+She wasn't even close to entering the draft. She was a running back from my neighborhood. I don't like her but I don't know her so I can't say what she would do if she walked into the pro leagues. A lot of people do it. What did she think if she got drafted? She's going to walk into a team and they're going to look at her and say "We're not seeing that on our team". She should have thought that she doesn't have to do this. She had an NFL dream, she worked hard and she deserved the opportunity. And when you see a game on TV, you just think it's a dream.
+
+He also reminded me of this old chestnut

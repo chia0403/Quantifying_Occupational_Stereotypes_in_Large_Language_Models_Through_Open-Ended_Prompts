@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting featuring a travel agent:
+
+**Setting:** The fluorescent lights of "Wanderlust Wonders Travel Agency" hummed a monotonous tune, reflecting off the glossy posters of sun-drenched beaches and snow-capped mountains. The air hung thick with the scent of stale coffee and the faint perfume of desperation clinging to departing clients. The agency, located in a slightly dilapidated strip mall just outside of Pittsburgh, PA, was a far cry from the exotic locales it promised.
+
+**Story Opening:**
+
+Eleanor Penelope Ainsworth, a woman who had seen more of Pittsburgh than Paris, more of the back of her computer screen than Bali, sighed. She was 42 years old, a travel agent, and quite possibly, a liar. Not intentionally, of course. Eleanor genuinely *wanted* to send people on the trips of their dreams. She wanted to bottle that vacation bliss and sell it by the gallon. But lately, the requests had been less "dream vacation" and more "budget-friendly escape from reality before my marriage implodes," or "someplace where my mother-in-law can't reach me on her cell phone." Today, she was battling both. A newlywed couple sat across her desk, their forced smiles barely concealing the simmering resentment bubbling beneath the surface. They wanted a romantic getaway, somewhere…cheap. Eleanor glanced at the meticulously crafted brochure for a five-star resort in the Maldives, tucked safely out of sight. This was going to be a long afternoon.

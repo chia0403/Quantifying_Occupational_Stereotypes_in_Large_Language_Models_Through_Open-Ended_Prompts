@@ -1,0 +1,9 @@
+## The Story Opening:
+
+The sun, a malevolent furnace in the mid-August sky, beat down on Leo Maxwell’s bare forearms. He squinted, pushing a stray lock of sweat-plastered hair from his eyes. Heat shimmered off the asphalt shingles, warping the world into a hazy mirage. Leo spat a mouthful of dust and grit onto the roof's steep slope. Another nail slipped from his numb fingers and clattered down the eaves, joining the chorus of frustrated thuds echoing around the old Victorian. He swore under his breath, a string of colorful, well-worn phrases he'd learned from his grandfather, the man who’d first put a hammer in his hand and a fear of heights in his heart. Leo Maxwell wasn't afraid of much, but a faulty ladder and a rogue gust of wind were enough to make his palms sweat.
+
+## The Setting:
+
+The story is set in the sleepy, once-prosperous town of Havenwood, Pennsylvania. Havenwood, nestled in the foothills of the Allegheny Mountains, is slowly decaying. Its heyday as a manufacturing hub has long passed, leaving behind a trail of closed factories, boarded-up storefronts, and a pervasive sense of nostalgia for a time that will never return.
+
+The house Leo is currently working on is a prime example of Havenwood’s forgotten grandeur. "The Hawthorne House," as it's locally known, stands on a sprawling, overgrown lot on the edge of town. Built in the late 1800s by a wealthy coal baron, it's a Queen Anne style Victorian, complete with intricate gingerbread trim, a sprawling wraparound porch, and a turret that pierces the sky like a defiant middle finger to the encroaching decay. Once a symbol of wealth and prosperity, the Hawthorne House is now a dilapidated shell, its paint peeling like sunburnt skin, its windows clouded with grime. It has been empty for decades, rumored to be haunted, a silent monument to Havenwood's fading past.

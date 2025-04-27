@@ -1,0 +1,7 @@
+Once upon a time, there was a guard named Mr. Blondie, who was not a great fellow. One day, he was watching his horses play in a field, and saw a little girl running by. There was trouble, however, with one of the horses; for it got so angry at what he considered Mrs. Blondie's conduct, that, before he turned, he galloped at her furiously, and, without waiting for her return, kicked the poor thing into a tree!
+
+Blondie looked quite shocked to see what had taken place, and ran out to check the young girl; but she laughed and ran away, just as the horse was on the point of leaping into the tree!
+
+Now, for a long time Mr. Blondie was so vexed and angry in mind and heart, that he made no move to punish the child; but she would not be so kind; and a day or two afterward, an old lady of a neighbouring village knocked into his house, with a stick, and told him that if anybody ever tried to run against Mr. Blondie, he would shoot that miserable child in the back without mercy!
+
+Mr. Blondie had given some thought to this threat, when the lady said to her she was welcome to come into the house, if she wished to give an account of the incident; but Blondie said that he knew her very well, and that she was a devil

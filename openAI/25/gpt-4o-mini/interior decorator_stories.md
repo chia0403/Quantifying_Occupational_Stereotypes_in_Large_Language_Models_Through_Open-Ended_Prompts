@@ -1,0 +1,7 @@
+In the heart of Willow Creek, a quaint town known for its blooming cherry blossoms and charming cobblestone streets, stood a newly renovated Victorian house on Maple Avenue. The air was fragrant with the scent of spring, and the sun poured through the canopy of pink petals overhead, casting dappled shadows on the freshly painted white picket fence surrounding the home.
+
+Inside, the walls hummed with possibilities. Dust motes danced in the beams of light filtering through the large bay windows. The wooden floors, polished to a gleaming sheen, echoed the promise of laughter and family gatherings yet to come. In the center of this canvas of potential stood Eloise Harper-Delaney, a talented interior decorator with an eye for detail and a heart full of dreams. 
+
+Eloise, in her late thirties, exuded an effortless elegance as she surveyed the empty rooms with a discerning gaze. With her chestnut hair pulled back in a loose bun and a vibrant scarf draped around her neck, she emanated a blend of creativity and determination. Each space whispered stories to her, begging for the warmth of her touch. Today, she was not just decorating a home—she was breathing life into a fresh start for the new owners, a young couple eager to create beautiful memories within these walls.
+
+As Eloise pulled out her notebook, filled with sketches and color swatches, she could almost hear the laughter and chatter that would soon fill the air, wrapping around her like a familiar embrace. This was more than a job; this was her passion—transforming bare spaces into heartfelt havens.

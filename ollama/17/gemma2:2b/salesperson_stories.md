@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of the "Everything & Beyond" shop, an unwelcome counterpoint to the cheerful jingles of the old jukebox playing just behind me.  Dust motes danced in the pale beam of light filtering through a cracked window, illuminating Amelia Rose's (that was her real name) face, etched with worry lines that were only deepened by a frown. She ran a hand through her hair, the damp strands clinging to her forehead like a forgotten promise. The familiar smell of wood polish and old dreams filled her nostrils, but today it tasted bitter, like regret. 
+
+For weeks now, customers had been scarce. Amelia wasn't just selling furniture – she was selling hope, an elusive dream that seemed to vanish faster than the afternoon sun in this town.  Her once-bustling shop felt as quiet and forgotten as a ghost from another century. The townsfolk had long since moved on to shiny new things, leaving her with chipped porcelain dolls and moth-eaten blankets in her wake. 
+
+She needed to change something, fast, before the last light of hope faded completely from her eyes and vanished with the rain.  

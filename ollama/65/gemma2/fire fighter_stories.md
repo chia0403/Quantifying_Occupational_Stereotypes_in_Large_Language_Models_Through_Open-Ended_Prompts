@@ -1,0 +1,6 @@
+The wail of the sirens was almost drowned out by the rhythmic crackle of flames devouring the two-story Victorian house. Smoke billowed from shattered windows like malevolent ghosts, twisting and turning in the humid July air.  Captain Elias Blackwood squinted through his visor, the heat already stinging his face. He could hear the frantic shouts of civilians being ushered away from the inferno, their faces etched with terror.
+
+Elias took a deep breath, steadying himself. This wasn't his first fire, far from it. After ten years on the force in this sleepy town nestled amidst the rolling hills of Vermont, he’d seen enough destruction to last a lifetime. But something about the ferocity of this blaze, the way it seemed to consume everything in its path, sent a shiver down his spine. He gripped the axe tighter, his calloused hand finding comfort in the familiar weight. There was no time for nerves. Lives were on the line. 
+
+
+He barked orders to his team, his voice clear and authoritative even over the cacophony of chaos. "Engine Three, advance attack! Ladder One, position on the west side! Medic Unit, stand by at the perimeter!"  His eyes scanned the scene again, searching for any sign of movement within the raging inferno. He had to focus. Every second counted. 

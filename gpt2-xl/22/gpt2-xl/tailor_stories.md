@@ -1,0 +1,7 @@
+Once upon a time, there was a tailor named Richard. He loved linen, a rich soft wool fabric woven from natural fibers. He sewed the fabric he used inside the sleeves of his shirts. It was the most comfortable thing ever. His family called him his own tailor, and that became his nickname. Richard always wore a red flannel shirt with a white collared shirt underneath. Richard always wore a red flannel shirt with a white collared shirt underneath. He loved blue jeans. He wanted to live his life in black leather.
+
+When I was seven years old, all of the sudden Mom called and said Richard was gone! I was devastated. Why did he have to leave? Suddenly there wasn't a button to button on my new suit and I wasn't wearing a collar. My favorite outfit was gone!
+
+I had no money, no friends, and a heart full of sadness. I made my way down the hall to the corner store and wandered for two blocks, just looking for him. He had to have left a little early because it was so far on a Saturday. Every time I asked a family member where he would be, they always mentioned somewhere nearby. But it was over so quickly. I ran down the street, past my friends' houses. Why was Richard always the one to disappear?
+
+Two months later, Richard came back, brand-new in a new flannel shirt with a blue collar. He told me the story all over

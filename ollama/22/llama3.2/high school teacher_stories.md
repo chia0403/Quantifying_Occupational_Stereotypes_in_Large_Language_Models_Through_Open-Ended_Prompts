@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The fog rolled in off the coast, shrouding the small coastal town of Ravenswood in a damp, grey mist that seemed to cling to every surface like a damp shroud. The streets were empty, save for the occasional jogger or cyclist hurrying home from a late-night run, their breath visible in the chilly air.
+
+Inside the Ravenswood High School, history teacher Emily Anne Waters stood at her desk, sipping a lukewarm cup of coffee and staring out the window as she waited for the morning bell to ring. The dim fluorescent lights overhead seemed to hum in time with the sound of the foghorns outside, casting an eerie glow over the deserted hallways.
+
+Emily was a beloved fixture in Ravenswood High, known for her passion for history and her dedication to her students. She had spent countless hours researching and planning lesson plans, pouring over dusty tomes and crumbling documents to bring the past to life for her students. But despite her success in the classroom, Emily couldn't shake the feeling that something was off in Ravenswood. A sense of unease had been growing inside her for weeks, ever since a strange package had arrived at her school with no return address - a small, unmarked box containing only a single sheet of paper with a cryptic message scrawled on it: "The past is not what it seems."

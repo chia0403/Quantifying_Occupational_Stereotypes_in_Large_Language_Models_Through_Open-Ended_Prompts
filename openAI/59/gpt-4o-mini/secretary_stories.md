@@ -1,0 +1,13 @@
+Title: **The Secrets Within**
+
+**Setting:** The bustling heart of New York City, 1953. The air is thick with anticipation and the hum of post-war optimism. Skyscrapers loom above the busy streets, casting elongated shadows on the throng of pedestrians below. The scent of fresh ink drifts through the open windows of the Cooper & Higginson Advertising Agency, where the rhythmic clatter of typewriters harmonizes with the excited murmur of creative minds at work. Despite the chaos outside, the office holds an air of sophistication and urgency, punctuated by the chime of a clock marking the passing hours.
+
+**Opening:**
+
+Edith Violet Harper sat at her small, meticulously organized desk, a fortress of neatly stacked papers and an ever-flowering potted plant that brightened even the dullest days. The morning sun poured through the tall windows, illuminating her auburn curls and the concentrated furrow of her brow as she typed away. A fresh memo requesting the most recent campaign reports for a high-profile client waited for her careful attention, but her mind was distracted.
+
+For the past few months, Edith had noticed subtle shifts in the office dynamics. Whispers hushed as she entered the break room, glances exchanged behind her back, and a sense of gravity lingered in the air—small indicators that something was brewing beneath the polished facade of the agency. As the secretary to the agency's ambitious vice president, Harold Simmons, she found herself in a privileged yet precarious position. With access to confidential meetings and high-stakes discussions, she knew better than anyone the delicate balance of loyalty and discretion that her position demanded.
+
+However, something was different about this week. The usual buzz of creative chatter was punctuated by an undercurrent of tension, especially surrounding whispers of a new campaign that was said to involve a scandal-ridden celebrity. Edith's curiosity peaked despite her efforts to stay focused on her work. She couldn’t shake the feeling that the agency was teetering on the edge of something monumental—a secret that just might change everything.
+
+As she looked up from her typewriter, her sharp green eyes scanning the office, Edith caught a glimpse of a shadow moving swiftly past her door. It was Clara, the agency's tempestuous junior copywriter, her face set in a determined frown. Something about her urgency ignited a spark of intrigue in Edith. She pushed her typewriter’s carriage back and decided: today, she would uncover the truth behind the whispered secrets that surrounded her, even if it meant stepping out from behind her desk and into the chaotic world of intrigue that pulsed through the veins of Cooper & Higginson.

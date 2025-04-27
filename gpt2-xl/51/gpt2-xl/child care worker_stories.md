@@ -1,0 +1,7 @@
+Once upon a time, there was a child care worker named Doreen. She worked for the company where my parents had their daycare. She was very sweet and helpful and always made sure the kids had everything they needed. She lived in a building owned by an organization called the United Children's Fund that provided home schooling for our own kids.
+
+There was a lot happening with that organization when one of their employees got fired. It turned out they had the building under surveillance and were able to find the key to this little office down the hall. When they found her they immediately started to kill her off since the police couldn't do anything.
+
+I knew something wasn't right when a bunch of people I'd never heard of showed up to her funeral. What I didn't know was all of their faces were black and they were carrying semi-automatic weapons. The man I later learned had been responsible for killing her wasn't there, but he was all dressed in black. They weren't acting according to his pattern, the pattern of a murderer. He was a person who was trying to do right by the organization he worked for. I could have told someone but I never thought it was such a bad place to keep my son. It was safe, quiet and it was quiet because it had a lot of black people. It didn't seem so terrible, maybe like home.
+
+After all that, it wasn't until I learned she wasn't dead that I truly understood

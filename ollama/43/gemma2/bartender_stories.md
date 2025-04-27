@@ -1,0 +1,4 @@
+The air hung thick with the scent of stale beer and forgotten dreams in The Rusty Nail. Neon flickered on the chipped mirrors lining the bar, casting an anemic glow across the worn mahogany surface. Elsie Mae Davenport adjusted her crimson bandana, the one with the faded embroidered roses that had seen more spilled drinks than a hurricane. She wiped down a mug, the rhythmic swish of the cloth a familiar counterpoint to the discordant hum of conversation and laughter swirling around her. The Rusty Nail was her haven, her canvas, where stories unfolded like cheap whiskey on a hot night. Tonight, however, a new story was about to begin. 
+
+
+A figure, shrouded in shadow, slipped through the doorway, bringing with him a chill that had nothing to do with the July heat outside. Elsie Mae raised an eyebrow, sensing something out of place in the familiar chaos of The Rusty Nail. This wasn't just another weary traveler seeking solace in a stiff drink. 

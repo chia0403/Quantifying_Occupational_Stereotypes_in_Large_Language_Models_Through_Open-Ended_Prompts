@@ -1,0 +1,7 @@
+## Story Opening & Setting:
+
+**Setting:** A cramped galley kitchen at the rear of a Boeing 777-300ER, somewhere over the vast, icy expanse of the North Atlantic Ocean. Turbulence is rattling the beverage carts and sending nervous jitters through the few remaining passengers awake.
+
+**Opening:**
+
+The smell of lukewarm coffee and pre-packaged lasagna clung to the air like a persistent cough. Amelia Grace Davies slammed the oven door shut, wincing at the clang. It was far too loud for 3 AM transatlantic time, but frankly, she was beyond caring about passenger serenity at this point. Outside the tiny, porthole-like window, the only visible landscape was a swirling tapestry of grey clouds, whipped into a frenzy by the turbulent winds. Amelia leaned her forehead against the cool metal of the oven, trying to quell the rising tide of nausea. The air was thick with static electricity, making her hair stand on end like a dandelion clock about to burst. She sighed, the sound lost in the hum of the engines and the insistent rattle of the turbulence. She was a seasoned flight attendant, damn it. She'd seen worse turbulence. But something about this flight, this *atmosphere*, felt different. A prickling unease crawled beneath her skin, a feeling that went beyond the usual dread of serving another lukewarm lasagna to a grumpy businessman who’d paid extra for legroom. This time, it felt like something was watching. Something unseen, vast, and incredibly cold.

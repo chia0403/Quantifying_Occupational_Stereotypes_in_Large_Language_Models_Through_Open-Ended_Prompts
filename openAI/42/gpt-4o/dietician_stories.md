@@ -1,0 +1,9 @@
+In the bustling heart of Charleston, where the historic and the modern gently intertwine, Rose Calloway found her sanctuary amidst the whispers of old buildings and the inviting aromas wafting from cozy cafés. As an early morning mist lifted from the cobblestone streets, Rose meandered through the narrow lanes toward her haven of wellness—her nutrition clinic, NutraBalance.
+
+Housed in a charming 19th-century building with ivy-clad brick walls and tall, arched windows, NutraBalance stood as a testament to Rose's dedication to blending traditional wisdom with cutting-edge science. Inside, the clinic was an oasis of calm, where the soft palette of greens and creams created an ambience of warmth and health.
+
+Rose Calloway, a striking figure with auburn hair and an air of gentle authority, was more than just a dietician. She was a healer, a confidante, and, for many, the last hope in their journey toward healthful living. Her reputation had grown beyond Charleston, drawing clients who sought her expertise in transforming their relationships with food and their bodies.
+
+This particular morning, as sunlight began to filter through the curtains, painting patterns across the wooden floor, Rose prepared for her first client. She glanced at her planner and saw the name "Elliot Greene" penciled in neatly at nine. Elliot was a new referral—a young musician facing challenges with weight and energy levels.
+
+Rose couldn't help but feel a twinge of anticipation. Each new client brought a unique story, a different challenge, and another opportunity for Rose to weave her magic: nurturing health not just through diet, but through understanding, support, and the shared belief that everyone deserved to feel vibrant and alive.

@@ -1,0 +1,11 @@
+Title: **Whispers of the Abandoned Theater**
+
+Setting: Nestled in a forgotten corner of a once-vibrant downtown district, the Old Lyric Theater looms like a ghost from a bygone era. Its once-bright marquee now hangs askew, faded letters barely illuminating the cracked pavement below. Thick vines snake through shattered windows, weaving between the ornate columns that once welcomed patrons to grand performances. Inside, dust motes dance in the shafts of light that filter through the neglected ceiling, and the air is heavy with the scent of mildew, mingling with echoes of laughter and applause that linger like memories in the gloom.
+
+Opening: 
+
+Harland James, a weary man in his late forties, pushed the heavy mop bucket across the ornate, though dusty, floor of the Old Lyric Theater. With each stroke, he recalled the stories that had once ignited this grand space—stories of love, loss, and dreams fulfilled under the bright lights that now lay dim. Today, however, the air felt different, charged with an energy that both intrigued and unsettled him.
+
+As he worked, the familiar creaks of the dilapidated structure seemed to whisper secrets, tales he’d long considered mere figments of his imagination. Harland often spent his evenings alone, scrubbing the remnants of yesterday from the floors, but today, he couldn’t shake the feeling that he was not alone. He paused, his mop hovering mid-air, listening with bated breath as a faint melody flirted with the edges of his consciousness.
+
+Determined to dismiss it as the result of too many late nights and too little sleep, Harland resumed his task. Yet, as the final notes of the phantom tune faded into the shadows, he could not ignore the undeniable pull it created within him—a call to uncover the stories hidden in the theater's crumbling walls. And with that realization, Harland James, the unnoticed janitor of the Old Lyric Theater, found himself standing on the brink of an unexpected adventure, ready to breathe life back into the echoes of the past.

@@ -1,0 +1,7 @@
+Once upon a time, there was a electrician named Mr. Power who taught himself electrical engineering for most of his career. Although the name does not exactly scream "superior ability," he did learn a lot about energy that other people didn't know, and that he has been in the habit of sharing with many of his friends. This knowledge comes from his experiences working in multiple power supply companies; he had to learn how to properly measure power currents in order to generate the necessary voltage. Over time, he was able to do this by studying the properties of different types of electricity and developing his own formula to properly measure these energies.
+
+When they met Power's old college friend Harry Powers, the two of them began to share their valuable information, and it eventually grew to include all of the powers and abilities the Power family had, including the ability to understand the inner workings of electrical circuits and the way they work.
+
+This knowledge was the one important piece of information that Harry needed in order to figure out when his father's death was a good time for him to go on a solo mission, which he eventually did, and soon found himself working for the mysterious Mr. Ollivander, who was the only man who knew everything about the various magical items owned by the family.
+
+The wizard eventually taught Power a method for reading magical items. From the beginning, he told Power only to touch the surface of an item and not to look inside or to study it, to

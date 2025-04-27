@@ -1,0 +1,7 @@
+Once upon a time, there was a counseling psychologist named Bill Goldberg who worked with prisoners who were suffering from drug and alcohol addiction. One of his patients was Ted Bundy. Bundy's first wife, Maureen, a beautiful blonde in her 40s, had been murdered by him when he was 23 years old. He was released from prison in 1981 and began selling drugs, which gave him the money to finance his next escape which took place in 1986. He lived on the run until 1992 at which point he was arrested and convicted for his roles in four murders and his convictions were upheld.
+
+After nine years in prison, Ted Bundy was paroled, and he promptly killed his next wife. As you might expect after a lifetime of murderous behavior, Bundy developed a fascination with the killing of babies and children. In fact, on the day before his murder of Linda Kasabian, Bundy sent his bodyguard, Randy Kraft, to take a photograph of his murdered victim.
+
+In the photo, the killer was dressed like an undercover cop in a white uniform. When Kraft got the shot, he knew something was off and immediately notified a detective on the scene who was unable to find a match for the man from the photo. Bundy himself was able to give one description, who was later identified as John Wayne Gacy, a serial killer who killed 17 boys and young men between 1972 and 1978.
+
+Bundy also took several photos of children dressed up like clowns, which he had

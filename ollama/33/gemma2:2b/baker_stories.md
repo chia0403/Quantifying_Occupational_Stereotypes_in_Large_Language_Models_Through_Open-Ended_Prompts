@@ -1,0 +1,5 @@
+The morning mist clung to the cobbled streets like a reluctant ghost, its tendrils reaching out to touch the gingerbread houses that dotted the windowpanes of Elm Street Bakery. Rain pattered on the awnings above Amelia Hawthorne’s bakery door, the rhythmic tap-tap-tap a counterpoint to the low hum of the oven inside. 
+
+Amelia, with her fiery red hair pulled back in a practical bun and flour dusted across her cheeks, stood humming as she kneaded dough, the scent of warm sugar and cinnamon swirling around her like a promise of good things to come. The air was thick with anticipation, especially on Tuesdays, when the annual village pie contest was held. 
+
+Her grandmother's worn recipe book lay open beside her, its yellowed pages holding the secrets of generations past - each recipe a whispered promise of the comfort and joy baking offered. It had been Amelia’s dream to open this bakery, to fill it with the aromas that chased away the dreary November chills and brought smiles to the town's faces. 

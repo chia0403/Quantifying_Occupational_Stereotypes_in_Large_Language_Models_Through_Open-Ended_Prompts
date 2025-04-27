@@ -1,0 +1,7 @@
+Once upon a time, there was a kindergarten teacher named Alice. A young little girl with round, almost perfect little cheeks, soft, smooth hair and a small, delicate nose. She had brown eyes, big dark brown tresses and big breasts that seemed to fill her. She was very pretty, and Alice thought a little frightened when she first saw her. She knew nothing about Alice and her family, or whether she was a boy or a girl. For that matter, she knew nothing at all about boys and girls; the only things she knew were the things they wore.
+
+In the beginning, not knowing what to expect, Alice was delighted when she got to know the little brown girl called Miss Alice, and learned that after school she could go to the local public library if she wanted to use a book. She was very fond of Alice's mother, who was always on hand to help out if Alice had trouble to solve in a book.
+
+Alice also thought it would be very nice of a teacher to have a girl in her class who could help out with things like coloring, and do some other things like that—something so she wouldn't have to have Miss Alice do everything all by herself.
+
+The only problem was, the girls didn't come. What happened was that the library in the neighborhood closed up one day and just disappeared. When school resuming a week later, there were no more libraries open and Alice's little girl Miss Alice had to do it

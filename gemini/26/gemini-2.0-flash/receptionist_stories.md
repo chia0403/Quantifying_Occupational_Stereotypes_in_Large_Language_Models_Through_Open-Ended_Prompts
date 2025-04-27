@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting for a story with a receptionist named Amelia Iris Thorne as the main character:
+
+**Setting:**
+
+The lobby of "Synergy Solutions Group," a modern, but ultimately bland, office building in downtown Seattle. Floor-to-ceiling windows offer a view of the perpetually overcast sky, reflecting the muted grey and beige color scheme of the lobby back onto the world. Geometric furniture, chosen more for its visual appeal than its comfort, sits stiffly on a polished concrete floor. The air is perpetually pumped full of a vaguely citrus-scented air freshener, attempting to mask the inherent staleness of corporate life. A large, uninspired abstract sculpture dominates one wall, a testament to someone's artistic aspiration, but mostly just a dust collector. The overall impression is one of aspiration, cleanliness, and a profound lack of personality.
+
+**Opening:**
+
+Amelia Iris Thorne was pretty sure she could identify every individual dust mote floating in the air currents of the Synergy Solutions Group lobby. Years of observing them dance in the filtered sunlight had made her something of an expert. It was a skill born of necessity, a coping mechanism for the soul-crushing monotony of being the first line of defense against the outside world for a company that specialized in… well, Amelia wasn't entirely sure what Synergy Solutions Group *actually* did. Something involving "dynamic solutions" and "optimized strategies" according to the website, which translated, as far as she could tell, to endless meetings and jargon-filled emails.
+
+Today, the dust motes were particularly lively. A breeze had snuck in when the delivery guy dropped off the weekly supply of bottled water, setting them into a frenzied waltz. Amelia, armed with a damp cloth and a steely glint in her eye, prepared to engage in her daily battle against the forces of entropy. She straightened her navy blue company-issued blazer, adjusted the headset that rested on her perfectly coiffed auburn hair, and plastered a welcoming, if slightly weary, smile on her face. Because that was her job, and Amelia Iris Thorne always did her job, even if it was slowly killing her soul, one dust mote at a time. The door chimed, announcing a new arrival.

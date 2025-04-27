@@ -1,0 +1,7 @@
+The insistent chirp of a robin was the only sound breaking through the pre-dawn quiet as Amelia Rose Hawthorne peeled back her floral duvet. 5:30 AM. Too early, even for her. But the anticipation bubbling in her chest, the familiar flutter that always accompanied the start of a new school year, wouldn't let her stay in bed.
+
+Amelia Rose, Miss Hawthorne to her precious charges, lived in a charmingly ramshackle Victorian house on Primrose Lane in the small, picture-postcard town of Harmony Creek. The house, affectionately nicknamed "The Gingerbread House" by the neighborhood children, was painted a soft butter yellow with gingerbread trim and overflowing window boxes bursting with geraniums. Inside, the aroma of old books and cinnamon hung permanently in the air, a testament to her love of classic literature and her notoriously burnt toast.
+
+Harmony Creek itself was the kind of place where everyone knew your name, the local baker remembered your favorite pastry, and the biggest scandal involved Mrs. Higgins' prize-winning petunias being nibbled on by a rogue rabbit. It was a haven, a safe, predictable world Amelia Rose cherished, and the perfect place to nurture the bright young minds entrusted to her care at the Harmony Creek Elementary School. The school, a stately red brick building with a welcoming oak door and a playground painted with hopscotch grids and vibrant murals, was just a short walk from her house, a journey she relished, especially on days like today.
+
+Today was the first day of kindergarten. And Amelia Rose Hawthorne was ready.

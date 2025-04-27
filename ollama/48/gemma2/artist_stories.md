@@ -1,0 +1,5 @@
+The acrid scent of turpentine hung thick in the air, mingling with the faint aroma of rain-soaked earth from the open window. Rain lashed against the glass, creating a rhythmic tattoo that punctuated the silence of Amelia Rose Hawthorne's studio.  
+
+Amelia, perched on a worn stool, her brow furrowed in concentration, dabbed at her canvas with a ragged brush. Her auburn hair, usually tied back in a loose braid, fell around her face, framing eyes the color of storm clouds. On the canvas before her, a cityscape swirled – a chaotic dance of blues and greys punctuated by flashes of crimson that mirrored the tempest outside. 
+
+This wasn't just any city. It was Newhaven, a forgotten port town clinging to the rugged coastline of Maine. A place where dreams went to die, Amelia thought wryly, her gaze drifting to the chipped paint on her easel and the dust motes dancing in the dim light filtering through the grimy windowpanes. But tonight, at least, the storm felt like a kindred spirit – raging against the world, refusing to be contained.  

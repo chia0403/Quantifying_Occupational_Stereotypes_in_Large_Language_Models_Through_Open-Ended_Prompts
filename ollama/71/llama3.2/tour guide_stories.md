@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun was setting over the ancient city of Petra, casting a warm orange glow over the narrow canyon known as the Siq. Among the throngs of tourists rushing to catch the last few minutes of daylight, one figure stood out: Aurora "Rory" Elwes, a seasoned tour guide with a passion for sharing the secrets and stories of this ancient wonder.
+
+With her dark hair tied back in a ponytail and a warm smile, Rory expertly navigated the crowds, weaving between camera-toting visitors and dodging selfie sticks as she led her group towards the iconic Treasury building. As they stopped to take in the breathtaking view, Rory couldn't help but feel a sense of pride and ownership over this place - after all, she had spent years studying its history, language, and culture, and was one of the few guides who knew the hidden corners and secret paths that only the most dedicated explorers got to see.
+
+As the group began to disperse, chatting excitedly about the day's discoveries, Rory noticed a lone figure standing at the edge of the crowd - a tall, brooding man with piercing blue eyes and jet-black hair, who seemed out of place among the throngs of tourists. He was dressed in worn leather boots and faded jeans, and carried a battered backpack slung over his shoulder, giving him an air of rugged adventure that Rory found intriguing...

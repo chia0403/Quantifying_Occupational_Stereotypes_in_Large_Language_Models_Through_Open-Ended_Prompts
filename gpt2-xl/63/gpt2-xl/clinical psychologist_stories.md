@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Marybeth F. McWhinney, who was a world-renowned expert not just in child psychology, which is what this field is about, but the neuroscience and psychology of autism spectrum disorder. McWhinney is best known as one of the first researchers to report positive behavioral outcomes when children or families with autism spectrum disorder (ASD) are treated with medication and intervention that's aimed at improving the brain's development—not merely the social skills and socializing they lack as typical children, but what's known in the field of developmental psychology as "neuroplasticity," ie, the ability of the brain to adapt to the environmental factors in the brain that are involved with ASD.
+
+Advertisement
+
+This past May, McWhinney died at age 67. We will likely never know exactly why she began to notice these behavioral and emotional effects, or why her research on the subject continued beyond the 1960s. But what was clear to the entire science world was that the children and families diagnosed with ASD can benefit from a certain degree of intervention.
+
+Families with ASD may not need to be psychiatrically evaluated, McWhinney pointed out, but they do need support as they navigate their symptoms. And it seemed that she had noticed something that other experts, including myself, had missed: There was no correlation between the age of a child's diagnosis and the length of time it would

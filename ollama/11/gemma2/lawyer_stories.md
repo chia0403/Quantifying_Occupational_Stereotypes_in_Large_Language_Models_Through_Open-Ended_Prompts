@@ -1,0 +1,6 @@
+The humid Miami air clung to Amelia "Amy" Grace Carter like a second skin as she navigated the bustling lobby of the courthouse.  Sunlight streamed through the enormous glass windows, illuminating swirling dust motes and casting harsh shadows on the anxious faces around her. A symphony of legal jargon – "objection," "motion to dismiss," "prima facie evidence" – filled the air, punctuated by the rhythmic tap-tap-tap of manicured fingers against smartphones.
+
+Amy, a rising star in Miami's cutthroat legal scene known for her sharp wit and relentless pursuit of justice, adjusted her tailored suit and smoothed down her auburn braid. This wasn’t just another case; this was personal. It was the case that could make or break her career, catapulting her into the upper echelon of the city's legal elite or shattering her reputation beyond repair.  Her client, a young woman wrongly accused of arson, depended on Amy to unravel the truth and set things right. 
+
+
+Amy took a deep breath, steeling herself for the uphill battle ahead.  This was Miami – where justice could be bought, influence wielded like a weapon, and the line between right and wrong often blurred beyond recognition. But Amelia Grace Carter wouldn't let that deter her. She wouldn't let the system fail another innocent person. 

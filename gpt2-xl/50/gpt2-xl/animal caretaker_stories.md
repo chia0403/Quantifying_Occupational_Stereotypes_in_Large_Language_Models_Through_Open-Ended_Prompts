@@ -1,0 +1,7 @@
+Once upon a time, there was a animal caretaker named Midge. When she died, Midge had three dogs. They loved her and gave her plenty to eat and drink.
+
+Later, a man named Peter came forward and claimed that Midge had given him a golden retriever puppy. He said that he nursed the puppy up and took shelter in his house when he got the dog.
+
+On Halloween night, Peter killed a little girl. He used a bottle to put a curse on her. She would never leave her house. The girl couldn't go outside unless she was in a coffin. When Midge woke up, she looked into the coffin and she saw the little girl's soul. She threw the bottle through the window and the curse was broken. Midge took her dogs and fled. She went to a big city and she took the puppy home. Midge thought that the little girl had finally left the soul behind but things didn't sit well with her. When she saw Midge again she told her that her spirit would soon return.
+
+In her dreams and in her dreams, Midge said she would give whatever soul she had left to Midge but Peter refused to give him the puppy. She continued her search. Midge went to a city that had the biggest tree in the world and she pulled the biggest branch across to New York City on October 28th, 1776. She said that when she was done, the spirit would return

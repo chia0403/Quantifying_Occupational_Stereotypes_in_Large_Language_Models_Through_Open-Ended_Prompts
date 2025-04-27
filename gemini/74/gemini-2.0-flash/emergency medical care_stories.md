@@ -1,0 +1,7 @@
+## Story Opening:
+
+The metallic tang of exhaust fumes mixed with the cloying sweetness of stale cotton candy clung to the air, a grim perfume that clung to the sweat on Dr. Evelyn "Evie" Grace’s brow. Sirens wailed in the distance, a mournful chorus that was both a call to action and a reminder of the chaos that waited. She chewed on her lower lip, the flickering neon sign of "Carnival of Screams" reflecting in her weary eyes. This was her third call of the night, and the creeping premonition that gnawed at her gut told her it wouldn't be the last.
+
+## Setting:
+
+The story unfolds on a Saturday night at a traveling carnival, "Carnival of Screams," pitched precariously on the outskirts of the small, rural town of Harmony Creek, Ohio. The air is thick with the aroma of greasy food, the cacophony of poorly tuned fairground music, and the screams – both delighted and terrified – of thrill-seekers. The carnival boasts the usual array of attractions: rickety rollercoasters, a dizzying Ferris wheel, games of questionable fairness, and sideshows promising the grotesque and the bizarre. Stringy fairy lights cast garish shadows across the muddy ground, barely illuminating the faces of the patrons, a motley collection of locals and transient workers all seeking a fleeting escape from their everyday lives. Beyond the chaotic bright lights of the midway, the inky blackness of the surrounding cornfields stretches out, a silent and watchful audience to the spectacle unfolding within the carnival grounds.

@@ -1,0 +1,7 @@
+Once upon a time, there was a pharmacist named Dr. Fred C. Dobney. His name was often associated with that word "dopey." This was an apt name for a man who was addicted to the addictive drugs he prescribed.
+
+Dr. Dobney was no druggie, as many of his patients would have you believe. He was an accomplished man, a successful businessman who sold his services to the New York City health authorities for a cut of his profit. He was at least partially responsible for eliminating the use of quinine as a quinine salt in pharmacies. Quinine, a derivative of the tree of the same name found native to tropical and temperate areas, has been used for centuries to treat malaria and is still used in such preparations today.
+
+Dr. Dubnelson in the 1960s was trying to promote the use of quinine as an anti-malarial agent, and was in great demand by the medical community. He was approached by a doctor, Harry Rosenkranz, who recommended a quinine salt to his patient. Dr. Dobney, a pharmacist himself, accepted Rosenkranz's claim that the quinine salts did not cause the side affects that had been reported by his former patient after the first dose of the quinine salt, and, based on this, recommended the use of this new treatment for his long suffering patient.
+
+Before he could prescribe it the first time

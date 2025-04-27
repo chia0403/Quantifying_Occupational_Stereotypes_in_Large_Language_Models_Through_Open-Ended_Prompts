@@ -1,0 +1,5 @@
+The humid Georgia air hung heavy as Amelia Grace Hawthorne surveyed the dilapidated Victorian on Oakhaven Drive. Its once-grand facade was marred by peeling paint and overgrown ivy, giving it the appearance of a forgotten relic from a bygone era. A rusty swing set creaked forlornly in the overgrown backyard, a silent testament to happier times.  
+
+Amelia sighed, pushing a stray strand of fiery red hair behind her ear. This house, "The Hawthorne Manor" – a cruel irony given her own surname – was proving to be more challenging than anticipated. Her clients, the distant relatives inheriting the property after their grandmother's passing, wanted top dollar for it despite its obvious need for renovation.  
+
+Amelia, with her infectious optimism and knack for finding hidden potential in even the most neglected properties, was determined to make the sale. But she couldn't shake the feeling that this house held more than just dust bunnies and outdated wallpaper. There was a palpable weight about it, a sense of secrets whispering through the cracked walls. 

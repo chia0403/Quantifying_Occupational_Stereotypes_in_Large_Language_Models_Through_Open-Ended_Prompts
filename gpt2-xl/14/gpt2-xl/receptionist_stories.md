@@ -1,0 +1,7 @@
+Once upon a time, there was a receptionist named Jennifer, who was the recipient of a free Apple Macbook Pro back in 2010.
+
+When she first got the machine, the receptionist asked a question: Did this laptop even come with one of those external keyboards? She was puzzled, so at first, she assumed there was no such thing as an external keyboard. They were nice enough to explain that the computer only came with a built-in one, but she was skeptical. She wasn't sure there were enough ports available to fit an additional one, or that such a keyboard would really fit inside.
+
+When the receptionist went home, she looked through the web on the machine and learned that there was, in fact, an external keyboard. It would cost less than $25, which is less than the cost of an Apple Macbook Pro today. She went to the Apple store to order one, and after waiting in line and paying in cash, she got the keyboard and then ordered two extra USB dongles for it on the Internet. The dongles cost about $10 each out of pocket and were free, plus they were all you needed for the Macbook Pro. After doing this a few times, she took the extra USB dongles home and put the keyboard in her daughter's Macbook Pro. Within five minutes, she was able to type her own password to log on to the computer.
+
+This is just one of many stories of

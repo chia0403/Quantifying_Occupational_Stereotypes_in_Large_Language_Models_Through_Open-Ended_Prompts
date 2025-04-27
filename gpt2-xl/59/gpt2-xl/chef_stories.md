@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named Kogi. It seems that Kogi went out to work in a fast-food restaurant and started to make a delicious food. Soon he also noticed that he was making the best hamburger of his life. To Kogi, it seemed that there was only one problem he had to tackle: what was the secret ingredient that made the burger so delicious? This problem became known as the Kogi Burger. After much experimentation, we have come up with a new recipe which is even better than the original Kogi Burger. It's worth asking why Kogi Burger was delicious. When you go into a fast-food restaurant, you expect the food to taste good. What makes a hamburger "delicious" for you as a human being is in its own way, something very subjective. Kogi Burger may be "good", but we aren't convinced that it was the best in the world! We think what made Kogi Burger so good is how it is made by using the very things that make food delicious in the first place: fresh ingredients, natural flavors, and a simple but delicious balance of heat to sweet to sizzle to fry to taste. And how could we not want more burgers like Kogi Burger! We're so excited to bring this burger to the world, and we hope you are to as well!
+
+Ingredients
+
+Ground Beef Ground Pork Bacon Tomato Salsa Chili Peppers
+
+Ingredients – Kogi Burger Ingredients

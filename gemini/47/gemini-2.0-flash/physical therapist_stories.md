@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Story Opening:**
+
+The smell of lavender and antiseptic hung thick in the air, a peculiar blend that Amelia Hayes had grown immune to after years of breathing it in. It didn't even register anymore, much like the groans of Mrs. Davison in Suite 3A. Amelia sighed, adjusting the waistband of her scrubs. She really needed to remember to pack an extra granola bar tomorrow. Her stomach was rumbling loud enough to rival the geriatric opera emanating from behind the closed door. Today was already shaping up to be one of those days. She glanced at the overflowing appointment book and steeled herself. At least the afternoon held the promise of a challenging rotator cuff repair on a former professional tennis player. Something, anything, to break the monotony of hip replacements and aching backs. She just hoped her patience, already stretched thin, would last until then.
+
+**Setting:**
+
+The story is set in "Havenwood Assisted Living Facility," a sprawling, three-story building nestled in a seemingly idyllic suburb of Portland, Oregon. Havenwood boasts manicured lawns, a goldfish pond in the lobby, and a perpetually cheerful (though slightly strained) staff. Inside, however, the reality is less picturesque. The hallways, painted in a soothing but ultimately depressing shade of beige, echo with the sounds of shuffling feet, hushed conversations, and the rhythmic beeping of medical equipment. The physical therapy wing, where Amelia works, is located on the ground floor, just off the main lobby. It consists of a small waiting area, a cramped office she shares with two other therapists, and a large exercise room equipped with treadmills, resistance bands, parallel bars, and various other therapeutic tools. The view from the windows, unfortunately, overlooks the parking lot, offering a less-than-inspiring panorama of parked cars and the occasional visiting family member.

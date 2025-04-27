@@ -1,0 +1,5 @@
+The Boeing 747 shuddered, its engines groaning like tired giants as it touched down on the rain-slicked runway in Mumbai.  Rain lashed against the windows, blurring the city lights into an impressionistic canvas of orange and gold. Inside the cabin, Amelia "Amy" Grace Montgomery surveyed her domain with practiced ease. Her crisp navy uniform was pressed to perfection, hair pulled back in a neat bun, and a smile ready at the corner of her lips.  She loved these Mumbai landings – the chaos, the humidity, the intoxicating blend of spice and rain that hung heavy in the air. It was a far cry from the sterile predictability of her life back home in Chicago. 
+
+Amy had traded spreadsheets for smiles, board meetings for turbulence, and cubicles for clouds. And while she missed the familiarity of her old life sometimes, there was something exhilarating about being on the move, constantly encountering new people and cultures. The world was her office now, and Mumbai, with its vibrant pulse and endless stories waiting to be told, felt like home. 
+
+

@@ -1,0 +1,6 @@
+The scent of lavender essential oil hung heavy in Dr. Eleanor Vance's waiting room, doing little to mask the undercurrent of anxiety that permeated the space. Sunlight slanted through the tall windows, illuminating dust motes dancing in the air and casting long shadows on the worn floral cushions lining the window seats. Outside, the bustling city hummed with a frenetic energy, but within Dr. Vance's small practice, time seemed to move at a slower, more deliberate pace. 
+
+Eleanor herself sat perched at her desk, reviewing patient files while absently tapping a rhythm on the polished wood. Her brow was furrowed in concentration, a habit she’d picked up over years of trying to decipher the intricate language of the human body. Today, however, it wasn't just the complexities of spinal misalignments that were troubling her.  A gnawing unease settled in her stomach, a feeling that something was off, like a discordant note in an otherwise harmonious symphony. 
+
+
+As the doorbell chimed, signaling the arrival of her next patient, Eleanor forced herself to focus on the task at hand. She smoothed down the wrinkles of her crisp white coat and took a deep breath, ready to face whatever ailment walked through that door.  

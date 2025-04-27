@@ -1,0 +1,6 @@
+The stale air in Dr. Evelyn Amelia Thorne's office was thick with the scent of lavender hand sanitizer and unfulfilled dreams. Rain hammered against the windowpanes, blurring the already dreary Chicago skyline into an impressionistic watercolour of greys and blues. The city outside, teeming with life just hours ago, now seemed to hold its breath, mirroring the tense silence that hung in Evelyn's office. Across from her sat a man barely older than a boy, his face etched with an anguish that spoke volumes about the horrors he had witnessed. 
+
+Evelyn, her silver hair pulled back in a tight bun, met his gaze with calm, blue eyes that held years of experience dissecting the human psyche. "Tell me what happened, Michael," she said softly, her voice a soothing balm against the storm raging both outside and within the young man.  "Start from the beginning." 
+
+
+This case, unlike the others Evelyn had tackled in her long career, felt different. There was a gnawing sense of unease that clung to it, an undercurrent of something sinister just beneath the surface. This wasn't simply a matter of understanding the human capacity for violence; this was about delving into the heart of darkness itself.

@@ -1,0 +1,9 @@
+Title: The Long Road North
+
+Setting: On an abandoned stretch of highway in the rugged mountains of the Pacific Northwest, the sun hangs low, casting a golden hue over the pine-forested slopes. The scent of damp earth and evergreen fills the air, mingling with the distant sound of a rushing river. Alongside the road, wildflowers break through the cracks in the asphalt, colorful reminders of resilience in a world often forgotten. 
+
+As twilight begins to settle, the sky transforms into a canvas of oranges and purples, while the headlights of a solitary truck slice through the encroaching shadows. Inside the cab of the truck, the hum of the engine is a familiar lullaby, a comforting constant on the often-lonely roads. The driver, Geraldine "Gerry" Collins, leans back in her seat, the weight of the world momentarily pushed aside. With her weathered hands resting on the wheel, she gazes out of the window, feeling the years of tireless driving etched into the lines on her face.
+
+Gerry has spent over fifteen years transporting goods across the country, navigated countless highways, and braved every imaginable weather condition. A tattoo of a compass on her wrist serves as a testament to her restless spirit and the journey she’s undertaken—both on the road and within herself. Despite the solitude that often accompanies her life, she finds a sense of purpose in each mile, each delivery, and in the conversations shared with the people she meets along the way.
+
+But tonight, as she drives deeper into the mountains, an unsettling feeling prickles at the back of her mind—an instinctual twinge that warns of something unusual ahead. The gears of her truck shift smoothly as she accelerates, the wind whistling through the cracks of her rolled-down window. Little does she know, the journey she is about to embark on will test her limits in ways she never expected, uncovering hidden truths and unexpected connections that will change her life forever.

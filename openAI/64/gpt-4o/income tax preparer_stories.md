@@ -1,0 +1,7 @@
+In the heart of downtown Portland, where the Willamette River flows steadily beneath the gray October sky, the clatter of trolley cars and the scent of brewing coffee entwine in the crisp autumn air. Nestled between a bustling café and a used bookstore, "Oak Street Accounting" occupies a narrow, red-brick building that exudes an aura of quiet diligence amidst the city's vibrant bustle.
+
+Inside the modest office, where the walls are lined with framed college degrees and maps of intricate tax codes, Amelia Prescott thrives amidst a sea of paperwork. Her desk, a sturdy oak behemoth crowded with neatly stacked files and a laptop perpetually aglow, is the command center from which she navigates the labyrinthine world of income tax preparation. 
+
+Amelia, with her chestnut hair pulled into a practical bun and reading glasses perched deftly on her nose, has an aura of precision that matches her meticulous work. She has built a reputation among small business owners and freelancers as the go-to expert for untangling fiscal mysteries and easing the annual burden of taxation.
+
+As the early morning light filters through the wide front window, casting shifting patterns on the polished wooden floor, Amelia prepares for another day of decoding financial conundrums and saving her clients from the clutches of the taxman. Her calculated world is about to change, however, as a letter bearing an unfamiliar name arrives, hinting at secrets buried deep within the ledgers of her latest client's past.

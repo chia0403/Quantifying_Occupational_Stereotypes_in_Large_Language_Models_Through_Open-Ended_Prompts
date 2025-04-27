@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named Robert B. Johnson, who worked for the Department of Public Utilities in the South, and was a huge fans of the film. He had a great idea which would help the writers better inform his community about their proposed water system. He approached Jim Roddy with the idea and the two worked together to write the bill.
+
+The draft bill, which you can read here in it's entirety, is as follows:
+
+Section 6(a) All water rights shall be vested in the state under the following conditions, which shall be designated by the state commissioner and subject to his directions:
+
+1. Public water systems, except for those which use ground water and those which utilize a combination of ground water and municipal water, shall be available only to holders of a license from the State Commissioner of Public Utilities designated by the State Commissioner of Public Utilities to provide such service to their communities or through a regional water authority that will hold a separate public water system franchise for such service or a permit as set forth in S.C. Code Annotated Title 37, § 3230, provided that no such service shall be provided on the waters of the South unless such service requires a license pursuant to S.C. Code Annotated Title 37, § 3303 and a municipal water system franchise, as set forth in S.C. Code Annotated Title 37, § 3302. If no such permit is obtained for the water

@@ -1,0 +1,6 @@
+The wind howled through the towering pines like a banshee's lament, whipping snow into swirling eddies that clung to every exposed inch of Elias Blackwood's face. He stood at the edge of his logging crew's camp, squinting into the blizzard's fury as he watched his team unload their latest haul – towering logs destined for the mill downriver. Each log was a testament to years of sweat and toil, each one a silent song of the forest that Elias loved, hated, and understood in equal measure. The air was thick with the scent of pine and damp earth; a familiar aroma, yet one that had grown bitter in recent weeks. 
+
+The old man who ran their camp, Silas Blackwood - his own grandfather's brother - looked across the frozen expanse at Elias.  "You look troubled, boy," Silas rasped, his weathered face illuminated by the flickering light of the small fire pit. 
+"It's just the storm, Grandpa," Elias muttered, pulling a thick woolen scarf tighter around his neck. "Nothing to worry about."
+
+But even as he spoke, a heavy knot of doubt in his gut tightened with each gust that tore at the flimsy canvas walls of their tent. The snowstorm had been relentless, and something was amiss - an unsettling change in the air, a shift in the forest's familiar rhythm that whispered of a darkness deeper than winter itself. 

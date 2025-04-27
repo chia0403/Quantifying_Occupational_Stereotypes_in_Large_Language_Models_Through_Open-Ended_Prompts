@@ -1,0 +1,5 @@
+The reek of blood and iron clung to  Bartholomew "Barty" Thistlewick like a second skin. He relished it. It was the scent of life, of purpose, of honest work. Barty wasn't just a butcher; he was an artist. His shop, "Thistlewick's Fine Meats," nestled in the cobblestone heart of Oldbury, wasn't simply a place to buy cuts of beef and pork. It was a temple to the craft, where every cleaver swing and bone saw rasp resonated with Barty’s dedication.  
+
+The morning mist hung heavy over Oldbury, clinging to the crooked houses and casting long shadows across the bustling market square. Barty stood in his doorway, wiping down his apron with a sigh. The chill of the October air seeped through his thick wool coat, but it was the quiet that bothered him most. Usually, by this hour, his shop would be alive with chatter and the rhythmic clanging of his cleaver against the bone. Today, however, the silence was unnerving. Even the gulls squawking over the fishmongers' stalls seemed subdued. Something was wrong in Oldbury. 
+
+

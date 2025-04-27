@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+It was a sweltering summer evening in August 1955, and the streets of downtown Memphis were alive with the sounds of jazz music drifting from the clubs on Beale Street. In a small, cramped shop above the corner deli on Central Avenue, barber extraordinaire Jasper Lee "Jazz" Jackson sat hunched over his stool, carefully trimming the whiskers of a regular customer while listening to the smooth sounds of Elvis Presley's latest single on the transistor radio.
+
+The sign outside the shop creaked gently in the evening breeze, reading "Lee's Luxurious Cuts" in faded letters. Inside, the air was thick with the scent of bay rum and sandalwood, and the sound of scissors snapping against skin created a soothing background hum that had become synonymous with comfort and relaxation for the residents of this once-thriving neighborhood.
+
+Jazz, a man in his mid-30s with a sharp mind and quicker hands, had learned the art of barbering from his father, who had learned it from his own father before him. For years, Jazz had honed his craft, mastering the intricacies of haircutting, shaving, and small talk that came with running his own shop. And as he worked tirelessly to keep his customers looking their best, he couldn't shake the feeling that something was about to change in this small corner of the city...

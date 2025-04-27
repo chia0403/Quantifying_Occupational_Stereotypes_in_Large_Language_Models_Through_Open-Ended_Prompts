@@ -1,0 +1,7 @@
+Once upon a time, there was a baker named Sam, and all this time he made the best bread. So Sam got a bigger and bigger loaf. He kept on getting bigger and bigger, all the way to the edge of the Earth. The bigger the loaf got, the higher up it got. But just in case he saw that it got so high he couldn't reach the top, he cut off a bit of the loaf to let his son, John, climb to the top and get the bread.
+
+So Sam went and got a big loaf of bread and gave it to his son. But John didn't want to climb up and take the bread. He was hungry, so he started running around all over the Earth on his hands and feet. When he went to reach the top, Sam grabbed him and pulled him back down. They had a bit of bread left, and they kept on feeding each other until they were full.
+
+When they were full, everyone else started being hungry. But they hadn't eaten all that bread. So they asked Sam, "Why don't you go get some more?" And Sam replied, "Because I've got that big loaf now and I can't find somebody else to take it with me." So they said, "Well then, we'll give it away and you can have some too." And so they gave everyone that big loaf until Sam and John had all that bread.
+
+Then they decided to split the bread

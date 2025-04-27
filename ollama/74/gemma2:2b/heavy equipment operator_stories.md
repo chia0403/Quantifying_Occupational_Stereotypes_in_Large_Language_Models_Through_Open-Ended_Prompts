@@ -1,0 +1,7 @@
+The dust kicked up by Bartholomew "Barnacle" Bailey's giant bulldozer painted his face in shades of orange and red as it sliced through the stubborn earth. It was 80°F under the relentless Arizona sun, but Barnacle wasn't bothered. He felt a kinship with these machines, these metal giants that roared and strained against the unforgiving landscape like he did.  
+
+He squinted at his GPS, then checked his watch again. "Two hours left," he muttered, letting out a puff of steam from his nostrils. Not even a sip of water in this stifling heat was going to slow him down. He had promised Sarah he'd have the foundation ready by dusk, and with her new bakery opening just across town, every hour counted.  
+
+Bartholomew’s work boots kicked up another cloud as he surveyed the empty lot - a perfect rectangle of hard-packed dirt for his final masterpiece. The sprawling desert landscape stretched out before him, an endless canvas of ochre sand and cacti punctuated by the occasional saguaro. He had already cleared this land twice before, but the thrill never faded. Every time he drove the bulldozer over these dunes, he felt like a pioneer reclaiming the earth, carving his own path. 
+
+The setting sun cast long shadows on Barnacle's worksite.  He was alone except for the cacophony of machinery and the occasional cry of a roadrunner in the distance. The air hung heavy with anticipation and the promise of something new. This wasn't just another job; it was his chance to leave a mark, maybe even build something beautiful from this unforgiving earth. 

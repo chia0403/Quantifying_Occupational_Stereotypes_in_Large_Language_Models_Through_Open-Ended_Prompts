@@ -1,0 +1,9 @@
+## The Rusty Gearshift
+
+**Opening:**
+
+The first shriek of metal on metal clawed through the pre-dawn stillness, shattering the symphony of crickets and the low rumble of distant freight trains.  Elias "Eli" Johnathan Thatcher winced, his knuckles white as he wrestled the stubborn gearshift of the Komatsu D51EX-22 bulldozer. "Come on, Betsy," he muttered, his breath puffing out in white clouds in the chilly air, "don't start this nonsense with me now."  Betsy, as he affectionately called the aging dozer, was a temperamental beast, prone to fits of mechanical pique at the most inopportune moments.  This morning, with the pressure of finishing the retaining wall before the predicted downpour, was definitely one of those moments. 
+
+**Setting:**
+
+The sun was still a smear of pink and orange bleeding across the horizon, barely illuminating the sprawling construction site etched into the foothills of the Blue Ridge Mountains in rural Virginia. Dust, the color of terracotta, coated everything - the bulldozers, the excavators, the porta-potties huddled in a corner, even the stunted pines clinging precariously to the steep slopes.  The air, thick with the smell of diesel and damp earth, hung heavy in the quiet before the storm.  Eli was building a massive retaining wall, a series of stepped terraces carved into the hillside, designed to prevent landslides and allow for the construction of a new luxury resort overlooking the valley. He was on the highest tier, a lonely sentinel in the predawn gloom, the panoramic view of the misty valley stretching below him offering a fleeting moment of peace before the cacophony of the day began. The faint glow of the small town of Meadow Creek, nestled in the valley floor, twinkled like scattered diamonds.  It was a town Eli knew well, a town he was building this wall to escape. But first, he had to tame Betsy.

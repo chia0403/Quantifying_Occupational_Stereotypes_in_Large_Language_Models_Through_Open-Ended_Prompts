@@ -1,0 +1,7 @@
+Once upon a time, there was a cosmetologist named Emily St. John Mandel. One afternoon, she was working a regular day at her office job, which meant she spent nearly every moment lounging and sunbathing in her own space. When evening came and all was quiet, she decided to go upstairs to spend time with her cat, Maddy, who was just learning how to walk outside. And then she noticed something—something that caused her to feel something in her chest. An inexplicable feeling of calm and serenity rose just inside her chest, so powerful that it made her feel like her chest was being sucked out of her chest, along with her heart.
+
+She went to see her doctor. He explained that this was a rare but common phenomenon known as dyspnea, or chest tightness. He described it as a "sudden contraction" of the muscles in your chest.
+
+A few years later, when she was 35, Mandel got her own medical degree and traveled abroad, studying medicine in Cuba. During this time, she kept seeing this mysterious sensation in her own chest. Upon returning to the US, she went on to build a career in the field of esophageal surgery.
+
+For the next decade she continued to experience these unexplained and troubling sensations. She had never thought to investigate or make a diagnosis until she read about a man who, despite having no physical ailment, began to feel these same sensations.

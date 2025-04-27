@@ -1,0 +1,5 @@
+The air in "Wellspring Apothecary" hung heavy with the scent of lavender and peppermint, a fragrant blend that usually calmed Amelia Rose Hawthorne's nerves. But today, the aroma did little to soothe the knot tightening in her stomach.  
+
+Amelia stood behind the counter, polishing an empty vial despite knowing there was nothing to be gained from it. Her gaze drifted towards the worn floorboards, where she traced patterns with the toe of her worn leather boot. The quaint shop, nestled on a cobblestone street in the heart of Oakhaven, was usually bustling with friendly faces and whispered greetings. But today, an oppressive silence hung in the air, broken only by the rhythmic tick-tock of the grandfather clock in the corner. 
+
+Oakhaven, usually a picture of idyllic normalcy, felt different today. A chill lingered in the air, deeper than the autumn wind, and the townsfolk moved with a hesitant gait, their eyes downcast. The news of the strange illness that had gripped the village, leaving its victims weak and feverish, had cast a pall over everything.  

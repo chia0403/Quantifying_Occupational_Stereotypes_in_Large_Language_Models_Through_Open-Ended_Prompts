@@ -1,0 +1,12 @@
+## Story Opening:
+
+The fluorescent lights of Birchwood Elementary hummed a monotonous drone, a soundtrack to Dr. Alistair Finch's Tuesday. Rain lashed against the window of his small, cluttered office, mirroring the tempest brewing inside him. He pushed aside a stack of permission slips, the edges dog-eared and stained with what looked suspiciously like orange juice, and leaned back in his creaky chair, the springs groaning in protest. He'd spent the last hour mediating a feud between two fourth graders over a coveted glitter glue stick, and the saccharine fumes of glitter glue and unmet expectations still clung to the air.
+
+He rubbed his tired eyes, the bridge of his nose aching. He loved his job, truly. Helping children navigate the choppy waters of childhood was rewarding, fulfilling, even. But today, a persistent unease prickled at the back of his neck, a feeling that something significant, something *different*, was about to happen. He glanced at the weather report he'd absentmindedly printed out earlier - a simple image of a smiling sun obliterated by a menacing gray cloud. He didn't usually put much stock in omens, but the image seemed eerily fitting.
+
+The feeling intensified as a knock echoed on his office door. He took a deep breath, plastered on a professional smile, and called out, "Come in!"
+## Setting:
+
+**Birchwood Elementary School**, nestled in the quaint, seemingly idyllic town of Hollow Creek, Massachusetts. The school itself is a low, brick building, built in the 1950s, and expanded upon haphazardly over the years. The interior is a maze of linoleum hallways, brightly colored bulletin boards displaying student artwork, and the ever-present aroma of floor wax and mystery meat from the cafeteria.
+
+Dr. Finch's office is a small, rectangular space tucked away in a quiet corner of the school, next to the nurse's office. It's a haven of organized chaos: overflowing bookshelves filled with textbooks on child psychology and picture books about feelings, a comfortable (if slightly threadbare) armchair, a small table for art therapy sessions, and a desk buried under paperwork, art supplies, and a collection of stress balls shaped like various farm animals. The walls are decorated with student drawings, posters promoting mental health awareness, and a framed diploma from Boston College. The most prominent feature is a large window overlooking the school's playground, currently a deserted, rain-soaked expanse of swings and slides.

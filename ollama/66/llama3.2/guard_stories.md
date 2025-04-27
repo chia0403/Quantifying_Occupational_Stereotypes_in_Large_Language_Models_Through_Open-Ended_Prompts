@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The streets of New Haven were always at their most unforgiving at dawn. The rain-soaked pavement glistened like polished stone, reflecting the pale light of the sky as it struggled to break through the haze. In the midst of this bleak landscape stood the imposing structure of Ravenswood Penitentiary, its towering walls and rusting gates a constant reminder of the darkness that lurked within.
+
+Within these walls walked Elijah Blackwood, a seasoned guard with twenty years of service under his belt. His eyes had seen it all – the desperation in a prisoner's stare, the cruelty of a fellow inmate, the cruel indifference of the system itself. Elijah had lost count of how many men he'd seen come and go, each one leaving behind a piece of themselves like so much worn-down gravel on the prison yard.
+
+As he made his way through the drab corridors, Elijah's mind wandered to the latest arrival – a young man named Marcus, fresh out of juvie with a history of violence that could curdle milk at twenty paces. The whispers had already begun, the rumors and speculation about what this kid might do next. Elijah's gut told him it was trouble, but he'd seen it all before. After all, how many times could one man break?

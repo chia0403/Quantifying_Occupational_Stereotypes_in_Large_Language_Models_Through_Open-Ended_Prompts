@@ -1,0 +1,5 @@
+The air hung thick with the smell of old leather and pine, infused with an ever-present tang of sweat and salt from the seaside town of Saltmarsh. The rhythmic clip-clack of shears against hair was the only music in the small, cluttered shop that housed the dreams and frustrations of men seeking solace or a fresh start.  
+
+His name was Theodore "Theo" Grimshaw.  Not many remembered his full name, but most knew him simply as "Theo's." The shop itself was more than just a place to get a shave; it was a quiet haven in a world that often felt too loud and chaotic. Theo’s hands, roughened by years of holding clippers and shaping faces, possessed a gentle precision that calmed the nerves of his clients. 
+
+He stood amidst the tangle of clippers, razors, and worn-out magazines on one side of the shop, facing the bay window where waves crashed against the shore. The setting sun painted the water in shades of orange and violet, but even its beauty seemed muted tonight.  He sighed, knowing that some days, the only thing he'd find solace in was the familiar rhythm of his work. 

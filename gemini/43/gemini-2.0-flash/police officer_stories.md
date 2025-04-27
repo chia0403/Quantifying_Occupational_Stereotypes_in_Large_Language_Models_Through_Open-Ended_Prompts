@@ -1,0 +1,11 @@
+## Story Opening:
+
+The steam rising from Detective Isabella “Izzy” Rossi’s mug swirled like a restless spirit, mirroring the tension simmering in her gut. The precinct coffee, thick and bitter enough to strip paint, usually helped cut through the fog of a long night, but tonight, it was doing little to soothe the unease clawing at her insides. She stared out the rain-streaked window, the neon glow of the city blurring into an indistinct smear of colors, just like the faces of the victims she’d been looking at all night.
+
+The file lay open on her desk, a stark white island in the chaotic landscape of paperwork and half-eaten takeout containers. The grainy crime scene photos showed a young woman, posed with unsettling care amidst the opulent clutter of her own apartment. Izzy knew, with a certainty that sent a chill down her spine, that this wasn’t just another robbery gone wrong. This was something colder, more deliberate. This was personal. And she had a feeling, a gnawing, insistent feeling, that this was only the beginning.
+
+## Setting:
+
+The story is set in **New Sereno, a fictional city on the Pacific coast of the United States**. New Sereno is a sprawling metropolis, a patchwork of shimmering skyscrapers and crumbling Victorian-era neighborhoods, where wealth and poverty rub shoulders with uncomfortable proximity. The city boasts a thriving arts scene, a vibrant culinary landscape, and a shadowy underbelly teeming with crime and corruption.
+
+Specifically, this opening scene takes place within the **precinct office of the New Sereno Police Department’s Major Crimes Unit, located downtown**. The office is a typical police setting: cramped, poorly lit, and perpetually buzzing with the low hum of fluorescent lights. Desks are cluttered with files, empty coffee cups, and personal belongings, reflecting the long hours and personal sacrifices demanded by the job. The air hangs thick with the scent of stale coffee, cheap cleaning products, and the unspoken stress of dealing with the city's darkest secrets. A constant soundtrack of police radios crackling with dispatch calls underscores the relentless rhythm of life in New Sereno. The window, framed by dirty blinds, offers a glimpse of the city’s relentless activity, even in the dead of night.

@@ -1,0 +1,6 @@
+The fluorescent lights hummed overhead, casting a sterile glow on Amelia "Amy" Grace Carter's cluttered workspace. The scent of antiseptic mingled with the faint aroma of lavender oil from the diffuser, creating a peculiar blend that seemed to define her existence as a physical therapist at Revive Wellness Center. 
+
+Her patients ranged from the elderly struggling with arthritis to athletes nursing torn ligaments, each with their own stories etched on their faces –  stories of pain, resilience, and the quiet determination to reclaim their bodies. Today, however, Amy felt a familiar unease settle in her stomach. Her most challenging patient, a young woman named Clara, was due any minute. Clara had suffered a traumatic spinal injury in a car accident six months ago, leaving her paralyzed from the waist down.  Amy knew this session could go either way: a triumphant victory of strength and progress, or a heartbreaking reminder of the limitations their bodies sometimes imposed. 
+
+
+The clinic doors chimed, breaking the quiet anticipation. Amy turned, hoping for a smile, a flicker of hope in Clara's eyes. Instead, she saw something different – a weariness that ran deeper than the physical pain.  

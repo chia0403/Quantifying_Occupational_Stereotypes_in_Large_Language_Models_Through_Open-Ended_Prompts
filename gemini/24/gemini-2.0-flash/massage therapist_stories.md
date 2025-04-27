@@ -1,0 +1,7 @@
+**Opening:**
+
+The scent of lavender and peppermint swirled in the air, thick enough to taste. Amelia Seraphina Bellweather, her own hands slick with organic sunflower oil, pressed a little deeper into the taut muscles of Mrs. Henderson's shoulder. A low groan, half discomfort, half pleasure, rumbled from beneath the plush, lavender-scented towel draped across her client's neck. Amelia smiled subtly. This was the sweet spot. The point where the knots, meticulously constructed from years of tension and tight shoulders, began to unravel like a forgotten yarn.
+
+**Setting:**
+
+Amelia's practice, "The Sanctuary of Serenity," was tucked away on a quiet, tree-lined street in the historic district of Savannah, Georgia. Housed in a renovated carriage house behind a stately Victorian mansion, the space was small but exquisitely curated. Sunlight streamed through tall, arched windows, illuminating dust motes dancing in the air and highlighting the exposed brick walls softened by tapestries depicting calming nature scenes. The soft sounds of Enya floated from hidden speakers, competing only with the gentle hum of the salt lamp perched on a corner shelf. Wicker baskets overflowing with fluffy blankets and plush pillows dotted the room, creating a feeling of cozy intimacy. Even the waiting area, with its antique chaise lounge and bubbling fountain, whispered promises of relaxation and escape from the humid, bustling city just beyond the wrought-iron gates.

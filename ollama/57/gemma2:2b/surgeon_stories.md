@@ -1,0 +1,8 @@
+Rain lashed against the windows of Mercy General Hospital, each drop echoing like tiny drumbeats against the sterile white walls. Inside, Dr. Amelia Thorne paced the floor of her cluttered office, a storm swirling in her eyes even as she attempted to keep them calm. The scent of antiseptic hung thick in the air, mingling with the sharp tang of burnt coffee and lingering anxiety. 
+
+It had been three days since the incident, three days since she’d stared down the gaping wound of a young patient, his pulse barely a tremor against her fingertips. Three days since she'd wrestled with every ounce of her competence to stitch together what should have been an unassuming arm, only to realize there was more to this tragedy than met the eye. The boy, Daniel Miller, was alive – but not whole. His right hand, mangled beyond recognition, wouldn’t cooperate; the bone had fractured in a way that defied even the most advanced micro-surgery techniques she'd learned at Harvard. 
+
+The clock ticked relentlessly, each second a hammer blow against her confidence. Amelia knew Daniel's future hung by a thread – and hers too. If this operation failed, if anything went wrong, if it was just one more instance of human error, it could mean the difference between the boy's last breath and his first full day in school. 
+
+
+This wasn’t simply about saving a life; it was about finding a way to mend what was broken – not just physically, but emotionally, perhaps even metaphorically. The weight of responsibility seemed to press down on Amelia’s chest like a physical burden. It was time for the operation, and she knew it. 

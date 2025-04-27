@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia Rosalind Finch’s head, casting a sterile glow over the cluttered landscape of her workspace. Empty coffee cups, crumpled napkins smeared with greasy takeout remnants, and tangled headphone wires competed for space on her desk alongside three monitors displaying lines of code that resembled hieroglyphics to anyone who didn't speak the language of algorithms. 
+
+Amelia, or Amy as she preferred, squinted at the screen, a frown creasing her brow. The bug, a stubborn little piece of digital debris, was refusing to budge. She’d been wrestling with it for hours, fueled by caffeine and dwindling patience. Outside, the city of Seattle hummed with life, oblivious to the silent battle raging in Amy’s tiny apartment overlooking Elliott Bay. But inside, time seemed to stand still. Every keystroke felt like a monumental effort, each failed attempt a blow to her already frayed nerves. The clock ticked relentlessly towards midnight, and the weight of her deadline pressed down on her like an anvil.  
+
+

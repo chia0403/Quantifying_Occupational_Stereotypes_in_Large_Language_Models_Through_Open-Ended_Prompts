@@ -1,0 +1,5 @@
+The air hung heavy with the scent of dust and mothballs in the Starlight Grand Hotel.  Even through the thick cotton sheets covering his bed, Theodore "Theo" Hawthorne could feel the weight of countless unseen stories trapped within the walls. He shifted on his worn mattress, the metal springs groaning under his weight. The faded floral pattern on his dress shirt felt like a taunt – a reminder of the life he'd hoped for, one where his days weren't filled with lugging bags and carrying anxieties for other people's dreams.
+
+He was just finishing cleaning the last corner of the suite when Mrs. Delacroix, the hotel manager, approached him, her silver hair shimmering in the dim light. "Theodore," she said, her voice like a weathered record player skipping on a scratched track, "there’s an emergency. Mr. Hemmings has lost his daughter.” 
+
+Theo's stomach churned. The air grew colder, and the silence seemed to crackle with possibility and pain. This wasn't just another check-in or a misplaced luggage claim. This was real life.  

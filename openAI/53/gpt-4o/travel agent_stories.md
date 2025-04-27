@@ -1,0 +1,9 @@
+In the heart of Portmund, a quaint coastal town where the salt air carried tales of far-off lands, nestled a shop with a chipped wooden sign that read "Wanderlust Journeys." Inside, maps draped the walls like murals of endless possibilities, and globes of all sizes stood vigil on polished oak shelves. This was the kingdom of Eleanor Graves, a travel agent with an unyielding passion for the world beyond her doorstep.
+
+Eleanor’s desk sat at the back, a sturdy piece of mahogany, cluttered with brochures depicting golden beaches, snow-capped mountains, and ancient cityscapes. Sunlight filtered through the tall arched windows, casting playful shadows across the room, mingling with the scent of fresh coffee and old books. 
+
+It was a Monday morning, and Eleanor was savoring her first cup of coffee, her eyes scanning an atlas, her mind already wandering to places her feet hadn’t yet tread. Her auburn hair was pulled into a loose braid, and a pair of vintage spectacles rested on her nose, adding a scholarly air to her otherwise free-spirited appearance. 
+
+Her love for exploration was second only to her desire to make others fall equally in love with the world. For over a decade, Eleanor had devoted her life to crafting dream vacations, excursions that transformed destinations into life-changing adventures. Today was no exception, as she prepared for a meeting with Mr. and Mrs. Alberts, an adventurous couple eager to embark on their next journey. 
+
+As the door chimed softly, heralding the arrival of another day filled with dreams and destinations, Eleanor smiled to herself. She often mused that while she sold vacations, what she truly offered were stories waiting to unfold.

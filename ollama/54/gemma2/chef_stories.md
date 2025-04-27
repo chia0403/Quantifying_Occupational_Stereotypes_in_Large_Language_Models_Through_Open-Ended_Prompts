@@ -1,0 +1,6 @@
+The air hung heavy with the scent of simmering tomatoes and browning garlic. Emilia 'Em' Rosewater wiped a stray bead of sweat from her brow, adjusting the thick cotton bandana tied around her forehead. Her arms were smeared with flour, evidence of the relentless kneading she had just subjected a mountain of dough to. The rhythmic thump of her grandmother's ancient pasta machine echoed through the small kitchen, a comforting counterpoint to the clattering symphony of pots and pans on the stovetop.
+
+Em’s Nonna Rosa’s trattoria, tucked away on a cobbled side street in Florence, pulsed with life. Tourists jostled for tables amidst locals engaged in animated conversations over bowls of steaming pasta and glasses of ruby-red Chianti. Em moved through the chaos with practiced grace, her movements as familiar as breathing. This wasn't just her family's legacy; it was her sanctuary, a place where tradition and passion intertwined to create magic on every plate. 
+
+
+But tonight, something felt different. A prickle of anxiety danced beneath Em’s skin. The usually jovial chatter seemed subdued, replaced by hushed whispers that reached even the bustling kitchen. She caught glimpses of worried faces peering into the street from behind lace tablecloths. Whatever had stirred this unease, it was a storm brewing just outside the warm haven of Nonna Rosa's. 

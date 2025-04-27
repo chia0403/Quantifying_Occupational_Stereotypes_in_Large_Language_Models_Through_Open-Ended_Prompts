@@ -1,0 +1,6 @@
+The bell above the door to "Mane Attraction" jingled merrily as Amelia Lavender pushed it open, releasing a puff of icy air from the November afternoon. The scent of rosemary and chamomile shampoo hung thick in the air, mingling with the faint smell of freshly brewed coffee – a potent mix that always calmed her nerves. 
+
+She adjusted the teal knit scarf wrapped snugly around her neck, its warmth battling the chill seeping through her worn leather boots.  Looking around her salon, Amelia felt a familiar swell of pride. The pale pink walls were adorned with hand-painted murals of blooming flowers, and fairy lights twinkled in the corners, casting a warm glow over the mismatched velvet chairs and vintage vanity tables. It wasn't much, but it was hers. 
+
+
+Today, though, Amelia's usual calm was overshadowed by a knot of anxiety tightening in her stomach. Mrs. Peterson, the town gossip and owner of the most intimidating beehive haircut this side of Maple Creek, had booked an appointment for a major makeover. And she’d explicitly requested Amelia by name.  The whispers about Amelia's talent had reached even Mrs. Peterson's ears, but Amelia couldn't shake the feeling that this appointment was less about a desired transformation and more about a potential public dissection. 

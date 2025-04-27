@@ -1,0 +1,7 @@
+The sun dipped low on the horizon, casting an amber glow across the sprawling expanse of Valtor Keep. Its stone walls, dusted with the golden hues of summer, stood resolute against the encroaching night, but shadows danced within the battlements as the guards prepared for the evening watch. 
+
+At the front gate, a figure clad in the leather armor of the Valtor Guard took his post. This was Lucian Hawthorne, a man known for his unwavering loyalty and fierce dedication to protect the realm. The creaking of the wooden drawbridge echoed into the twilight as he adjusted his grip on the spear slung across his back, his keen azure eyes scanning the distant treeline for any sign of movement.
+
+Tonight was different. The air crackled with tension, a portent of trouble that had lingered for weeks. Villagers whispered of unusual sightings in the woods—shadowy figures and strange sounds that drifted through their dreams. Lucian, seasoned by years of duty, felt a knot of unease settled deep within his chest, but he remained steadfast, a silent guardian amidst the encroaching night.
+
+As dusk deepened, the familiar sounds of the keep began to blend with the haunting calls of night creatures. The flickering torches cast long shadows, and with each gust of wind that swept through the stone halls, Lucian could almost hear the whispers of those who had come before him, all those who had stood watch, just as he did now, against the unknown lurking in the darkness.

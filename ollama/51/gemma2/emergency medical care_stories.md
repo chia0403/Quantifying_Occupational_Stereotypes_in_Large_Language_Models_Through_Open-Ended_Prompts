@@ -1,0 +1,5 @@
+The air hung thick with the smell of exhaust fumes and rain-soaked asphalt. Neon signs flickered through the persistent drizzle, casting an oily sheen on the cracked pavement of 4th Street in downtown Seattle. Amelia "Amy" Grace Blackwood, her name emblazoned across her EMT jacket, squinted through the downpour as sirens wailed in the distance. A symphony of city chaos - honking horns, chattering voices, and a low rumble of distant thunder - filled the air, punctuated only by the rhythmic patter of raindrops on the ambulance's roof. 
+
+Amy adjusted her helmet, feeling the familiar weight settle reassuringly on her head.  She checked the oxygen tanks, ensuring they were full and secure. Beside her, paramedic David Chen reviewed the dispatch call – a possible cardiac arrest at The Rusty Spigot, a dimly lit dive bar known for its cheap beer and live blues music. Another night, another emergency. Amy braced herself, steeling her nerves against the uncertainty of what awaited them on the other side of this city's grimy underbelly. 
+
+

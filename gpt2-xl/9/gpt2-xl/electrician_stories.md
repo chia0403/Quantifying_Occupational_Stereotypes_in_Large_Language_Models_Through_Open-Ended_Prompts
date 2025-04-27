@@ -1,0 +1,7 @@
+Once upon a time, there was a electrician named David, who worked for a local small business. One day, in order to find out if the new flooring being installed was compatible with his old ones, he bought it. But the job didn't go as smoothly as David and his co-workers had hoped, and the flooring broke. David did what any reasonable businessman would do in this situation: he sued his employer.
+
+"With two weeks to go before the hearing, David got a call from his attorney, indicating that the lawsuit had already been settled," according to his lawyer, Peter Schuck, speaking of his father's successful victory in his lawsuit against the man who was responsible for breaking off the flooring: "If we don't win this suit, I'm going to have to call David's mother and tell her that she's suing her son for a hundred and fifty bucks."
+
+"Then he got a call from me: 'If David wins, we're out of money. No biggie. We'll sue you again.'"
+
+"My father got a judgment against someone for $50,000," explains Schuck, "and now he owes me $200,000 for covering his legal expenses." After having had the company that broke the flooring cover its legal expenses, David had to sue its employees to pay him back. Schuck now tells me that his father now has $1,000 in the bank in case he ever needs

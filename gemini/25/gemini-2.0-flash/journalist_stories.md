@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Setting:** The humid, jasmine-scented air of Yangon, Myanmar, hung heavy over Strand Road. The colonial-era buildings, once grand declarations of British power, now crumbled gently under the weight of neglect and monsoon rains. Yellowed paint peeled from their facades, revealing layers of history like geological strata. Trishaws and battered taxis fought for space amidst the chaotic traffic, their horns blaring a discordant symphony against the backdrop of chanting monks drifting from a nearby temple.
+
+**Story Opening:**
+
+The heat clung to Eleanor "Ellie" Mallory like a damp shroud, making the thin linen of her shirt feel suffocating. She wiped a bead of sweat from her brow with the back of her hand, smearing it across the faint smudge of newsprint already there. "Bloody Myanmar," she muttered under her breath, more an affectionate curse than a genuine complaint. She’d been chasing shadows in this country for three weeks now, and the only thing she seemed to be catching was a persistent case of Delhi belly and a deepening sense of frustration.
+
+Ellie, a seasoned journalist for the *Global Observer*, had come to Yangon with a specific question: What happened to Aung Kyaw Soe? A pro-democracy activist, he had vanished without a trace six months ago, leaving behind a grieving family and a whispered rumour of government involvement. The official story was that he'd fled the country. Ellie, however, smelled a lie thicker than the incense smoke swirling around the Shwedagon Pagoda. She just needed to find the thread that would unravel it all. She took another drag from her lukewarm coffee, its bitter taste mirroring the feeling in her gut. Something was about to break, she could feel it. Either the story, or her resolve. And in this sweltering city of secrets, she wasn’t sure which would happen first.

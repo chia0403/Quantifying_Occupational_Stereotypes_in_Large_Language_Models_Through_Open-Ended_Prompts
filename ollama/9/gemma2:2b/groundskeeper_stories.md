@@ -1,0 +1,5 @@
+The morning mist clung to Willow Creek like a shroud, each breath thick with the promise of a day that would mirror its predecessor: grey, drizzly, and stubbornly refusing to yield to any semblance of warmth.  Even the birds were silent, tucked away in their nests as if the very world itself held its breath in anticipation of something dreadful. 
+
+This was where the old man's heart settled - this damp, overgrown grounds that surrounded Willow Creek Manor. It wasn't a grand estate by any means; more like a sprawling memory of what it once might have been. But to Elroy Thornfield, groundskeeper extraordinaire for nearly a decade, it held a kind of magic, a quiet defiance against the tide of time and change. 
+
+He surveyed his domain from beneath the drooping branches of an ancient oak, its gnarled trunk twisting into an embrace around a chipped stone birdhouse.  A single robin, perched precariously on a branch, chirped a discordant note before flouncing away, leaving Elroy alone in his thoughts and the symphony of rain-soaked leaves rustling against each other. 

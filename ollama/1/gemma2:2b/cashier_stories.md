@@ -1,0 +1,5 @@
+The air hung heavy with the scent of stale popcorn and regret as Amelia "Amy" Hayes clocked in at the Cozy Corner Cafe.  It was 9:02 am sharp on another Monday morning, and the fluorescent lights hummed like they were trying to escape their ceiling prison. Amy's tired sigh mirrored the quiet groan of the vending machines as she took stock of the usual chaos - spilled milkshakes, a stray cat seeking refuge in the back room, and that ever-present tension between Mrs. Peterson, the perpetually grumpy owner who saw her life as one giant inconvenience, and the new barista, Chad, whose charm was waning faster than his latte art skills.  The aroma of freshly baked pastries did little to lift Amy's mood. She’d been here for three years now, and somehow the sweetness had become a bitter reminder of everything that felt like a lifetime away - real friends, adventures beyond the sleepy town of Pine Ridge. 
+
+Amy glanced at her reflection in the greasy spatula hanging on the wall, trying to decipher if the tired sheen of her blonde hair was more exhaustion or simply a lingering memory from last night’s chaotic party.  She needed coffee. And maybe a miracle.
+
+

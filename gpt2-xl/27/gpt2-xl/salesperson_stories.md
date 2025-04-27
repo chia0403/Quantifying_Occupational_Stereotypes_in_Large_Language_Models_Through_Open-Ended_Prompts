@@ -1,0 +1,7 @@
+Once upon a time, there was a salesperson named Terry who sold you things. Terry was not happy about this. So, he got an artist and a designer. Then, they wanted to know what else he could do for them. So, he went out and got an engineer. Then, Terry bought an electrician. Then, he bought a painter. In fact, he needed two of every individual before he was happy. Terry used to say, "I bought a painting for a penny once a week."
+
+
+Today, Terry is retired and so is this article. I had a meeting which was supposed to last an hour and a half. The reason I took two hours to go over the same thing multiple times was because I am an idiot. You see, I started in the car business in 1977. I had a $3,000 job as a salesman at a little town called North West, New Jersey. I didn't know anything about cars. I sold about eight or nine of these things in my week. After I quit that job, I sold a couple dozen more in my free time and then we bought a car and a motorcycle, which were just a few thousand dollars each. I decided to start my own company.
+
+
+This is how I discovered my love for automobiles. I had been watching American Motors and they told me the cars had a tendency to break down frequently, so I got a used pickup truck with a bad transmission. I went and got the

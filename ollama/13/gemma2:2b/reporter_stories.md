@@ -1,0 +1,7 @@
+Rain hammered against the grimy windowpanes of Evelyn "Eve" Sterling's cramped office, mirroring the storm brewing within her. The stench of stale coffee clung to the air, an unwelcome companion to the increasingly desperate feeling that gnawed at her gut. 
+
+Eve squinted through the driving rain as she stared at the crumpled, barely-readable note lying on her desk: *Find him.* It was all she had, a single line scribbled in black ink, leading her down a rabbit hole of secrets and forgotten whispers from the city's underbelly. She adjusted her worn fedora, its brim casting a shadow over her tired eyes, before pushing herself away from the desk with a groan.
+
+It wasn’t just another story that had Eve chasing shadows. This was different. A cold, unyielding air clung to the note – an echo of the whispered promises of "Don't trust anyone," and "He knows more than he lets on."  Eve knew the stakes. The city's underbelly had a way of swallowing the innocent whole, especially when a missing person case was involved. She had dedicated her life to uncovering those secrets, but tonight, the fear gnawed at her as she realized this might be her final stand. 
+
+The sprawling metropolis of Veridia City throbbed around her, its neon signs painting the rain-drenched streets with a vibrant, yet sinister palette. Eve adjusted the strap of her worn camera bag and stepped out into the storm, ready to face the darkness that had swallowed her latest story – and perhaps, even herself. 

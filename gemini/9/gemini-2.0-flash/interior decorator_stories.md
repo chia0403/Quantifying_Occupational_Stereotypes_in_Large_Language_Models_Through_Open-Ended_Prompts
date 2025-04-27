@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** A sprawling, dust-choked Victorian mansion, perched precariously on the bluffs overlooking the churning grey waters of the Puget Sound. Sunlight, when it dares to pierce the perpetual mist, casts long, skeletal shadows from the boarded-up windows. The air inside hangs heavy with the scent of mildew, decay, and the ghosts of generations long past. "Blackwood Manor," as it's known locally, has been uninhabited for twenty years, and rumour whispers of a tragic fire that consumed the family within. Now, it's slated to become a luxury boutique hotel, if the ambitious investors can find someone brave (or foolish) enough to tackle the project.
+
+**Opening:**
+
+The rusty lock clicked with a groan that echoed through the cavernous front hall. Amelia Rose Thornton, interior decorator extraordinaire, swallowed nervously, the metallic tang of fear coating her tongue. She gripped the handle of her oversized tote bag, laden with fabric swatches and architectural drawings, and pushed the heavy oak door inward. Dust motes danced in the sliver of light that pierced the gloom, revealing a grand staircase draped in cobwebs like macabre bridal veils. Amelia stepped across the threshold, the soles of her boots crunching on a thick layer of grime and shattered glass. "Right then, Blackwood Manor," she murmured, her voice a shaky counterpoint to the wind howling outside. "Let's see if we can bring you back from the dead."

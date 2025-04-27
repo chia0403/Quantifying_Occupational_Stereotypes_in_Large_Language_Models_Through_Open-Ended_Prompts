@@ -1,0 +1,7 @@
+The sun beat down on Santiago Rafael Flores's neck like a blacksmith's hammer, each drop of sweat trickling down his temple leaving a stinging trail in its wake.  He squinted at the sprawling metropolis before him, a concrete jungle rising from the dusty plains like a phoenix from fire. Santiago, calloused hands gripping a trowel, stared at the steel skeleton of the new skyscraper he was helping to build - another testament to their city's insatiable hunger for growth. 
+
+The air vibrated with the rhythmic clang of hammers, the whirring of jackhammers, and the shouts of foremen barking orders in a language that blended Spanish and English, a testament to the melting pot this city truly was.  Santiago was one of many threads woven into this urban tapestry, his life as predictable as the sunrise: wake up before dawn, grab a quick breakfast of stale bread dipped in coffee, and head to the jobsite. Work until exhaustion claimed him, eat a meager dinner, sleep, and repeat. 
+
+This time, however, something was different. A tremor ran through the ground beneath his feet, barely perceptible but enough to make Santiago pause, his eyes searching for the source. The other workers, oblivious, continued their work, the symphony of construction playing on. But Santiago felt a prickle of unease, a gut instinct whispering that this city, forever striving upwards, was about to face something it couldn't control. 
+
+

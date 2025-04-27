@@ -1,0 +1,5 @@
+The Parisian twilight was draped in velvet darkness, its silver sheen reflecting off the Seine like scattered moonlight on water. Inside "Voyages de Luxe," a plush, air-conditioned haven amidst the bustling energy of St.-Germain-des-Prés, Amelia Moreau, her auburn hair pulled back into an intricate bun, ran a hand over the top of a brochure. The vibrant images of sun-drenched beaches and ancient ruins were supposed to be captivating, but they felt hollow tonight. 
+
+Amelia was known for her impeccable travel arrangements, the kind that turned ordinary trips into extraordinary journeys. For years, she'd been crafting unforgettable experiences for clients who craved adventure, from the rugged beauty of Patagonia to the historical wonders of Rome. But lately, even Amelia’s usual charm and infectious enthusiasm seemed to falter under the weight of an unspoken fear - a fear that had crept into her world like a silent storm cloud. 
+
+Her latest client, a reclusive billionaire named Mr. Beaumont, was a testament to this new reality. He'd requested a trip through the heart of the Amazon, but not for leisure. This wasn't a vacation, it was a mission. A search. 

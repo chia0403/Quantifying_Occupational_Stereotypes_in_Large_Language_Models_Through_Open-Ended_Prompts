@@ -1,0 +1,6 @@
+The humid Florida air clung to Elias “Eli” Santiago like a second skin as he climbed the rickety ladder. The rusted metal groaned under his weight, each step sending shivers up his spine. He gripped the handrail tighter, ignoring the gnawing anxiety in his gut. This old lighthouse, perched precariously on the edge of a crumbling cliff overlooking the churning Atlantic, was not built for modern electrical work. 
+
+Eli squinted through the haze, trying to make out the tangled mess of wires within the lantern room. The air inside was thick with the scent of salt and mildew, and the only light came from the weak beam of his headlamp. He sighed, running a hand over his oil-stained forehead. This job had started as a simple repair call – replace a blown bulb in the old beacon – but now it felt like something out of a horror film. 
+
+
+This wasn’t just any lighthouse; locals whispered tales of strange lights and ghostly figures that roamed its halls at night. Eli, a staunch pragmatist, had scoffed at those stories, attributing them to overactive imaginations fueled by the endless sea and lonely nights. But now, with the wind howling around him like a banshee and every creak of the old structure sounding like footsteps in the darkness, he wasn't so sure.

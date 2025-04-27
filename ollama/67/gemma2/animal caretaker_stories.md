@@ -1,0 +1,5 @@
+The scent of hay mingled with the earthy aroma of damp fur hung heavy in the air.  Beatrice Elara Thistlewood, better known as Bea to the denizens of Happy Hollow Animal Sanctuary, surveyed her domain with a practiced eye. The morning sun, filtering through gaps in the aging barn's wooden roof, cast stripes of gold across the stalls where goats nibbled contentedly and sheep bleated softly. A rooster crowed somewhere distant, his call echoing against the weathered clapboard walls. 
+
+Bea adjusted the strap of her worn leather apron, a canvas map of mismatched pockets sewn onto it, each holding a different tool for tending to her feathered, furry, and scaled charges. Today was Saturday, meaning Bea would be responsible for all the sanctuary's morning chores, from mucking stalls to feeding hungry mouths to administering medication to the resident pot-bellied pig with a chronic cough. But Bea wouldn't have it any other way. This sprawling patch of land, nestled in the rolling hills of rural Vermont, was her haven, her purpose. Here, amongst the creatures that needed her most, she felt truly alive. 
+
+

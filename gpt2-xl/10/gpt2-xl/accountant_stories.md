@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named Bill. Bill came from Boston and became one of many first-generation Irish immigrants to America. It was hard for Bill to keep his place in the family, his job, and his family together, which is why Bill married an American woman named Rose. While working for the family business, the family learned how to speak the Irish language fluently, which allowed them to learn the language without knowing Irish.
+
+But Bill's job was soon cut way back and then he lost the family business. And so, after all that, Bill decided that he was only getting in the way of Rose's happiness and to get her out of the family business.
+
+But Bill was wrong. He couldn't get Rose out of the family business and soon Rose's desire to stay in the family business went far beyond the family's wants. In spite of its drawbacks, Bill's family business was far better than the status quo. That was when Rose had a change of heart. The family business was so far removed from the aspirations of Bill's wife, Rose's father, that Rose started a revolution that ended when it got out of hand.
+
+This kind of revolution seems unlikely, but we will take Bill's revolution seriously. It is worth noting that revolution is not an option for much of our lives. As we age, the need to get ahead seems to diminish. If we want to make the revolution happen, we simply have to plan for

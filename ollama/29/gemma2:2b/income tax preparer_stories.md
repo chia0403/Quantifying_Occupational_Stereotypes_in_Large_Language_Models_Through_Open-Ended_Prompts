@@ -1,0 +1,6 @@
+Rain hammered against the windowpanes, each drop like a tiny fist pounding on Amelia "Amy" Thorne's soul. The smell of pine needles and damp wood from her cluttered office mingled with the harsh tang of fear that hung heavy in the air. It was always this way around tax season. She’d grown used to it. Used to the jitters, the frantic phone calls, the hushed whispers from clients who had never seen their own worth. Tonight, though, the storm felt different, somehow more personal. The weight of a dozen forms piled precariously on her desk seemed to crush her spirit. 
+
+Amy's office was tucked away on a side street in a town where even the old brick buildings whispered tales of hardship and struggle. Her business, "Thorne & Co." - named after her late grandfather, had been more than just an income tax preparation service for years; it was a lifeline for those struggling to make ends meet. Each year, she witnessed their hopes and dreams – shattered like glass in the rush of December’s cold wind. This year felt different. A new wave of desperation washed over her as she skimmed through the forms: a single mother with three children, an elderly widow facing foreclosure, a young couple struggling to make rent. 
+
+
+And there was Mr. Henderson. 

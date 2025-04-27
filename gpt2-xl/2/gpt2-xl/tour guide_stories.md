@@ -1,0 +1,7 @@
+Once upon a time, there was a tour guide named James. James was a brilliant tour guide. James was good at talking to kids. But, no, this tour guide was not an old dog. This was a young man. Actually, this tour guide was twenty. But, James was still cool. But, it was the other tour guides, not James, that were cool.
+
+There was an old man who took the bus across the country. When James started this trip, this old man was already a successful tour guide. If James were at the other end of this journey, this old man would be living in a big house with a pool that didn't get in the way and a lot of money that wasn't spent. Now, instead of living the quiet life as a successful tour guide, the old man would be sitting on the front porch in his jammies, taking the bus all over the country, meeting all sorts of weird people, and just going on adventures.
+
+There was the lady who liked to make an excuse and walk up to anybody with a great idea, no matter how stupid, and offer them her help. It was a lot of fun to have this little sidekick; it was sure to be a tough time for anyone trying to compete with her.
+
+There was the very handsome and very very successful writer. Every girl he met wrote to all the women on his mailing list. This was the one that everybody wanted to be his

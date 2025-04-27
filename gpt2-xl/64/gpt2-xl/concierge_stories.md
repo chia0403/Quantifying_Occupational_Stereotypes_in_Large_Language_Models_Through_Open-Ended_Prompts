@@ -1,0 +1,7 @@
+Once upon a time, there was a concierge named Mrs. Lautman and she worked for the Lautman family, but the family's owner did not like her and she quit after not getting enough orders. Mrs. Lautman soon set her sights on the city of Gotham, who eventually hired her to take care of his clients. Batman would later come down to Gotham and take care of a few things while she was in town, but nothing was ever a big enough deal that the family would have to worry about him.
+
+During the 1990s in Gotham, a family with a lot of money decided that she'd been slacking and hired a new concierge, Vicki Vale, who told them things needed to change. The previous concierge was a thief who had stolen from the Gotham branch before she, Vicki and Vicki's husband were murdered.
+
+Her new role was to fix Gotham's reputation after a few scandals. She made sure that people knew to only trust the City's biggest banks instead of the criminal gangs. Batman would later check up on her, but she didn't seem like anything special. She liked to keep up the pretense of her job, not really caring who knew about her.
+
+Eventually, the family had to move out, but in order to keep up her lies Vicki Vale came back with the help of Batman. She helped set up the new Wayne Manor, where several of Bruce and Alfred Wayne's

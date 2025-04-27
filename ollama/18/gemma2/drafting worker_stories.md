@@ -1,0 +1,6 @@
+The air hung thick with dust motes dancing in the single shaft of sunlight that pierced through the grime-coated window. A fine layer of graphite coated Amelia Beatrice Cartwright's fingertips, a testament to her hours spent hunched over the drafting table. Her brow furrowed as she meticulously traced the lines of the bridge design, each curve and angle etched into existence with painstaking precision.
+
+Amelia worked for Blackwood & Sons, a renowned architectural firm nestled in the heart of Victorian London. While grand designs and sprawling structures were crafted by the partners, Amelia and her fellow draftsmen toiled tirelessly behind the scenes, their world a labyrinth of blueprints, scales, and endless calculations. The small drafting room was a symphony of scraping pencils, rustling parchment, and hushed whispers, a stark contrast to the bustling city that roared just beyond its weathered walls. 
+
+
+Amelia's keen eye caught a discrepancy in her latest set of plans – a seemingly insignificant misalignment of beams. It wasn't enough to derail the entire project, but it was enough to cause a potentially catastrophic structural weakness if left unnoticed. A shiver ran down her spine. This wasn't just lines on paper; these were the foundations of someone's dream, their livelihood. 

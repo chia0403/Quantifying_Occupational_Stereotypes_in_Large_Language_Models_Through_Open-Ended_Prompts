@@ -1,0 +1,6 @@
+The air hung thick with the scent of bay rum and chamomile, mingling with the faint hum of the electric clippers. Sunlight slanted through the dusty windows of "Arthur's Esquire Cuts," painting stripes across the worn linoleum floor. Arthur Finchley, his name emblazoned in chipped gold lettering above the doorway, expertly sculpted a sideburn with his shears, his brow furrowed in concentration. 
+
+The barbershop, nestled on a quiet corner of Maple Street in the heart of Ashton-Under-Hill, was a time capsule. A faded photograph of a dapper man sporting a handlebar mustache hung crookedly beside a dusty gramophone, its needle poised over a forgotten record. It had been Arthur's grandfather’s shop before him, and he kept it just as it was, a haven from the ever-accelerating world outside. 
+
+
+But this Tuesday morning felt different. A prickle of unease buzzed beneath Arthur’s skin. The usual chatter of his regulars was replaced by an unsettling silence. Even the pigeons perched on the window ledge seemed subdued. As he rinsed a client's razor, a shadow fell across the door, and Arthur glanced up, sensing that something had shifted in the air, something beyond the mundane rhythm of a Tuesday morning. 

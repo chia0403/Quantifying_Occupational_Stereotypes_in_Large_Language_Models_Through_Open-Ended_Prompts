@@ -1,0 +1,7 @@
+Once upon a time, there was a systems analyst named Alan Reiner, who began posting long-winded rants on the blog HackRead, complaining about the state of affairs and saying things like, the world needs to "end [the NSA's] surveillance state."
+
+On the one hand, Alan Reiner was a bit of a rebel in the hacker world, posting his ideas and hacking work all under the pseudonym "MalwareTech." On the other hand, he was also, at the time, a fairly well-known hacker for being one of the top "Hackers of the Year" on several occasions.
+
+He would post at least one (sometimes several) long-winded rants (sometimes written "properly" but mostly just poorly-thought-out rants) per month, posting links to his code (for which his site is known) and the work he'd been doing — all under the guise of an anti-SIGINT advocate. "I'm anti-NSA because that's what their job is," he would write.
+
+But in recent years, as the agency is known for being "aggressive" in its cyberwarfare efforts as well as being more public about it, and increasingly being referred to by some among the hacker community as the "fifth branch of government," Alan Reiner has been reduced to an anti-GCHQ, anti-TEMPORA hacktivist, whose most recent post (which is

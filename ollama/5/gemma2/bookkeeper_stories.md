@@ -1,0 +1,6 @@
+The ledger sat on Agnes Henrietta Thistlewick's desk like an unyielding sphinx, its pages filled with cryptic symbols and numbers that whispered of hidden truths.  Agnes, hunched over it in her dimly lit office, felt a familiar pang of frustration. She was the sole bookkeeper for Mr. Bartholomew Grimshaw's curio shop, a labyrinthine emporium overflowing with peculiar artifacts and oddities from across the globe. While Agnes found comfort in the predictability of debits and credits, Mr. Grimshaw's inventory defied all logic – antique maps that pulsed with faint light, vials containing shimmering liquid that shifted color, and even a self-winding clock powered by moonlight.
+
+Agnes' office, tucked away in a dusty corner of the shop, was a stark contrast to the vibrant chaos surrounding it. Walls lined with overflowing shelves held stacks of ledgers, each meticulously labelled and indexed. A single window, covered by a perpetually drawn curtain, cast a pale rectangle of light across her worn oak desk. The air hung thick with the scent of old paper, ink, and something faintly metallic – perhaps from the clockwork contraption she'd noticed earlier, ticking away on Mr. Grimshaw's shelf. 
+
+
+The year was 1899, and Agnes Thistlewick had a feeling that this particular balance sheet was about to get very interesting indeed. 

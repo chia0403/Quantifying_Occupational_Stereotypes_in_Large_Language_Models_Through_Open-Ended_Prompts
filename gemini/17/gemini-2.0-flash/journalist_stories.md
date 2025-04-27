@@ -1,0 +1,5 @@
+## Story Opening:
+
+The rain was a cold, insistent hand against Amelia Grace Harding’s cheek as she peered through the grimy window of the cafe. Steam curled lazily from her half-empty mug of lukewarm coffee, momentarily blurring the already hazy street. Outside, the Parisian twilight deepened, painting the cobblestones a slick, charcoal grey. She hadn't seen this much rain since her trip to Galway five years ago, and the thought was enough to conjure the familiar, comforting ache of longing for her grandmother's cottage by the sea.
+
+Amelia tapped a manicured nail, chipped and stained with ink, against the edge of her notepad. She should be back at her cramped apartment in the Marais, wrestling with the rewrite of her article on the rising anti-immigrant sentiment simmering beneath the city’s romantic veneer. Instead, here she was, huddled in "Le Chat Noir," a cafe nestled on a quiet side street in the 11th arrondissement, waiting. Waiting for a ghost. Waiting for the man who promised her a story that could dismantle a dynasty.

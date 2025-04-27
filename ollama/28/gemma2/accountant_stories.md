@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Elias Thorne's head, casting a sterile glow on the endless rows of figures before him. The air was thick with the scent of stale coffee and desperation – a familiar aroma in Thorne & Sons Accounting, where dreams went to die and tax returns were nightmares made flesh. 
+
+Elias, his name a solemn weight upon his shoulders, meticulously reconciled a particularly messy portfolio for Mrs. Penelope Featherstonehaugh, a woman whose penchant for exotic investments had left her teetering on the brink of financial ruin.  His fingers danced across the keyboard, each click a tiny hammer blow against the anvil of reality. Outside, the city of New Albion hummed with life – vibrant, chaotic, a world away from the sterile confines of his cubicle. Elias envied those who could escape, who didn't have to spend their days wrestling with balance sheets and deciphering cryptic receipts. He was trapped, tethered to this desk by duty, family legacy, and a gnawing fear that he wasn't cut out for anything else.
+
+
+**Setting:** Thorne & Sons Accounting - a mid-sized firm in the heart of New Albion, a bustling metropolis known for its economic dynamism and social disparities. 

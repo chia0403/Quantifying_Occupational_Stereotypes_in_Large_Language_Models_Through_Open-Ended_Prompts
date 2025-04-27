@@ -1,0 +1,8 @@
+The wind whipped through the ancient oaks that ringed the sprawling estate, their gnarled branches clawing at the pewter sky.  Even in the heart of autumn's chill, the air held a lingering warmth; a testament to the long summer days spent tending to the neglected grandeur of Blackwood Manor. Elias Thorne, his calloused hands wrapped around a steaming mug of tea, surveyed the sprawling gardens.  He was a quiet man, content in the humdrum rhythm of his days - mowing the overgrown lawns, weeding the neglected rose bushes, and coaxing life from the drought-stricken soil. 
+
+But tonight, something felt different. An unsettling unease had settled over him like a damp fog as he glanced towards the darkened manor house, its windows glowing with an unnatural luminescence in the twilight. The air held not just the scent of dying leaves but also the faintest hint of something else: fear, or perhaps it was anticipation.  A shiver ran down Elias's spine, and he felt a strange compulsion to approach the imposing facade of Blackwood Manor. 
+
+
+**Setting:** Blackwood Manor is an ancient, sprawling estate nestled in the heart of a quiet English countryside.  The manor itself is a gothic masterpiece, with towering stone walls overgrown with ivy, gargoyles perched on its roof, and windows dark as vacant eyes. The grounds are vast and wild, neglected gardens whispering tales of forgotten grandeur. 
+
+**Character:** Elias Thorne is a middle-aged groundskeeper, whose quiet life is disrupted by an unknown force at Blackwood Manor. He's practical, grounded in reality but possesses a deep empathy for the estate and its troubled history. His past remains shrouded in mystery.  

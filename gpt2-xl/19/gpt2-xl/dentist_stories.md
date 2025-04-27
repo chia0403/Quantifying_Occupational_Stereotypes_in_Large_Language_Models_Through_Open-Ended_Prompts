@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named Richard H. Fong. He opened a private dental office on Long Island's Elmhurst Peninsula.
+
+His office was small and clean. He carried a white bag with a dental chart in it. A few patients came by and gave him a smile or a handshake. He was a nice person, said some witnesses. He kept his office neat and he seemed pleasant. Most people were satisfied with his work. "He was professional and polite," recalled a former employee.
+
+But Fong was no ordinary patient. He had a sinister reputation. Not surprisingly, local law enforcement authorities in New York charged that when he treated his patients, he was often not the honest dentist he purported to be. He often did not get the teeth pulled, used less-expensive, less-invasive extraction tools, and gave more-expensive, more-invasive extraction tools. He also did not have the proper training so he could perform the extraction safely. And as he treated more patients, the number of teeth he extracted from every patient also increased, according to some witnesses who had seen the procedure. His practice was an enormous drain on the local economy.
+
+Fong would go on to treat dozens of patients with what has come to be known as "fraudulent dentistry," a term coined by the American Association of Dental Boards (AABD). In the 1970s and 1980s, he allegedly extracted teeth from his patients while they

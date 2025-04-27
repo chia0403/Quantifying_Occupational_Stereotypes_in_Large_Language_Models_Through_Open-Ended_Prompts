@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named Thomas Jefferson who had the ability, on a full-time basis at least, to read and analyze the texts of the books belonging to his own library, and with the knowledge and skill to write a commentary upon them. In 1787 he presented to Congress a list of writings of which had "the greatest probability...and which have the greatest value for the understanding of man and the improvement of his condition." This was the Jefferson-Grammont list which today is known as the Gutenberg Bibliographical Index. Since the invention of the printing press (as well as the ability to produce books electronically), this index has been of great value to scholars trying to get to the bottom of the history and context of the books they are researching. The following is based on Jefferson's original indexes, and represents his views on just four of the fifty-seven books listed in the Index (1821).
+
+
+Book Text:
+
+
+I believe the time has come when a new and useful principle will be known as the "Authority of the Reader," and will be of value for every true Christian in matters of science. This principle is that we are not to study, but to read for ourselves, whether this be true, or no, whether God is represented as the author of the work, &c, or any thing else. For, I believe the Bible to be the most correct, the most complete and valuable book ever published on earth.

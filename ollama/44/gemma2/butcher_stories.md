@@ -1,0 +1,6 @@
+The air hung thick with the scent of iron and rosemary in Arthur Percival Bartholomew’s butcher shop. Sunlight streamed through the grimy windows, illuminating dust motes dancing above the glistening display cases filled with slabs of beef, rows of sausages, and an assortment of poultry hanging like grotesque ornaments. Outside, Manchester throbbed with its usual cacophony – rattling trams, shouting vendors, and the distant wail of a siren. Inside, however, there was only the rhythmic thump of Arthur’s cleaver against bone, a steady counterpoint to the low hum of conversation from the few customers scattered throughout his shop.
+
+Arthur Bartholomew, a man whose girth rivaled that of the ox he butchered, wiped the sweat from his brow with a stained apron and surveyed his domain. His life was a symphony of blood and sinew, a ballet of blades and bone. He knew every cut, every joint, every nuance of meat like a well-worn map. But today, the familiar rhythm felt off, the hum of conversation discordant. A strange disquiet had settled over him, a prickling sensation at the back of his neck that whispered of something out of place.  
+
+
+He glanced towards the shop door, where a figure stood shrouded in shadow, barely visible against the harsh Manchester light. It was then Arthur realized he hadn't seen anyone quite like that before. 

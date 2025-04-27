@@ -1,0 +1,7 @@
+The rain hammered against Sergeant Alistair Hawthorne’s helmet, each drop exploding in a miniature geyser on the cobblestones below. The pungent scent of damp earth and mildew clung to the air, thick and heavy like the oppressive silence that had settled over the city of Aethelgard. For three days, the normally bustling market square had stood eerily empty, its vibrant stalls abandoned, replaced by the looming shadows of shuttered shops and vacant windows. 
+
+Alistair adjusted his gauntlets, the metal cold against his skin. His breath plumed in the damp air as he surveyed the scene: a labyrinthine network of cobbled streets choked with fallen leaves and debris, each shadowed corner harboring unseen dangers. He was one of only a handful of guards left to patrol Aethelgard after the Nightfall – a chilling event that had plunged the city into darkness and silence, leaving behind a palpable sense of dread. The whispers amongst the remaining citizens spoke of creatures born from shadows, of magic unleashed, and of an ancient evil awakened.
+
+Alistair knew better than most that these whispers were more than just idle tales. He had seen it with his own eyes – the twisted figures flitting through the darkness, the unnatural chill that clung to their wake, the vacant stares that held a terrifying intelligence.  He gripped his spear tighter, its cold metal offering a sliver of comfort in this unsettling silence. His duty was clear: protect what remained of Aethelgard and find out what had brought about this terrifying change. 
+
+

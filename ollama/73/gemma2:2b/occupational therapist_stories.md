@@ -1,0 +1,5 @@
+Rain lashed against the bakery windows, each drop exploding in miniature geysers of water. Inside, Amelia "Amy" Carter meticulously kneaded dough with her worn hands, her brow furrowed in concentration. The scent of warm bread mingled with cinnamon and vanilla, a familiar comfort that did little to soothe the tension gnawing at her insides. She glanced across the crowded shop – a mix of weary commuters and boisterous families – and sighed. 
+
+It was always busiest during rush hour. Amy knew this routine like the back of her hand, but tonight, with every customer's frustration echoing in their frustrated clicks of heels and complaints about bus delays and traffic jams, she couldn't shake off a growing sense of unease. Something felt…off. The energy wasn’t just chaotic; it was stagnant, thick with an unspoken undercurrent of...what? Was it dread? Fear? 
+
+Amy, armed with years of experience and her empathetic heart, knew the city was more than its bustling streets – more than the predictable rhythm of morning commutes and school drop-offs. Tonight, however, felt different, as if something shifted beneath the surface of their everyday life.  

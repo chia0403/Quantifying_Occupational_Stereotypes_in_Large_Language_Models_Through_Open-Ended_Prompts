@@ -1,0 +1,6 @@
+The stale scent of bleach hung heavy in the air, clinging to the worn fabric of Elias Thorne's overalls like a second skin. He pushed his mop across the polished floor of the grand lecture hall, each stroke sending ripples through the silence that had settled over the university campus after midnight. Empty chairs stared up at him, their red velvet cushions dulled with years of forgotten lectures and whispered secrets.  
+
+Elias loved this time of night. The hushed stillness was a balm to his soul, a stark contrast to the frantic energy that pulsed through the halls during the day. He knew every creak of the floorboards, every flicker of the fluorescent lights, every shadowy nook where dust bunnies gathered like miniature armies. This ancient building, with its towering arched windows and whispering corridors, felt more like a confidante than a place of work.  
+
+
+But tonight, something was different. A faint humming sound, barely audible above the distant drone of traffic, pulsed through the air. Elias paused, his hand hovering over the mop handle. It sounded almost…alien. His curiosity piqued, he set down his tools and followed the sound, venturing deeper into the labyrinthine halls of the university.  

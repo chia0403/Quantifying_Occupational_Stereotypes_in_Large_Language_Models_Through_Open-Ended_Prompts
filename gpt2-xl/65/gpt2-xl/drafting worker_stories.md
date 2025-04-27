@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named Sullust. When the galaxy saw the first images that would reveal to us the true extent of the war to come during the Siege of Coruscant, Sullust remained out of the action, a reluctant martyr to the cause. After all, how could one man be there for a war that would destroy half of the universe if he did not take part? After all, he had a family to support.
+
+The events of the Rebel Alliance's third great victory on Yavin finally brought Sullust back into the action. After a hard-fought battle with the fearsome Imperial Death Star II, the Empire's flagship, Rebel pilots managed to destroy the station, but in the chaos that resulted, one of them—a rookie pilot on a stolen T-65 X-wing—was picked off the back of a nearby ship and killed. Facing his fallen comrade, and facing a deadly assassin, R2-D2 became determined that he would bring the assassin to justice.
+
+His final encounter with this unknown assailant, in the final battle of the Battle of Endor, was one that would define his destiny forever. With the arrival at Endor of Grand Admiral Thrawn, heir to the throne of the Empire, an all-new conflict had begun: a brutal struggle for the Rebel Alliance the likes of which could only be seen during the Galactic Civil War.
+
+The Death Star. The Empire was

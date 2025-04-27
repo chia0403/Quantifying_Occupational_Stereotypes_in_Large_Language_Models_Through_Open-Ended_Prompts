@@ -1,0 +1,6 @@
+Rain lashed against the windshield, blurring the neon glow of the "Open 24 Hours" sign across the street. Inside the cramped diner, Amelia "Amy" Everleigh hunched over a lukewarm cup of coffee, its bitter taste doing little to ward off the chill that clung to her bones. The flickering fluorescent lights cast harsh shadows on the worn linoleum floor and the faded photographs tacked haphazardly to the walls - a collage of forgotten memories and faces long gone. 
+
+Amy, an Emergency Medical Care Technician with four years under her belt, had been on shift for nearly twelve hours.  The city never slept, and neither did she. Tonight, however, felt different. A gnawing unease settled in her gut, a premonition whispering of something out of the ordinary lurking beneath the familiar humdrum of ambulance calls and late-night diners. It was just after 2:00 AM when the shrill wail of the pager shattered the quiet lull.  Her heart pounded in her chest, not from adrenaline yet, but from a deep-seated sense of foreboding. "Dispatch," a tired voice crackled through the speaker, "possible hostage situation at the City Bank downtown. Respond Code 3."
+
+
+**Setting:** A rundown diner on a rain-soaked street in a bustling city, late at night.  

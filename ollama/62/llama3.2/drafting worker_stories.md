@@ -1,0 +1,5 @@
+Here's a potential story opening:
+
+The rain pounded against the pavement like a relentless drumbeat, casting a misty veil over the city of New Haven. Inside the cramped, windowless workshop on 5th Street, Draegen "Drew" Thorenson wiped the sweat from his forehead with the back of his hand, his eyes scanning the cluttered room with a practiced air of detachment. A drafting worker for the local railroad company, Drew spent most of his days hunched over a drafting table, poring over intricate diagrams and blueprints as he worked to meet the demanding deadlines set by his bosses.
+
+As he rubbed out a misplaced annotation on a particularly tricky section of track plan, Drew's mind began to wander - not to the endless stream of paperwork and budget reports that seemed to consume every waking moment of his life, but to the mysterious letter that had arrived at the workshop that morning. With its black wax seal bearing the emblem of an ancient organization he'd only ever heard whispers about in hushed tones, the message itself was cryptic: "Meet me at McGillicuddy's Pub at midnight. Come alone."

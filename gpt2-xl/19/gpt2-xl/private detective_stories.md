@@ -1,0 +1,7 @@
+Once upon a time, there was a private detective named "Goliath" who lived on a houseboat in Miami Beach. With the help of a mysterious friend, he was able to get an inside perspective on the inner-workings of the mysterious "Lords of the Dead" organization.
+
+Today, Goliath is running a private law firm out of his home, using his skills as a private investigator to discover mysteries involving the mysterious Lords Of the Dead (LORD) and their connections to the "Dead." His clients are a colorful bunch of people and organizations ranging from celebrities and athletes to politicians.
+
+The first Lords of the Dead comic book debuted in 1991 and established Goliath as one of the most original and entertaining detectives in comics. Since then, the series has been spun off into three books – Lords of the Dead: Revelations, Lords of the Dead: Resurrection and Lords of the Dead and Dead III: Days of the Dead, which chronicles Goliath's involvement with the Lords of the Dead. Goliath and his team of detectives have uncovered the secrets behind some of pop culture's greatest mystery: who killed the Loch Ness Monster in the 1960s and why; was George Bush really behind the assassination of John F. Kennedy? And why, for the last 25 years, has the Lords of the Dead been staging their annual festival in Las Vegas and the Bahamas?
+
+Now, the creators of Lords of the Dead – comics veteran Rob Liefeld and creator

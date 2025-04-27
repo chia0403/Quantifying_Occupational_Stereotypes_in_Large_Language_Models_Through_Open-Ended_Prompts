@@ -1,0 +1,5 @@
+As the sun rose over the small coastal town of Willow Creek, casting a warm glow over the quaint streets and salty sea air, Emily Anne Wilson prepared for another day at the dental clinic she had called home for five years. A certified dental hygienist with a passion for patient care and a knack for calming even the most anxious teeth, Emily Anne was known throughout the community for her gentle touch and ability to make even the most mundane procedures feel like a spa day.
+
+The clinic itself, situated on Main Street, was a cozy, white-fenced building that seemed to blend seamlessly into the surrounding architecture. Inside, the sound of chatter and gentle cleaning instruments filled the air as Emily Anne went about prepping for the day's patients, her eyes scanning the schedule with a practiced efficiency she had honed over years of experience.
+
+It was shaping up to be a typical Wednesday morning at Willow Creek Dental – just a few regulars and some new faces in between. Little did Emily Anne know, however, that today would be anything but ordinary...

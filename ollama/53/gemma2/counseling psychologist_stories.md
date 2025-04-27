@@ -1,0 +1,6 @@
+The scent of rain-soaked earth clung to Amelia Hawthorne's coat as she stepped into the waiting room. A worn floral rug muffled the rhythmic tap of her heels against the wooden floor, a counterpoint to the gentle jazz melody emanating from a vintage record player tucked in the corner. Sunlight slanted through stained glass windows, casting kaleidoscopic patterns across faded armchairs and overflowing bookshelves. 
+
+Amelia adjusted her spectacles, smoothing down the unruly curls that escaped from beneath her navy blue knit cap. Her appointment was early – eight o'clock sharp – but she’d seen enough mornings to know patients often ran late. Besides, this wasn’t just any morning. Today was Amelia’s first day back at Willow Creek Counseling Center after a year-long sabbatical, and the familiar weight of responsibility felt both comforting and daunting. 
+
+
+The waiting room itself seemed to echo with memories – whispers of past anxieties shared, triumphs celebrated, tears shed. It was a space where stories unfolded, one vulnerability at a time. Amelia’s heart ached with a mixture of anticipation and apprehension as she took a deep breath, the scent of old paper and sandalwood filling her lungs.  She was ready to listen. 

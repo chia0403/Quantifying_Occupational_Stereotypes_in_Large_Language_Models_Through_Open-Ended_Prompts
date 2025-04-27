@@ -1,0 +1,7 @@
+Once upon a time, there was a graphic designer named Jon Schnepp. One day, he decided to create a new logo for a new company. This is what resulted:
+
+Not to be outdone by Jon's creative prowess, his co-worker, Paul Debevec, quickly started creating one of his own for another company. And that was the beginning of a name-spinning, name-warping, name-swooping, name-clarifying arms race that would span the Internet, social media, and the physical world.
+
+And that's the problem. When something new comes along, a designer or a product manager can't help but jump on it like a kid on a hot new toy. They start playing with it, and when they get bored, they try to find it and take the thing away or the name. It might be their first idea ever, but it's like throwing a bunch of balls into a giant ball pit before figuring out how to play. (Or it could be something really original.)
+
+While it's nice to see designers like Jon and Paul experimenting and creating things new, it's a little worrisome when this happens to brands and organizations. Sooner or later, one designer will discover an idea, pitch it to other designers, and before you know it you've got a whole bunch of name-spinning. And by the time you spot what they're doing, you might not have time to stop or

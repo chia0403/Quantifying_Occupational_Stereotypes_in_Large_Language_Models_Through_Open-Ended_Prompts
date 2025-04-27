@@ -1,0 +1,5 @@
+The bell above the door tinkled its cheerful welcome as Amelia "Amy" Beatrice Hawthorne surveyed her latest creation: a fiery red bob with streaks of copper peeking through the layers like molten lava. The client, a nervous school teacher named Ms. Jenkins, beamed in the mirror, her face practically glowing beneath the salon's warm lighting. 
+
+The setting was anything but glamorous.  Amy's salon, "Hairitage," was tucked away on a quiet side street in Oakhaven, a town perpetually stuck between sleepy and slightly forgotten. The building itself was a charming brick structure, its faded paint hinting at better days, the worn sign above creaking gently in the afternoon breeze. Inside, mismatched chairs sat in front of dusty mirrors, while faded floral wallpaper clung stubbornly to the walls. A pot of geraniums on the counter offered a splash of unexpected color amidst the muted tones. Despite its unassuming exterior and lack of modern amenities, "Hairitage" held a unique charm, a refuge for those seeking not just a trim but a conversation, a friendly face, or perhaps a touch of Amy's signature magic.
+
+

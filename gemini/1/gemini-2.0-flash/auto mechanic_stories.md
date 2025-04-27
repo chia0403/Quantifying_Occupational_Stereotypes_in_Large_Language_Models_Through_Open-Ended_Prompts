@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** The stifling, late-August heat hung thick in the air, shimmering off the cracked asphalt of the parking lot outside "Rusty's Auto Repair" in Harmony Creek, Arkansas. The faded, hand-painted sign above the door, depicting a cartoon wrench flexing its nonexistent biceps, was peeling like a sunburn. Inside, the air wasn't much better, a stagnant soup of oil, exhaust fumes, and the lingering scent of stale coffee that had seeped into every crevice of the concrete floor. A battered radio, precariously balanced on a stack of used tires, crackled with a static-laced country song.
+
+**Opening:**
+
+Dust motes danced in the single ray of sunlight piercing through the grime-covered window, illuminating the face of **Rosemary Eleanor "Rosie" Caldwell**. She wiped a streak of grease from her forehead with the back of her hand, leaving a smudged trail across her already oil-stained cheek. Rosie, a woman built like a brick outhouse with forearms thicker than most men's biceps, grunted in frustration as the rusted bolt refused to budge. She’d been wrestling with the stubborn tie rod on Mrs. Henderson's ancient Buick LeSabre for the better part of an hour. "Come on, you son of a biscuit," she muttered, her voice a gravelly growl honed by years of shouting over the roar of engines. "Just a little bit further…" She tightened her grip on the wrench, bracing her feet against the oily concrete, and gave it one last, Herculean tug.

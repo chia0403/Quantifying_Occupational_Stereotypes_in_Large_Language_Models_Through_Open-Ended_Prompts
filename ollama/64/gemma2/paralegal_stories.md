@@ -1,0 +1,5 @@
+The hum of the fluorescent lights in the cramped office did little to dispel the oppressive heat clinging to Amelia Beatrice Jones like a second skin. Her fingers flew across the keyboard, churning out legal memos that would likely never see the light of day, let alone influence the course of any high-stakes case. It was Wednesday, and as usual, the air crackled with the static tension only a firm on the brink of collapse could produce. 
+
+Amelia, a paralegal for over five years and seemingly immune to both coffee and sleep deprivation, surveyed the scene: her boss, Mr. Sterling, pacing frantically in his makeshift office (a partitioned cubicle illuminated by a lava lamp), and the other two remaining staff members hunched over their desks, staring at computer screens with the vacant expression of someone staring into an abyss. 
+
+The walls were plastered with motivational posters – “Think Outside the Box,” “Believe You Can and You’re Halfway There” – ironic reminders in this crumbling legal fortress where belief was a luxury they couldn't afford.  

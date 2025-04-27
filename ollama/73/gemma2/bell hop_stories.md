@@ -1,0 +1,6 @@
+The humid New Orleans air hung heavy, thick with the scent of jasmine and beignets. Dew clung to the wrought iron balconies of the Hotel Monteleone, casting long shadows across the cobblestone street below. Inside, the grand lobby buzzed with the usual morning chaos – tourists snapping photos, businessmen barking into their phones, and the occasional symphony of clinking teacups and chattering accents.
+
+Amidst the flurry, Theodore “Teddy” Beaulieu moved like a shadow, his crisp white uniform a stark contrast to the faded grandeur of the hotel. He was a bell hop, born and raised in this city of secrets and dreams, forever caught between the gilded cage of luxury and the gritty reality of the French Quarter. Teddy carried more than luggage; he carried the hopes and anxieties of every guest who crossed his path, whispering tales of joy and despair with each click of his polished shoes against the marble floor. 
+
+
+He watched a young couple arrive, their faces flushed with excitement, suitcases overflowing with brightly colored clothes that screamed "first honeymoon." Beside them stood an elderly man, his eyes clouded with grief, clutching a single worn photograph in his trembling hand. Teddy knew, even before they spoke, that their stories would intertwine within the walls of this grand old hotel, just as countless others had before them. 

@@ -1,0 +1,5 @@
+As the sun set over the vast expanse of the Arizona desert, Jack "Hawk" Hawkins settled into his worn leather seat, the creaking of the old chair a familiar comfort after years of long hauls across the country. The CB radio crackled to life beside him, the static-filled voice of a fellow trucker on the horizon broadcasting his location and a cryptic message: "Meet me at the old windmill on Route 66, midnight. Come alone."
+
+Hawk's eyes narrowed behind his thick-rimmed sunglasses as he gazed out into the darkness, the flickering lights of the gas station across the street casting an eerie glow over the deserted parking lot. His Peterbilt 359 rumbled to life beneath him, the rumble a soothing balm for the restless energy that had been building inside since he'd left California just that morning.
+
+As a trucker, Hawk knew every mile of this route like the back of his hand – and every story, every rumor, every whispered secret that came with it. And now, as the clock ticked closer to midnight, he couldn't shake the feeling that something was waiting for him out on that deserted stretch of highway, something that would change the course of his life forever.

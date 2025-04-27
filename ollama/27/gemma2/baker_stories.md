@@ -1,0 +1,6 @@
+The scent of caramelized sugar hung thick in the air, battling with the aroma of warm yeast and cinnamon. Sunlight streamed through the dusty windows of 'Flour & Fancy,' casting long shadows across Amelia Beatrice Hawthorne's cluttered work space. Flour dusted her apron like fresh snow, clinging to the intricate braid woven into her dark hair. 
+
+Amelia hummed a jaunty tune as she kneaded the dough for her signature sourdough loaves, a task that felt as familiar and comforting as breathing. Her small bakery, tucked away on a quiet side street in the cobbled heart of Edinburgh, was more than just a business; it was an extension of herself, a sanctuary where she poured her creativity and love into every crumb.  The city itself pulsed outside, a vibrant tapestry of life, but within Amelia's haven, time seemed to slow, measured only by the rise and fall of the dough, the tick-tock of the antique clock on the wall, and the occasional clink of the bell above the door announcing a new customer.
+
+
+This morning, however, Amelia felt a different kind of energy buzzing around her. A sense of anticipation hung in the air, thicker than the sweetness of the rising bread.  Something was about to change. 

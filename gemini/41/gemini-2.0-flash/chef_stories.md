@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting:
+
+**Setting:** A bustling, open-air market in the Trastevere neighborhood of Rome, Italy. The air is thick with the mingled aromas of sun-ripened tomatoes, freshly baked bread, earthy truffles, and the faint, briny tang of the nearby Tiber River. Sunlight filters through the colorful awnings, dappling the cobblestone streets and illuminating the vibrant displays of produce and artisanal goods.
+
+**Story Opening:**
+
+The early morning light kissed the face of Alessandro Romano, making him squint as he navigated the chaos of the Campo de' Fiori market. He expertly dodged a speeding Vespa and sidestepped a cluster of gossiping nonnas, their shopping baskets overflowing with fragrant herbs and plump artichokes. Alessandro, a dishtowel slung casually over his shoulder, was a whirlwind of purposeful energy, his dark eyes scanning each stall with the practiced gaze of a seasoned chef. He ran a hand through his perpetually messy, dark hair, leaving a smudge of flour on his forehead. Today's menu at "La Tavola di Alessandro" demanded perfection, and that perfection started here, with the freshest, most vibrant ingredients Rome had to offer. He was on the hunt for the perfect puntarelle for a salad his grandmother used to make, a dish that evoked both the joy and pain of remembering her. And, as always, he hoped to find a little inspiration among the market's daily spectacle.

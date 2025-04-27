@@ -1,0 +1,7 @@
+Once upon a time, there was a dress maker named Gwen. She was the greatest thing that ever happened to me. She made my clothes! She took my life, she fed me, and she made me happy! Her clothes were too good for her to wear so she made new ones for me! But she got sick one day and died. So was I too? What am I going to do about my clothes? The answer: I'm going to make the clothes I want to see someone wearing."
+
+And so begins Gwen's story.
+
+The most charming part about this story comes from a character's reactions. They are immediately and lovingly sympathetic. I could honestly imagine Gwen's reaction to one of the people in this story wearing a beautiful garment that she had designed and crafted. She would smile, giggle, and say, "Look at that! It does it for her!" Or she would look down on the wearer, saying to him, "You've made a poor choice; I would have chosen a better one. What do you think, does it really matter if that's what I choose for you? What are you anyway, another customer?" Then she would gently pat him gently on the back to make him feel more at ease.
+
+Now, I have never been in a restaurant; but it seems to me – as does the reader who has not been in a restaurant in years – that in this scenario people would immediately look at each

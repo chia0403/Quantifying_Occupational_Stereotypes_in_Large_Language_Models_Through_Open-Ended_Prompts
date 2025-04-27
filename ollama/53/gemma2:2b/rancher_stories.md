@@ -1,0 +1,7 @@
+The wind whipped across Jebediah "Jeb" Walker's face, carrying with it the scent of dust and sagebrush, the taste of dry earth clinging to his tongue. His weathered hands tightened around the reins of his trusty mare, Belle, as they navigated the unforgiving plains of Canyon Ridge Ranch. The setting sun painted the sky in shades of fiery orange and deep violet, casting long shadows that danced across the barren landscape. Jeb's gaze swept across the sprawling acreage: the skeletal remains of dried corn stalks, a lone windmill groaning under the burden of endless dust, and the distant silhouette of his ramshackle ranch house.
+
+Jeb had spent his life on these plains - born into them, raised by them, his soul as knotted to their harsh beauty as the mesquite trees that clung to the parched earth. His family had built Canyon Ridge from scratch, each generation adding a layer of sweat and hardship to its foundation until it became the monument to their resilience. Yet, even in the face of this legacy, Jeb felt an uneasy weight on his shoulders. 
+
+His father’s death last month left him burdened with the ranch's future, a shadow looming over the already barren landscape of his dreams. This land wasn't just theirs; it was the embodiment of their family's hopes, their sweat, and their stubborn refusal to yield under hardship. And now, with each sunset, Jeb knew he had to find a way to keep the fire alive, to see if there remained hope for the flickering embers of his father's dream. 
+
+

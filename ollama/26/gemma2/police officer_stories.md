@@ -1,0 +1,7 @@
+The flickering neon sign outside 'Rosie's Diner' cast an unsettling crimson glow across Detective Amelia Croft's face as she hunched over the lukewarm coffee. The steam, momentarily obscuring her tired eyes, did little to dispel the oppressive humidity hanging thick in the air like a damp shroud. 
+
+Amelia, a seasoned detective with ten years on the force, had seen her fair share of rain-soaked nights in this part of Port Haven. It was the kind of place where secrets clung to the grimy brick buildings like mildew, and whispers travelled faster than the wind that whipped through the deserted streets.  Tonight, though, felt different. The air buzzed with a tension she couldn't quite place, a feeling that something dark was brewing beneath the city's mundane facade. 
+
+Her gaze drifted to the newspaper crumpled beside her coffee cup, headlines screaming about a string of unexplained disappearances plaguing Port Haven's waterfront district. Each case seemed more baffling than the last – no forced entry, no ransom demands, just vanished individuals swallowed whole by the night. The latest victim, found only yesterday, was an elderly fisherman named Silas Blackwood, his empty boat bobbing forlornly in the harbour like a forgotten toy. 
+
+Amelia took a sip of her coffee, its bitter taste doing little to quell the unease gnawing at her gut. This wasn't just another case; it felt personal, a chilling echo of a past she desperately tried to forget.  

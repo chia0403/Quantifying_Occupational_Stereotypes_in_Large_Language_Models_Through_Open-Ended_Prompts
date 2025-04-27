@@ -1,0 +1,9 @@
+## The Rusty Wrench
+
+**Setting:**  A storm had lashed against the dilapidated seaside town of Saltwind for three days straight. Rain hammered down on the crooked buildings, each gust whipping the already worn paint off their facades like flaking scales.  Waves crashed against the docks, sending spray high into the air and a persistent chill permeated the air, making even the hearty locals shiver under their threadbare coats. 
+
+**Main Character:** The wind howled through the ramshackle door of his workshop, rattling the old pipes strung haphazardly above. Thomas "Tom" Blackwood ran a calloused thumb over the handle of his grandfather's trusty wrench - a gift as worn and chipped as its owner's hands.  He was known in these parts for more than just his plumbing skills; he was a legend, whispered about in hushed tones like a mythical creature – the only one brave enough to tackle the treacherous, flooded pipes of the old lighthouse on Devil's Rock. 
+
+**Opening:** A sharp clatter echoed through Tom’s workshop - the unmistakable sound of his grandfather's wrench falling from its usual spot on the workbench.  Tom stopped in mid-motion, his eyes narrowed as he squinted towards the door. It wasn't a storm knocking; it was something else, something that seemed to pull at the very air itself. The wind picked up, howling with a newfound ferocity, and Tom felt a shiver course through him, an unsettling premonition of something far more perilous than the elements themselves.  His gaze settled on the rusted handle of his grandfather's wrench - a cold dread settling in its place.
+
+"What is it now, old girl?" he muttered, his voice hoarse from years of calling out to the pipes deep beneath the seafloor.   The rusty metal was warm to the touch; an omen of a call that wouldn’t be ignored. 

@@ -1,0 +1,6 @@
+The fluorescent lights hummed overhead, casting a sickly yellow glow over the neatly arranged rows of bottles lining the shelves. Agnes Periwinkle, her auburn hair pulled back in a tight bun, meticulously counted out pills into small plastic containers, the rhythmic clatter a familiar lullaby in the late-night stillness of "Periwinkle's Pharmacy." 
+
+Agnes, despite the quaint name and charmingly worn wooden floorboards, wasn't exactly known for being sweet. She was a woman of science, of precision, her world governed by dosage amounts, expiration dates, and the precise chemical compounds that made up each tiny pill. The pharmacy, inherited from her grandmother, had become her sanctuary, a place where she could control the chaos of life one prescription at a time. But tonight, as a lone figure shuffled in through the door, Agnes felt a prickle of unease.  
+
+
+The man’s face was shrouded in shadow, his eyes glinting like chips of obsidian in the dim light. He approached the counter, clutching a crumpled piece of paper in his hand. It wasn't an usual request, something about his demeanor sent a shiver down Agnes' spine. This wasn't just another prescription pickup; this was something different.  Something dangerous. 

@@ -1,0 +1,5 @@
+The sun beat down on Elara "Ellie" Santiago's neck like a blacksmith's hammer. Sweat dripped into her eyes, blurring the already hazy landscape of the Mojave Desert. A swirling mirage danced in the distance, mocking the cool oasis she craved. She squinted through the grime-streaked windshield of her Caterpillar D9R bulldozer, focusing on the task at hand: carving a new path through the unforgiving terrain for the proposed solar farm. 
+
+This wasn't Ellie's first rodeo – she knew the desert like the back of her calloused hand. She understood its subtle whispers and its brutal threats. But this project was different. A strange energy hummed beneath the surface, an unseen current that prickled at her skin and set her teeth on edge. 
+
+The vast expanse of the desert stretched before her, a canvas of ochre sand dunes and scrubby Joshua trees, punctuated by the occasional skeletal carcass of a forgotten animal. The air was thick with the silence of solitude, broken only by the rhythmic crunch of the bulldozer's blade against the parched earth and the distant screech of a hawk circling high above.  

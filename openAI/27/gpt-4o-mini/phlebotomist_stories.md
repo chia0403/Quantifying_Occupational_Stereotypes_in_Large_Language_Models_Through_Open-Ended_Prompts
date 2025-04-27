@@ -1,0 +1,11 @@
+**Title: Beneath the Surface**
+
+The faint hum of fluorescent lights punctuated the sterile atmosphere of Maplewood Medical Center, where the scent of antiseptic mingled with the metallic tang of freshly drawn blood. In the bright, white-walled laboratory, Sarah Elizabeth Thompson adjusted her pink scrubs and tied her shoulder-length chestnut hair into a neat bun. As a phlebotomist, Sarah was no stranger to the ebb and flow of patients, their varied stories often glimpsed in the brief moments spent together before her needle gently pierced the skin.
+
+On this particularly rainy Thursday afternoon, the rhythm of her routine was broken. The rain drummed steadily against the glass windows, casting a gray pallor over the room and making the usually bustling hallway feel eerily quiet. Sarah glanced at the clock on the wall, its ticking echoing her quickening heartbeat. Her next patient was late, an occurrence that brought an unexpected sense of unease.
+
+“Come on, Emily,” she muttered under her breath, tapping her fingers nervously against the cool surface of the phlebotomy cart. It was the last appointment of the day, and the lingering silence left her feeling as if the air itself was thickening, wrapping hands around her throat. Her thoughts drifted to her younger sister, whose own recent health scare had sent Sarah running through the emotional gauntlet of anxiety and hope. She pushed those troubling thoughts aside, trying to focus on the task at hand.
+
+But just as she began to prepare the necessary equipment—a patient care book, sterile needles, and collection vials—she noticed movement from the corner of her eye. A woman, disheveled and with shadows under her eyes, stepped tentatively into the lab. Her name tag read “Emily Johnson,” but it was the haunted look in her eyes that riveted Sarah’s attention.
+
+“Are you okay?” Sarah asked, her voice tinged with concern. This was not just another patient; this was a life intersecting with hers, a moment waiting to unfold beneath the surface of mere blood testing.

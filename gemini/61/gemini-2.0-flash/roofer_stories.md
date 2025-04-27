@@ -1,0 +1,7 @@
+## Story Opening:
+
+The tar clung to Miguel Ramirez's boots like a guilty secret, pulling with each reluctant step across the blistering asphalt. He hated August in Albuquerque. The sun, a malevolent eye in the endless blue, baked the city into submission, and rooftop work felt less like honest labor and more like a slow-roasted sacrifice. He wiped the sweat from his brow with the back of his calloused hand, leaving a smudge of tar that mirrored the grime already clinging to his weathered skin. Below him, the shimmering heat haze distorted the familiar streets, turning the ordinary into a mirage. But even that oppressive heat was preferable to the alternative: the crushing silence of his apartment, the echoing emptiness that had become his unwelcome constant companion. He took a deep breath, the scent of hot tar and dust filling his lungs, and forced himself to focus on the task at hand: patching Mrs. Henderson's leaky roof. He was Miguel Ramirez, and he had a job to do.
+
+## Setting:
+
+**Albuquerque, New Mexico. August.** The year is present day. The sun beats down mercilessly on the high desert city, baking everything in its path. The air shimmers with heat, distorting the landscape and making the distant Sandia Mountains appear hazy and ethereal. The residential neighborhood where Miguel is working is a mix of older adobe houses and newer, stucco-clad homes. The yards are mostly xeriscaped, dotted with cacti and drought-resistant shrubs. The overall feeling is one of dry heat, quiet resilience, and a touch of vibrant, sun-baked color.

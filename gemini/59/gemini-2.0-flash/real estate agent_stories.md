@@ -1,0 +1,7 @@
+**Opening:**
+
+The crimson sun bled across the sky, painting the bay in shades of fiery orange and bruised purple. It was the kind of sunset that usually inspired poetry and romantic declarations, but for Abigail Eleanor Thorne, it only amplified the gnawing anxiety in her stomach. She stood on the weathered balcony of the dilapidated Victorian, the salty air whipping strands of her auburn hair across her face, and tried to remember why she'd ever thought selling haunted houses in Havenwood was a good career move.
+
+**Setting:**
+
+Havenwood, Maine, population dwindling but spirit (of all kinds) thriving. The town was nestled on a jagged peninsula jutting out into the Atlantic, a collection of salt-streaked clapboard houses clinging to the rocky coastline. Fog hung thick in the mornings, lending an air of mystery and dampness to everything, and the wind howled a mournful song through the gnarled branches of the ancient pines that surrounded the town. Havenwood was known for two things: its exceptionally potent lobster bisque and its exceptionally active paranormal population. The town's history was steeped in maritime tragedy, whispered tales of smugglers and lost fishermen, all of whom seemed to have taken up permanent residence within the walls of its grand, albeit decaying, homes. Abigail, in her crisp business suits and perpetually harried expression, was an anomaly amidst the eccentric locals and ethereal inhabitants, a real estate agent tasked with convincing the living to move in alongside the not-so-living.

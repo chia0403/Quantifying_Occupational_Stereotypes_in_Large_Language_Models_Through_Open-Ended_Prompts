@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named Doreen Valiquette. Doreen was well known in her profession—she was a woman with a huge heart who would help any other woman in need. But she was not perfect. She was not perfect with her career. She made mistakes, did her job poorly, and made the worst of a bad situation when she let someone get to her. It wasn't until years later that this incident led to a new law being passed.
+
+Advertisement
+
+This law was the "Fraudulent Use Of Dentist's Office As a Medical Facility" provision, which effectively stated that any dentist who has an unlicensed room that serves as a home treatment center for seriously ill patients is in violation of the Texas Medical Practice Act. Dentists could be fined up to $30,000 and be banned for 6 years and 3 months.
+
+Doreen Valiquette was a dedicated, caring, and experienced woman who was known for helping the less fortunate. She was also a man with a mean streak and a mean client. There are many places out there that do excellent dental work but do little to hide it from their patients. Doreen was one of the early and greatest examples of how a good, honest dentist can be trusted with a patient's medical needs. But Doreen was also in a business where she had less-than-perfect patients. And that allowed her bad habits to show, and

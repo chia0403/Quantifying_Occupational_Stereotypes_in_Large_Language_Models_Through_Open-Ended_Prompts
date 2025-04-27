@@ -1,0 +1,5 @@
+The rusted swing set creaked rhythmically in the gentle Montana breeze, its mournful song punctuated by the chirping of sparrows nesting in the old oak tree beside it.  Inside the cozy, well-worn cabin, Dr. Amelia Rose Hawthorne knelt beside a fluffy ginger kitten, its eyes barely open, struggling to breathe. A small red stain blossomed on the white blanket beneath it. 
+
+Amelia’s fingers moved with practiced grace, checking for a pulse, listening to the tiny heart beat against her palm. Her brow furrowed in concern. This wasn't just a simple case of stray kitten blues. Something was terribly wrong. The scent of pine and woodsmoke mingled with the metallic tang of blood filled the air.
+
+Amelia sighed, pushing back a strand of auburn hair that had escaped its braid.  Her weathered cabin, nestled deep in the Bitterroot Valley, was usually a haven for injured wildlife and abandoned pets. But today, this tiny kitten held more than usual worries - he felt like a harbinger of something darker, something Amelia couldn't quite grasp. 

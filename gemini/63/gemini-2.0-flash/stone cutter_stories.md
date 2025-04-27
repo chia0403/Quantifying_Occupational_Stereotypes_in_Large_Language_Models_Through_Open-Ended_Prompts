@@ -1,0 +1,13 @@
+Okay, here's a story opening and setting for a story with a stone cutter as the main character:
+
+**Story Opening:**
+
+The rasp of steel against granite was the first sound Elias Thorne heard each morning, a gritty symphony that resonated deep in his bones. It was a sound that had followed him from boyhood, echoing off the craggy peaks of the Whispering Mountains and vibrating through the very bedrock of his existence. He inhaled deeply, the sharp, clean air filling his lungs, laced with the scent of pine and the fine dust of pulverized rock. Today, the symphony felt discordant. A sour note struck deep within his chest, mirroring the stubborn, resistant vein of quartz that snaked its way through the otherwise flawless grey of the tombstone before him.
+
+Elias cursed softly, the word lost to the wind whistling through the mountain pass. The name carved into the stone was simple enough: "Elara." But the simplicity felt like a mockery, a cruel jest played by the gods. Elara had deserved more than a simple inscription, more than a life cut short like a bud snapped from its stem by a sudden frost. He knew he shouldn’t let his personal grief mar the stone, knew the family expected perfection, but each strike of his chisel felt like a hammer blow against his own heart.
+    
+**Setting:**
+
+The story is set in a remote, mountainous region known as the Whispering Mountains. The village where Elias Thorne lives, named Quarry's Rest, is nestled in a high valley, carved into the mountainside near a rich granite quarry. The village is small, consisting of sturdy, stone-built houses, each with its own small garden plot clinging precariously to the steep slopes. A winding, cobblestone path serves as the main street, leading past the village smithy, the general store, and eventually, to the quarry itself. The air is crisp and clean, often scented with pine from the surrounding forests. The weather is harsh, with long, cold winters and short, mild summers.
+
+Elias's workshop is situated on the edge of the village, overlooking a breathtaking vista of jagged peaks and verdant valleys. It is a simple, open-air structure with a stone floor and a timber-framed roof. Tools hang neatly from the walls, and piles of rough-cut stones are stacked nearby, waiting to be transformed into monuments, lintels, and decorative carvings. The constant sound of hammering and chiseling, accompanied by the rhythmic grind of the stone-cutting wheel, is a constant reminder of the village's livelihood. The quarry is the lifeblood of Quarry's Rest, and the skill of its stonecutters is renowned throughout the region.

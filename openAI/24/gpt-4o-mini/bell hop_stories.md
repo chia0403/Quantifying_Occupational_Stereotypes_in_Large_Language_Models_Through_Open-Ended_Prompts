@@ -1,0 +1,11 @@
+**Setting: The Grand Aurelia Hotel, a lavishly ornate establishment perched on the edge of a cliff overlooking the turquoise sea. The hotel is a blend of old-world charm and modern luxury, with crystal chandeliers that dangle from frescoed ceilings and polished marble floors that echo with the soft footfalls of well-heeled guests. Outside, the sound of waves crashing against the rocks mingles with the cheerful laughter of vacationers lounging by the infinity pool. It’s early evening, and the golden sun casts a warm glow over the bustling lobby, where the air is filled with the scent of freshly bloomed orchids and a hint of sea salt.**
+
+**Story Opening:**
+
+As the sun dipped below the horizon, painting the sky in hues of orange and pink, Zephyr Sinclair adjusted his crisp green uniform with its golden accents, the insignia of the Grand Aurelia gleaming on his lapel. At just twenty-three, Zephyr had a slight frame and a mop of unruly dark curls that perpetually resisted his attempts at taming. He stood behind the front desk, fingers drumming out a rhythm of unspoken anticipation on the polished wood, as a cacophony of voices filled the air.
+
+“Right this way, sir,” he said with a practiced smile, stepping forward to assist a couple burdened with oversized luggage. The man, laden with designer bags, grinned back at him, while the woman rolled her eyes at the sight of her husband's unwieldy haul.
+
+Life as a bellhop at the Grand Aurelia was anything but dull. Each day, Zephyr encountered a cast of characters that could rival the most extravagant of novels. From the eccentric artist seeking inspiration in the hotel’s opulent halls to the wide-eyed tourist, overwhelmed by the sheer beauty of their surroundings, every interaction was a doorway into a different world. Yet, beneath the surface of charm and laughter, Zephyr held onto a secret of his own—one that bubbled under the sparkling facade of the Grand Aurelia, waiting for the right moment to surface. 
+
+With a quick glance to the lobby clock, he knew the evening rush was just beginning. “This way, please,” he said, gesturing to the grand staircase that spiraled upward like a delicate shell. Each step felt like a promise—tonight might be the night when everything changed.

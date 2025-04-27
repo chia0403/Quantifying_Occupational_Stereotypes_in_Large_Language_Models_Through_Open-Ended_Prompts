@@ -1,0 +1,4 @@
+The scent of aged paper and leather hung heavy in the air, a familiar comfort to Amelia Persephone Bellweather as she adjusted her spectacles and surveyed the stacks. Sunlight streamed through the arched windows of the Blackwood Library, illuminating motes of dust dancing in the air and casting long shadows across the worn wooden floor.  She ran a gloved hand along the spines of ancient tomes, their titles whispering forgotten stories. The library was her sanctuary, a haven from the clamor of the outside world. Today, however, a palpable tension crackled beneath the usual peaceful hum. A frantic ringing from the antique telephone stationed on the reception desk shattered the quiet, jolting Amelia out of her reverie.  
+
+
+"Blackwood Library," she answered, her voice calm and measured despite the sudden surge of unease. "Can I help you?" 

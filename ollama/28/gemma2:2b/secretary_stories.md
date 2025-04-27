@@ -1,0 +1,7 @@
+Rain lashed against the windows of Blackwood Manor, mimicking the relentless drumbeat in Amelia's chest. The air inside was thick with formality and dust-motes danced like tiny specters in the dying light filtering through the stained glass. This grand Victorian mansion held secrets within its walls, secrets that Amelia, a secretary to its enigmatic owner Lord Blackwood, felt tugged towards – but also afraid of.  
+
+Amelia, with her worn tweed suit and sensible pumps, was a creature of routine. Her days revolved around filling out spreadsheets for the manor's extensive charity fund, transcribing cryptic letters from an absentminded lord, and keeping the ancient machinery of this sprawling estate humming along. Lord Blackwood’s enigmatic silence was as much a part of Amelia's life as the dust motes that now seemed to swirl with a newfound intensity in the dying light.  He was a figure shrouded in legend, whispered about only in hushed tones amongst the staff who dared to venture into his private study - a room rumored to contain a hidden portal and a door that led not to another dimension, but to secrets long buried.
+
+Tonight, however, something was different. The heavy oak doors of Lord Blackwood's study creaked open as if pushed by an invisible hand. The air seemed charged with an unseen energy. A single flickering candle illuminated the ornate desk, revealing a cryptic message in shimmering ink: "The clock strikes midnight, and the river will speak."
+
+

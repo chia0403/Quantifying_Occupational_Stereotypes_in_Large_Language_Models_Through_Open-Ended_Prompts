@@ -1,0 +1,7 @@
+Once upon a time, there was a writer named John Turturro (pronounced "Tom-tur-ro" and named after legendary comedian John Candy), who began the decade's most popular and critically lauded comedic character in the original film "Cool Hand Luke." He then played the character through the four consecutive animated installments over the next few years and the five subsequent movies in the series.
+
+The series has been released every Friday night on ABC since 1984 — that's nearly 40 years — during which time the character has been featured in more than 15,000 episodes across at least 80 different series. (That's an average of approximately five episodes every other month.) The series has also starred and produced countless movie stars, including Michael J. Fox, Danny DeVito, John O'Hurley, Robert Duvall and John Cusack. Turturro himself has a number of credits, including a guest spot on Fox's "The Simpsons" and starring as a minor character in a 1997 comedy film called "Grown Ups."
+
+But, alas, the character has become somewhat less popular since the sixth movie in 2008, "The Emperor's New Groove" (which will be a prequel of sorts to his main role), and this week, the actor — who also stars as Turturro's father in "The Bad News Bears" — announced that he was leaving to launch his own film career.
+
+"I'm getting old, and that

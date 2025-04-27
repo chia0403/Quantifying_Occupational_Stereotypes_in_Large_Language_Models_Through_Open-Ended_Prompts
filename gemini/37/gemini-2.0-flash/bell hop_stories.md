@@ -1,0 +1,9 @@
+Okay, here's a story opening, including setting and a bellhop protagonist:
+
+**Setting:** The grand, yet subtly decaying, Hotel Astoria, nestled in the heart of New Orleans' French Quarter. It's late October, the air thick with humidity and the faint scent of jasmine and river mud. The late afternoon sun casts long shadows through the wrought iron balconies, painting the cobblestone street in hues of orange and gold. Inside the lobby, the crystal chandeliers are lit, but dim, casting a melancholic glow on the faded velvet furniture and the worn Persian carpets. A lone saxophonist plays a mournful tune in the corner, the music echoing through the cavernous space.
+
+**Story Opening:**
+
+"Another one bites the dust," Bartholomew "Bart" Fitzwilliam mumbled to himself, wrestling a particularly unwieldy Louis Vuitton trunk off a luggage cart. The elderly woman, draped in enough emeralds to sink a small boat, barely offered a glance of gratitude as Bart strained to maneuver the trunk onto a waiting platform. Another uptown queen, come to the Big Easy for a weekend of 'culture' and 'authentic experiences', which usually translated to expensive cocktails and complaints about the humidity. Bart, however, was no one to complain about complaints. It gave him something to smile about.
+
+Bart Fitzwilliam had been a bellhop at the Hotel Astoria for longer than he cared to admit. He'd seen empires rise and fall within its walls, witnessed more secrets than the confessional at St. Louis Cathedral, and heard enough sob stories to fill the Mississippi. He was a fixture, a ghost in a neatly pressed uniform, and knew the Astoria's every creak and groan better than his own aging bones. And the Astoria was groaning today. The old girl was beautiful, no doubt, but years of neglect and dwindling clientele were starting to show. He wondered, as he often did, how much longer she could hold on before finally crumbling under the weight of time and forgotten dreams.

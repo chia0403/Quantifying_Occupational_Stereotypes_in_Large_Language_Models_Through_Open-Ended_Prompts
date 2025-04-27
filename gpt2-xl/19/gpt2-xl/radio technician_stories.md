@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Tom.
+
+The story goes that for a decade, in the early eighties, Tom enjoyed life as an entrepreneur but couldn't escape the constant, pressing need to make a living at the radio station he built on the campus of the University of Chicago.
+
+Tom hired, or rather, made friends with, three computer programmers or programmers' programmers from the company IBM. They spent their afternoons going to the computer laboratory on the university campus and messing with their early microcomputers. Soon, the three men realized that there was a computer problem Tom's station couldn't solve. Tom was running out of money. So he went to visit one of them, and the three of them decided to work on a new computer project together.
+
+The project started with a simple concept called a "compiler." Compilers are machines that can translate a written program into another form as desired. Compilers were the foundation of computer programming but they were difficult for people to learn. But the three men knew of a computer programmer named Chris Lohse, who had invented a program to make compiling easier, and that led to a second crucial idea: the "data language." A data language was something like a software word processor. The language could be translated "under the hood" by the compiler in response to program commands by modifying the data, thereby transforming the program into something that the compiler would understand. Then the compiled program could easily

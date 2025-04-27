@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** The sterile, slightly claustrophobic reception area of "Kaiser & Finch Financial Solutions," a mid-sized investment firm nestled on the 27th floor of a glass-and-steel skyscraper overlooking downtown Chicago. The air conditioning hums a constant, low thrum that does little to alleviate the sweltering July heat radiating from the city below. Polished chrome accents gleam under the harsh fluorescent lights, and the scent of expensive air freshener, vaguely floral, hangs heavy in the air. A large, abstract painting, a swirl of blues and greys that looks suspiciously like spilled paint, dominates one wall.
+
+**Opening:**
+
+Winifred Alice Pruitt hated the smell of "Serenity Bloom" air freshener. It was cloying and synthetic, and the lingering scent clung to her like a disapproving aunt. At 3:17 PM, the usual afternoon lull was broken by the unwelcome chime of the elevator. Winifred braced herself, straightening her perfectly-creased pencil skirt and adjusting the headset that kept her connected to the frantic pulse of Kaiser & Finch. The doors hissed open, revealing a man who looked as though he'd lost a fight with a particularly vicious tumble dryer. His tie was askew, his hair stood on end, and his face was the color of a bruised plum. Winifred plastered on her most professional smile, the one that said, "I understand your world is falling apart, but please remember to sign in." This was, after all, just another Tuesday at Kaiser & Finch.

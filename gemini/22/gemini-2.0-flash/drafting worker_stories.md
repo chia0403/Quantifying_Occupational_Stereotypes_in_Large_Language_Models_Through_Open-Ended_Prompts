@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting, focusing on a drafting worker:
+
+**Setting:**
+
+The year is 1958. The place is the bustling, smoke-tinged office of "Thompson & Sons Engineering," nestled on the fourth floor of a brick building overlooking the Cuyahoga River in Cleveland, Ohio. The office is a cacophony of sounds: the rhythmic clatter of typewriters, the drone of conversations bouncing off high ceilings, the occasional sharp ring of a telephone, and the persistent scratching of pencils on vellum.  Rows of drafting tables, each illuminated by a gooseneck lamp, dominate the space. Cigarette smoke hangs heavy in the air, a hazy veil partially obscuring the rows of men in crisp white shirts, ties loosened, sleeves rolled up. Blueprints, coffee stains, and discarded eraser shavings litter every surface. The air is thick with the scent of ink, paper, and stale coffee. Outside the large, grimy windows, the skyline is a mix of industrial grit and burgeoning mid-century modern architecture, reflecting the city's ambitious spirit.
+
+**Story Opening:**
+
+"Damn it all to hell!" bellowed Alfred "Alfie" Pennypacker, his voice barely audible above the din of the office. He slammed his T-square down on the sprawling blueprint before him, the impact making a nearby ashtray jump.  He stared down at the offending line, a slight but undeniably crooked stroke marring the otherwise pristine plan for a new iron ore conveyor system.  He’d been redrawing this section for the third time that morning, and his patience, never abundant to begin with, was wearing thinner than the vellum he was working on.
+
+Alfie, a man of thirty-two with thinning brown hair perpetually plastered to his forehead and ink-stained fingers, cursed again under his breath. He scrubbed at the offending line with a hard eraser, leaving a fuzzy patch on the paper. He knew Mr. Thompson, Senior, would have his hide if he presented anything less than perfection. This conveyor system was a big contract, a lifeline for Thompson & Sons, and Alfie, despite being one of the youngest drafters in the firm, felt the pressure of it acutely. He took a long, shaky drag from his cigarette, the cherry glowing angrily in the dim light under his lamp.  He had to get this right. His future, it seemed, hinged on the straightness of a single, damn line.

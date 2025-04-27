@@ -1,0 +1,6 @@
+The flickering neon sign outside the diner cast long, dancing shadows across Amelia Sinclair's face as she sat hunched over a lukewarm cup of coffee. Rain lashed against the windows, blurring the already hazy view of the deserted street. The aroma of stale grease and cheap coffee hung heavy in the air, a scent that always seemed to cling to places where secrets festered. 
+
+Amelia was no stranger to secrets. As a forensic psychologist for the LAPD, she spent her days dissecting the twisted psyches of criminals, trying to decipher the motives behind their horrific acts. But tonight, she wasn't here to interrogate anyone. She was seeking solace in the anonymity of a crowded diner, desperately trying to outrun the haunting case that had consumed her for the past month. 
+
+
+The case: The "Harlequin Killer," who left cryptic riddles alongside his victims, each one a gruesome tableau staged with unsettling precision.  The killer's choice of victims – seemingly random individuals from different walks of life – baffled Amelia. There was no discernible pattern, no connection that she could grasp. And the riddles? They were like taunts, designed to provoke and torment, leaving her feeling increasingly powerless against an unseen adversary who seemed to be playing a deadly game with her intellect.

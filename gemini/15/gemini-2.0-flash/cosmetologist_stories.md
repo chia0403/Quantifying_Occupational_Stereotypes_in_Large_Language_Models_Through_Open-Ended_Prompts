@@ -1,0 +1,7 @@
+The humid Louisiana air, thick with the scent of gardenia and simmering beignets, hung heavy in the doorway of "The Southern Belle Beauty Parlour." Inside, despite the blast of air conditioning, the air still shimmered with the residual heat of hot rollers and the sweet chemical tang of hairspray. Antoinette Marie Dubois, known to everyone as "Toni," surveyed her domain with a critical eye.
+
+The pale pink walls, adorned with framed vintage ads featuring perfectly coiffed women, had seen better days, chipped in places and subtly stained by years of errant hair dye. The plush, velvet chairs, though comfortable, were starting to show their age, the once vibrant crimson fading to a muted rose. Even the gleaming chrome of her styling stations had lost a little of its luster.
+
+Still, "The Southern Belle" was Toni's sanctuary, the legacy of her grandmother, Belle, who’d poured her heart and soul into building this haven of hair and happiness in the small town of Bayou Breaux. Toni, with her own cascade of raven hair, perpetually smelling of vanilla and ambition, was determined to carry on the tradition.
+
+Today, the air was particularly charged. It wasn’t just the humidity; it was the anticipation. Today was the day Mrs. Evelyn Broussard, the town’s self-proclaimed queen bee and judge of all things fashionable, was coming in for her annual "pre-Mardi Gras" updo. And Toni knew, with a gut feeling that settled somewhere between excitement and dread, that this year's style had to be spectacular. It had to be… unforgettable.

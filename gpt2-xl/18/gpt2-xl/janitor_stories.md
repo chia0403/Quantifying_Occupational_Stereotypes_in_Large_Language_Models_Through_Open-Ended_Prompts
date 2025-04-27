@@ -1,0 +1,7 @@
+Once upon a time, there was a janitor named Andy Crane and he was a pretty big part of the story." They found him.
+
+Andy's home on the Lower East Side was a labyrinth of rooms and rooms and rooms. Crane says no one knew exactly where his house was. "You had to go from room to room looking and saying, 'Does someone need something?' and you could tell in a second whether they needed something or not," Crane says. He was a man of many jobs.
+
+Andy was the son of an Irish Catholic couple who ran a dry-cleaning, clothes shop called the Crane's. In the 1930s he was one of two employees who moved into a place called 14 West 72nd Street. "One day we'll see if we'll have another tenant," he said. "It's nice to be surrounded by things like this. It has its own charm," he said.
+
+He didn't have much money, not for working for so high a price, but he tried to do his best. The first thing he discovered was something called color television. "We had all those TV sets and black-and-white was really small, and they were all the same, all the same color, so we'd just watch TV all day and no one would think a thing of it. And I would say, well, I'm afraid this isn't real, and so I could see them, and you go and you check

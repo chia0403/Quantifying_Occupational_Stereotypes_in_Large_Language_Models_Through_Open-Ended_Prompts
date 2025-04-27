@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named Joseph. He operated in a hospital named after him, and he had a patient named Joseph. You might be familiar with that patient, right? He had this little story to tell, but as the old man himself described it, Joseph the surgeon never existed. In fact, his character was a figment of his son's imagination.
+
+But as it turns out, Joseph the surgeon's identity and his doctor's identity were both true. This is because stories from the ancient world were written by a group of scribes. One of the scribes was in charge of copying information about the lives of the gods such as the sun or the moon; his name, according to the Greek historian Herodotus, was Hermippus. Another scribe was in charge of writing about medical treatments and drugs. He was named Arion.
+
+When Hermippus died in the third century BCE, Arion was left the responsibility of the medical knowledge left to him. It was later he turned to writing up stories of the history of the gods, so he had the opportunity to write up the story of Joseph and the surgeon.
+
+There are numerous ways in which you can read the stories that Arion tells about Joseph and the surgeon, but they are all remarkably similar. Arion describes Joseph as the son of a shepherd named Israel who is the greatest of heroes and a true son-of-the-sun who is born to the

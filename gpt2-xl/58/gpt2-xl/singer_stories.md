@@ -1,0 +1,5 @@
+Once upon a time, there was a singer named Amy Winehouse who did not know that writing songs about her boyfriends was part of her act. Now, though, Winehouse sings some songs about her boyfriends and at least one song about herself. The album that was made of her life, Amygdala, is a stunning portrait of a sad, lonely woman who tried desperately to get back on earth, who let herself be dominated by her worst impulses, and ultimately lost all understanding and trust in life.
+
+It's a record that would be just as effective if performed by a pop singer like Kate Nash, who has shown that she can also write deeply introspective songs about death and loss.
+
+The music industry has been slowly changing, but there's still still a long way to go before everyone can write beautifully about their experience. We need more honest depiction of life, not less.

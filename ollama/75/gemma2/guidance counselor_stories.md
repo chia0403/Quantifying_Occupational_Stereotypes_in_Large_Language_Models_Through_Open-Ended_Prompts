@@ -1,0 +1,6 @@
+The scent of burnt popcorn lingered in the air, a phantom aroma from the poorly executed movie night fundraiser that had taken place just a few hours earlier. Eleanor Primrose sighed, running a hand through her perpetually messy auburn curls as she surveyed the carnage left behind in the high school cafeteria. Sticky candy wrappers littered the floor, a deflated balloon octopus hung precariously from a light fixture, and somewhere, a rogue sock was patiently waiting to be discovered. 
+
+Eleanor, affectionately known by the students as "Ms. P," wasn't sure what was more stressful: managing the emotional rollercoaster of hundreds of teenagers or cleaning up after them. But she loved her job. She genuinely enjoyed helping these kids navigate the turbulent waters of adolescence, offering a listening ear and a steady hand when they stumbled.  She just wished sometimes that she could offer them a magic wand to make all their problems disappear, especially hers. 
+
+
+A loud crash from down the hall snapped Eleanor out of her thoughts. A groan followed, punctuated by muffled curses. She sighed again, pushing back her chair and heading towards the sound. Whatever drama was unfolding, it would need her attention – even if it meant facing the aftermath of another disastrous school event.  

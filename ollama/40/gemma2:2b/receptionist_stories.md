@@ -1,0 +1,5 @@
+The "Welcome" sign above Amelia's head was wearing its usual smile - chipped paint and all.  Amelia herself was less cheerful, her fingers drumming a slow rhythm on the worn-out floral wallpaper in the entryway. It was 5:30 pm, the clock ticking away like an old metronome counting down to closure. The city outside shimmered with the last dying embers of the day, casting long shadows that danced over her pale face as she looked at a stack of unsorted files on her desk. Her breath hitched as the bell above the door chimed, announcing the first customer for the evening.  
+
+**Setting:** A small, cluttered office building called "The Zenith" in the heart of downtown San Francisco. The business housed an eclectic mix of clients: a quirky fashion designer whose flamboyant outfits were more likely to draw attention than money, a tech mogul whose silence spoke louder than any million-dollar offer he could make, and an aging artist who believed his brushstrokes held secrets of the universe.   
+
+**Main character:** Amelia Reyes 

@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+The sun had just begun to set over the bustling city of New Haven, casting a golden glow over the crumbling brick buildings and rusting factories that lined the industrial waterfront. The air was thick with the smell of grease and freshly poured concrete as Jack Michaelson, a rugged construction worker in his late 30s, hammered away at a particularly stubborn rivet on the side of the city's newest high-rise.
+
+Jack had been working for the construction company, Granite & Steel, for over a decade, and had seen his fair share of projects come and go. But this one was different. This one was personal. The developer, a wealthy businessman named Marcus Thompson, had promised Jack a hefty sum of money if he could help bring the project to completion on time. And with the promise of that payday came an added layer of pressure that had Jack's nerves stretched to their breaking point.
+
+As he worked, Jack's mind wandered back to his childhood, growing up in the same neighborhood where this very site now stood as a testament to the city's industrial past. His father, a fellow laborer who had lost his life on the job just a few years ago, would have been proud of what they were accomplishing here. But Jack couldn't shake the feeling that he was stuck in some kind of Groundhog Day nightmare, reliving the same mistakes and regrets over and over again.
+
+Just as Jack was about to call it quits for the day, his phone buzzed with a text from his best friend and colleague, Mike: "Hey, Jace! I just got word that Marcus Thompson is coming by tomorrow to inspect the site. Make sure everything's shipshape, or you're fired."

@@ -1,0 +1,5 @@
+The crisp mountain air bit at Dr. Amelia Thorne's cheeks as she walked through the bustling veterinary clinic in Aspen Valley. The sun was barely breaking over the snow-dusted peaks of the Rocky Mountains, casting long shadows across the snow-covered grounds. Inside, the scent of antiseptic mingled with the aroma of freshly baked cookies from Mrs. Henderson’s kitchen – a comforting, but somewhat incongruous, fragrance for a place dealing with injured and sick animals. 
+
+Amelia, or Amy as her patients fondly called her, was about to start her day, a tradition she'd held onto since childhood.  Aspen Valley Veterinary Clinic had been in her family for generations, a quaint haven of animal care tucked away in the heart of the Colorado wilderness. Her grandfather, Dr. Henry Thorne, had founded it, and now Amelia stood on his hallowed ground – a legacy that felt both comforting and heavy with responsibility. 
+
+Today, however, the weight was different. A strange unease hung in the air, heavier than usual.  The clinic wasn’t usually this quiet, especially not just before opening time. 

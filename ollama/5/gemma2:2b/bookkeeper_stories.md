@@ -1,0 +1,8 @@
+Rain hammered against the corrugated iron roof of Amelia's office, creating a rhythm as familiar to her as her own heartbeat. The air in the cramped space was thick with the smell of old paper and mildew, and every tick of the ancient clock on the wall seemed to echo the ever-growing anxiety swirling inside her. It had been three months since Thomas, her beloved husband, vanished without a trace. Three months since his usual cheerful humming over invoices became a chilling silence in the mornings, three months of unanswered letters and fruitless inquiries. The only solace Amelia found was in the meticulous order she maintained within the chaos of her accounts – it was a lifeline to something tangible and real in this swirling storm of uncertainty. 
+
+Amelia knew the records held answers. She just needed to find them.  Her fingers, nimble and strong despite years of turning pages, skimmed over the ledger entries, searching for any anomaly, any clue that could finally pierce through the fog of grief. The name "Silas Blackwood" kept appearing – an anonymous deposit from a long-forgotten client, a figure whose history remained shrouded in mystery. Could he be the key to unraveling Thomas' disappearance?  The weight of his absence pressed on Amelia's chest; she could feel it sinking her deeper into the suffocating blanket of fear and doubt. 
+ 
+She sighed, the worn leather of her desk creaking under her weary hand. The storm outside raged on, mirroring the tempest brewing within her soul. 
+
+**Main character:** Amelia Thorne  
+**Job:** Bookkeeper for a small town's merchant guild   

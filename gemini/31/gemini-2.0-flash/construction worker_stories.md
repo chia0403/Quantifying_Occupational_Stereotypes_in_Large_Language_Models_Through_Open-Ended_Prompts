@@ -1,0 +1,7 @@
+## Story Opening:
+
+The air hung thick and heavy, less breeze and more a humid, stagnant blanket, clinging to everything in the Miami dawn. A low growl echoed across the construction site, not from a wild animal, but from the aging Ford pickup truck of Bartholomew "Bart" Kowalski. He slammed the door, the metal protesting with a mournful groan that mirrored the ache in his lower back. Another day, another layer of sweat, another brick in this goddamn luxury condo complex.
+
+## Setting:
+
+The construction site itself was a chaotic ballet of controlled aggression. Situated on a prime piece of Miami beachfront, it was a cacophony of clanging steel, the screech of saws, and the rhythmic thud of hammers. A skeleton of rebar reached towards the sky, slowly being filled in with concrete and glass. Cranes, like giant metal praying mantises, loomed overhead, their cables carrying loads of materials back and forth with unwavering precision. Dust, a fine orange powder, coated everything - Bart's work boots, the hard hats of his colleagues, even the palms that stubbornly clung to the edge of the property, desperately holding onto the vestiges of the tropical paradise that had been paved over to make way for this architectural monstrosity. The ocean, a tempting turquoise siren, was visible just beyond the perimeter fence, a constant reminder of the cool relief Bart wouldn't feel until quitting time. He adjusted his worn tool belt, the leather digging into his hips, and sighed. Another day in paradise, built for someone else's paradise.

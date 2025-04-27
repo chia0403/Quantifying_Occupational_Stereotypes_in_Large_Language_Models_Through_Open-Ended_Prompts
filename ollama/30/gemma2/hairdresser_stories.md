@@ -1,0 +1,5 @@
+The scent of vanilla and lavender hung heavy in the air, a comforting cocoon against the biting November wind that rattled the windows of "Curl Up & Dye." Amelia Rose Periwinkle, owner and sole operator of this charming little salon tucked away on a cobblestone street in Edinburgh's Old Town, surveyed her work with a critical eye. The morning sun, already slanting low through the frosted panes, cast warm squares across the polished wooden floor, illuminating motes of dust dancing like tiny fireflies. 
+
+Amelia ran a hand through her own unruly auburn curls, tucking stray strands behind her ear. Today was shaping up to be one of those days: the kind where every client seemed to want something different, a kaleidoscope of color and cut requests that challenged even Amelia's seasoned expertise. But she wouldn't have it any other way.  The salon, with its mismatched armchairs, vintage hair dryers humming softly in the corner, and the constant chatter of her clients, was her haven – a place where stories were shared, anxieties were soothed, and transformations, both big and small, were celebrated. 
+
+

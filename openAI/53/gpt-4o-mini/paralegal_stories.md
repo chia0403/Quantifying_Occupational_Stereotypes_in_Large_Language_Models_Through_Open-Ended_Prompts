@@ -1,0 +1,7 @@
+Title: **Fractured Justice**
+
+In the bustling heart of downtown Chicago, where skyscrapers reached for the clouds and the rhythmic hum of taxis echoed through the streets, a small law office nestled between a hip café and a trendy clothing store operated quietly, yet with purpose. Behind the weathered mahogany desk, cluttered with unopened mail and half-finished coffee mugs, sat Charlotte Isabelle Kensington, a diligent paralegal with an eye for detail and a heart that beat for justice.
+
+Charlotte, known to her colleagues as “Charlie,” had tousled auburn hair that fell just above her shoulders, often held back with a simple clip. Her inquisitive green eyes darted over stacks of case files, searching for discrepancies like a hawk hunting for prey. The air was thick with the smell of stale paper and the faint scent of espresso from the café next door, mingling with her relentless determination to make a difference.
+
+Outside, rain poured incessantly, mirroring the doubts that occasionally clouded her mind—a persistent uncertainty about the overwhelming cases of injustice she often encountered. Yet, on this chilly October morning, as droplets trickled down the windowpane, an unexpected email flashed across her computer screen. Its subject line read: "Urgent: Possible Miscarriage of Justice.” With a sense of anticipation creeping in, Charlotte clicked it open, unaware that this moment would pull her into an intricate web of secrets, lies, and a fight for integrity that would test her resolve like never before.

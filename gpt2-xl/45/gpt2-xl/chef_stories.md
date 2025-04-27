@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named Ben Elton. Once upon a time, there was another chef named Elton who was, by all accounts, a great cook and a good cook's cook, a talented, creative, and good-natured chef who taught me a lot, taught my wife a lot, and even taught my son his first job in the kitchen. Now, as of 2012, the latter has passed on into obscurity with a few restaurant openings under her belt. One day—it could be on the off chance that she's still cooking and is in the midst of that process—I would like one last chance to interview Ben Elton.
+
+Why would I do this, you may ask? I came to Atlanta looking for Ben and now I'm leaving as a happy and proud, food-inspired person.
+
+I've come to the conclusion that the first step in any mission to prove that I'm right about Atlanta is to put me on the spot and ask Ben Elton to answer one question. Why? I figure it'd work out more to ask someone who knows about the city than someone who has never been to it (or, in this case, someone who has been to it, only briefly, in fact.)
+
+I have been given a great gift to ask this question of. My girlfriend, Jen (she's here for these purposes), works as a chef that Ben Elton trains, and she works there right now.

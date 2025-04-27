@@ -1,0 +1,7 @@
+Once upon a time, there was a auto mechanic named Frank, whom a man named Tony brought to my auto shop. You guessed it, Tony was a homosexual.
+
+After some initial success (Tony and his wife were having a child) and a wedding reception, Tony left the business for good. I was very upset about this, but I made a resolution that I would never see Tony again. He had left the business and had become the scapegoat for all my troubles. I took this resolution very seriously and did everything in my power to make sure that Tony never came back. This was not an easy feat because Tony enjoyed doing things the way other people did and I, being the kind of person I was, was not ready to change his ways.
+
+When I first met Tony there were a half dozen cars in the shop. In this large shop, there was hardly any space for the auto mechanics to work. I had a large area that was divided in three sections for employees and I used that to house people my mechanic would hire. From the second floor where there was a lot of space, there was a separate bathroom and two floors above that, on the third floor, there were a little rooms as well as the big room in which Tony slept. Everything about this place was geared for convenience and efficiency. It suited Tony.
+
+The one thing about the auto business that made us a little different from the rest is that we did a lot more things not only at

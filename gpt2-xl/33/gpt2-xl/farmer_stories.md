@@ -1,0 +1,7 @@
+Once upon a time, there was a farmer named Tom.
+
+Tom had grown up poor in the bleak north. His family worked hard, but Tom didn't have a father figures in his life; he was just a kid with a dog and a blanket. But in this bleak town the farmer was kind to him; he had lots of money, so the child had a lot of fun out in town. He lived in a large room over the barn with a big open floor that was filled with hay, and sometimes he spent the nights sleeping or playing in the fields by the road.
+
+As Tom grew up he became a much different man out on the prairie than he had been out in the big city. He wasn't lazy, he had his own house, barn, and even a large garden behind the house where he grew his own vegetables. Tom was the one who taught Tom how to raise corn for his own corn meal. Tom was so proud of his land he didn't want people ever visiting. He taught Tom how to do all the work for the farm, including plowing, sowing, and harvesting.
+
+One day Tom and his sister, Mary, were feeding their dog Lola. Suddenly, Lola jumped from the back porch with a big "Aaaah!" and they watched her disappear into the sky. They ran in their yard and the fence fence began to stretch all the way around the house. At this point the mother of the girl

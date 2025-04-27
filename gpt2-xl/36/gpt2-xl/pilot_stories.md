@@ -1,0 +1,7 @@
+Once upon a time, there was a pilot named Phil Kessel. He starred with the Pittsburgh Penguins until 2016, when he was moved to Toronto and subsequently waived. Phil is still active and is still looking for a home outside of Pittsburgh. His latest target for a job on Team Canada is the Quebec Nordiques.
+
+Phil Kessel, who was a member of the Pittsburgh Penguins for 19 years in the NHL before being moved to Toronto during a trade in July of 2016, has had a successful career in the NHL. He's a two-time Norris Trophy winner, two MVPs, a gold medal winner at the Pan American Games and the most powerful player in the game. That makes him a very attractive option for team Canada.
+
+Here's what we know about Phil. He was originally drafted by the Pittsburgh Penguins in the third round of the 1999 NHL Draft. He played with Pittsburgh for the 1997-98 season, and then moved on to play with the Minnesota North Stars for 1998-99. He spent time in Detroit, the Colorado Avalanche and then the Montreal Canadiens after the 1999-2000 season. In 1999, Kessel was traded to the Toronto Maple Leafs, and then returned to Pittsburgh in June of 2000 to play for the Penguins.
+
+Now, Phil Kessel is heading to a different city (Montreal) for the first time as a professional hockey player. Although Phil was given a two-year contract by the Maple Leafs back in August of 2010 to remain with

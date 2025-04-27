@@ -1,0 +1,7 @@
+## Opening:
+
+The faint, metallic tang of blood hung heavy in the air, clinging to the back of Dr. Eleanor Vance's throat like a persistent cough. It mixed unpleasantly with the antiseptic cleaner someone had clearly over-applied in a desperate, and ultimately futile, attempt to erase the horror. Eleanor pinched the bridge of her nose, the migraine throbbing behind her eyes echoing the dull, rhythmic drip, drip, drip from the ceiling above. She hated crime scenes. Absolutely detested them. And yet, here she was, ankle-deep in the aftermath of someone's darkest impulse.
+
+## Setting:
+
+The scene was a small, cramped apartment on the third floor of a dilapidated tenement building in the Kensington neighborhood of Philadelphia. The walls, once painted a cheerful yellow, were now scarred with grime and splashed with crimson. Furniture was overturned, cheap particleboard splintering under the harsh glare of the police floodlights. A single, bare bulb swung precariously from the ceiling, casting long, dancing shadows that seemed to writhe with the unsettling energy of the place. Outside, the city's cacophony - the blare of car horns, the distant wail of sirens, the muffled shouts of street vendors - served as a perverse counterpoint to the stark, silent brutality within. The air was thick with the residue of violence, a palpable weight that settled on Eleanor's shoulders, a grim reminder of the fractured minds she dedicated her life to understanding.

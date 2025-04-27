@@ -1,0 +1,7 @@
+**Opening:**
+
+The clinking of ice against glass, a sound Amelia "Millie" Rosaline Davies knew better than her own heartbeat, was momentarily swallowed by the roar erupting from the far corner of The Serpent’s Coil. A pool cue had snapped, sending splinters of ash into the air, and a voice, thick with whiskey and frustration, was bellowing about cheating. Millie sighed, wiping down the sticky residue of a long-forgotten cocktail from the worn mahogany surface. Another Friday night in paradise.
+
+**Setting:**
+
+The Serpent's Coil was the kind of place that time forgot, or perhaps deliberately avoided. Tucked away on a cobbled alley in the heart of Oakhaven, Maine, its weathered sign, depicting a serpent wrapped around a coiled rope, was barely visible beneath a tangle of ivy. Inside, the air hung thick with the scent of stale beer, salt spray, and the lingering ghost of pipe tobacco. The walls, painted a long-faded crimson, were adorned with nautical charts, fishing trophies, and photographs of grizzled fishermen clutching their catch. Dim, amber-hued lamps cast long shadows, highlighting the deep grooves etched into the bar’s surface by countless elbows and spilled drinks. It was a place where secrets were whispered, deals were struck, and broken hearts sought solace in the bottom of a glass. The kind of place, Millie sometimes thought, that chewed you up and spat you out, a little bit tougher, a little bit sadder, and definitely a little bit more… resigned.

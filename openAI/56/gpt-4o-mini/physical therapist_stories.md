@@ -1,0 +1,11 @@
+**Setting: A small coastal town named Mariner's Cove, known for its rugged cliffs and sparkling blue waters. The salty air is filled with the scent of pine and ocean, where the sound of waves crashing against the shore provides a constant, soothing backdrop. The town's main street is lined with charming shops and cafés, and the heart of the community is a cozy rehabilitation center positioned just a block away from the beach, with large windows that overlook the sea.**
+
+**Opening:**
+
+Dr. Ella Harper stood at the large glass window of the Mariner's Cove Rehabilitation Center, watching the foamy waves crash against the cliffs. The sun dipped lower in the sky, casting a golden glow over the water, and for a moment, she allowed herself to be captivated by the beauty outside. With a deep breath, she turned her attention back to the bustling center behind her—a space filled with the warm hum of conversation, the soft clinks of therapy equipment, and the resilience of her patients.
+
+Ella was known around town not just for her skills as a physical therapist but for her ability to inspire hope in even the toughest cases. With her bright red hair pulled back into a neat bun and her scrubs splashed with the colorful patterns of the ocean, she moved with purpose through the room. Today felt different, charged with the anticipation of a new patient—a local fisherman who had suffered a serious back injury. 
+
+As she prepared for his arrival, Ella stole a glance at the wall-mounted clock. It was nearly time for her first session with him, and while she often greeted each day with determination, today she also felt a flutter of excitement. 
+
+This was more than just a job; it was her mission to help others reclaim their lives, just as she once fought to reclaim her own after a devastating car accident years ago. She rolled her shoulders back, a determined glint in her hazel eyes. Today she would do everything she could to remind her new patient that every setback held the potential for a remarkable comeback.

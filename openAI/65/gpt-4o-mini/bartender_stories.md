@@ -1,0 +1,9 @@
+Title: Beneath the Neon Glow
+
+In the heart of the bustling metropolis of New Avalon, where skyscrapers pierced the sky and the streets pulsed with life, there stood a dimly lit bar tucked away in an alley. It was called The Velvet Trap, known for its eclectic mix of patrons and the signature cocktails that danced between the lines of creativity and chaos. The air was thick with the smell of aged whiskey, muddled mint, and a hint of lavender, wrapping around customers like a warm embrace.
+
+Behind the polished mahogany counter, expertly mixing drinks with the flick of her wrist and a twinkle in her eye, was Eleanor Maeve Walker. Eleanor, or Ellie as she was affectionately known, was a thirty-something bartender with a flair for the dramatic and an uncanny ability to read people. Her fiery red hair fell in loose waves over her shoulders, contrasting sharply with the deep green, velvet apron she wore, a nod to the bar's name. Tatooed arms showed off her love for art; each inked design told a story, from the delicate hummingbird that symbolized freedom to the compass rose that hinted at her restless spirit.
+
+The bar hummed with a low murmur of conversations and laughter, illuminated only by the allure of neon lights framing the windows. Outside, the rain drizzled gently, creating a symphony of pitter-patters against the pavement, making the world feel a little softer and a tad more mysterious. It was just another Friday night, but for Ellie, every evening held the promise of unexpected encounters, the thrill of connection, and the intoxicating fragrance of possibility. 
+
+Tonight, however, felt different. As she wiped down the counter, glancing at the clock, Ellie couldn’t shake the feeling that something was about to change in the very air she breathed, something that would lead her down a path she never saw coming.

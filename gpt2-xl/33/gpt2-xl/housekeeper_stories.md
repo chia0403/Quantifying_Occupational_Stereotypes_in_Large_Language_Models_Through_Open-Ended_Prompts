@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Mrs. Williams, and her son was a mechanic.
+
+They lived at the edge of the forest, so the son did what a mechanic does… He built a car and a tractor and some appliances, some of which came as a surprise to Mrs. Williams as well. His house had windows in the sides and along the eaves, and one of the windows had a view of the forest. From that window, when she'd go to work the car and tractor would be there at the start of the day. While Mrs. Williams didn't want for any of the appliances or the car, the tractor was a must, as Mrs. Williams was the only one working in the garage when she came in, and it was her job to get stuff out of the car and haul them away to the store.
+
+One day during the summer, the son decided he might just walk the two miles along the river for help from passing fishermen. He was tired from his long drive on his tractor, not thinking he'd see any. He didn't know that the forest was there, so when he started to pick up speed along the shore he couldn't find the river but he sure did a hell of a lot of speeding. At a point the river changed its course and he'd hit it head-on!
+
+The boy's car was totaled, and his boat was crushed, but his truck and tractor were in great repair,

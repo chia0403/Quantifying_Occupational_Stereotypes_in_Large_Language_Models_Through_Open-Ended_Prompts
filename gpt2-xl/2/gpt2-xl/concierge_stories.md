@@ -1,0 +1,7 @@
+Once upon a time, there was a concierge named Harry. Harry, not Harry, worked the building's concierge desk—and in many ways the man has been a big part of the success of the Square. "If you look at this place, you can look at it from three different perspectives," says David Bracciale, the Square's senior vice president of marketing. "And the first is from the concierge, the second is from the customer, and the third is from Square itself—we are all customers, we all have a story."
+
+With Harry, Bracciale realized he had a way to connect with all three sides of the restaurant. He put Harry up for a secondment at the Square. In exchange, Bracciale would train staff at the square on how to interact with customers, and when he returned to his own restaurant, he would train his staff. (Harry has since graduated.)
+
+Today, Harry is part of that staff, and he does more than help staff make the right decisions: Harry also teaches himself everything he knows about restaurant management. In the summer, he teaches a course—in the spring semester—on concierge services. For three weeks a month, he teaches both employees and customers how to take charge of their own concierge services.
+
+Today, restaurants like Braciale's are among the most savvy operators of the Square. Today, a handful of the Square

@@ -1,0 +1,9 @@
+**Story Opening and Setting:**
+
+In the dim light of a dying autumn afternoon, the city of Willow Creek lay shrouded in a cloak of fog, the kind that seemed to swallow sound and soften edges. The last leaves clung desperately to their branches, reluctant to let go as winter's chill approached. Streetlights flickered to life, casting long shadows that danced along the cracked sidewalks of Maple Avenue, a once-vibrant thoroughfare now marked by neglect.
+
+Officer Amelia Jane Harrington stood at the corner of Maple and Fifth, her breath clouding in the crisp air. She adjusted the collar of her navy blue uniform, a badge pinned honorably over her heart, and surveyed the scene before her. It was just past four o'clock, and the whispers of hurried footsteps echoed around her as commuters hurried home, oblivious to the tension that hung like a thick fog over the district.
+
+Earlier that afternoon, a frantic call had come through—one that would change the course of her day. A body had been discovered in Aldridge Park, a local hangout for teenagers, frequently overlooked by the officers strolling the beat. Biting her lip, Officer Harrington took a deep breath and reminded herself of her purpose. She was not just a cop; she was a protector, a guardian of this town's safety, and today, that meant digging deeper into the shadows of Willow Creek.
+
+As she strode toward the park, a sense of foreboding settled over her. Each step felt weighted with unasked questions—who, how, why? But Amelia Jane Harrington was ready for whatever the day might bring. Little did she know, the answers she sought would unravel truths deeper than the fog itself.

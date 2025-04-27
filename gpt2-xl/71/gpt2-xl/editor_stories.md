@@ -1,0 +1,1 @@
+Once upon a time, there was a editor named Mike Johnston who produced the early days of The Onion. He has since moved on, and this site, which is now known as The Onion, will be running one last edition. The Onion is still going strong.

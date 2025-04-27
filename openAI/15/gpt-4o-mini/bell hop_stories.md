@@ -1,0 +1,9 @@
+**Title: The Echoes of Bellview Hotel**
+
+The evening sun dipped behind the horizon, casting long shadows across the cobblestone streets of Old Town. The air was thick with the scent of impending rain as a cool breeze rustled the leaves of the ancient oak trees lining the square. Standing resolutely outside the grand entrance of Bellview Hotel, its ornate façade twinkling with the last rays of sunlight, was Oliver Finnigan, the hotel’s youngest bellhop.
+
+At just twenty-one years old, Oliver wore his crisp, navy uniform with pride—the brass buttons gleaming like polished gold against the deep color of his coat. His dark hair was combed neatly to the side, and his green eyes sparkled with a mix of determination and youthful curiosity. It was his first week on the job, and the thrill of being part of the bustling life within the storied walls of Bellview had yet to wear off.
+
+Behind the polished double doors, an eclectic mix of guests moved through the marble lobby, their laughter and chatter mingling with the sound of a grand piano softly playing in the corner. Oliver inhaled the familiar scent of polished wood and lavender from the fresh bouquets adorning the reception desk. He was eager to prove himself, eager to learn the secrets hidden within the hotel’s rich history.
+
+As the evening deepened, the first drops of rain began to splatter against the cobblestones, marking the start of what Oliver hoped would be a night filled with adventure and perhaps the first inkling of the magic that old buildings whispered to those willing to listen. Little did he know, the night would unfold in unexpected ways, guiding him deeper into the pulse of Bellview Hotel—and revealing mysteries that had long been behind its elegant walls.

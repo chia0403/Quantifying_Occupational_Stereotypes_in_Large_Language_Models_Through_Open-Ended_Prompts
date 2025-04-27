@@ -1,0 +1,7 @@
+Rain lashed against the windows of the cramped gym, each drop echoing like a hammer blow on its metal frame.  Inside, Amelia "The Hammer" Hartley paced behind a makeshift net, her brow furrowed as she surveyed the scene before her. 18-year-old Jake Thompson, slumped in his chair with arms crossed and a defiant scowl, was clearly not enjoying the spectacle. 
+
+Jake's team, The Stallions, were notorious for their fiery temperament –  a clash of personalities that often overshadowed their raw talent on the court. Amelia, despite her nickname reflecting her own tough-love coaching style, yearned to see them rise above the chaos, to transcend the "Storm" they seemed perpetually stuck in. Jake's father had called it "unruly," a term his mother simply described as "passion." 
+
+The setting was a makeshift gym on the outskirts of New York City –  a gritty concrete space with peeling paint and worn-down bleachers, where countless forgotten dreams were nurtured and then left behind. A single fluorescent bulb hung precariously from wires, casting an anemic glow over Amelia's weary face as she looked at Jake. He was a natural athlete, blessed with raw talent in his dribbling and quick feet. But something held him back, something that seemed to amplify the internal storm brewing within him. 
+
+As Amelia watched him, her eyes narrowed, a voice echoed from her mind – "It’s time for a new approach." She took a deep breath, gathering herself before speaking.  “Let's talk strategy.” 

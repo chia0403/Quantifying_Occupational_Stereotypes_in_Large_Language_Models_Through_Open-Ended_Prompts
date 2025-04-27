@@ -1,0 +1,7 @@
+Once upon a time, there was a highway worker named Dan. He'd spent his time cutting and prying asphalt, and it turns out that asphalt is really tough material. So if you cut it with a saw, the bit of asphalt will keep trying to snap away! Then why are they only made by a company called IKEA?
+
+To answer that one, let's take a trip to Denmark. Here's what you'll see when you get there. Dan's got a job working for a company called Linc, and the company only makes what they call "binder stock." That's a fancy word for, well, binder paper. So when they cut a bundle of binder stock into a shape, they don't cut the entire stock — just the parts to be glued together.
+
+Now, in order to glue some pieces together, you need a couple of things. First, you'll need a binder that will stick to something. And that's what the Linc brand is all about. The other thing you'll need is a stick that'll be placed in a groove that will form the glue joint, and that's what IKEA brand is all about, too.
+
+So it turns out that Dan's got a really hard time making anything in this world. In spite of his best efforts, it turns out that the binder is too hard and hardy for his machine, and a few of his bits (the one with

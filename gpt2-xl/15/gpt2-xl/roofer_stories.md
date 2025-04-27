@@ -1,0 +1,7 @@
+Once upon a time, there was a roofer named Paul that had a dream in which he wanted to raise the roof. He wanted to see if he could raise the roof while standing on his head. Paul's partner Paul saw the dream and said "You've got the formula for success. You'll be doing fine. You just have to follow the dream".
+
+Today, I live by the principle of following the dream. I follow whatever I like in life the way I want to. It's all relative. Some people really like chocolate and you get them to eat it with chocolate and you're doing great. Others don't like chocolate and you get them to eat it with chicken. It all depends on your preferences. I'm into all types of food. We've lived that way for years now and we feel great about ourselves.
+
+I have some crazy things I do. My girlfriend hates me today. Yesterday we got into a spat. I didn't know that was going to happen. It seems the more you do something, the more others see you do it, the more they start to hate you. I think the more outré you become, the more people will hate you. But we just finished filming a television show together and I'm so proud of him and the show and we love each other. There are some things in life you can't control. If you let all these things be, you aren't living your life.
+
+What advice do you

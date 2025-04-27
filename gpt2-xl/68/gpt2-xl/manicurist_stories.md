@@ -1,0 +1,7 @@
+Once upon a time, there was a manicurist named Rose. She worked in a small salon on the outskirts of New York City, and after taking out a second mortgage to buy a small plot of land, she began producing manicures every day at eight. She had spent years dreaming about what beauty could be and what her life could be, and she soon established herself as a local legend at the salon, but one day the world decided it had had enough of her. Rose lost her salon, her life, and her business. She lost her mind.
+
+It began with a terrible accident. With her sister, Beth, she had learned to do facials as a hobby, but in their late teens she moved them into a tiny, one-bedroom apartment with their parents and set up four machines on one side of the room, each equipped with a high-pressure jet of water that rose to a pressure of 100 tons per square inch — and made people very ill. (They had to move out of the apartment after a few weeks.)
+
+A few years later, a friend from college approached Rose wanting to try her manicure. She was the only professional who knew the exact temperature of the water that would go in the machine, which they had discovered through trial and error.
+
+"The problem was that it would dry up at the lower temperature and then when I'd dry I'd have to take off the top layer so it wouldn't dry the rest of the

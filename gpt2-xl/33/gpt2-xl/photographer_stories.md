@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Jim Smith. Now, he has a family of his own, and he has moved forward with the goal of being able to share a piece of his past life with all of you. Jim wrote a book, The Man Who Shot That Video: The True Stories Behind The Famous Photos, which was just released on April 28, 2017. You can download it on Amazon Kindle, you can buy it, or you can download it for free and give it away to your friends - just please go to www.jimsmithsphotographyshop.com after you buy it.
+
+Jim is a photographer, and his work is in various publications. Below is where you can find him. To download an article about him, you can go here. Or if you're a fan of Jim's work here is an article about the man.
+
+And for those that might be interested in purchasing a book based on his book, you can go here. Just a simple search will bring you up all of the different book options. If you are looking for something in particular that Jim is selling, you can go here to search and you'll see what kind of book he has available for purchase.
+
+If you would like for Jim to create a print of one of your favorite photos, either for you or for a special someone, he provides them in an article: The Custom Print For Your Photo by Jim Smith. Please click this link to download

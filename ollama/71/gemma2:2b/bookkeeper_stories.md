@@ -1,0 +1,5 @@
+Rain lashed against the bakery window, blurring the pastel-colored icing swirls of the shop's displays into impressionistic blobs. Inside, Evelyn "Evie" Sterling hunched over her ledger, the scent of cinnamon and warm bread clinging to the air like an unwelcome hug. Her fingers hovered above the worn keys, each tap sending a tremor through her already shaky hands. For weeks now, she'd been drowning in unpaid bills, the weight of Mrs. Fitzwilliam's late payment suffocating like an overstuffed pie tin. 
+
+Evelyn was no stranger to stress, but this latest tangle of invoices and overdue receipts felt different. It wasn't just the mounting pressure that had her hands clenching; it was a gnawing feeling that something deeper - something bigger - was at play.  
+
+The storm outside mirrored the unease bubbling in her stomach. Evelyn glanced across the room, her eyes lingering on the dusty old clock ticking away its own silent symphony of dread.  Today, Mrs. Fitzwilliam would be arriving, and with her would come a wave of anxiety that threatened to wash away any semblance of calm. 

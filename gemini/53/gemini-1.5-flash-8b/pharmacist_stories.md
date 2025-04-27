@@ -1,0 +1,6 @@
+The fluorescent hum of the pharmacy, a low, insistent thrum that usually soothed Amelia Harding, grated on her nerves tonight.  The air, thick with the scent of antiseptic and lingering vanilla from the iced coffee she'd been forced to consume to keep her eyes open, felt suffocating.  Outside, the city, normally a restless symphony of car horns and distant sirens, was unusually silent.  A thick, unsettling hush had settled over the usually vibrant streets of Oakhaven.
+
+Amelia, a pharmacist with a penchant for meticulously organized pill bottles and a soul that yearned for quiet contemplation, found herself staring at the rows of neatly arranged medications.  Each vial, each blister pack, a tiny, silent promise.  Promises she now felt deeply skeptical of. It was past midnight, and the only other customer in the store was a shadowy figure hunched over the cough syrup aisle, their face obscured in the gloom. The air itself seemed to hold its breath, a premonition of something unsettling.
+
+
+Amelia Harding, owner and sole pharmacist of the "Apothecary's Haven" on Oakhaven's quiet, tree-lined Main Street,  was deeply aware of the weight of responsibility.  Tonight felt different.  Something was off.  More than just the eerie stillness that had fallen over the town.  It felt... wrong.

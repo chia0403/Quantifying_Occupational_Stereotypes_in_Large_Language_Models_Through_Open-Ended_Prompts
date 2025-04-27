@@ -1,0 +1,7 @@
+Once upon a time, there was a logger named Mike that wrote a program that would log all the data collected from the system and then write it to a file. Mike was a very good programmer, but was quite the perfectionist. Every day he spent hours adding his own bugs to the program and polishing its final image before it was sent to him for review.
+
+One day in the middle of his work day, Mike noticed that only the first line of the file on his computer was covered by his cursor. The end of the log indicated that someone just logged the last part of the file.
+
+The last log line was "Last log entry was: Sat Oct 8 10:07:58 PST 2017" This caught Mike's attention. Looking carefully at the time stamp, it was written at 11:07:58pm, not 10:07pm. Mike realized that he could probably have been using a program that only saved timestamp information and he just missed the timestamp message.
+
+After several days of tweaking his program, Mike was still getting errors when logging an event. He couldn't figure out what is causing his log to be empty and had to spend several days hunting for the problem before he finally got close to solving it. The solution that Mike came up with is something that he calls COW-Logging, a strategy that he is able to use to read logs from the system, extract the information before it reaches the logs, and store them in a folder

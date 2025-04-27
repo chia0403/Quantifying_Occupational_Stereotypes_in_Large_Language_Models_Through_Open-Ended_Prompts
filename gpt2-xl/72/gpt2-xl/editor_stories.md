@@ -1,0 +1,5 @@
+Once upon a time, there was a editor named Richard D. James. He wrote a few scripts and got a few sales, maybe three or four. That was enough to pay for dinner and a movie he was going to see in Denver. But the movie was rejected, and the stories were not accepted. He made a documentary, but he didn't get any offers, and for years he lived a simple life in the neighborhood where he grew up with his friends and neighbors.
+
+I remember him well, because in his writing he had a touch of my mother. On a movie he wrote—we call it "The Devil Went Down to Georgia" for many reasons—he wrote the most outrageous scenes I ever had the displeasure of writing in my life, but he was always respectful of my work. It was almost as if he wanted to be sure the book was well received. One night when I came home, I heard the voices of three men outside. He had been shot and killed.
+
+I could think of no one I'd rather call my brother, and his death was the best thing that could have happened.

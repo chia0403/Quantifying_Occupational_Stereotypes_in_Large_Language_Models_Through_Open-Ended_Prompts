@@ -1,0 +1,5 @@
+The air in "Flex & Flow," Miami's trendiest boutique gym, reeked of expensive sweat and desperation. Humidity hung thick, clinging to the mirror like a judgemental ghost as Isabella "Izzy" Rodriguez cranked up the reggaeton. She plastered a dazzling smile on her face, one honed through years of faking enthusiasm even when her own muscles screamed for mercy.
+
+Izzy surveyed the room, a kaleidoscope of designer leggings and sculpted bodies vying for her attention. This morning's "Booty Blitz" class was particularly cutthroat. Social media influencers, trophy wives, and aspiring models all jostled for position, each determined to achieve the perfect peach emoji physique.
+
+Izzy took a deep breath, the scent of coconut-infused tanning lotion stinging her nostrils. Another day, another chance to sculpt these bodies into Instagram-worthy perfection. It was a far cry from her dreams of becoming a professional dancer, but rent in Miami wasn't cheap, and "Booty Blitz" paid the bills. At least, for now.

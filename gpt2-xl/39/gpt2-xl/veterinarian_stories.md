@@ -1,0 +1,7 @@
+Once upon a time, there was a veterinarian named Dr. Seuss. This was not a veterinarian who had to be a dentist, a physician, a veterinarian, or a veterinarian and a dentist at the same time. Dr. Seuss was not a veterinarian, but, rather, a cartoon character.
+
+Dr. Seuss, like all of us, had his faults and his virtues, but he was never really meant to be anything more than a great idea of what the world would look like if there were such humans as we. The rest of the story is a string of hilarious puns, parodies, and metaphors that have become part of what people mean by "Seuss books."
+
+We have collected, and will continue to collect, the Dr. Seuss books that have made the bestseller list for the last 45 years in a single list. It will include books by different publishers, which all have significant Dr. Seuss influences. Our goal is to make this a definitive list of Dr. Seuss books for anyone who likes the series, and for anyone who may have some idea where the characters are from.
+
+We will be continually updating the list with new book releases. To find every book on our list, scroll down below this text, and use our search bar to find the book you want. Alternatively, you can click on the links and see the books that are available. You can also check out the list of all "Bestselling Dr.

@@ -1,0 +1,6 @@
+Once upon a time, there was a plumber named John Deere. He would go into his shop, and his boss would say, 'John, you've got an assignment for tomorrow. And there's a little boy you don't know, and, I don't know, he may be a little boy who needs help.'... So John would be at work and at home and he would hear his wife in the next room, 'Come, baby, sit up in your mommy's lap; there's Uncle John in there.'" "He would never go in at night, because the kids weren't there, and I'm sure he'd go, 'You sons of bitches, leave me alone' … Then one day, his wife called this child, and he ran into the house, and he opened the door and was looking across at the toilet, and he saw this little boy, and he knew that the boy was John Deere.... When he was done with work, he got a bus, or a cab, for himself and John Deere.... And he'd say, 'So John, what have you got to do, boy?... You need to go to bed. Come in and sleep beside me.'"
+
+
+– Robert Benchley, "A Life of John Deere," published in "A Place Called Home", 1987, pp. 32-33. See more details at www.johndeere.com
+
+The following passage from Robert

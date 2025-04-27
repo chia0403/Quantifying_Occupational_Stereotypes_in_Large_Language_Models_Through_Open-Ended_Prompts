@@ -1,0 +1,7 @@
+The biting wind whipped at the cab of the eighteen-wheeler, a relentless, icy claw tearing at Elias Thorne's worn leather jacket.  He hunched deeper into the driver's seat, the familiar symphony of the engine a muted comfort against the howling blizzard.  The Alaskan highway stretched out before him, a ribbon of white swallowed by a sky the colour of bruised plums.  He gripped the steering wheel, knuckles white, and watched the thermometer needle plummet further into the minus figures.  His destination:  the remote outpost of Glacier Junction, a place swallowed by the relentless expanse of the Alaskan wilderness.  Delivery time: critical.
+
+
+The year is 2024.  Elias, a veteran trucker with calloused hands and eyes that held the wisdom of countless miles and long, lonely nights, knew the treacherous beauty of the Alaskan highway like the lines on his own weathered face.  This particular trip, however, felt different.  It was more than just delivering a shipment of specialized medical equipment to a clinic in a remote town.  There was a palpable sense of urgency, a weight in the air, almost as heavy as the snow that blanketed everything around him.
+
+
+The rhythmic thump-thump of the engine, the swirling snow, and the distant howl of the wind were the only sounds Elias allowed to penetrate the deep silence of his thoughts.  A silence that was more profound than usual, filled with a creeping unease, a feeling he couldn't quite grasp or name.

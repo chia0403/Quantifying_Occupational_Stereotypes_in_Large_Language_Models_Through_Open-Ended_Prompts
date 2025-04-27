@@ -1,0 +1,7 @@
+## Story Opening:
+
+The biting wind whipped across the skeletal framework of the thirty-story tower, stinging Theodore 'Teddy' Kovacs' cheeks despite the layers of grime and stubble he wore like a second skin. Up here, perched precariously on a steel beam, the city spread beneath him like a glittering, chaotic carpet. A million tiny lives scurrying, oblivious to the man breathing the thin, frigid air above them, tightening bolts with numb fingers. He tightened another, the familiar click a comforting rhythm against the howling wind, a rhythm he'd known since he was barely bigger than the spanners he now wielded. Another bolt, another few square inches closer to completion. Another day closer to getting the hell off this iron graveyard and back to the warmth of his own four walls.
+
+## Setting:
+
+The story opens on the unfinished top floors of the "Horizon Tower," a massive, modern skyscraper being erected in the rapidly gentrifying "Ironclad District" of Detroit, Michigan, in late November. The structure is currently a raw, unfinished web of steel and concrete, exposed to the elements and lacking exterior walls or windows on the upper floors. The Ironclad District itself is a study in contrasts: gleaming new condos and artisanal coffee shops pushing against the gritty backdrop of aging brick factories and abandoned warehouses. The Tower, when completed, is intended to be the flagship building of this new, polished Detroit, a symbol of its revitalization.

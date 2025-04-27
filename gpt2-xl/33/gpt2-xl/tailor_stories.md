@@ -1,0 +1,7 @@
+Once upon a time, there was a tailor named Biff, from San Francisco, but he only made hats and shoes. I guess he liked his money too much to wear hats and shoes. The other day, he came into our shop, and he had some money in his pocket, and said 'If those big boys who work in the store don't want to make shoes and hats for me, they should hire an immigrant for that.' So my assistant said to me 'Go down to Biff and make some hats for him.' And I went down to Biff." – "The Autobiography of Malcolm X". A short biography that was written by Martin Luther King Jr., it was published in 1967
+
+The most famous song in the Negro spirituals came out in 1957, when The Beatles recorded 'Can You Show Me Love,' but The Black Panther Party was founded in 1960. The song hit #2 in America on the Pop charts and became the unofficial anthem of the Black Power Movement.
+
+Another song that has always resonated with me is 'We Do It, We Do It.' It is from a song by the King sisters, who were also part of the Negro spirituals movement and sang it after the 9-11 terrorist event.
+
+Both the Beatles and The King sisters recorded the song. John Lennon was later arrested for conspiracy to interfere with commerce. It is a very important song that resonated in the 60s for me. It reminded all of us

@@ -1,0 +1,5 @@
+Rain lashed against the skylight, blurring the vibrant city lights into streaks of watercolour on the studio's worn canvas walls. Inside, the air hung heavy with the scent of jasmine hair oil and forgotten dreams. 
+
+This was Amelia Rose Blackwood's haven – "The Painted Peacock," a quaint salon nestled in a quiet corner of Northside.  Amelia, her short, auburn curls bouncing as she adjusted her thick-rimmed glasses, gazed at the storm through an arched window, the city’s symphony of rain and traffic a familiar lullaby. 
+
+Her hands – long, slender fingers stained with years of colour and careful touch - gently massaged a stressed-out client's scalp before beginning on her signature rosewater and almond oil treatment. It was always quietest during this time, the storm raging outside mirroring the tumult within Amelia's own heart. She wasn’t just battling the elements; she was fighting against an unspoken truth – one that whispered in the corners of her mind about a past she had tried so desperately to bury under layers of shimmering hair dyes and floral perfume.  

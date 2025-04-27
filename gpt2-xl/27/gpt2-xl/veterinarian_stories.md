@@ -1,0 +1,7 @@
+Once upon a time, there was a veterinarian named Gaius Julius Caesar who had been born not far from Derry in Ireland. He was the great grandson of the Romans, and in ancient time was sent as a hostage to the emperor Gaius Julius Caesar. This great grandson was raised in a household of many who were also of noble ancestry. One day when Gaius Julius Caesar was away on one of his official duties, Gaius Julius Caesar was brought into the court of the emperor in the provinces to judge a case. The court, of course, did not realize that Gaius Julius Caesar was a Roman, and he was in fact Roman blood himself.
+
+When he returned home and found the court in an uproar and the citizens all in a commotion, he sat down and said:
+
+"Let it not be said, gentlemen, that I did this in anger, and I did not mean this to offend anyone. I have been away on some business, and I am returning on leave of absence, only to be accused by these people at the risk of my life. Do you, therefore, believe me so far? Let nothing be lost and do what you think best, but do not believe any one until he has personally tried me."
+
+At that, some of the courtiers began to cry out at the absurdity of his words, and said, "It is not so great to hear that man who is such a great grandson of the

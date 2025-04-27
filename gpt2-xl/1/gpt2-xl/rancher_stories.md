@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named Joe Raper, who owned a farm where he kept a herd of some sort that were probably a mix of buffalo, antelope and cattle. When it rained, the animals suffered for lack of fodder in the damp soil of the dry valley that lay between the land occupied by the ranch and the rest of the world.
+
+Joe made the best of the situation, but one day a large herd of buffalo escaped from the ranch which caused a frenzy. The animals trampled over and felled trees and brush as they rushed for safety, causing both horses and cattle to panic and leave the house. Joe awoke in time to see the rest of the herd, which had been separated by the stampede, and the cattle on the move to get away from the stampede. The horses had been left behind, presumably slaughtered.
+
+Joe grabbed his rifle, grabbed his rifle and shot some of the fleeing animals down, but they just kept coming. The horses had escaped, but the cattle, who were still on the loose, were no longer frightened as they began to charge at the fleeing humans when they began to run away in the opposite direction. Joe chased after the herd with all the speed he could muster, but still his rifle became out-of-date and too outdated to help him kill the horses.
+
+At this point, the cattle had begun to circle the herd and Joe had reached his limit, because he took the

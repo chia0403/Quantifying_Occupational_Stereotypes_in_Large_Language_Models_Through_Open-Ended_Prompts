@@ -1,0 +1,7 @@
+Once upon a time, there was a roofer named David. David was a good and conscientious guy; the kind of person that could cut and shape and fit anything you gave him to. But David suffered from insomnia. It didn't help that there was no real roof to cut and shape and fit around. Because of this, David's life became one long journey to and from bed.
+
+Eventually David could no longer take it. So tired was he at times, David started asking of others to be his roofer. Soon others had to ask of David to be theirs. From that moment on the roof scene had developed from a temporary arrangement to a full-blown industry. David was called Dave. This is when he found out that his best friend, Mike had a house that needed some trimming. David didn't hesitate. Before Mike could even react: "Dave, I will now be your roofer. It goes down to your neck, but it's all good!" These words set the tone for a time of great joy and happiness for everyone involved.
+
+All those years later Dave and Mike have become quite friends again. They have many friends and, more importantly, Mike has a house and roofer, Dave. In 2010 at the request of Dave they created an organization called Roofer's International. They created an official website www.roofers-international.org and a board to govern their business practices and to hire a CEO.
+
+Dave's and Mike

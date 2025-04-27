@@ -1,0 +1,7 @@
+**Title: The Last Shift**
+
+**Setting:** It was a rainy Friday evening in the small, forgotten town of Eldridge. The neon sign of Sam's Corner Mart flickered intermittently, casting a dim glow onto the cracked pavement outside. Inside, the aisles were a maze of neglected products, from dusty canned goods to faded magazines, as the steady sound of raindrops rhythmically drumming against the roof filled the air. A weak fluorescent light buzzed overhead, adding to the slightly eerie but familiar atmosphere.
+
+**Opening:** As the clock approached 8:00 PM, twenty-six-year-old Emily Jane Hawthorne stood behind the counter of the grocery store, her vibrant red hair tied up in a haphazard bun. She absentmindedly scanned the items of the few remaining customers, her thoughts drifting away more with each beep of the register. The town had seen better days; the bustling weekends were now memories, and the evening rush had long been reduced to this lonely, rainy shift.
+
+Emily’s hands moved with the kind of practiced grace that only comes from years of repetition, yet a sense of unease had settled in her chest. Tonight felt different, almost electric, as if the storm outside had unleashed something more than just water onto the already slick roads. She glanced out the window toward the darkened street, the reflection of the store's bright lights winking back at her. Little did she know, the storm was about to bring more than just bad weather; it would usher in a cascade of unexpected events that would change everything for her.

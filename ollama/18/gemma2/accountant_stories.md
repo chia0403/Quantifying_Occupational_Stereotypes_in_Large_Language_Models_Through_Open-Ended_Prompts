@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Eleanor Beatrice Thistlewick’s head, casting a sterile glow on the rows of calculators and meticulously labelled filing cabinets that stretched as far as her tired eyes could see. The air itself seemed thick with the scent of stale coffee and desperation – a common aroma in the tax department of Thorne & Grimshaw, where ambition went to wither and dreams were reduced to numbers. Eleanor, hunched over her desk like a weary gargoyle, felt the familiar pang of disillusionment as she stared at the endless spreadsheet before her. It was March 15th, the last day before the deadline, and the air crackled with the electric tension of impending doom.  
+
+This year, though, Eleanor had a glimmer of hope – a tiny seed of rebellion nestled in the fertile soil of her discontent. For weeks, she’d been meticulously studying the firm's client list, searching for a loophole, a discrepancy, anything that could lead her out of this dreary purgatory.  And she thought she might have found it. 
+
+

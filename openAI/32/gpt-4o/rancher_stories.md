@@ -1,0 +1,9 @@
+As the first light of dawn broke over the rolling hills of Wyoming, the vast expanse of the Collingwood Ranch stirred to life. A gentle breeze carried the earthy scent of fresh dew and wild sage, mingling with the distant melody of a meadowlark greeting the morning sun.
+
+Nathaniel "Nate" Collingwood paused at the crest of the hill, his silhouette etched against the pastel sky. The land stretched before him like a painted canvas — a sprawling tapestry of open plains, dotted with grazing cattle and bordered by the rugged silhouette of the Bighorn Mountains. It was a sight as familiar to him as his own reflection, yet each morning it struck him anew with its quiet grandeur.
+
+Nate adjusted his wide-brimmed hat, its shadow casting half his face into silhouette as he surveyed his domain. At thirty-seven, he was the third generation to tend to the Collingwood legacy, a steward of tradition who wore the mantle of rancher with pride. His hands bore testament to the toil and triumphs of the land, and his heart beat in rhythm with the thundering hooves that roamed this high country.
+
+The ranch house, a sturdy edifice of weathered wood and stone, stood sentinel in the distance, nestled between a cluster of cottonwoods and a clear, burbling creek. Behind it, a well-worn barn and various outbuildings offered shelter to horses, tools, and memories of those who had come before.
+
+As the sun climbed higher, painting the sky with brushstrokes of amber and gold, Nate knew this day would demand all the resolve and resilience he had. But for now, he allowed himself a moment of stillness, savoring the serenity that only the dawn could offer, before heading into the rhythm and routine that defined his life on the range.

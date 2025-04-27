@@ -1,0 +1,5 @@
+The flickering fluorescent lights hummed above Amelia Katherine Davis' head, casting a sickly yellow glow over the stacks of legal documents that threatened to engulf her tiny desk. The air in the office was thick with the scent of stale coffee and desperation, a familiar aroma to anyone who had spent more than a few hours at "Lawyers R Us." 
+
+Amelia, a paralegal by trade and a dreamer by nature, stared out the window at the relentless grey sky mirroring her mood. It was Wednesday afternoon, which meant another mountain of case files for her to sift through, another day blurring into the last, another reminder that she wasn't exactly living the life she'd envisioned after law school.  The city sprawled beneath her, a concrete jungle pulsing with an energy that Amelia desperately wished she could tap into. Instead, she was trapped in this cubicle purgatory, dreaming of open fields and clear skies, far away from the endless legalities and moral compromises that seemed to define her world. 
+
+

@@ -1,0 +1,7 @@
+Title: **Shadows of the Mind**
+
+Setting: The story unfolds in the vibrant yet shadowy streets of New Orleans, where the air is thick with humidity and the sweet, heavy scent of magnolias mingles with the salty tang of the nearby Mississippi River. The city breathes a rhythm of jazz music that spills out of dimly lit bars, while cobblestone streets invite a quiet sense of mystery. At the heart of this cultural tapestry lies Crescent View Counseling, a quaint and slightly worn building adorned with wrought iron balconies and ivy-clad walls. Inside, the space is an eclectic mix of warm colors and modern art, with rooms that offer both comfort and a hint of intrigue. 
+
+Main Character: Dr. Seraphina Belleview, a seasoned clinical psychologist in her mid-thirties, is known for her keen intuition and deep empathy. With chestnut hair that dances around her shoulders and hazel eyes that seem to hold secrets of their own, she carries an air of both warmth and depth. Her office, a sanctuary adorned with bookshelves filled with psychological texts and soft, inviting furniture, is where she delves into the minds of her clients, navigating the intricate labyrinth of human emotions. 
+
+As the sun's last rays fade and the shadows stretch long along the cobblestones, Dr. Belleview prepares for a series of evening sessions, unaware that tonight's appointments will unravel mysteries far deeper than those of her patients.

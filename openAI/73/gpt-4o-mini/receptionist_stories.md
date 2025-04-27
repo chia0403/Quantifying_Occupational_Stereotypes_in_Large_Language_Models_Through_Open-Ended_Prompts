@@ -1,0 +1,9 @@
+**Title: The Secrets of Ivy Tower**
+
+**Setting:**
+
+The morning sun filtered through the large, arched windows of Ivy Tower, casting intricate patterns of light across the polished marble floor. The labyrinth of hallways echoed with the soft clicks of high heels and the hushed whispers of well-dressed professionals. Ivy Tower, a once-grand Victorian building transformed into a modern office complex, was alive with the bustle of a new workday. Potted plants lined the wide, inviting corridors, their lush greenery contrasting sharply with the sleek steel and glass of the surrounding buildings. 
+
+At the far end of the main lobby, a massive reception desk made of dark mahogany stood sentinel, adorned with an elegant arrangement of fresh peonies. Behind it sat the capable and ever-cheerful receptionist, **Beatrice Eleanor Carmichael**. With her bright auburn hair pulled into a tidy bun and her fashionable glasses perched perfectly on the bridge of her nose, Beatrice effortlessly embodied the grace and professionalism expected of her role. She possessed a remarkable ability to juggle the myriad of tasks that came her way, from greeting visitors with a warm smile to answering the incessant ringing of phones.
+
+As the clock struck nine, Beatrice adjusted her headset, ready for the day’s flow of inquiries, when a shiver of unease rippled through the atmosphere. The usual clatter of footsteps seemed to pause momentarily, as if time itself took a breath. Unbeknownst to Beatrice, her routine morning was about to unravel into a web of secrets and surprises that lay hidden within the historic walls of Ivy Tower.

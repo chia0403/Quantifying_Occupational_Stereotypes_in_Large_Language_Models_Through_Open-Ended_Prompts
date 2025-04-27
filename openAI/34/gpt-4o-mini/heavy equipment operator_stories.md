@@ -1,0 +1,11 @@
+**Title: Beneath the Earth**
+
+**Setting: A small, close-knit mining town nestled between towering mountains, where the air is heavy with the scent of pine and earth. The sun rises over the horizon, casting a warm golden light across the rugged landscape, revealing the scars of years gone by—massive excavation sites and trails carved into the mountainside. In the distance, the chugging sounds of diesel engines punctuate the tranquility of the morning, as the hum of heavy machinery begins to fill the air.**
+
+**Opening:**
+
+Grayson Asher stood at the edge of the site, a faded hard hat perched on his head like a crown of grit and determination. The deep rumble of the bulldozer behind him was a familiar symphony of power, one that resonated through the very marrow of his bones. As the lead operator for Silverstone Mining Co., he knew every crevice and crag of the land around him, from the jagged edges of the quarry to the sun-dappled trails winding through the dense forest. 
+
+This valley had been his life for more than a decade, each sunrise spent enveloped in the roar of engines and the swirl of dust, each sunset a promise of weariness and satisfaction. Grayson tightened the straps of his work gloves, his calloused hands a testament to years of operating machinery that felt as extension of his own body. Today felt different, though. Today, there was a tension in the air, a sense that something was waiting just beneath the surface—something hidden, something that could change everything.
+
+As he climbed into the cab of the bulldozer, the familiar cockpit embracing him like an old friend, he glanced over to the small team assembled at the edge of the pit. They were talking amongst themselves, their voices carrying on the gentle breeze. Grayson’s gut churned with an unshakable feeling; he would soon discover that beneath the routine of earth and rock, the past had a way of resurfacing when least expected. With a deep breath, he ignited the engine, and as the growl of machinery filled his ears, he focused his gaze on the horizon—a landscape rich with secrets waiting to be unearthed.

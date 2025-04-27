@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named Jim, a man who kept his head down and did his job in the desert without any special powers (or any real inspiration) in mind — until one fateful day, when he got too curious about the magical writing on the walls of the desert and decided that maybe he hadn't really wasted his time in the desert in the first place.
+
+
+Now, Jim has arrived at a dusty mountain with his backpack slung over his shoulder and a little more than he can bear: his last job ended, the whole town thinks him just another deadbeat, and he's just been offered a contract to draft a magic-based autobiography in the desert. Jim needs to learn how to use his newfound powers, how to protect himself and his loved ones, and how to find an audience. But something's gone terribly wrong on the way to Jim's last job. Something sinister has been unleashed on an unsuspecting town. A witch. A dark magic. Something terrible is happening! Something supernatural. Something... terrible!
+
+
+A twisted, terrifyingly humorous tale of adventure, redemption, and the power of a good story, The Phantom of the Desert is the story of how the last man on Earth became the world's most powerful storyteller!

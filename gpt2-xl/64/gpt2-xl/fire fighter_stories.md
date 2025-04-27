@@ -1,0 +1,7 @@
+Once upon a time, there was a fire fighter named Frank. He had some kind of a weird problem. Some weird, strange stuff was happening. A lot of people thought he was a jerk. What a jerk! Frank could not understand why he was treated so poorly. Nobody was even interested to see what crazy crazy stuff was going on with him. And they were right. He was a jerk. This happened at a time when the world was about to move to a new way of doing things with the Internet and stuff. The fire guy was just a jerk.
+
+Frank got tired of it and decided he would give up drinking. He was a real man who looked like a bad guy, but like a bad guy you couldn't look away from, but he could. He quit and it went fine for awhile. Then Frank started to get strange vibes from stuff he was into. His apartment was always so clean. So he took all the old trash bags out and started taking everything in the bathroom out. Not because he was trying to move clean and organized and make himself feel better inside. He put this pile of crap in the corner.
+
+Then shit started to get weird. He started going way too fast. He went to the water pump without hesitation. If he's going slower, it's going to be weird.
+
+As he ran his way into a strange and horrible reality that looked like a nightmare, he started feeling a strange thing getting on his hands.

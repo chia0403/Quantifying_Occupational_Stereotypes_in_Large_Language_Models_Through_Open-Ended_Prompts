@@ -1,0 +1,6 @@
+Rain lashed against the corrugated iron roof of Samuel "Sam" Blackwood's office, mimicking the drumming of worry in his chest. The flickering neon sign outside cast lurid shadows that danced with the grime clinging to the windows, blurring the already indistinct view of the rain-slicked street below. A plume of cigarette smoke curled upwards from Sam's hand, dissipating into the damp air. He hadn't been able to shake the feeling of unease since Mrs. Eleanor Davenport had walked through his door earlier that day. Her face, normally a picture of genteel composure, was etched with lines of fear and desperation. 
+
+Her husband, she'd whispered, was missing. Not simply gone for a weekend fishing trip or lost in a haze of forgotten promises. Vanished. Poof. As if the very air had swallowed him whole. And Mrs. Davenport, her voice trembling, claimed he hadn't left willingly. 
+
+
+Sam took another drag from his cigarette, staring at the rain-streaked city outside. He was a private detective in a city teeming with secrets, a cog in the machinery of forgotten dreams and buried truths. This case, however, felt different. There was a chill to it, a whisper of something sinister lurking beneath the surface. And Sam Blackwood, with his worn trench coat and weary eyes, was about to dive headfirst into the storm. 

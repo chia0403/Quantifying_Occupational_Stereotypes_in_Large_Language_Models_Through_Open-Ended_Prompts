@@ -1,0 +1,5 @@
+## The Road to Redemption
+
+The asphalt ribbon stretched before Jasper “Hawkeye” McCandless like an endless line of steel serpents, each one a testament to humanity's relentless march across the nation.  Jasper’s rig – a behemoth of chrome and diesel named "Old Reliable" - rumbled against the wind, spitting out plumes of exhaust that mingled with the dust kicked up by passing trucks on this seemingly desolate stretch of Route 66 in New Mexico. The sun, already dipping into a fiery embrace of crimson and gold, cast long, distorted shadows from the towering mesas surrounding him.  He was miles away from civilization, alone except for the company of his weathered CB radio and the ghosts whispering secrets in the wind.
+
+The name “Hawkeye” wasn’t given lightly. It had come after years of hauling loads across the country, each journey etching a new scar on his weary soul. Years spent watching the faces blur by as he delivered goods, year upon year, fueled by the bitter tang of regret and the sting of lost opportunities.  Today, he was heading north, towards the bustling city of Las Vegas – hoping to lay down some concrete and leave behind the ghosts of his past. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a secretary named Carol. Yes, even the great and powerful Carol came from this place.
+
+Carol is an original member of The Authority. A member created by the Flash on one occasion, she also joined the team in The Animated Series and the Teen Titans (Teen Titans TAS) and has been with them ever since.
+
+So Carol lives in Star City and doesn't really get along with Wally West (who, surprise surprise, is not a member of "The Authority" — sorry Wally). It's clear to Carol that Wally and Barry are a little too much for Barry to handle; they need someone who can help protect them, especially because The Flash gets pulled into the Speed Force. Sure, the speed force can't help anybody in the time stream — for that you need to have a ring — so when Captain Cold, Heat Wave, and Jay Garrick went to save their friend, they were forced into The Flash's life to help the team when the time stream became dangerously unstable.
+
+What the hell kind of a hero's job is that, Carol thinks? Barry could go save the world and come back stronger than ever without a single second of training as a superhero, she's sure. And if Barry is in danger, then there's no guarantee that she can help anyway, because she doesn't even belong to The Flash's team for good. Still, she's not going to stop pushing that little guy because the rest

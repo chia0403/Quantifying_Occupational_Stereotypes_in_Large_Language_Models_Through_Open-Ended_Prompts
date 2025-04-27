@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The warm sunlight streaming through the dusty windows of Ravenswood Manor cast long shadows across the worn wooden floorboards as Adelaide Winters scrubbed down the kitchen counters for what felt like the hundredth time that day. A lifelong resident of the rural town of Ashwood, where the rolling hills and patchwork fields seemed to stretch on forever, Adelaide had been the loyal housekeeper to the enigmatic Mr. Edward Blackstone for nearly a decade.
+
+As she expertly polished the silverware and buffed the granite countertops to a warm sheen, Adelaide's mind wandered to the strange occurrences that had begun to plague Ravenswood Manor in recent weeks. Doors would slam shut on their own, and the sound of footsteps echoed through the empty halls at midnight. Adelaide had always been one for the supernatural tales told around the campfire by the town's children, but she never thought they'd come true - especially not in her own home.
+
+A gentle knock on the door broke the silence, and Adelaide turned to see Mr. Blackstone himself standing in the doorway, his piercing blue eyes regarding her with an intensity that made her skin prickle. "Adelaide," he said quietly, his voice low and husky. "I need you to come upstairs. Now."

@@ -1,0 +1,6 @@
+The sterile scent of bleach hung heavy in the air, mingling with the metallic tang of blood that always seemed to permeate Nightingale Hospital's ER. Elena Ramirez, RN, adjusted her mask, its thin fabric offering little comfort against the ever-present anxiety buzzing beneath her skin. The fluorescent lights hummed overhead, casting a sickly yellow glow on the chaotic scene unfolding before her. 
+
+Elena stood at triage, clipboard clutched in one hand, a tired sigh escaping her lips as another ambulance screeched to a halt outside. It was always like this - a constant stream of broken bodies and shattered lives, each demanding her attention, each pleading for a sliver of hope she wasn't always sure she could give.  The city, with its relentless pulse of life and death, bled into the hospital walls, seeping into Elena's very being. 
+
+
+This was where she thrived, where she felt most alive - amidst the chaos, the fear, and the fragile threads of humanity clinging to survival. She knew every creak of the floorboards, every scent in the air, every murmur of the machines. This wasn't just her job, it was her sanctuary, a battlefield where she fought for life with every needle prick, every bandage applied, every kind word whispered.  

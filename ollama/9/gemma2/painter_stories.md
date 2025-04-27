@@ -1,0 +1,6 @@
+The air hung thick with the scent of linseed oil and turpentine, a familiar aroma that usually soothed Elara Rosalind Finch. Today, however, it felt oppressive, clinging to her like cobwebs in the dimly lit studio. The canvas before her remained stubbornly blank, a white expanse mocking her artistic paralysis. Sunlight streamed through the dusty attic window, illuminating motes of dust that danced like miniature galaxies, but they offered no inspiration. 
+
+Elara’s easel stood sentinel in the centre of the room, its worn surface testament to years of creative struggle and triumph. Around it lay scattered brushes, tubes of paint squeezed dry, and crumpled sketches, each one a failed attempt to capture the elusive essence of her muse - the melancholy beauty of the abandoned lighthouse overlooking the tempestuous North Sea. The rhythmic crash of waves against the rocks below served as a constant reminder of time's relentless passage, and Elara felt the weight of its pressure bearing down on her. 
+
+
+Her deadline loomed, an unspoken threat hanging in the air like the fog that often shrouded the coastline. She needed to complete this painting, but the blank canvas stared back at her, a silent challenge she couldn't seem to overcome.  

@@ -1,0 +1,6 @@
+The aroma of roasted almonds and cinnamon hung heavy in the air, a stark contrast to the sterile scent of disinfectant that usually permeated Dr. Eleanor Amelia Cartwright’s office. Eleanor, a petite woman with fiery red hair pulled back into a tight bun, surveyed her waiting room with a critical eye.  It was a far cry from the sleek, modern design she envisioned. Instead, mismatched floral wallpaper clashed with faded blue armchairs, creating an unsettlingly cheerful aesthetic that felt more like a retirement home than a nutritionist’s practice.
+
+Her patient, Mr. Bartholomew “Barty” Jenkins, a portly gentleman in a rumpled tweed suit, shuffled nervously at the desk, clutching a crumpled bag of potato chips. Eleanor took a deep breath.  This was it. Her first official day as an independent nutritionist, and already she felt like she’d bitten off more than she could chew. 
+
+
+She forced a smile, hoping it didn't look as strained as she felt. "Mr. Jenkins? Please come in." The waiting room door creaked open, letting out the scent of stale coffee and desperation, both familiar accompaniments to Barty's regular visits to her old employer, Dr. Peterson.  Eleanor hoped things would be different now. She was determined to make a real difference in people's lives, one healthy meal plan at a time.

@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The neon sign creaked in the gentle ocean breeze, casting a gaudy glow over the small coastal town of Ravenswood. Inside the local watering hole, McGillicuddy's Tavern, the rain-soaked night wore on like a bad habit, with patrons nursing their drinks and swapping tales of the sea. Amidst the din, bartender Emily Mae "Evie" MacDonald polished a mug with a white apron stained with the promise of last night's whiskey-fueled binges.
+
+At 25, Evie had spent her entire life in Ravenswood, where the smell of saltwater and fish oil clung to her like a damp shroud. Her family had owned McGillicuddy's for as long as anyone could remember, with her great-grandfather, Angus "The Bull" McGillicuddy, still spinning tales of his own fishing exploits behind the bar. As she expertly mixed drinks and listened to the locals' problems, Evie felt a sense of restlessness stirring in her chest, like a storm brewing on the horizon.
+
+As the night wore on, the rain outside seemed to grow heavier, drumming against the pavement like a thousand tiny fingers on a dusty tambourine. And in the midst of it all, Evie wondered what secrets the sea was hiding, and whether she'd ever find her own way out from beneath the waves.

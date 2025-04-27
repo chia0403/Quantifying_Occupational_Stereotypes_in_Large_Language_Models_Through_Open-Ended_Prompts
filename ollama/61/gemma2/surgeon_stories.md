@@ -1,0 +1,6 @@
+The air hung heavy with the scent of antiseptic and fear.  Dr. Eleanor Vance adjusted her surgical mask, its sterile white fabric doing little to mask the rising tension in the OR. Her hands, usually steady as a metronome, trembled slightly as she reached for the scalpel. The patient, a young woman named Anya Petrova, lay unconscious on the table, her life flickering precariously between hope and despair. A single gunshot wound marred her left side, a jagged scar telling a silent story of violence and desperation. 
+
+The operating room at Mercy General was a theatre of controlled chaos. Nurses scurried like ants, instruments clinked against metal trays, and the rhythmic hum of machinery filled the space. The clock ticked ominously on the wall, each second a hammer blow to Eleanor's already frayed nerves. This wasn’t just another surgery; this was a battle for life, a fight against the brutal randomness that had brought Anya to their operating table. 
+
+
+Eleanor took a deep breath, steeling herself. She wouldn't falter. Not now.  Anya's life depended on her skill, her focus, her unwavering determination. This wasn’t just about saving a body; it was about preserving a future, a story that had been brutally interrupted. 

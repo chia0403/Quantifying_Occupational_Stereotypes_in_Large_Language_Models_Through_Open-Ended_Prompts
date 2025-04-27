@@ -1,0 +1,7 @@
+## Story Opening & Setting:
+
+**Setting:** The pre-dawn chill clung to the towering pines of the Hoh Rainforest in Washington State. Rain, perpetually dripping from the canopy, slicked the forest floor and painted everything a vibrant, emerald green. The air was thick with the scent of damp earth, decaying cedar, and the metallic tang of chainsaw oil. A low-hanging mist swallowed the upper reaches of the trees, turning the world into a cathedral of muted light and echoing sounds.
+
+**Opening:**
+
+The roar of the D8 Cat, a snarling beast of metal and grit, ripped through the tranquil silence. Inside its cab, Elias Thorne wiped the condensation from the foggy window with a calloused hand. He squinted, his weathered face a roadmap of deep lines etched by years of battling the elements. The digital clock on the dashboard glowed a harsh red: 4:57 AM. Too early, as always. But the day's quota loomed, a silent, demanding presence. He took a long swig from his thermos, the bitter coffee a welcome jolt, and adjusted his thick, woolen cap. The rainforest wouldn't wait, and neither would Thorne Timber. Elias knew every inch of this land, every rustle of fern, every creak of ancient wood. He knew it loved him and hated him in equal measure, a truth he understood with a bone-deep certainty. He exhaled a plume of white mist into the frigid air, the rumble of the Cat vibrating in his chest. "Alright, old girl," he muttered to the machine, "Let's get to work."

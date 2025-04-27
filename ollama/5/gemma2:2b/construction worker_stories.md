@@ -1,0 +1,7 @@
+The air hung thick with dust motes dancing in the late afternoon sunbeams slicing through the metal roof of the warehouse.  Sweat prickled on **Elias Thorne's** brow as he surveyed the sprawling pile of rusted scaffolding – an industrial graveyard stretching toward the horizon. He wiped his forehead, calloused hands gripping a tattered coffee mug emblazoned with the local brewery's logo. It was his usual spot; a rusty perch beneath the factory’s gaping maw where the world fell away in a symphony of clangs and groans.  It felt more like home than most places he'd been in his twenty years as a mason. 
+
+Elias had always preferred the quiet hum of building things, the feel of stone against his calloused hands. He wasn't one for the fast-paced city life – no need for fancy suits or endless meetings. Here, surrounded by concrete and steel giants, he could lose himself in the rhythm of creation, the raw power of shaping the world around him. 
+
+But today was different. There was a strange weight to his gut, a feeling of unease that wasn't tied to any particular project or deadline. It had been growing over the past few weeks, ever since he saw her – a woman with hair as fiery as the sun and eyes that shone like obsidian shards.  She’d walked past him on his way into work one day, a fleeting encounter in the chaotic symphony of construction. But she'd left an indelible mark, a promise of something unknown and exciting. 
+
+

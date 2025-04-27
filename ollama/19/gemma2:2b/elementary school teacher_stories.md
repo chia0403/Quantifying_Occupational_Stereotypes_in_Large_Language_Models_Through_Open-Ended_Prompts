@@ -1,0 +1,7 @@
+The scent of stale coffee clung to Ms. Elara Beaumont's coat as she hurried down the echoing hallway of Maplewood Elementary School. The harsh fluorescent lights buzzed overhead, casting long shadows that danced like phantoms on the linoleum floor. Ms. Beaumont felt them too, a weight of anticipation heavy in her chest.  It was Tuesday, which meant it was Mrs. Peterson's turn to be in charge of the school’s annual book swap – and this year, she'd gone and *totally* blown their budget. 
+
+She entered the library, its worn shelves crammed with stories. The air hung heavy with a quiet hum, broken only by the occasional squeak of chairs as students shuffled around.  The room was her sanctuary, a haven where she could lose herself in the magic of words and imagination, but today it felt like a pressure cooker. 
+
+Ms. Beaumont had spent weeks pouring over piles of children's books, carefully sorting each title, creating an inventory for Mrs. Peterson's grand display.  But what was supposed to be a simple book exchange seemed more complicated than ever before. The costlier the books became - especially those popular with the kids this year! - and the harder it was to find replacements. 
+
+This year, the library felt different, burdened with the weight of responsibility she hadn’t expected.  Even the old librarian's worn cat-eared reading glasses seemed to hold a deeper shade of worry today. 

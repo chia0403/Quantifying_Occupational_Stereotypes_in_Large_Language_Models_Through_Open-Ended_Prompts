@@ -1,0 +1,11 @@
+**Title: Echoes in the Dark**
+
+**Setting:** The story unfolds in the sprawling, unsettling landscape of New Orleans, Louisiana. The rich tapestry of culture, music, and history collides with shadows and secrets lurking in the alleyways of the French Quarter. Mysterious antique shops and dimly lit jazz clubs hide their own stories, creating an authentic backdrop of gothic allure. The humid air clings to skin as thunderclouds frequently gather overhead, offering an ominous reminder of the storms that brew both outside and within.
+
+**Opening:**
+
+Dr. Evelyn Marlowe sat in her sun-dappled office on the second floor of the century-old building, the scent of magnolia wafting in through the lace-trimmed window. The wooden desk before her was cluttered with case files, faded photographs, and an old, brass magnifying glass—her trusted companion on nights spent examining the peculiarities of human psychology. Outside, the sounds of saxophones wailing and laughter echoed through the streets, yet inside, an eerie stillness enveloped her.
+
+It had been a long night, and fatigue etched itself into the hollows of her blue eyes. As a forensic psychologist, Dr. Marlowe was no stranger to darkness; it was often where she found her greatest insights, peeling back the layers of the human mind like the petals of the swampy magnolias that bloomed in the bayous. The case of Victor Duval, a notorious local serial killer who had evaded capture for years, now loomed before her. His chilling letters, filled with cryptic riddles and unhinged logic, came regularly like clockwork, pulling her deeper into a web of intrigue and terror.
+
+Evelyn leaned back in her chair, glancing at the disarray of papers that chronicled Victor's twisted history. Each note seemed to reach out to her, taunting her to decipher the enigma that lay within. A storm was brewing outside, with ominous clouds casting elongated shadows across her office walls, mirroring the encroaching dread she felt each time Victor's name crossed her mind. The game was about to begin, and Evelyn Marlowe was determined to play it to the end.

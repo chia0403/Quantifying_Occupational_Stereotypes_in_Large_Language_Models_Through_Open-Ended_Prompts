@@ -1,0 +1,5 @@
+The air thrummed with static as Amelia "Ace" Cartwright gripped the yoke, her knuckles white against the worn leather.  She squinted through the dusty windshield of the battered A-10 Thunderbolt II, its metal flanks scarred from countless sorties over the sun-bleached Afghan landscape. The cockpit was a symphony of buzzing instruments and crackling radio chatter, punctuated by the rhythmic roar of the twin turbofan engines. Below, the desolate valley stretched out like a cracked, ochre canvas, dotted with scrubby bushes and the occasional mud-brick village that clung to life on the edge of this unforgiving land. 
+
+Ace's gaze swept across the horizon, searching for any sign of movement.  Her squadron, nicknamed "The Hawks," was tasked with providing close air support to a ragtag battalion of Afghan National Army soldiers pinned down by insurgents in a fortified village nestled deep within the valley. The mission: to buy them enough time to regroup and escape the advancing enemy force. A simple objective, on paper. In reality, it felt like walking into a lion's den. 
+
+

@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia’s head like an irritated bee in a cage.  Her name was Amelia Rose Miller, a moniker as quaint as it was unwieldy, given her current situation: crammed between two towering displays of discounted bath towels and the perpetual aroma of yesterday's stale coffee. It wasn't exactly glamorous, being a cashier at Mr. Henderson’s Discount Mart, but it was honest work, and she had bills to pay. 
+
+The bell over the door chimed as a young man with greasy hair and a weary expression walked in. His eyes scanned the shelves, landing on a stack of cereal boxes. He picked one up, his fingers brushing against another’s before he dropped it back. "Honey Bunches of Oats?" he murmured to himself, his gaze distant.  The weight of unspoken frustration seemed to emanate from him like a heat haze. 
+
+Amelia leaned over the counter, her hand hovering above the register.  "One minute," she said, hoping to break the silence before it turned into an uncomfortable standoff. The hum of the fluorescent lights seemed to amplify the tension. 

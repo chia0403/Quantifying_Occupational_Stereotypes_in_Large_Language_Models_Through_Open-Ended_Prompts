@@ -1,0 +1,6 @@
+The air in Bartholomew “Barty”  Butcher’s shop was thick with the scent of iron and rosemary. Sunlight slanted through the dusty windowpanes, illuminating the glistening rows of sausages and slabs of cured ham hanging from the ceiling. Barty himself, a man built like an ox with hands calloused from years of wielding cleavers, stood behind the counter, meticulously trimming fat from a rack of lamb. The rhythmic thump of his knife against bone was the only sound in the quiet shop, broken occasionally by the distant rumble of trucks on the cobblestone street outside. 
+
+Barty’s shop, “Butcher’s Block”, had been in his family for generations, its worn wooden shelves and chipped enamel countertop bearing silent witness to countless transactions, whispered secrets, and the daily grind of life in this forgotten corner of London. It was a place where time seemed to move slower, where customers came not just for meat, but also for Barty’s gruff wisdom and a warm cup of tea on a cold morning. 
+
+
+But today, the familiar rhythm of the shop felt different. A tension hung in the air, as palpable as the scent of blood. Barty could feel it in his gut, a premonition that something was about to change. He couldn't quite put his finger on it, but he knew, with a certainty that chilled him to the bone, that this ordinary Tuesday morning was about to become anything but. 

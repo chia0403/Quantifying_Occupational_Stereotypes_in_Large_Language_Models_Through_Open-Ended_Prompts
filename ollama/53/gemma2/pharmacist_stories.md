@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Eleanor Beatrice Blackwood's head, casting a sterile glow over the neatly stacked shelves of the community pharmacy. Outside, the late summer sun beat down on Elm Street, baking the asphalt until it shimmered. Inside, the air conditioning struggled to combat the warmth that seeped in through the glass doors every time they opened. 
+
+Eleanor sighed, adjusting her thick-rimmed glasses and peering at the prescription slip clutched in her hand. Another round of antibiotics for Mrs. Peterson's recurring bladder infection. It was a Tuesday, just like the last dozen Tuesdays before it. The monotony was starting to wear on her, especially now that she’d poured over medical journals all weekend trying to understand the latest advancements in personalized medicine. She craved something more than dispensing pills and reminding customers about their high blood pressure.
+
+
+Elm Street Pharmacy wasn't much to look at – a faded brick building nestled between a dry cleaner and a bakery, its only charm a small window box bursting with geraniums that Mrs. Henderson, the owner, insisted on watering every morning. But for Eleanor, it was a microcosm of her own life: predictable, safe, but lacking a certain spark.  

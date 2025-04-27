@@ -1,0 +1,7 @@
+Title: The Whispering Willows
+
+Setting: The story opens in the heart of Hawthorne Estate, a sprawling, once-majestic manor surrounded by an extensive garden filled with ancient trees, winding paths, and a variety of vibrant flowers. The sun hangs low in the sky, casting a warm golden hue over the landscape, while a gentle breeze rustles the leaves, creating a soft symphony in the air. A dilapidated gazebo, draped in climbing ivy, stands sentinel at the edge of a shimmering pond, reflecting the fading light. Despite its neglect, the garden retains an air of grace, whispering secrets of a bygone era.
+
+Main Character: Avery Langston, a meticulous groundskeeper in his late forties, wanders the garden with an aura of quiet dedication. He has a weathered face, lined from years of toil under the sun, and rumpled work clothes that speak of long days spent nurturing the gardens. Beneath his rugged exterior lies a deep bond with the land, cultivated through years of solitude and contemplation. While others view the estate as a relic of the past, Avery sees it as a living, breathing entity—a canvas that tells stories through its flora and fauna. 
+
+As he moves through the garden, pruning roses and pulling weeds, the air is thick with the scent of damp earth and blooming jasmine. But today, there is an unusual stillness in the air, as if the garden is holding its breath, waiting for something—or someone—to awaken its dormant secrets.

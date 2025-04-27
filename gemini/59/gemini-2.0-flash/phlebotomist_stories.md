@@ -1,0 +1,9 @@
+## Story Opening:
+
+The fluorescent hum of the lab was Amelia “Amy” Beatrice Rossi's constant companion. It buzzed in her ears, a low, persistent drone that somehow faded into the background after years of early mornings. Today, though, it felt amplified, grating on her nerves like fingernails on a chalkboard. Outside, the Seattle sky was a predictably dreary gray, a uniform overcast that made the already sterile environment of St. Jude's Hospital lab feel even more claustrophobic. Amy sighed, the puff of warm breath momentarily fogging the inside of her face shield.
+
+She double-checked the label on the lavender-topped tube. "Doe, John - CBC." Routine. Just like the hundreds of others she processed every week. Yet, there was an unsettling tremor in her hand as she reached for the next requisition form. Something felt…off.
+
+## Setting:
+
+The St. Jude's Hospital laboratory was a windowless box on the third floor, buzzing with the rhythmic whir of centrifuges and the soft beeping of automated analyzers. Rows of metal racks held hundreds of multicolored tubes, each a tiny vial of someone’s hopes, fears, and medical history. The walls were a pale, institutional green, broken only by informational posters about handwashing techniques and chemical hazard safety. Stations, meticulously organized with needles, swabs, tourniquets, and gloves, were separated by clear acrylic partitions, providing a semblance of privacy in the cramped space. The air was thick with the faint scent of antiseptic and something indefinably metallic - the smell of blood, both drawn and analyzed. A large, flat-screen monitor displayed a constantly updating queue of orders, a digital representation of the constant flow of human need. In the corner, a small, perpetually-full coffee machine gurgled its caffeinated promise, a silent offering to the exhausted and dedicated staff.

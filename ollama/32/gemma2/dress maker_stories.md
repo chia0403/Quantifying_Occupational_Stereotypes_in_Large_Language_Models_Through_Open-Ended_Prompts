@@ -1,0 +1,3 @@
+The air hung thick with the scent of lavender and fine linen in Eloise Amelia Thistlewick's workshop. Sunlight streamed through the tall windows, painting dust motes dancing in golden rays across bolts of silk and velvet piled high on shelves that reached towards the vaulted ceiling. A symphony of rustling fabric and the rhythmic click-clack of a vintage sewing machine filled the room as Eloise meticulously stitched intricate lace onto the bodice of a sapphire blue gown. 
+
+Her fingers, nimble despite their years, danced across the needle with practiced ease. Outside, the bustling streets of Edwardian London throbbed with life, but within these walls, Eloise found her sanctuary. Here, amidst the vibrant chaos of her creations, she felt truly alive.  

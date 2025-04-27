@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named Tom who didn't ask for anything but good morning. All he could do was look busy when the customers came in. But for the past few years, he had been dealing hard with an evil spirit in the basement. But now that the demon won, he's had to face the truth about himself...
+
+In the summer of 1992, the world was shaken when the World Trade Center was destroyed by terrorists. The tragedy marked another major attack by global forces. All over the world, people had noticed how many of the towers had been knocked out. But just when it appeared that there were several more down the line, what went down was not just another attack, but the most extensive series of attacks ever seen over cities and countries.
+
+In the aftermath of the second attack, everything changed. It seemed like everybody in the world was afraid. In the beginning of the war on terrorism in 1993, a new and dangerous enemy had emerged out of the shadows. In the name of the enemy, terrorists came out of the shadows with their new weapon. But this weapon was called electronic warfare. It had never been used before against a whole population of people.
+
+Tom remembers the moment he received the news. He was shocked by the news, but he wasn't able to move. The first day on the job as an electronic warfare technician was difficult. But to make things worse, while Tom was working overtime, he received a letter

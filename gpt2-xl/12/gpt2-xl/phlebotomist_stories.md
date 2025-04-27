@@ -1,0 +1,5 @@
+Once upon a time, there was a phlebotomist named Mabruk. He made wonderful, delicious-smelling flowers, and he loved to walk with his wife. One day, while she was doing the laundry, he noticed a large, flower-filled bag outside his door. He opened it, and inside the bag was a beautiful bouquet. He looked around, then pointed to the house. The whole thing was just beautiful. He put the bouquet in the laundry, and went back to his day. But Mabruk kept thinking about it. "I wonder why this man likes my wife," he thought.
+
+It occurred to him that perhaps he should stop and talk to the man. So he went up to the house. He knocked, and the man answered, but it was dark, so he had to hold the door open. "Good afternoon," he said. "Do you know what this is?" Mabruk pointed to the bag of flowers. The man showed him. When he saw their color, Mabruk knew that his wife was having a garden. "Very nice!" he agreed. "What will you send for me?" "Oh, I'm sending you a bag of roses," the man said. When he had opened him the flowers, they were so beautiful, Mabruk decided he should write his name in the bouquets. They were, after all, beautiful roses.
+
+When

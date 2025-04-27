@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+It was a drizzly autumn evening in New Haven, Connecticut, and the rain-soaked streets were emptying out as the last of the day's revelers stumbled into their respective homes or taxis. Amidst the fading din of laughter and clinking glasses, Emilia Rose Jenkins, a bell hop at the prestigious Bellwether Hotel, was busy sweeping up the last of the evening's crumbs and spills in the lobby.
+
+As she worked, her eyes wandered to the old-fashioned clock above the front desk, its gentle tick-tock a comforting sound that seemed out of place in this modern world. Emilia felt a pang of nostalgia wash over her - it had been five years since her own family had left New Haven, fleeing the small town's stifling traditions and expectations for the bright lights and anonymity of the city.
+
+Now, at 22, Emilia was working hard to make a name for herself in this new world. She'd started as a lowly bell hop, but had quickly proven herself to be efficient, charming, and possessed of a keen eye for detail - skills that had earned her a promotion to room service attendant, and now, as she gazed out at the rain-soaked streets, she felt a sense of restlessness, a feeling that there was more to life than the familiar routine of the Bellwether.
+
+Little did Emilia know, this evening would be different. As she finished sweeping up the last of the debris, a sleek black sedan pulled up to the curb outside the hotel, its tinted windows reflecting the neon lights of the city like dark, polished stone. And as it came to a stop, a figure emerged from the shadows, one who would change Emilia's life forever...

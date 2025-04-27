@@ -1,0 +1,11 @@
+**Title: Beneath the Polish**
+
+**Setting:** The quaint town of Willow Creek is bathed in the golden glow of a late summer afternoon. The air is thick with the scent of blooming lilacs and freshly brewed coffee wafting from the nearby café. The streets are lined with charming brick buildings, each with its own story to tell. On the corner of Maple and Pine stands “The Polished Nook,” a cozy nail salon with a vibrant turquoise door and a window filled with whimsical decorations and colorful nail polish bottles that catch the light just right. Inside, soft music plays in the background, creating a serene ambiance while the walls are adorned with framed photos of happy clients proudly displaying their manicured nails. 
+
+**Story Opening:**
+
+As the sun dipped low in the sky, casting playful shadows across the wooden floor of The Polished Nook, Samuel Jasper Hallows carefully arranged his tools on the glitter-dusted counter. A manicurist for over a decade, Sam had cultivated a reputation not just for his precise technique, but for the way he made his clients feel at ease. Each day, the salon buzzed with laughter and stories, a haven from the bustling world outside, but today felt different. The regulars didn’t just come for a manicure; they sought refuge, companionship, and sometimes, a little bit of magic. 
+
+As he set out the bottles of deep crimson and pearlescent lavender, Sam’s thoughts wandered. He remembered the first time he had picked up a nail polish brush—an accidental spill during an after-school job at his sister’s salon. Who would have thought that a simple mistake would lead him here, to this very moment, surrounded by polish, the murmur of voices, and the thrill of anticipation for the next appointment? 
+
+Suddenly, the little bell above the door chimed, breaking him from his reverie. Sam looked up to see a new client step hesitantly into the salon, her eyes scanning the space as if searching for something more than just an appointment. Unbeknownst to him, this moment would mark the beginning of a transformation, both for him and for the newcomer, whose presence would challenge everything he thought he knew about his craft—and himself.

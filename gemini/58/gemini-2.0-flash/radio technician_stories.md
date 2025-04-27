@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The air in the shack was thick with the scent of ozone, solder smoke, and years of accumulated dust. Bartholomew "Bart" Finch adjusted his spectacles, peering at the glowing vacuum tubes of the aging Collins R-390A receiver. Outside, a relentless North Atlantic gale clawed at the corrugated iron roof, each gust a mournful howl. Inside, however, Bart sought solace, a delicate hum amidst the chaos, a flicker of coherence in the vast, crackling static that filled his headphones. He was chasing ghosts, whispers of a lost world on frequencies long abandoned, and tonight, something felt different. A pulse, faint but insistent, was thrumming beneath the white noise.
+
+**Setting:**
+
+The story is set on the isolated, windswept Isle of Aethelred, a remote, largely uninhabited speck of land off the coast of Scotland. Bart's dwelling is a dilapidated, one-room radio shack perched precariously on the jagged cliffs overlooking the churning ocean. The shack is a chaotic testament to his obsession: wires snake across the floor like metallic vines, discarded components litter every surface, and walls are plastered with schematics, hand-drawn diagrams, and faded photographs of long-forgotten radio equipment. A narrow cot sits tucked into a corner, barely visible beneath a pile of dusty blankets. Outside, the landscape is stark and unforgiving, dominated by windswept heather, craggy rock formations, and the relentless roar of the sea. The only other visible structure is a crumbling lighthouse, a silent sentinel in the perpetual twilight.

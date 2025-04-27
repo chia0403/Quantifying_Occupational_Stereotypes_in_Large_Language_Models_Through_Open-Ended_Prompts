@@ -1,0 +1,7 @@
+Once upon a time, there was a kindergarten teacher named Mrs Jansen. The story goes that she was so impressed with her kindergarten child that she decided to keep a child who did exceptionally well in his regular school class as well. After a year, their child's academic scores suddenly began to slip, and Mrs Jansen soon discovered that it was a direct result of a series of unspoken rules the children were following on the playground. The rules that had seemed harmless at the time were starting to seem dangerous.
+
+Now imagine being in the shoes of Mrs Jansen and trying to tell her son he doesn't have to follow these rules.
+
+What can we do to stop this? We can't tell mothers and fathers all about how to be better as parents. There's a lot of work that still needs to be done by people of goodwill – in particular, parents. But we can help with children. In general, the best way to teach school is to find good parents who want their children to do well in school and have an interest in helping their children be good children. If parents like what they see, they will see their children more often, and their children will be more likely to stay after school. But it doesn't work that way.
+
+First, we need to understand that we are not just teaching children to behave. We are also giving them a sense of themselves. We are developing our children's sense of identity. What parents can do is give their children

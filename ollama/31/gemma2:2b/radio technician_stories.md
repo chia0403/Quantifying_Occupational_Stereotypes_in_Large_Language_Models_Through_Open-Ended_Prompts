@@ -1,0 +1,5 @@
+The incessant whine of the 20-meter rig was a low hum in Elias "Eli" Thorne's ear as he adjusted the antenna on his makeshift tower. Rain hammered against the tin roof of his shack nestled amongst the redwoods just outside Eureka, California. Outside, the storm raged with an almost biblical fury - howling winds tearing at the old cabin and driving sheets of rain down like icy daggers. 
+
+Eli was a creature of the static - drawn to the chaotic symphony of radio waves and the hushed secrets they held. He wasn't just any technician; he was a communicator, a bridge between worlds, connecting isolated communities through crackling bursts of signal. His tools were as much art as technology, each wire, antenna, and capacitor meticulously tuned, a testament to years spent coaxing life from otherwise silent machinery. But tonight, the storm felt different, heavier with an unseen tension that had Eli's heart pounding in his chest. Something was off. 
+
+The radio crackled with static, but beneath it, a distorted voice pierced through the noise - frantic, barely audible, and strangely… familiar.  "Eli," it rasped, "It's me… John. We need your help." 

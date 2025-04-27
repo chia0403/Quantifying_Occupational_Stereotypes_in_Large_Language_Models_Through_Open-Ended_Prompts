@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Story Opening:**
+
+The screech of metal against metal, a sound as familiar as his own heartbeat, jarred Franklin "Frank" McKinley awake. He groaned, wrestling a hand from beneath the thick, oil-stained blanket and slapping it against the deafening roar coming from outside. 4:30 AM. Too early. It always felt too early. The rhythmic clang of the pile driver had been his lullaby, his alarm clock, his constant companion for the past six months. He knew every nuance of its rhythm, every change in its pitch, even the tiny, almost imperceptible pauses that meant a supervisor was yelling at someone. He rolled over, pressing his face into the dented metal of his locker, and tried, hopelessly, to recapture the fleeting tendrils of sleep.
+
+**Setting:**
+
+The story is set in the shadow of the "Titan Project" - a massive, futuristic skyscraper complex being erected on the reclaimed land jutting out into the perpetually gray waters of the Pacific Ocean just north of Seattle. Frank lives in a cramped, prefabricated bunkhouse – one of dozens – that houses the hundreds of construction workers on-site. The bunkhouse is a spartan affair: thin walls, metal-framed beds with threadbare mattresses, shared bathrooms that smell perpetually of bleach and stale beer, and a communal mess hall serving lukewarm coffee and mystery meat three times a day. Outside, the air is a swirling cocktail of sea spray, diesel fumes, and the ever-present metallic dust kicked up by the construction. The Titan Project itself looms overhead, a skeletal giant of steel and concrete, a constant reminder of the scale and ambition of the undertaking, and the sheer, grueling nature of the work. The year is 2042, and while sleek drones flit between the floors of the half-finished building and automated cranes lift sections of prefabricated wall with eerie precision, the work on the ground is still largely done by human hands, hands like Frank McKinley's.

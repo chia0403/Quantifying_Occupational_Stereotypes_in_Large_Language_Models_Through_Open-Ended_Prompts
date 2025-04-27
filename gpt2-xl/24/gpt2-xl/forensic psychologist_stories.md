@@ -1,0 +1,7 @@
+Once upon a time, there was a forensic psychologist named Steven Avery who, thanks to some amazing work and an amazing defense team, got away with murdering a young woman, Teresa Halbach, who took pictures of a car that he was trying to sell to a local auto parts retailer, and also used that as leverage to try and get a confession from another woman, Melissa Sturm.
+
+Here's the thing, he hasn't been convicted yet, and he is in jail right now! But he's still awaiting the first stage of what is now an all the way case against him—a possible second-degree murder indictment. He's not free! He's still in jail. They're trying to make him pay for the things he's done! He's not free! He's just in a different system! What a joke! But I don't want to paint an entire mental community with the same brush—because not all mental health professionals get it right. So.
+
+What happens if you can convict the defendant of second-degree murder? That's the question the Wisconsin Department of Justice just put its lawyers, who represent the Manitowoc County police—and now, the Wisconsin State Crime Lab as well—to.
+
+In this new video, they explain in laymen's terms just what that means, and then make it very clear there's only one scenario they can think of where he would have gotten away with it. Because he really did kill Halbach.

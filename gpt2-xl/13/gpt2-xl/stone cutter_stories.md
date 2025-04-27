@@ -1,0 +1,7 @@
+Once upon a time, there was a stone cutter named C.S. Lee who went door to door on the West Side. He lived on the West Side of Chicago and he knew that there was a stone in the ground that people had put there. They had found there was a treasure, and he knew that there would be a bunch of Indians come around to find it to get the treasure and they would have a fight over it and that's what we are supposed to do today. He started finding people out on the West Side, and he also put his house near the street to keep the Indians away from his house and to keep the Indians away from each other. He had a really good eye and he was able to find those people, and they were just not happy. So that's what we did with the Indians, we have to find out where the treasure is so they don't have a fight to get it and they don't die.
+
+I used the song "This Will Be [Our] Last Time" by The Rolling Stones, the song is a lot of fun. My dad used to take me to a lot of country music concerts back in the day, when we were young. The Rolling Stones song, the opening line is this, "This will be our last time," and that's what it was about.
+
+What are you doing next? Any projects in store?
+
+I was in Nashville, and we had a little festival called "The

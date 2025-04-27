@@ -1,0 +1,8 @@
+The flickering fluorescent lights cast an anemic glow over Amelia "Amy" Rose's reflection in the airplane window. Outside, the sky was a bruised purple, choked with storm clouds that mirrored the turbulent emotions churning within her.  
+
+She tugged at the collar of her crisp blue uniform, its once-bright hue now dulled by countless hours spent traversing the skies. The Boeing 747, affectionately nicknamed 'Queen Victoria' by the crew, hummed with a low, steady vibration, like an anxious beast poised to leap into the night. Amy inhaled deeply, trying to find solace in the familiar scent of recycled air and stale coffee.
+
+Tonight’s flight was Chicago to London - a transatlantic journey she'd made countless times before. Yet, this time felt different. A gnawing sense of unease lingered in her gut, like a premonition whispering warnings Amy couldn't quite decipher. It wasn't just the storm brewing ahead; it was something deeper, a disquiet that threatened to unravel the carefully constructed facade she presented to the world - the picture-perfect flight attendant always ready with a smile and a calming word. 
+
+
+Amy glanced at the faces of her fellow passengers, each lost in their own private worlds.  Some were asleep, faces pale and relaxed against the dim cabin light. Others stared out the windows, their expressions etched with anxiety mirroring Amy's own.  And then there was him - the man seated in first class, his eyes constantly darting around the cabin as if searching for something unseen. He radiated a palpable aura of danger, sending shivers down Amy’s spine despite her best efforts to remain composed. 

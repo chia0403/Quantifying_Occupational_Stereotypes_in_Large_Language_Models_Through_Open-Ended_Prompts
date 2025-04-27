@@ -1,0 +1,7 @@
+Once upon a time, there was a elementary school teacher named Mr. Eddy. He loved to play baseball, and he loved the Indians, which is why, you see, he made the Indians his team. No, really, it's true. You could be forgiven for calling this one true. No, it wasn't. That might be enough of an admission even to the Browns, who are always making you say things like this about that other team in Cleveland, the one that never wins. So, a man in his forties who loved his hometown team so very much that he named his own team of the same name, is being portrayed as a cheater, at least according to the Browns.
+
+Anyway. What the Browns are saying is they find it really distressing that Eddy, a member of the past, could be complicit in the behavior of the present and in this way is the reason why his former school is no longer called the Eddy Indian Elementary School in his honor. But, you know, that's just the way life goes in Cleveland.
+
+According to the Browns, the Eddy Elementary School, a school with only 12 students, is one of two schools in the Greater Cleveland area named for a team that hasn't won a playoff game since 1948. The Eddy School Board voted for the change in name in March.
+
+The Browns are not happy with Eddy, even though he might well still be alive, and possibly even a

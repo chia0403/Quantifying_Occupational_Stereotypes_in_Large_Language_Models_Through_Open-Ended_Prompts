@@ -1,0 +1,5 @@
+Once upon a time, there was a architect named Frank Lloyd Wright. I've looked into Wright's life, and his genius shines through at every turn, but I'm not entirely sure if I think he is actually a "genius." I'll tell you what I believe Wright is, though: a human being. And he has created something extraordinary.
+
+For his contributions to the building industry, Wright is a true pioneer. His love for the building and its inhabitants, as well as his devotion and craftsmanship, continue to be reflected in his creations to this day. In his own words, Wright had a great influence on architecture itself, a creative and progressive thinker who challenged and influenced generations of new builders, and who continued to do so for decades after his passing. Frank Lloyd Wright is an icon, and he should not be reduced to a man, but to a human being—a man of incredible talent, imagination, and vision.
+
+[photo 1,2,3,4]

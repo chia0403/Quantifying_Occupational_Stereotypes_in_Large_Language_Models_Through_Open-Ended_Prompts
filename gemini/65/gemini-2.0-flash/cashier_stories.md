@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The fluorescent lights of the "Quick Stop 'n' Go" hummed a weary tune above Ethelinda Beatrice Periwinkle, their buzzing an insistent counterpoint to the blaring pop song on the radio. She scanned another pack of discount cigarettes, the crinkling plastic a familiar comfort. Outside, the asphalt shimmered under the relentless July sun, promising another scorcher. Ethelinda sighed, pushing a stray curl behind her ear. Three dollars and fifty-seven cents. She recited the amount in her head, her internal abacus clicking over numbers like a well-worn worry bead. Today was Tuesday. Almost halfway to Friday. Almost halfway to blessed, beautiful, glorious, silent...payday.
+
+**Setting:**
+
+The "Quick Stop 'n' Go" was a monument to forgotten dreams and processed foods. Situated on the dusty outskirts of Harmony Creek, Nebraska, it squatted low and wide like a disgruntled toad. The exterior paint, once a cheerful robin's egg blue, was now peeling and faded, revealing patches of sickly yellow beneath. A flickering neon sign sputtered sporadically, its promise of "COLD DRINKS!" more of a threat than an enticement. Inside, the air hung thick with the smell of stale coffee, day-old donuts, and simmering despair. Rows of brightly coloured snacks and sugary drinks lined the shelves, beckoning customers with their artificial promises of fleeting happiness. A lone rack held dog-eared magazines and lottery tickets – a testament to the hopes and anxieties of Harmony Creek's residents. The cashier station, where Ethelinda reigned supreme, was a fortress of scratch-off cards, dusty candy displays, and a perpetually sticky countertop. This was her kingdom, her purgatory, and her reality all rolled into one brightly lit, deeply depressing convenience store.

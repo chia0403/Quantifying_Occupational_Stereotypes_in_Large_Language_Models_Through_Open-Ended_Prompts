@@ -1,0 +1,7 @@
+Once upon a time, there was a editor named William K. (G.O.B.) Jones. He made his name with two big hits on the local news, in 1961, in which he profiled his local sports heroes, one of them being G.O.B. who was then one of the country's hottest rising stars. But not only did G.O.B. make it big, he also became a popular television host, creating an entirely new show called "The Bachelorette," where his exploits as a bachelor and the contestants vying to take him home would be on full display.
+
+Advertisement
+
+When it first came out and was immediately beloved by viewers, it had a major influence on the way we view television, and has still been credited with launching both the "Saturday Night Live" and "30 Rock" franchises, which are all the rage these days. As a result of its influence, the show became synonymous with the concept of a "real show," a concept that was a far cry from how many had imagined it. Instead, "The Bachelorette" was not only an entertaining piece of content, it was a show that actually was about romance, a show that was ultimately about relationships.
+
+"As far as 'The Bachelor' is concerned, you're looking at a'real show,' but it's not about romance," Judd Apatow, who co-created "The Bachelorette" and became

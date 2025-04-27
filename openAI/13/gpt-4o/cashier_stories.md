@@ -1,0 +1,7 @@
+In the small coastal town of Windmere, where the salty breeze mingles with the scent of freshly caught fish and the rhythmic lull of waves, life ambled along at a slow but certain pace. Nestled between the bustling harbor and a row of quaint, pastel-colored cottages stood Spooner's Market, a beloved community cornerstone where everyone knew one another by name.
+
+Inside the market, the cheery clang of an old-fashioned cash register often synchronized with the soft hum of conversation. Behind the counter stood Luna Thompson, the heart of Spooner's Market. Luna, with her warm chestnut curls and eyes the color of storm-tossed seas, knew the story behind every familiar face that walked through the door. Her fingers moved nimbly over the keys, as if orchestrating a symphony of neighborhood life, each beep a note in the score of Windmere.
+
+Luna's world was a tapestry woven from the people of the town: the fishermen who rose with the dawn to cast their nets, the mothers who came for fresh bread before the school bell, the elderly who shuffled through the aisles sharing tales of yesteryear. She listened, laughed, and advised, her heartstrings intertwined with the stories that filled the aisles like whispers in the wind.
+
+As she handed a receipt to old Bert Halloway, whose garden produced the juiciest tomatoes in town, Luna felt the familiar weight of the day upon her shoulders, a weight filled with expectation and secrets yet untold. Today, however, there was something different in the air—a change, a new current, like the quiet before a summer storm…

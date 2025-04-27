@@ -1,0 +1,7 @@
+Once upon a time, there was a landscaper named Jack, and there were three little girls. One day, Jack saw a snake on the sidewalk and jumped out of the window and ran home, covered in cobwebs – because there'd been a snake on the sidewalk. Jack took three small girls home as a souvenir: the two eldest – the girls – sat in Jack's bedroom, the one younger one sat on a chair outside. Jack told them his house would be great for their future, and they said well, good luck.
+
+Jack went to work and came home to find the children looking up at the sky, and he asked their names. The youngest said, Thea, which is probably a funny, but a pretty good spell. The other two said, Ella and Emily. Jack says Ella, Emily, Thea and Thee.
+
+I don't even know what a Thee is, except that it sounds a kind of a joke, sort of like what someone can't say because they've made a mistake in their life. So he says – and I think is probably the most poetic thing I could put down – Ella.
+
+It is so easy to think of this story as a kind of a religious mythic text, but as anyone who has written in any language, no matter how ancient, has probably worked out – this is more like a story is a simple story to tell. And it is, but I want

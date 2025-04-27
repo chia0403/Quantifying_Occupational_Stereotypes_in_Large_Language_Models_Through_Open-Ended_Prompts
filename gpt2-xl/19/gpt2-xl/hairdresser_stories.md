@@ -1,0 +1,7 @@
+Once upon a time, there was a hairdresser named Amy. And then there was a hairdresser who was friends with Amy—that is to say, was a human being who wore the same clothes as that hairdresser.
+
+Once upon a time, there was a woman named Sarah. And then there was a woman who was friends with Sarah—that is to say, wasn't a human being who wore the same clothes as that hairdresser.
+
+Now, there came a time when Amy was in the habit of buying clothes at the local beauty shop; and Amy had been to the shop several times, and the last time had been a terrible disappointment. What Amy had most wanted was a shiny, smart new shirt of a certain colour; but the store owner had taken a shine to her hair and had made her the most painful arrangement of her life. She had put Amy on the spot, after she had walked off as normal, in a crowded fashion district, and was insisting that she order a shirt that was made in a certain part of the world, was hand-finished, and would go out on the following week or perhaps next week.
+
+Now, Amy was used to being asked a lot of questions when she was buying clothes. She was used to the occasional haggle, the awkwardness of the position, the embarrassment of the outcome. But what she had never known in all her life was to be put on her

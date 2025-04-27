@@ -1,0 +1,6 @@
+The acrid bite of smoke stung Elias "Eli" Vance's nostrils even before he rounded the corner onto Maple Street.  Flames licked at the night sky, casting an infernal glow on the two-story Victorian that stood defiant against the inferno. A mother’s frantic screams pierced through the roar of the fire, a chilling counterpoint to the symphony of crackling timber and exploding windows. 
+
+Eli's squad was already on scene, battling the blaze with ruthless efficiency.  Years of training kicked in as he secured his breathing apparatus, the familiar hiss of compressed air a comforting rhythm against the chaos. He surveyed the situation - flames raged on the second floor, trapping several residents. The roof sagged precariously, threatening to collapse any moment. A knot tightened in Eli's gut; this wasn't just another fire. This was personal. 
+
+
+Eli lived and breathed for moments like these, for the adrenaline rush that surged through him when lives were on the line. Yet tonight, a gnawing fear mingled with the familiar excitement. He knew this house – he’d played hide-and-seek in its dusty attic as a child, had shared countless Christmases with his grandparents who once lived there. Now it was a raging inferno, a monument to the fragility of life and memory. 

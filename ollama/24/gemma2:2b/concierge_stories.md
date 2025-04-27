@@ -1,0 +1,5 @@
+The crisp, white linen suit felt stiflingly formal on Theodore “Theo” Winthrop’s lean frame. He adjusted his tie as he surveyed the grand foyer of the Astor Manor – its gilded chandeliers casting elongated shadows across polished marble floors. Each day brought the same routine: welcoming guests, tending to their whims, and occasionally retrieving a rogue sock from the laundry chute (a feat he’d mastered after an unfortunate incident with Mrs. Peabody's poodle). He yearned for something more than the endless cycle of service.
+
+Theo's gaze lingered on the grand portrait of Astor himself, his stern eyes seeming to follow him. The man in the painting, a ruthless titan of industry, was a distant echo of Theo’s own yearning for ambition. 
+**Setting:**  The Astor Manor - a sprawling Victorian mansion nestled amidst the bustling streets of New York City. It boasts opulent interiors, manicured gardens, and a history steeped in secrecy and intrigue.
+**Main character:** Theodore "Theo" Winthrop - A concierge at the Astor Manor, striving to break free from his routine and achieve something more than the comfortable life he's accustomed to.  

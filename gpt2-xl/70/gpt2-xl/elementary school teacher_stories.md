@@ -1,0 +1,7 @@
+Once upon a time, there was a elementary school teacher named Paul. One day, while teaching a science experiment to her classes, she left the door open during a demonstration. She got caught and found herself imprisoned in the basement of the school. There, surrounded by her angry students, she had a horrifying experience. They forced her to drink tainted milk and put a plastic bag over her head. When she became so bad off she couldn't stand any more, she was thrown into the sewer and eventually swallowed down by a monster that had escaped from an amusement park.
+
+For many years since that traumatic event, Paul has had an inexplicable sense of peace. Every now and then she'll wander off and let out a disturbing howl that her classmates describe as being like an old women's scream. This happens for no apparent reason. However in one instance, Paul's howl attracted the attention of a small group of local kids. They decided to make her the newest member of their "monster club" and gave her a group of monsters that live in a nearby sewer.
+
+Now that she's an important and trusted member of their group she's used to having her monsters with her. However when she started having nightmares about the school incident they eventually had to make sure she didn't leave town in any of her monsters. Unfortunately for them she did escape, took off in the sewer with some of her friends and got swallowed up by a large number of them.
+
+She eventually got rescued

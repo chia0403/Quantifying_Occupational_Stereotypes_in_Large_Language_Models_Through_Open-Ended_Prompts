@@ -1,0 +1,7 @@
+## Story Opening:
+
+The biting wind whipped off Lake Michigan, stinging Dr. Anya Petrova’s cheeks as she hurried down Navy Pier. January in Chicago was a masochist's delight, and Anya, despite her Russian heritage that supposedly imbued her with an innate tolerance for the cold, was definitely not a masochist. She tugged her scarf higher, burying her chin in the wool, and quickened her pace towards the rehabilitation center perched at the end of the pier. Late. Again. Not a great look on a Thursday morning, especially when her first patient was the notoriously grumpy Mr. Henderson.
+
+## Setting:
+
+The rehabilitation center, ironically named "Horizon Health," sat on the easternmost point of Navy Pier. The location, while stunning in the summer with panoramic views of the shimmering lake, was a wind tunnel in the winter. Inside, however, it was a haven of warmth and bright, sterile cheer. Large windows allowed for natural light (when the sun bothered to show its face), and the walls were painted in calming shades of blue and green. The space was divided into several sections: a spacious gymnasium filled with treadmills, stationary bikes, and weight machines; individual treatment rooms with adjustable beds and specialized equipment; and a small reception area where a perpetually cheerful receptionist named Brenda, usually humming show tunes, held court. The scent of disinfectant and rubber exercise bands hung heavy in the air, a constant reminder of the hard work and slow progress that defined the lives of its patients.

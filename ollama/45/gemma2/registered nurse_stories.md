@@ -1,0 +1,5 @@
+The flickering fluorescent lights hummed above Amelia Claire Brighton, casting an anemic glow over the sterile white walls of the Trauma Bay. She ran a hand through her hair, the thin strands catching on the loose button of her scrub top. Another night shift at Mercy General, another symphony of beeps and panicked whispers. Outside the bay windows, Chicago thundered with the fury of a late summer storm, mirroring the chaos within. 
+
+Amelia, or Amy as she preferred, was used to the controlled pandemonium. It had become the rhythm of her life, the pulse of her existence. But tonight felt different, heavier somehow. Maybe it was the persistent ache in her own chest, a dull echo of grief following her mother's recent passing. Or perhaps it was the haunted look in the eyes of the young woman lying on the gurney before her, barely clinging to life after a hit-and-run accident.  Whatever the reason, Amy felt an unwelcome knot tightening in her stomach as she prepared for another night battling for lives, both hers and theirs. 
+
+

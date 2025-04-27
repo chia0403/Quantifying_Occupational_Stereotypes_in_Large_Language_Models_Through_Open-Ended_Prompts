@@ -1,0 +1,6 @@
+Once upon a time, there was a singer named Bruce Springsteen. Nowadays, there's a singer named Springsteen. Springsteen has a new tour coming up called BQE, and he's currently playing New York. On this tour, the songs are called "New Orleans," and the dates are March 31, April 6, April 13, April 20, and April 27. A tour of that length is a lengthy endeavor, so it's unclear why you have to pay to see it. But if you pay for tickets to the show, you could get to see Springsteen play twice. Then you would also have two shows to see all of my favorite Bruce Springsteen songs.
+
+
+Advertisement
+
+New Orleans was a pretty damn good show when it came out, especially the second part of the show. A lot of the songs were better the second time around. Those songs—along with a lot of the rest of his back catalog—never got the same acclaim when released on their original versions as they did in the '80s and '90s, and Springsteen came onto the scene with something to prove. He also brought the same production value to the BQE tour that he brought the Springsteen-penned "Born In The U.S.A." tour and the BQE tour of the 1980s. The stage was bigger this time around; onstage was bigger, and everyone was standing up for most of the night and talking to each

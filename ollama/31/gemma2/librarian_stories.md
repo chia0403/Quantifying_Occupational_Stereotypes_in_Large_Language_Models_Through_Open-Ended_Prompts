@@ -1,0 +1,7 @@
+The scent of aged paper and beeswax polish hung heavy in the air, a comforting aroma that Eleanor Thistlewick had come to associate with both peace and purpose. She stood amidst towering shelves, their spines whispering forgotten tales, her fingers tracing the worn leather of a first edition Dickens.  
+
+Eleanor was the Head Librarian of Blackwood Manor Library, a sprawling Victorian mansion nestled on the windswept cliffs overlooking the tempestuous North Sea. Founded by a reclusive baron in the 19th century, the manor housed an extraordinary collection of rare books and manuscripts, attracting scholars from across the globe. But beneath the veneer of timeless elegance, whispers circulated about Blackwood Manor’s darker secrets – legends of restless spirits, hidden passages, and a curse that haunted its hallowed halls.  
+
+Eleanor, however, remained a steadfast pragmatist, finding solace in the tangible world of words and knowledge. Yet, even she couldn't ignore the unsettling feeling that had begun to permeate the manor. A chill that lingered despite the roaring fireplace, an unnerving stillness that descended upon certain sections of the library at twilight, and the inexplicable rustling of pages when no one was near. As the autumn winds howled outside, Eleanor knew something was amiss in Blackwood Manor, and she was determined to unravel its mysteries before they swallowed her whole. 
+
+

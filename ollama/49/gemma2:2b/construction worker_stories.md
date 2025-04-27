@@ -1,0 +1,5 @@
+The air hung thick and greasy, smelling of diesel fuel and day-old sawdust as Elias "Ace" Davenport tightened the final bolt on a precast concrete beam.  His calloused hands were rough under his worn work gloves, each one bearing the imprint of countless hours spent toiling amongst the steel and stone giants of the city's expanding skyline. He stood under the oppressive weight of the construction crane's shadow, its metal arm arcing over him like a silent predator. Below, the city buzzed, lights flickering on and off in a chaotic symphony as dusk bled into night. 
+
+Ace had been working here, on the edge of this concrete jungle for five years now. The city was his canvas, its ever-evolving skyline the masterpiece he helped paint with his own two hands. But tonight, a sense of unease settled over Ace, prickling at the back of his neck like stray sparks from a welding torch. He felt watched, a feeling amplified by the silence that had fallen upon the construction site as if even the city itself held its breath.  The distant rumble of an approaching siren was enough to make his stomach drop. Something wasn't right. 
+
+

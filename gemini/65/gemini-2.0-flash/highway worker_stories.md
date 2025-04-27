@@ -1,0 +1,7 @@
+## Opening:
+
+The biting wind whipped across Interstate 80, snatching at Earl Franklin Johnson's orange safety vest and sending a shiver down his spine that had nothing to do with the cold. He clenched his gloved hands tighter around the handle of the jackhammer, its vibrations a familiar, comforting rumble against the emptiness that threatened to swallow him whole on days like this. The concrete, scarred and fractured from years of relentless traffic, seemed to mirror the cracks forming in his own resolve. Another day, another pothole, another endless stretch of asphalt.
+
+## Setting:
+
+The story is set on a desolate stretch of Interstate 80, winding its way through the vast, unforgiving plains of Wyoming in late October. The sky is a bruised, gunmetal grey, heavy with the promise of snow. The landscape is a monotonous tapestry of wind-swept sagebrush and scrub grass, punctuated only by the occasional skeletal tree clinging precariously to the rocky, barren hills. The air is thick with the smell of diesel fumes and damp earth. Aside from Earl and his small crew, the only other sign of life is the relentless stream of eighteen-wheelers and SUVs hurtling past, their drivers oblivious to the tireless labor it takes to keep the arteries of America flowing. The nearest town, Sinclair, Wyoming, is a good forty miles away, a distant beacon of civilization swallowed by the immensity of the plains.

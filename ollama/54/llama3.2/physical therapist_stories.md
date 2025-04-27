@@ -1,0 +1,9 @@
+Here's a story opening and setting:
+
+As the last wisps of sunlight faded from the gray New York City sky, Dr. Alexandra "Lexi" Thompson made her way through the bustling streets of Manhattan. A physical therapist at a small private practice in Midtown, Lexi was no stranger to the long hours and high stakes of helping patients recover from injury or illness.
+
+Her own body had seen its fair share of battles, too. Just six months prior, Lexi had suffered a devastating knee injury that had forced her to take an indefinite leave of absence from her practice. The diagnosis - a torn ACL, coupled with a lingering case of chronic tendinitis - had left her feeling lost and uncertain about her future as a physical therapist.
+
+Now, after months of grueling rehabilitation and countless hours spent rebuilding her strength and endurance, Lexi was finally back on the job, albeit with some residual scar tissue and a lingering sense of vulnerability. She had just finished a long day at the office, exhausted but exhilarated by the progress she'd made in helping her patients recover.
+
+As she walked home through the quiet streets of her Upper West Side apartment building, Lexi couldn't shake the feeling that something was off. A nagging sense of unease had been growing inside her all week, like a gentle hum in the background of her mind. She tried to push it aside, focusing on the tasks ahead and the patients waiting for her care. But as she stepped into her apartment building, she caught sight of an envelope on her doorstep, addressed to her with a single, cryptic sentence: "Your past is about to catch up."

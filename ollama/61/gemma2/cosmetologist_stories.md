@@ -1,0 +1,7 @@
+The air hung thick with the scent of lilac and jasmine, a cloying sweetness that was both comforting and oppressive to Esmeralda "Esme" Dubois. She inhaled deeply, trying to find solace in the familiar aroma of her salon, 'Serene Styles.'  It wasn't serenity she felt, though. It was tension, a knot tightening in her stomach with every ticking second on the antique clock hanging above the reception desk. This Saturday had been booked solid for weeks, a veritable parade of brides and bridesmaids desperate to look their best for the upcoming wedding season. But today, it wasn’t the usual buzz of activity that filled Esme with unease.  It was the unnerving absence of it.
+
+
+The salon, usually bustling with chatter and the rhythmic hum of hairdryers, felt eerily quiet.  Every station sat empty, untouched save for a lone spray bottle of rosewater left gleaming on one countertop. The silence, broken only by the faint click-clack of Esme's shoes against the polished hardwood floor, was deafening. She glanced nervously at her phone again; still no calls, no messages. Had everyone forgotten? Or worse, had something happened?  Esme frowned, a flicker of fear igniting behind her bright blue eyes. 
+
+
+She pushed away the unwelcome thoughts and turned towards the backroom, hoping to find some semblance of order amidst the unexpected stillness. Perhaps an explanation, a note, anything to quell the rising tide of anxiety that threatened to engulf her.  But as she stepped into the dimly lit space, she felt a chill crawl up her spine. Something was profoundly wrong. 

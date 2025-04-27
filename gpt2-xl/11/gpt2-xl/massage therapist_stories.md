@@ -1,0 +1,8 @@
+Once upon a time, there was a massage therapist named Cindy Lee, who had one of the highest-rated and highest-grossing massage websites in the world until she was busted last month for doing nothing more than offering her services for one of the most highly lucrative illegal activities online: Ponzi schemes.
+
+Over the past three years, Lee has operated more than 1,500 websites—including those of the popular masseuse.com site, the massagechic.com site, the onlinemarketingmassage.com and the massagechica.com website—all of which are linked to her real-life website, which has attracted more than 27 million unique visitors, according to the site's registration page. Many of the massage-related sites are not exactly trustworthy. The most notorious is the New York Massage & Entertainment Company, which offers massages and entertainment in New York (and is part of Lee's "business empire"). Another popular one, the Beverly Hills Massaging Company, has been linked to multiple arrests, and allegedly bilked several celebrities including Lindsay Davenport.
+
+Advertisement
+
+
+Lee's websites have received an even more substantial amount of attention since FBI agents raided her Beverly Hills apartment earlier this month, where they found her and her lawyer hiding in some closets. Lee was booked on felony charges of federal money laundering and failure to file tax returns in connection with her massage business. Lee denied any wrongdoing and is free on $5,000 bond.

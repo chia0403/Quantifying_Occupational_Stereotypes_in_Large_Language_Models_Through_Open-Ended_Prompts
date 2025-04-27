@@ -1,0 +1,5 @@
+Rain lashed against the warped windowpane of Bartholomew "Barty" Bramble's rusty van, each drop a tiny hammer blow on the already-battered metal. The wind howled like a banshee, tearing at the flimsy awning that barely shielded the entrance to his cramped workshop. Inside, Barty hunched over a tangle of copper pipes, muttering curses under his breath as he wrestled with a particularly stubborn blockage. He knew this was going to be a long night. 
+
+The setting: A ramshackle rowhouse in a forgotten corner of Port Blackwood, a coastal town on the edge of decline. The air is thick with the scent of salt and decay, and the streets are slick with the relentless downpour.  Barty's workshop, a converted outhouse behind his own dilapidated dwelling, is lit by a single bare bulb hanging precariously from the ceiling, casting long, dancing shadows across the cluttered space. Tools hang haphazardly on walls adorned with faded posters of plumbing manuals and vintage advertisements for drain cleaners. The incessant roar of the storm outside blends with the rhythmic dripping of leaky pipes – a symphony of urban decay that Barty has come to know all too well. 
+
+

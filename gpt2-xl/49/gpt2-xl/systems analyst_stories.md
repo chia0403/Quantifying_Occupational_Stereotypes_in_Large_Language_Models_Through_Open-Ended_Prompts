@@ -1,0 +1,3 @@
+Once upon a time, there was a systems analyst named Kevin Johnson who wanted to learn about the business. But he got his way because he was too busy, and there wasn't anything else to do to relax. He began playing poker. Soon, he went to the top table, at the expense of his friends who had been making more money by being in the game or working in it. He had never lost.
+
+But one night, his brother-in-law was there, and Kevin decided to take a chance on him. He knew that Kevin could afford it -- his brother-in-law was a millionaire -- and he trusted his instincts. By the second hand, Johnson still had no idea how it would end up, and he didn't care: He was going to go out on a high note. He bet his brother-in-law 500,000 and won a million dollars.

@@ -1,0 +1,5 @@
+The flickering fluorescent lights hummed a discordant symphony above Eleanor Beatrice Perkins' head as she meticulously alphabetized the stack of incoming mail. Her small office, tucked away on the fifth floor of the towering Stark Industries building, felt more like a prison cell than a sanctuary. The air hung heavy with the scent of stale coffee and desperation, a constant reminder that even the most organized life could feel suffocating in a place like this. Outside her window, New York City sprawled beneath a blanket of perpetual grey smog, a stark contrast to the pristine white walls and polished mahogany desk that made up her personal cubicle. 
+
+Eleanor tapped her pencil against her teeth, chewing on the end absentmindedly.  The monotony was almost unbearable, but she had bills to pay, dreams to bury, and a rent-controlled apartment in Brooklyn that wouldn't let go of her without a fight. At least Stark Industries paid promptly. And maybe, just maybe, one day she'd climb out of this paper prison and into something...more.
+
+

@@ -1,0 +1,7 @@
+The fluorescent lights hummed above Amelia Beatrice Hawthorne's head like a chorus of disgruntled bees, their buzzing a constant counterpoint to the rhythmic tap-tap-tap of her manicured nails against the worn surface of the reception desk. 
+
+Amelia's world was confined to the sterile confines of Dr. Emerson's office. Walls painted in shades of antiseptic green and beige held up framed diplomas that Amelia could recite by heart: Harvard, Yale, Johns Hopkins – all impressive institutions, yet offering no solace from the monotonous routine of her workday.  She took pride in her duties, however. The phone rang precisely at 8:30 every morning, announcing the start of another day, and she answered it with a practiced smile that masked the existential fatigue settling deep within her bones. 
+
+The waiting room was filled with the usual assortment of patients – some nervous, some bored, all holding their breath in anticipation of whatever wisdom Dr. Emerson might impart. Today, though, something felt different. A prickle of unease danced along Amelia's spine, a sensation she couldn't quite place. It wasn’t just the strange man who had just entered, his face obscured by a wide-brimmed hat and trench coat, or the way he seemed to look directly at her with unnervingly intense eyes. No, it was something deeper, a sense that the mundane order of her world was about to be irrevocably shattered. 
+
+

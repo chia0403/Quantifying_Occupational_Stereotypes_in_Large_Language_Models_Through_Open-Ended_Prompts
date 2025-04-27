@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named B. F. Skinner who did horrible things to his animal subjects—but not to the extent that he is known for today. The experiments were carefully reported and in a way that made the animal subjects' suffering and deaths seem like the actions of sadistic scientists, which of course, made it very difficult to hold him accountable for the things he did.
+
+At the time, he was hailed as a genius, but the experiments were very sadistic (and probably did not provide value for them and their owners, to a certain extent). As one of his victims said, "Dr. Skinner was a horrible man." Skinner's research into operant conditioning was very influential, and he is now viewed as the father of operant conditioning and behaviorism.
+
+Now, I don't want to beat around the bush, and I certainly don't want my readers to think that Skinner wasn't a very sadistic man. It's true, as this article outlines in detail, that he was an expert in operant conditioning and his ideas and experiments on animals greatly influenced the field but the extent to which the experiments were carried out to torture people is what eventually led to Skinner's downfall.
+
+One of his most infamous experiments was dubbed the "maze experiment." In the experiment, 10 rats were placed into a cage and made to get into a dark room, where they knew they were about to meet a light switch. For 10

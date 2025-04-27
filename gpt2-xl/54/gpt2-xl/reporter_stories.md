@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Bob Woodward who worked in the Bush White House. If you saw the documentary The Secret as a kid, there was a scene where Woodward sat in a room with his boss, David Halberstam, and they talked about the administration's missteps. At one point they went back and forth about Iraq: Woodward said that the administration never could figure out where to go with the war and Halberstam said it couldn't be done. Woodward said, "You're not a bad man, David. You're just wrong." The two men, who had known each other since their college years, went on to enjoy very successful careers.
+
+
+When the war started, everyone who was any official in the Bush Administration—the White House, the State Department, the Pentagon—had one overarching position: Get the hell out. Halberstam took a long, quiet walk along the Potomac, and talked to himself the whole way. To him, the war made no sense. There were better ways to spend American money and resources.
+
+
+After the war, Halberstam wrote a story in the Washington Post: He reported that Secretary of State Colin Powell had told him that the Bush Administration never planned on actually killing Saddam. "But I was told the very next day [by Rumsfeld], 'You don't know that for a fact, do you?' " Halberstam recalled. He replied, "

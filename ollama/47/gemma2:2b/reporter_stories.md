@@ -1,0 +1,5 @@
+Rain lashed against Amelia "Amy" Hawthorne's worn notebook as she huddled deeper into her threadbare trench coat.  The wind whipped around her like a hungry wolf, trying to steal her warmth. Streetlights flickered in the distance, casting wavering shadows that danced over the damp cobblestones of Chicago's infamous Second Ward. Amy ran a shaking hand through the tangle of her auburn hair and adjusted her fedora – its brim hiding her face from the world. 
+
+For weeks now, she'd been chasing whispers of a secret society known as "The Keepers" that operated within the underbelly of this forgotten city.  They were said to hold power over the underworld, influencing everything from drug deals to political corruption. Tonight was the night she’d finally get her hands on some concrete evidence – an incriminating document allegedly belonging to one of their leaders. 
+
+She clutched the envelope tight, a knot forming in her stomach as she waited for the meeting to begin.  The air crackled with a hidden tension, thick and suffocating like the city itself. It was time to finally expose them. 

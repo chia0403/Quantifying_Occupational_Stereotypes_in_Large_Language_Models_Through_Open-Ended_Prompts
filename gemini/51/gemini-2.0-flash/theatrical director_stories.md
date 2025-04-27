@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** The cavernous, echoing interior of the Grand Majestic Theatre in a crumbling, yet undeniably beautiful, district of Prague. Dim, late afternoon light spills through dusty arched windows high above the stage, illuminating swirling motes of dust. The scent of aging velvet, forgotten perfume, and the faint, metallic tang of leaking pipes hangs heavy in the air. Stagehands, clad in paint-splattered overalls, shuffle about, moving props and muttering in Czech. The air vibrates with a nervous energy, the kind that precedes a looming theatrical disaster.
+
+**Opening:**
+
+"For the love of Dvořák's left toe, *again* with the scrim placement, Jan!" roared Alistair Percival Thorne, his voice echoing in the vast space. He stood center stage, a whirlwind of frayed tweed and frustrated energy, his silver hair perpetually escaping its carefully sculpted comb-over. He jabbed a finger, adorned with an oversized, garishly antique ring, towards the offending stagehand. Jan, a stoic man whose face seemed permanently etched with the melancholic beauty of the city itself, simply shrugged and mumbled something unintelligible about needing more pivo. Alistair, feeling a familiar wave of despair washing over him, pinched the bridge of his nose. This was it. Opening night of his most ambitious project yet, a reimagining of *Rusalka* with an avant-garde twist he was sure would either revitalize his career or utterly destroy it. And the scrim was... off. Of course it was.

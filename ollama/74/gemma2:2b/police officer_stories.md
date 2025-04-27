@@ -1,0 +1,5 @@
+Rain lashed against Detective Elias Thorne's face as he crouched beside the crumpled body on Elm Street.  The flickering streetlights painted the scene in an unsettling mix of red and blue, reflecting off the slick asphalt. The heavy downpour was nothing compared to the storm brewing inside him. He stared at the lifeless eyes of the victim, a young woman named Sarah Miller with a smile that seemed impossibly too wide for this world. 
+
+Elias wasn't new to dealing with the underbelly of New Haven's gritty streets, but he’d never encountered anything like this before. The scene was chaotic: a half-eaten sandwich next to the bloodstains, a shattered vase lying in its usual pristine spot on the coffee table, and a faint whiff of something floral lingering in the air. It felt... wrong. 
+
+The rain hammered down as he pulled out his notepad, a knot tightening in his stomach. Every second felt like an eternity as he started to piece together the horrifying puzzle that was Sarah's final moments: her vibrant spirit extinguished in an instant by an anonymous killer who left him with nothing but questions and a growing sense of dread. 

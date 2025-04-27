@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The sun had just set over the small town of Red Rock, casting a warm orange glow over the desert landscape. The air was filled with the sweet scent of mesquite trees and the distant hum of crickets. Firefighter Ryder Wyatt Jenkins stood outside his truck, gazing out at the fading light as he sipped on a cold can of Mountain Dew.
+
+Ryder, a ruggedly handsome 32-year-old with piercing blue eyes and a strong jawline, had been a firefighter in Red Rock for five years. He was well-respected by his colleagues and loved by the community for his bravery, kindness, and willingness to take risks to save lives. As he checked his gear one last time before heading out into the desert night, Ryder couldn't shake the feeling that tonight would be different - that something was off.
+
+The fire department's radio crackled to life, and Ryder's dispatcher, Sarah, called out his name. "Ryder Jenkins, we've got a 10-22 at the old Miller place on the outskirts of town. Reports of a structure fire, possibly arson." Ryder nodded to himself, his heart rate quickening with anticipation. He knew that old Miller place like the back of his hand - it was an abandoned ranch house that had been vacant for years. What could be burning?

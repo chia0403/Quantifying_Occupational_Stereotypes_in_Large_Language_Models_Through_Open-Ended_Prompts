@@ -1,0 +1,6 @@
+The scent of lavender sachets and fresh linen hung heavy in the air, mingling with the earthy aroma of sawdust from the workbench where Clara Beatrice Hawthorne meticulously mended seams. Sunlight slanted through the dusty windowpanes of her tiny shop, illuminating swirls of silk and velvet scattered across the worn oak floorboards. Outside, the cobblestone streets of Edinburgh were alive with the clatter of horse-drawn carriages and the boisterous chatter of market vendors. But within the warm embrace of Clara's workshop, a hush settled, broken only by the rhythmic click-clack of her needle against fabric.  
+
+She was surrounded by remnants of dreams: discarded sketches pinned to corkboards, half-finished gowns draped over chairs, and spools of thread in every color imaginable. Each garment held within it a story, a whisper of the hopes and desires of those who commissioned Clara's creations. Today, however, she wasn't working on a wedding gown or a grand ball dress. Her focus was on something smaller, more intimate: a simple linen chemise for a young woman named Moira, a seamstress herself, with eyes as bright and hopeful as the morning sun.  
+
+
+Clara, her hands calloused yet nimble, carefully guided the needle through the delicate fabric, imagining Moira slipping into the cool comfort of the finished garment. 

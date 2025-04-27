@@ -1,0 +1,7 @@
+Once upon a time, there was a barber named George. It's no coincidence that his name also appears in the name of a book.
+
+I know the first person to reference George as a person's patron saint was a Jesuit gentleman and mystic by the name of Martin Buber, who was inspired to write his classic, A Man For All Seasons in response to George's insistence that he was "God's friend," and who wrote,
+
+There is a certain point [to which men of all ranks must] advance if they are not to die without having fulfilled the obligation with which God gave them the gift. This is the end of all their labors, and at the precise point at which the sun turns toward the rising and sets, on this occasion, the sun will have completed his course on the way of light... It is that end which they had at heart when they said, Let us be happy, that we might live together with God. (A. Buber: Selected Writings, trans. W.W.Watson [London: Heinemann, 1967], pp. 573, 574.)
+
+In other words, he was talking about the end of work and the meaning of life, but there's a crucial thing they seem to have overlooked; namely, that, when the sun turns toward the rising and setting, it's the opposite of the end of work. We work all year long to get to that point. It's not

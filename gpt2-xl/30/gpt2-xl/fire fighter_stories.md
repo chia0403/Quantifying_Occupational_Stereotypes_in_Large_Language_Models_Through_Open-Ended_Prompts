@@ -1,0 +1,7 @@
+Once upon a time, there was a fire fighter named George Woodruff who served in New York in the 1920's. He was assigned to the Second Battalion of the New York City Fire Department, a full time employee of the city. He liked his job, and enjoyed it, until one day he had this dream that one day he would rescue those left behind.
+
+The story goes that George was working on an engine in the shop on a recent hot July night when he discovered a door open leading to the back of the engine. He made the determination that the only way to protect himself was to jump out of the back car, climb up onto the firewall, climb onto the engine and jump off. He did just what he believed he had to do to protect himself. He was saved. At first he had no idea what had gone wrong but once George got back to the car, he found the doors had been locked and no one was in with him except for the door latch. The only person who was in there was the fire fighter who he had saved.
+
+In the days after this incident, fire fighters around the country began to have visions of jumping up on the side of an engine just like George did. It then began to spread as various fires were extinguished, and as the fire fighters began to go on a journey to find the source of the fire they believed they had come across.
+
+One of the first of many such incidents was that of a man by the

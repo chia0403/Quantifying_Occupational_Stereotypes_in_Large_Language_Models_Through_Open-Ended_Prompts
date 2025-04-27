@@ -1,0 +1,6 @@
+The flickering neon sign outside "Jimmy's Diner" cast an oily glow on Officer Emilia Reyes’ rain-slicked trench coat as she pushed open the door. The familiar aroma of burnt coffee and greasy bacon washed over her, momentarily masking the chill that had seeped into her bones from the relentless drizzle of Seattle. It was 6:30 am, a time when most people were still burrowed under blankets, oblivious to the city waking up around them. Not Emilia. For her, it was just another Tuesday morning on the job.
+
+Her name tag pinned crookedly to her chest read "Emilia Reyes, Probation Officer," a constant reminder of the precarious lives she navigated. She scanned the mostly empty diner, her gaze lingering on a figure hunched over a steaming mug in the corner booth – her appointment for the day, Michael 'Mikey' Carter, a young man with a rap sheet longer than his arm and a penchant for trouble.  He was late, again. Emilia took a seat at the counter, hoping this wouldn't be another wasted trip.
+
+
+The diner's hum, a blend of clanging silverware and muffled chatter, provided the soundtrack to her wait. The air hung heavy with anticipation. This meeting wasn't just another routine check-in; Mikey was on thin ice. One slip-up, one missed curfew, and he'd be back in jail, facing charges that could bury him for good. 

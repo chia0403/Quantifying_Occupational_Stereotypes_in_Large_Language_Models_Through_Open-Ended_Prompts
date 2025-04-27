@@ -1,0 +1,6 @@
+The static crackled like a thousand tiny wasps trapped in Amelia "Amy" Blackwood's earpiece, buzzing against her eardrum with an insistent hum. She tightened the headset, adjusting the microphone until it felt just right, nestled comfortably against her collarbone. Outside, the Nevada desert stretched endlessly before her, a canvas of burnt orange and ochre punctuated by scrubby cacti that swayed like drunken sentinels in the wind. The setting sun cast long shadows across the rusty metal chassis of the abandoned radio tower she called home for the past six months.  
+
+Amy squinted at the dials on her makeshift workbench – a repurposed metal desk salvaged from a junkyard, adorned with spare parts and flickering LED lights. Her calloused fingers danced over the knobs, tweaking frequencies, chasing phantom signals across the ether. The air thrummed with anticipation, not just from the desert wind but also from the whispers of a message she desperately hoped to intercept.
+
+
+The tower was her sanctuary, a rusted sentinel against a world that had forgotten her.  She lived for the hum of electricity, the crackle of static, and the possibility – however slim – that one day, she might hear her own voice again. 

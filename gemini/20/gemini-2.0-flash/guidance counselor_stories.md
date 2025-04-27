@@ -1,0 +1,11 @@
+## Story Opening & Setting:
+
+**Story Opening:**
+
+The chime of the antiquated school bell echoed through the halls of Northwood High, a sound Beatrice Eleanor Hawthorne loathed more each year. It heralded not the end of a lesson, but the impending influx of teenagers burdened by the crushing weight of standardized tests, college applications, and the baffling labyrinth of social anxieties. Beatrice, however, couldn't escape the feeling that her own burdens were heavier still. Today, a letter sat crisp and accusing in her in-tray, a letter from the superintendent detailing budget cuts and the potential elimination of her position as the school's sole guidance counselor. Her hands, normally steady as she navigated the emotional minefields of adolescence, trembled slightly as she reached for it. This wasn't just a job; it was her sanctuary, her purpose, and she wasn't about to let it be ripped away without a fight.
+
+**Setting:**
+
+Northwood High, nestled in the fading glory of a New England mill town, was a testament to the cyclical nature of prosperity and decline. Once a beacon of educational excellence fueled by the town's thriving textile industry, it now stood as a slightly threadbare relic of a bygone era. The building itself was a sprawling brick edifice, its gothic arches and ivy-covered walls whispering tales of generations past. Inside, the polished linoleum floors gleamed under the harsh fluorescent lights, reflecting the anxieties etched on the faces of the students who hurried through its corridors.
+
+Beatrice Hawthorne's office, tucked away on the second floor near the library, was a haven of relative calm. The walls were painted a soothing shade of sage green, adorned with inspirational posters (mostly outdated) and framed photographs of past graduating classes. A well-worn armchair sat opposite her desk, perpetually stained with coffee rings and imprinted with the nervous fidgeting of countless students. Stacks of college brochures, scholarship applications, and pamphlets on stress management overflowed from overflowing shelves, a testament to the relentless demands of her job. A faint scent of lavender, emanating from a small diffuser on her desk, attempted to mask the ever-present aroma of old textbooks and teenage angst.

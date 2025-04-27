@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named Dr. Walter White in the first season episode "Better Call Saul." However, in this re-imagining of the pre-Breaking Bad world, the dentist was named Walter "Walt Jr." He had a beard and the classic white lab coat with pink lining.
+
+In the prequel episode "Buried," we find out that he's the younger brother of Walt's son Mike. Walt Jr. dies under suspicious circumstances from lung cancer but he has to be buried in his son's ashes in order to keep his cover the next time.
+
+If the name Walter White isn't a big enough reference, we also get to glimpse a little more of his character on the show since the character is a fictional character. Like many TV series featuring Breaking Bad villains, the character was a dentist who worked at a dental office. Walt wears white lab coats even in flashbacks and even when he's driving the bus that delivers Mike to a drug treatment treatment center. Plus, we see his car, a yellow '96 Chevy Camaro with vanity plates of "WALT."
+
+If there were any hints left in the scene with Saul and Walt, it was that Walt isn't completely sure what he's doing. In fact, the scene is basically a re-watching of a scene where Walt doesn't realize his situation. As we see in the trailer, Saul is surprised that Walt has been so good at maintaining his cover because,

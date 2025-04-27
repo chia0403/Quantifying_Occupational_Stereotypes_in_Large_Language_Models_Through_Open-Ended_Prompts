@@ -1,0 +1,5 @@
+The salty wind whipped Amelia Hawthorne’s already dishevelled hair across her forehead as she stood on the precipice of the pier. The crashing waves below seemed to mock her, echoing the turmoil in her gut. Below the bustling harbor town of Port Haven, Maine, a storm was brewing – not just the kind of tempest that lashed against weathered docks and sent shivers down your spine, but one far more profound. 
+
+Amelia wasn't just facing a legal battle today; she was staring down an abyss of doubt and potential ruin.  Her client, the charismatic yet morally dubious Captain Liam O'Connell, had accused her, publicly and in front of his entire crew, of betrayal and incompetence. The accusations had sent shockwaves through Port Haven, turning it into a media circus with every headline screaming 'Captain’s Wife Framed!' 
+
+But Amelia knew this wasn't about guilt or innocence; it was about control, about Liam's desperate attempt to dismantle the carefully constructed facade he had built over years of shady dealings. He wanted to paint her as the villain, and by doing so, claim a power she never sought to wield. 

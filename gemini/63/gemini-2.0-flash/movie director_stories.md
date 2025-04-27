@@ -1,0 +1,10 @@
+## Story Opening:
+
+The flickering neon sign of the "Silver Screen Diner" cast a sickly, yellow glow across the rain-slicked asphalt, mirroring the churning in Genevieve Eleanor Moreau's gut. 3 AM. Again. Another all-nighter, another scene wrestled into submission, another cigarette butt crushed beneath her worn-out Doc Martens. She hated this diner, hated the greasy smell of stale coffee and desperation that clung to the vinyl booths, hated the way the fluorescent lights buzzed like an angry swarm of bees. But it was the only place open within a five-mile radius of the soundstage, and Genevieve Eleanor Moreau, director of the indie darling "Echoes of Yesterday," was running on empty.
+
+She pushed open the heavy door, the bell above tinkling a lonely, discordant melody into the near-empty space. Just a truck driver nursing a lukewarm cup of joe, a bleary-eyed waitress polishing the already-spotless counter, and her. The usual suspects. She took a deep breath, steeling herself for the inevitable onslaught of greasy comfort food, a small reward for surviving another day (or night) in the brutal trenches of independent filmmaking.
+## Setting:
+
+**The Primary Setting is the Silver Screen Diner:** A classic, 1950s-style diner on the outskirts of Los Angeles. The exterior is dominated by a large, faded neon sign depicting a film reel. The interior features red vinyl booths, a checkered tile floor, and a long, chrome counter with swivel stools. The walls are adorned with vintage movie posters, some authentic, some cheaply made reproductions. It's perpetually dimly lit, smelling of grease, stale coffee, and a hint of disappointment.
+
+**Secondary Setting is a Low-Budget Soundstage:** Located in a run-down industrial park on the fringes of Hollywood, the soundstage is cramped, poorly ventilated, and plagued with electrical issues. It houses the sets for "Echoes of Yesterday," a period drama about a struggling jazz singer in 1920s New Orleans. The set is meticulously constructed, but the cracks in the facade are starting to show, reflecting the precarious nature of the production itself.

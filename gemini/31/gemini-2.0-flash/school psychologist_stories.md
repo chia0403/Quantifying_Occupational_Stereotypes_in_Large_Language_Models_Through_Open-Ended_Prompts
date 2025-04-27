@@ -1,0 +1,9 @@
+## Story Opening:
+
+The scent of stale cafeteria pizza and anxiety clung to the air in the hallway outside Mrs. Gable’s sixth-grade classroom, a heady cocktail that always made Dr. Eleanor Vance’s stomach churn. She paused, took a deep breath, and straightened the lapel of her sensible, but hopefully still stylish, navy blazer. Another Thursday, another pre-algebra panic attack. It had been escalating for weeks, and Eleanor suspected something more than just quadratic equations was fueling young Timmy's distress. She just needed to unlock the key.
+
+The shrill ring of the dismissal bell fractured the tense silence, sending a surge of students bursting from classrooms, their pent-up energy palpable. Eleanor winced, waiting for the chaos to subside before approaching the door. She pasted on her most encouraging smile, the one she’d honed over years of navigating adolescent angst and parental expectations. Time to face the music, and hopefully, help Timmy find his own rhythm.
+
+## Setting:
+
+The story is set in **Oakhaven Middle School**, a sprawling, single-story brick building nestled on the outskirts of the quiet suburban town of Oakhaven, Ohio. The school, built in the 1970s, suffers from the charmingly outdated aesthetic of the era: think mustard-colored tile floors, institutional green walls perpetually adorned with inspirational posters of questionable relevance, and a lingering aroma of dust and disinfectant. The grounds, however, are well-maintained with a large, grassy field used for football and soccer, a small, neglected garden club plot, and a playground that still sees its fair share of use, despite the middle schoolers' best efforts to appear too cool for swingsets. The surrounding neighborhood is primarily composed of modest, single-family homes with manicured lawns and basketball hoops in driveways, giving Oakhaven a sense of quiet normalcy that often belies the hidden dramas playing out within the school's walls.

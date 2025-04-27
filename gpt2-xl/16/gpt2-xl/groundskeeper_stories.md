@@ -1,0 +1,7 @@
+Once upon a time, there was a groundskeeper named Peter and his wife, Lily, and her children, Alice and Thomas. They lived with their families in the small hamlet of Pakenham, about 10-minutes from the local town. Unfortunately, after a few months, the owners of the land turned back on them, forcing them to make a very difficult move. The land was much farther away than they had imagined and was very remote.
+
+The land was surrounded on all sides by the surrounding forest and had to be traveled by horse, carriage, and even in the small boat that was necessary for crossing rivers.
+
+That is all well and good for people and animals and their journey, however it leaves Peter and his family much in need, and a situation for them to have to cope with. One of the tenants of the farm had been a very wealthy man who had been driven out of his home by some unscrupulous landowners, and had come on his way to Pakenham to reclaim his possessions. The owner of the property was furious at the possibility of this person coming to his land and causing problems, and was very threatening if anyone interfered with his possessions. This situation was quickly resolved with the man's death, however he left a wife a widow with two children.
+
+Lily and her parents quickly became orphans and began living with Peter and Alice until they could find somewhere else to stay. Once Lily and Peter settled in a new house, they quickly

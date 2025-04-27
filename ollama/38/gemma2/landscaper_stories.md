@@ -1,0 +1,5 @@
+The humid Georgia air hung heavy with the scent of freshly cut grass and honeysuckle. Dew clung to Amelia “Amy” Rosethorn’s overalls like a second skin as she surveyed Mrs. Hawthorne’s sprawling backyard. 
+
+Mrs. Hawthorne, a woman whose age was lost in a haze of perfectly coiffed grey hair and floral print dresses, had called Amy earlier that morning with a complaint: her prized azaleas were wilting under the relentless summer sun.  Amy sighed. It wasn't uncommon for Southern gardens to struggle during July's heat wave, but Mrs. Hawthorne was notoriously particular about her blooms. 
+
+She knelt beside a particularly droopy azalea bush, its magenta petals already browning at the edges. Amy ran a gloved finger through the soil, noting its dryness and compaction. This wasn’t just a case of thirst; the plants needed some serious TLC. As she began to assess the damage, Amy couldn't help but feel a pang of sympathy for Mrs. Hawthorne. After all,  a wilting garden was a reflection of a wilting spirit. 

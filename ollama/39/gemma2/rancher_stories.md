@@ -1,0 +1,6 @@
+The sun hadn't even thought about rising over the jagged peaks that cradled Dust Devil Valley when Jeremiah "Jay" McCallum was already up.  His boots thudded across the worn wooden floorboards of his cabin, the only sound besides the crackling embers in the stove and the low moans of the wind whistling through the gaps in the aged walls.  Outside, the vast expanse of his ranch stretched out before him, a tapestry woven from sun-bleached grass, scrub brush, and the occasional lone, defiant cottonwood clinging to life against the relentless desert winds.
+
+Jay squinted at the horizon, where the first hint of orange bled through the inky sky. A familiar ache settled deep in his bones – the weight of responsibility for this land, for his family legacy, for the future he was trying to build, thread by precarious thread. It was a burden he carried willingly, but one that never truly relinquished its grip.  The air held the promise of another scorcher, and Jay felt the heat even before it touched him. This wasn't the kind of life most folks understood. Out here, under the relentless gaze of the desert sun, survival wasn't a choice – it was a daily battle fought against the elements and the ever-present threat of drought.  
+
+
+But for Jeremiah "Jay" McCallum, there was nowhere else he'd rather be. 

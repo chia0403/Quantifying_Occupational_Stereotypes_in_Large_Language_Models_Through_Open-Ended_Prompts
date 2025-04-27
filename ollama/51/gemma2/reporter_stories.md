@@ -1,0 +1,5 @@
+The humid August air hung thick over New Orleans, heavy with the scent of jasmine and stale beer. A solitary street lamp cast a sickly yellow glow on Amelia "Amy" Dubois's trench coat as she hunched deeper into the shadowed alleyway. The clinking of Mardi Gras beads in the wind was a jarring counterpoint to the tense silence that had settled over the French Quarter.  
+
+Amy adjusted the battered recorder tucked in her pocket, her heart hammering against her ribs like a trapped bird. Her phone buzzed again - a text from her editor at The Orleans Advocate: "Get me the truth about this one, Amy. Don't sugarcoat it." 
+
+This wasn't just another beat story for Amy. This was a missing persons case shrouded in whispers and rumors, a tangle of secrets that had begun to unravel in the city's underbelly. Tonight, she was going to get close enough to find out what really happened to Jean-Baptiste LeFleur, a local artist known for his vibrant murals depicting the city's hidden magic, who vanished without a trace two weeks ago.  

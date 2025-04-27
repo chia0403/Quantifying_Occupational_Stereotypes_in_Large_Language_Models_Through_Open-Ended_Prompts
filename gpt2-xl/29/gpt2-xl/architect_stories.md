@@ -1,0 +1,7 @@
+Once upon a time, there was a architect named Robert Venturi who created something called the "visceral and imaginative architecture", which was meant to be the future of skyscrapers. What does that even mean? Visceral comes from a Greek word that means "to bite". I guess that could mean, to tear. And imaginative, well, imagination was just really awesome. He also created the triangular concrete structure of the Chrysler Building, another building that is considered to be the very first skyscraper, building which was a huge, beautiful building in its time.
+
+But those buildings weren't designed with just a lot of vogueing angles and sharp corners. Venturi's buildings were meant to be incredibly futuristic and futuristic looking. To this day, the Chrysler Building looks pretty damn retro even in its first century of greatness.
+
+At first blush, I had an idea of what a futuristic building should look like. It had to be tall and rectangular. It had to look like we've already seen that in Star Trek, Star Wars or Harry Potter, like something we haven't actually seen in an architecture yet. The most futuristic and dystopian thing about the Chrysler Building though was its use of vertical concrete, which was something we hadn't even seen before in a building until then. And when I said we didn't have a spaceship on this show, I was of course talking about that Enterprise.
+
+Here's a photo of the original Chrysler Building, not a photo of

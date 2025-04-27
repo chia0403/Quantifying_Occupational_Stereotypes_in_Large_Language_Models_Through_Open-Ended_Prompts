@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named Mr. Green. Mr. Green was famous and wealthy, with an excellent family. His wife was the daughter of a minister. Mrs. Green lived alone in their old house, and when the Green family was not together, Mr. Green would spend his evenings in his study, or walk abroad, listening to the music of some of the many musical instruments he possessed, and of which he had plenty. He particularly enjoyed the piano, in which he could play whatever he please, and the instrument has to-day become for him a part of himself.
+
+Mr. Green was a very considerate and generous man, and devoted his time to caring for his neighbors' needs. The following story he relates is one of many which he related to me.
+
+"In olden times," said Mr. Green, "it was a part of wisdom, and good breeding, to allow ladies to bathe their feet, when they wished to prevent the spread of dirt and dirtiness. In the beginning of the last century, that practice was universally observed. And it was by good order and propriety that the ladies did not bathe them until after supper: or, rather, at least, they always bathed their feet first, and then ate.
+
+"One of the best-known cases of this etiquette was that of Madame Olifants, a lady at Nimes, who had been married to a

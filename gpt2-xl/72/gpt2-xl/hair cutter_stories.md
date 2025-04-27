@@ -1,0 +1,5 @@
+Once upon a time, there was a hair cutter named Joe Jones and if he didn't like the style of a certain man's hair he'd cut it off and put some nice long black hair on the head. This guy's hair had a "bad man" look to it that was not to his liking, so he asked Jones to cut it off. Jones, not feeling the same way, began calling the customers that his clients were "bad men" and telling them to get rid of their hair. This became a real habit amongst Jones' hair cutters and it became a "bad man" behavior." The "bad man" was a "wedge" or one who looked unruly, or perhaps "unladylike", which is why he couldn't accept a haircut that was too short for him. These "bad men" were often called "whipmen", and as a result Jones' hairstylists would cut and tie the "whip" in the back of the head which had a "bad man" look to it. Eventually "whipmen" began dropping the mustache.
+
+"Eventually these "gentlemen" began calling each other bad men. A "lady" or "gentleman" who wasn't wearing a tie looked like a "whig". This was because he was a democrat.
+
+This was the first time any of this had ever happened before. "We all called this bad man behavior, it would not

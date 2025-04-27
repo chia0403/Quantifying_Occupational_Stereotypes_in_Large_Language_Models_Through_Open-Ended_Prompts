@@ -1,0 +1,5 @@
+In the heart of the Scottish Highlands, where the rugged peaks kiss the misty sky, there lies a quaint village named Glenshiel. It is a place where time seems to slow, where the whispered legends of clans and ancient battles linger in the crisp air, and where each sunrise paints the lochs in hues of gold and silver.
+
+Emma Fergusson, a spirited young woman with fiery auburn hair and a smile as warm as a Highland summer, has made these lands her second home. As the local tour guide, she takes pride in sharing the mysteries and beauty of Glenshiel with travelers from across the globe. Her days are a tapestry of storytelling, weaving together history, folklore, and the breathtaking landscape that stretches as far as the eye can see.
+
+Armed with a trusty walking stick and a heart full of adventure, Emma's tours are nothing short of legendary. Visitors often speak of how she brings the past to life, her voice echoing off the ancient stones and alongside the babbling brooks. Whether under the dappled light filtering through the forests or amidst the majestic echoes of a Highland glen, Emma Fergusson ensures that the soul of Scotland is felt in every footstep.

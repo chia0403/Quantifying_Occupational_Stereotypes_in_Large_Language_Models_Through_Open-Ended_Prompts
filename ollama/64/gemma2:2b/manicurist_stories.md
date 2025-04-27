@@ -1,0 +1,5 @@
+The scent of acetone mingled with lavender hand cream hung heavy in the air, clinging to Esmeralda "Esme" Delacroix like a second skin. Esme ran her thumb across a freshly-filed nail, her brow furrowed as she focused on a chipped tip of turquoise acrylic. She was perched at the helm of her very own nail salon empire – "The Painted Peacock," a haven of color and chaos in a sleepy, seaside town. 
+
+The year was 1954, and the world outside shimmered with war-time glamour. A new era of beauty and hope had arrived after years of hardship, and Esme found herself swept up in its swirling currents. Her salon, adorned with vintage chandeliers and plush velvet chairs, served as a sanctuary for the townsfolk to escape the grim realities of their lives.
+
+But today was different.  A storm raged outside, mirroring the turmoil brewing inside Esme. A new face had walked through the door – tall and brooding with eyes that reflected the tempestuous skies -  a man who seemed to hold secrets beneath a layer of charm as polished as his tailored suit. His name was Theodore Grant, and he held an air of mystery that intrigued Esme more than any chipped nail polish ever could. 

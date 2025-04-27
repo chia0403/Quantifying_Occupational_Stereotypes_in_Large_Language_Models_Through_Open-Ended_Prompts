@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun was setting over the city, casting a golden glow over the crumbling brick buildings and rusty industrial pipes that lined the streets of New Haven's West End. Amidst the chaos of a late-afternoon rush hour, 32-year-old Jack "Hawk" Hawkins stood out - his rugged, weathered face and imposing physique made him stand tall among the crowds of workers scrambling to finish their shifts.
+
+As a seasoned construction worker, Hawk had spent years building skyscrapers and fixing potholes in this city's rough-around-the-edges neighborhoods. He knew every nook and cranny, every hidden alleyway and secret spot that only locals would dare to venture into. And he knew the West End like the back of his hand - its faded street art, its scrappy bars and dive restaurants, and its residents who were just as rough around the edges as the city itself.
+
+Tonight was no exception. Hawk was on his way home from a long day's work at the site of a new high-rise development, his toolbox loaded with broken tools and his stomach growling with hunger. As he walked down the sidewalk, he noticed something that made his gut twist into knots - a piece of paper taped to the side of a nearby building, bearing a single message scrawled in red ink: "They're watching you."

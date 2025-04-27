@@ -1,0 +1,9 @@
+The fluorescent lights hummed in an off-key tune, casting the worn linoleum floors in a sickly pale glow.  Dust motes danced in their light as Agnes "Aggie" Hawthorne, her white uniform stained faintly with years of cleaning, moved silently between the towering stacks of dusty textbooks and discarded exams. The air hung heavy with the scent of stale coffee and forgotten dreams, echoing the feeling that settled deep within her soul. 
+
+The University of Acheron was vast, its ancient stone walls bearing witness to countless generations of aspiring scholars and shattered dreams alike.  Aggie, a woman who'd known more sorrow than joy in her life, felt the weight of those silent stories every time she swept across the cavernous hallways. Today, however, something different stirred within her. She’d discovered a box, hidden beneath the floorboards in the forgotten corner of Professor Elmwood's library – a room rarely used, except by Aggie, to clear debris from dusty shelves. 
+
+As she lifted the lid with trembling hands, a single sheet of paper fluttered out. It was yellowed and fragile, its edges frayed and smudged with what looked like dried ink.  An image on the front - a young woman with hair as fiery as the sun herself - stared back at her from beneath the tattered fabric. Aggie had never been given much hope for love or joy, but something deep inside of her screamed that this was no ordinary document. This was something special. 
+
+
+**Setting:**  The University of Acheron, a sprawling and imposing institution steeped in history.  Its old stone walls hold echoes of untold stories, some joyous, some tragic, some buried forever beneath the weight of time. 
+**Main Character:**  Agnes "Aggie" Hawthorne, a weary but strong-willed woman with years of experience as a janitor at the university. She's seen it all and felt it all, yet something about this mysterious document stirs her soul and ignites a flame of excitement in her weary heart. 

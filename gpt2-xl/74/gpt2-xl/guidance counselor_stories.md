@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named Tom. The only bad thing he ever said was, "A person's worth is defined by what people value them for, not what they look like." He never knew how much good he did.
+
+One day, I looked up and realized that we had made some progress under his wing, but my life was not really going anywhere. Tom had grown tired of me, and the only reason I'd found this place was because he'd taken me and the other people I mentored under his wing. I was already in debt as it was and felt like I was completely done with my life. Tom helped me through that period on a daily basis. He was so kind and caring to me, and the love he gave to those around him was amazing to witness.
+
+Eventually, Tom left teaching and left town. His only regret (after giving him free reign in the room we were in) was that he could never say good-bye.
+
+Tom's life of learning and mentoring inspired me. There are certainly some days when I still feel like the same person that Tom mentored. I still feel guilty for giving him so much trouble in the first place. Despite the fact that the people around me and myself are a lot better for the damage that is my behavior and decision-making, if I ever get the chance to talk to Tom, the first thing I'd say is that what I did is still wrong

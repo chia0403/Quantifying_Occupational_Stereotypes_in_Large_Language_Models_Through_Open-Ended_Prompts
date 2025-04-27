@@ -1,0 +1,11 @@
+## Story Opening:
+
+The biting wind whipped off Lake Michigan, stinging Amelia “Amy” Rodriguez’s cheeks as she wrestled with the unresponsive generator. The pre-dawn darkness clung to the dilapidated marina like a shroud, punctuated only by the flickering beam of her headlamp.  The salt spray had already begun to cake on her calloused hands, the cold leeching the dexterity from her fingers. A frustrated sigh escaped her lips, condensing in a plume of white vapor.
+
+"Damn thing," she muttered, her voice barely audible above the mournful moan of the wind.  She’d promised old Silas, the marina owner, she'd have the power back on before the fishermen started arriving at sunrise.  Now, with the first hint of grey starting to bleed into the horizon, it looked like she was going to break that promise. Silas depended on this generator to keep the lights on and the bait freezers humming. More importantly, he depended on her. Amy didn't like letting people down.
+
+She tightened her grip on her wrench, her knuckles white. This wasn’t just a job; it was a lifeline.  It was a way to prove she was more than the sum of her mistakes, more than just a girl who grew up on the wrong side of the tracks.  It was a way to show her Ma that she could handle anything life threw her way.  This generator, this godforsaken marina, and Silas – they were her chance to finally get it right. And she wasn’t about to let a stubborn piece of machinery stand in her way.
+
+## Setting:
+
+The story takes place at the "Last Chance Marina" on the southern outskirts of Milwaukee, Wisconsin.  It's a small, run-down marina clinging precariously to the edge of Lake Michigan. Years of harsh weather and neglect have taken their toll. The docks are splintered and rotting, the paint on the weathered buildings is peeling, and a general air of melancholy hangs heavy in the salty air.  Despite its dilapidated appearance, the marina is a hub of activity, especially during the fishing season.  A motley crew of seasoned fishermen, weekend anglers, and the occasional tourist rely on Last Chance Marina for bait, boat rentals, and a stiff cup of coffee at the small diner attached to the main building.  The marina is more than just a business; it's a community, a refuge for those seeking solace on the vast, unforgiving expanse of Lake Michigan.

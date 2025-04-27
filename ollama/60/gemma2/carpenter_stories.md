@@ -1,0 +1,4 @@
+The rhythmic tap-tap-tap of Elias Blackwood's hammer echoed through the stillness of his workshop. Outside, the first tendrils of dawn were just beginning to paint the sky above the rolling hills of Somerset, casting long shadows across the dew-kissed grass. Inside, the air was thick with the scent of sawdust and fresh wood, a comforting aroma that Elias had come to associate with peace and purpose. Sunlight streamed through the dusty windows, illuminating the cluttered workbench where Elias knelt, painstakingly assembling a bespoke cradle for his neighbour's newborn baby. 
+
+
+Elias Blackwood wasn't just any carpenter. He was a craftsman, each piece he created imbued with a love and attention to detail that set him apart.  His workshop, nestled within a thicket of ancient oak trees at the edge of a sleepy village, was more than just a place of work – it was his sanctuary, a haven where he could lose himself in the beauty and practicality of woodworking. 

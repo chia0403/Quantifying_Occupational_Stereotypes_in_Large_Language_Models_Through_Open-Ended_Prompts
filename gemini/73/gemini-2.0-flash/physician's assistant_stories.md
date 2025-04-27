@@ -1,0 +1,5 @@
+The biting wind whipped off Lake Michigan, stinging Amelia Grace Walker's cheeks as she hurried from her compact car to the entrance of the Lakeshore Clinic. November in Kenosha, Wisconsin, was no joke. She shoved her gloved hands deeper into the pockets of her parka, its familiar rustle a small comfort against the pre-dawn chill. The sky was a bruised purple, barely hinting at the impending sunrise that would paint the lake a transient, shimmering gold.
+
+Amelia, a physician's assistant at the clinic, had been called in early to help Dr. Olsen prepare for a potential influx of patients. Word had spread like wildfire through the small, tight-knit community about a nasty strain of the flu hitting the area hard. This close to the holidays, people were desperate to get back on their feet.
+
+The automatic doors of the clinic sighed open, releasing a blast of warm, sterile air that smelled faintly of antiseptic and coffee. Inside, the fluorescent lights hummed a monotonous tune, a stark contrast to the chaotic day Amelia knew was ahead. Tonight, she dreamt of eggnog and Christmas carols. This morning, however, it was all about nasal swabs and Tamiflu.

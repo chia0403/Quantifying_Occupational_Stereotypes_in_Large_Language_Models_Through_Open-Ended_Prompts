@@ -1,0 +1,9 @@
+Title: **Shadows of the Past**
+
+**Setting:**
+The rain tapped a steady rhythm against the fogged windowpanes of a dimly lit office in the heart of Los Angeles. Neon lights from the bustling streets cast an eerie glow across the room, illuminating the dust motes swirling in the stale air. A half-empty whiskey tumbler sat on a cluttered desk, surrounded by scattered case files and a flickering desk lamp that struggled to break through the pall of gloom. The smell of damp concrete and cigarette smoke mingled, creating an atmosphere thick with secrets.
+
+**Opening:**
+Beneath the pale glow of the desk lamp, **Evelyn Margaret Stone** leaned back in her creaky leather chair, her emerald-green eyes scanning the latest dossier. A former cop turned private detective, Evelyn had carved out a reputation in the gritty underbelly of L.A. for solving cases that left others stumped—or too scared to try. With her auburn hair pulled into a no-nonsense bun and a pencil tucked behind her ear, she exuded a sense of determination that belied the weariness of her late-night hours.
+
+Outside, the city pulsed with life, oblivious to the darkness creeping into her office, the shadows of a past she thought she'd buried. The case in front of her was different—personal. A wealthy socialite had hired her to investigate the mysterious death of a childhood friend, a woman who had vanished without a trace decades ago. As memories long faded began to resurface, Evelyn couldn't shake the feeling that this case would pull at the threads of her own history, intertwining her fate with that of the forgotten souls hidden in the city’s depths. With a steely resolve, she knew she was about to step into a labyrinth of deceit, where the past was alive and writhing, desperate to reclaim its forgotten stories.

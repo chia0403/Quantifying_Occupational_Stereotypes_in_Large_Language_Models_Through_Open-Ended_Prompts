@@ -1,0 +1,5 @@
+The air hung thick with grease and the metallic tang of burnt oil as Elias "Sparks" Reyes knelt in his cramped garage. The morning sun, barely piercing through the haze of smog filtering from the city, cast long shadows over the tools strewn across the concrete floor. It was a familiar scene in this ramshackle workshop he'd inherited from his grandfather, a mechanic whose touch could coax life back into even the most broken-down machines. 
+
+Elias ran a hand over the hood of the rusted old Ford pickup truck. The engine sputtered once more before falling into an angry silence. Years ago, this truck had belonged to his late Uncle Mateo, and it was Elias’s job to keep it running, for as long as he could. The old truck held memories – both joyful and painful – but today's task was just keeping the machine alive: repairs were needed before his sister Elena's big city wedding. 
+
+It wasn't just about mechanics; it was about family, legacy.  Elias sighed, pulling out a toolbox filled with greasy parts and worn-out wrenches. His heart felt heavy like the metal of the truck he was tinkering with. 

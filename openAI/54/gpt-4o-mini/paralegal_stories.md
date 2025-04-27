@@ -1,0 +1,11 @@
+Title: Shadows of Justice
+
+Setting: The bustling metropolis of Verenthia, where skyscrapers loom like titans over the bustling streets, and the air is thick with the sounds of honking cars and distant sirens. The sun dips low in the sky, casting long shadows across the pavement as the city begins to pulse with evening life. Flanked by towering buildings, the law firm of Trenton & Reed occupies the corner of Elm Street, its glass facade reflecting the fiery colors of the sunset while a faint buzz of energy emanates from within.
+
+Story Opening:
+
+Sophia Claire Whitlock adjusted the strap of her leather shoulder bag as she entered the lobby of Trenton & Reed, her heart racing with a mix of anticipation and anxiety. The familiar smell of freshly brewed coffee greeted her, mingling with the faint scent of polished wood and the distant click of heels on tile. As a paralegal, Sophia spent her days buried in case files, piecing together moments of truth from a myriad of conflicting details, and today was no different.
+
+Sophia was meticulous by nature, inheriting that quality from her grandmother, a retired librarian who believed that every book had a story deserving to be unraveled. At twenty-eight, Sophia had carved a niche for herself in the chaos of the legal world, her keen eye for detail making her an indispensable asset to her team. She glanced at the clock hovering on the wall. It was ten minutes past five, but the office hummed with life; her colleagues were either engrossed in their work or in the throes of spirited discussions about the cases they had at hand.
+
+But as she made her way to her cubicle, she couldn’t shake the unease curling in her stomach. Sure, she was adept at sifting through facts and figures, but when it came to her latest assignment—a high-stakes corporate fraud case—something felt off. The evidence didn’t align, and the more she delved, the more shadows seemed to flit at the edges of her research. With the flickering fluorescent lights above her casting an array of soft shadows across her desk, Sophia knew she was on the brink of uncovering something that could shift the very foundation of her firm’s integrity. Little did she know, it would take her down a path where justice wasn’t always black and white.

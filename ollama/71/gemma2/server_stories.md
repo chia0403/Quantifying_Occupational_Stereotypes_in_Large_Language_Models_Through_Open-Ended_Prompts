@@ -1,0 +1,6 @@
+The air hung thick with the smell of fryer grease and simmering garlic, a familiar perfume that clung to Amelia "Amy" Rose like a second skin.  She weaved through tables at The Starlight Diner, dodging wobbly chairs and stray coffee cups with practiced ease. 
+
+The Starlight was a time capsule of Americana, its faded red vinyl booths and chrome counter stools polished to a gleam by years of elbow grease and spilled milkshakes. Neon signs flickered, casting an oily glow on the checkered floor and the faces of late-night regulars hunched over steaming mugs.  Outside, the wind howled down Main Street, rattling the windows of the diner like a restless spirit, but inside, life pulsed with a comforting rhythm - the sizzle of bacon on the grill, the clatter of silverware, the murmur of conversation, and Amy's own practiced patter as she greeted each customer with a smile. 
+
+
+This wasn't glamorous, not by any stretch, but it was home. The Starlight Diner was where Amy felt most herself:  a beacon of warmth in a sometimes cold world, her hands stained with ketchup, her heart filled with the stories whispered over steaming plates and lukewarm coffee. Tonight, though, something felt different. A prickle of anticipation ran down her spine, an unfamiliar flutter beneath her worn diner apron. 

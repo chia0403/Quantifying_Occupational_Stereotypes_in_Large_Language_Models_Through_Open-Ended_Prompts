@@ -1,0 +1,9 @@
+High atop the misty peaks of the Arathian Highlands, where the air tasted of pine and the winds sang their endless songs, lay the small, rugged village of Windmere. It was a place where the mountains whispered ancient secrets to those who dared to listen, and the stones beneath one’s feet bore the weight of centuries.
+
+In this serene yet formidable setting lived Ezra Thornfield, a stone cutter renowned for his craft. From generation to generation, the Thornfields had mastered the art of speaking with stone, chiseling out grand sculptures and humble hearths from seemingly unyielding rock.
+
+Ezra, like his forebears, woke with the dawn. The first light of morning kissed the mountain peaks in hues of gold and blush, a silent promise of a new day’s toil and triumph. As he walked the narrow, winding path to his workshop—a modest building nestled against the foot of an ancient cliff—he breathed in the crisp, pine-scented air and felt it invigorate his spirit, as if each breath drew in a touch of the mountain’s own vitality.
+
+His workshop was a sanctuary of stone and wood, where shafts of light pierced the dust-laden air through high, slender windows, illuminating tools crafted with care and well-worn from use. All around him were stones in various stages of becoming—blocks of marble, granite, and basalt waiting to be awakened by his touch.
+
+With reverence and resolve, Ezra donned his leather apron and selected his cherished chisel, its handle warm and familiar in his callused hands. Today he would work on a commission for the village square, a monument that would stand as a testament to the resilience and enduring spirit of Windmere itself. It was in this quiet conversation between man and stone that Ezra Thornfield found himself most alive, a guardian of stories yet untold, suspended in the silent eternity of rock.

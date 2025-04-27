@@ -1,0 +1,9 @@
+In the heart of Vienna, where cobblestone streets paint a map of history and waltzing melodies drift from open windows, the Hotel Imperial stood as a monument to the city’s opulent past and lively present. It was a place where chandeliers sparkled like constellations in the night sky and velvet drapes framed windows that opened onto a world of possibilities.
+
+The lobby buzzed with the bustling energy of travelers from distant lands, each seeking refuge and adventure within its storied walls. Standing behind an elegantly polished mahogany desk, Isabella Hartmann observed the scene with a practiced yet genuine smile. As the hotel’s chief concierge, Isabella was the keeper of secrets, the orchestrator of dreams, and the resolver of dilemmas. Her tailored uniform bore her name in neat gold lettering: Isabella Hartmann.
+
+Isabella had worked at the Hotel Imperial for over a decade, her path a mosaic of narratives collected from people she guided through the city’s labyrinthine wonders. Her office was a haven of maps, brochures, and a Rolodex filled with connections that could unlock the hidden doors of Vienna. She prided herself on not just providing information but crafting experiences that would etch memories into the hearts of her guests.
+
+Today, as the pale morning light began its gentle ascent over the Danube and spilled into the lobby, Isabella sensed the promise of something extraordinary. The hotel was fully booked, a melting pot of cultures and languages, each guest carrying the potential for stories untold. But it was the elderly woman seated quietly in a corner of the lobby, glancing now and then at the ornate clock above the reception, that captured Isabella’s attention.
+
+With her innate curiosity piqued, Isabella straightened her jacket, drawing a deep breath of jasmine and polished wood, and moved gracefully across the marble floor toward the woman who seemed both part of the present and a whisper from times gone by.

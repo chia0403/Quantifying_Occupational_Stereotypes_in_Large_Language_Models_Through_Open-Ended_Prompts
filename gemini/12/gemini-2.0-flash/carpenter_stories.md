@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a carpenter:
+
+**Setting:**
+
+The salt-laced wind whipped around the eaves of the workshop, whistling a mournful tune through the cracks in the aged wood. The workshop, perched precariously on the clifftop overlooking the churning grey expanse of the North Sea, was a chaotic symphony of sawdust, wood shavings, and half-finished projects. Scraps of oak, pine, and driftwood lay scattered like fallen leaves, bearing testament to countless hours of meticulous labor. The air hung thick with the scent of linseed oil, turpentine, and the faint, ever-present brine of the sea. Outside, the small, isolated village of Porthaven clung to the rocky coastline, its brightly painted houses a cheerful contrast to the rugged landscape.
+
+**Story Opening:**
+
+Elias Thorne, his brow furrowed in concentration, ran a calloused hand along the smooth curve of the rocking horse he was crafting. The afternoon light, filtering through the grimy windows of his workshop, caught the fine dust motes dancing in the air, illuminating the lines etched deep into his weathered face. At fifty-two, Elias had spent his life shaping wood, a trade inherited from his father and grandfather before him. He could coax beauty from the most stubborn knot, a grace from the gnarled branch, a life from the dead tree. But today, the wood felt resistant, the rhythm of his chisel off-key. He sighed, pushing a stray lock of greying hair from his eyes with the back of his hand, and the scent of the sea clung to the rough fabric of his old work apron. This rocking horse, commissioned for the lighthouse keeper's newborn daughter, should have been a joy to create, but a persistent disquiet had settled in his bones, a premonition as sharp as the edge of his best plane. It was a feeling he knew well, a feeling that always preceded the storms that battered Porthaven, both the ones on the sea, and the ones that brewed in the heart.

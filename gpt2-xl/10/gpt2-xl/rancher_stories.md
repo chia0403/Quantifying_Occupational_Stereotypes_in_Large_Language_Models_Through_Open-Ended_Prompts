@@ -1,0 +1,7 @@
+Once upon a time, there was a rancher named "Tom" Smith (I call this man a rangeland, but let's leave that in the past). If you have read my books, "Tom Smith's American Cattle Drive" and "The Last Reagent", you now know why he lost his ranch. Smith was a ruthless businessman, because he wanted to use federal land to grow his cattle. He was able to convince the Congress to purchase some of his ranch for a pittance, only to sell what he had purchased for millions just to get a better return on his investment.
+
+Smith was able to convince the U.S. government that his ranch was the center of a gigantic grass seed scam; a "grass seed scam" that was really one of the biggest frauds in the history of mankind. This scam would eventually lead to the decline of the American cattle industry.
+
+This cattle scheme was the greatest agricultural scam since the American Revolution. Many farmers knew about the scam, but were scared to tell anyone. They were afraid that their children would be taken out of school and they would lose their jobs. This is where the story of Tom Smith's ranch comes in. The people of Smith's ranch were frightened to tell the truth about this and began to hate "Tom Smith" due to the fact that he had gotten them their lives lost and the economy devastated.
+
+This is when Tom Smith, with no law enforcement force to protect him, took

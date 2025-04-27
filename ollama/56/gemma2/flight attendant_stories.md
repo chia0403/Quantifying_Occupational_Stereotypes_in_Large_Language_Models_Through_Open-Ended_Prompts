@@ -1,0 +1,5 @@
+The flickering fluorescent lights above hummed a discordant tune as Amelia Grace Thompson straightened the miniature bottle of hand sanitizer on tray 17B.  Her reflection in the mirrored wall – tired eyes framed by dark circles, hair pulled back into a tight bun – stared back at her with an almost accusatory glare. Another red-eye to LAX, another night blurring into the next. Being a flight attendant was glamorous, sure, if you bought the Instagram posts and magazine spreads. In reality, it was a tapestry of stale pretzels, spilled coffee, and the ever-present hum of restless passengers.
+
+Amelia's current canvas was Flight 147 to Los Angeles, a Boeing 777 packed with tired businessmen, wide-eyed tourists, and a handful of people who seemed determined to sleep through every turbulence bump and safety announcement. The air itself felt thick with the scent of jet fuel and simmering anxieties. Outside the window, the night sky was a vast canvas of inky blackness punctuated by twinkling stars – beautiful, yet distant, like Amelia's own dreams. 
+
+

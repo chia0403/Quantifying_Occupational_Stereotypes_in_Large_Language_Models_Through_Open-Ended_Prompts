@@ -1,0 +1,3 @@
+The air in the salon hung thick with the perfume of hairspray and apprehension. Rain lashed against the grimy windowpanes of "Glamora," a small but cozy shop nestled on a quiet side street in New Orleans.  Inside, Esmeralda “Essie” Beaumont meticulously smoothed her signature auburn curls as she surveyed the chaos around her – scattered makeup brushes, stray bobby pins, and a growing pile of client complaints about chipped nail polish. 
+
+Essie, owner and proprietor of this humble haven for beauty seekers, knew a storm was brewing. A storm more potent than the one raging outside.  Not just any storm, but one conjured by the weight of expectations and an avalanche of last-minute requests for a special event that had her feeling anything but glamorous. 

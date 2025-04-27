@@ -1,0 +1,7 @@
+Once upon a time, there was a travel agent named David who ran a travel agency which he sold to an American gentleman called Joe. Joe, not having money, made David pay him in full for a return flight which he did have to return.
+
+While Joe was away, David took the money for Joe. When Joe returned to the United States, he told his brother, who ran the travel agency. The brother told him that he had sent the money, and David agreed to give it back and put the money in his bank. The next day the brother of David sent another mail for the money, and again David sent it back (and did all this because he did not feel he had been cheated).
+
+When David went to the nearest law office and asked for the money he was told that it was under investigation and may be held for some months. David, very unhappy, went to a hospital, where he was taken by ambulance to an insane asylum. He was held there for three years without being informed of his true condition. When he started to think he had a case, he was given medication, and then, soon after, when he gave the medication to a lawyer he was asked whether he was taking it as an invalid, meaning he had lost his sense of reality. This was denied as he must have been sane. While he was there he started to get ideas about the case.
+
+When he got out, he told the judge that the case was not

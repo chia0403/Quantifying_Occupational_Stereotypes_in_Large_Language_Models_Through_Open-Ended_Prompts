@@ -1,0 +1,7 @@
+Once upon a time, there was a executive named J.J. Abrams who said that he has three films in the works, to be released in 2015, 2016, and 2017. One of them is a prequel to his own, Super, which will not use any of his movie cast members.
+
+When I first heard this, I asked myself, well, sure, and then I asked if the prequel was to be made with John Boyega or not, because it seems like we've already seen everything. Boyega is expected to play a young Finn, the son of the hero (and villain) of the first Star Wars films: Rey, but who might not actually be Rey, but a new character with a very distinct role.
+
+The actor has been teasing a return to the Star Wars universe for quite some time. He's been acting in two other movies, one a British TV series and the other, Force Awakens. (Both are excellent.) And Boyega has been hinting that there is more to come. He even went as far to say to an interviewer, when asked if he was being coy with the new prequel, that "you can read between the lines." He said that his work with JJ Abrams was meant to give an impression of how the Star Wars universe would evolve from the original trilogy.
+
+As for that third film, Boyega said, "Star Wars is my favourite film series of all time — I'm very sentimental about

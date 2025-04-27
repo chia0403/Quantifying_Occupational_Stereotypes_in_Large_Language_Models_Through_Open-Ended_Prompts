@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Helen, who could run and jump like an ostrich. You know, just like a lot of people do today. They can do a lot of other things these days too, but she could still do those things with so much fun. And she would, if she could just remember where she was. But eventually her work became too much, and she wound up in some poor home instead, where her job was to clean the kitchen and the toilet and all of the other rooms of the house. Then one day, Helen woke up with no memory of the previous evening.
+
+She couldn't remember what time it was, as she had been dreaming all night, and had only woken up in the middle of the day. So, she made a trip to the town she lived in, at least that's what she thought it was, to see if any of the people she knew had moved there recently. But there was no sign of them and there were no houses, so she decided that somewhere else would do just fine. It seemed just about right. That's what old people usually did. But then her next door neighbor, Elsie, showed up.
+
+"Oh, Elsie!" she wailed happily. "Does this mean I'm going to be a grandmother now?"
+
+Helen laughed uproariously. When the two of them started talking, Elsie had no idea she was listening to someone else.

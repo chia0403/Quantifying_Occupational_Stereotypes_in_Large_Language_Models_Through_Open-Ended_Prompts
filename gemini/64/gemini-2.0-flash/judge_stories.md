@@ -1,0 +1,7 @@
+## Story Opening:
+
+The mahogany gavel slammed down, echoing the thunder that rattled the stained-glass windows of the old courthouse. Silence, thick and heavy as the summer air, filled the courtroom. Judge Eleanor Ainsworth adjusted her spectacles, her gaze sweeping across the tense faces before her. Sweat beaded on her forehead despite the whirring of the antique ceiling fans above. She hated these drug cases, hated the waste, the despair etched into the faces of the accused and their families. But she'd taken an oath, and an oath was an oath. "Mr. Davis," she began, her voice resonating with a weary authority, "the jury has found you guilty. Do you have anything to say before I pass sentence?"
+
+## Setting:
+
+The story is set in the sleepy, historic town of Havenwood, Mississippi, in the heart of the Delta. The Havenwood County Courthouse, built in 1908, is a grand, if slightly decaying, building of red brick and white columns. It dominates the town square, a silent testament to the promises and failings of justice in a small Southern community. Inside, the courtroom is a dim, imposing space, with high ceilings, dark wood paneling, and portraits of former judges staring down from the walls. The air hangs heavy with the scent of old paper and regret. Outside, the languid Mississippi River flows, a constant presence and a metaphor for the slow, relentless passage of time. The heat is oppressive, clinging to the air like a shroud, mirroring the secrets and unspoken tensions that simmer beneath the surface of Havenwood.

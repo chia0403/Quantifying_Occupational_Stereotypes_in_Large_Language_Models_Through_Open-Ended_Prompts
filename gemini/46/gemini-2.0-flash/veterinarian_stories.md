@@ -1,0 +1,9 @@
+Okay, here’s a story opening and setting with a veterinarian as the main character:
+
+**Opening:**
+
+The shriek sliced through the morning quiet, sharp and desperate enough to send a shiver down Dr. Eleanor Maeve O'Connell's spine, even through the thick flannel of her pajamas. It wasn't the usual bleating complaint of Mrs. Higgins' prize-winning ewe, pregnant and perpetually disgruntled. This was pure, unadulterated terror. Eleanor bolted upright, her heart hammering a frantic rhythm against her ribs. Years of rural veterinary practice had taught her to differentiate the nuances of animal distress, and this sound spoke of immediate danger. She threw back the covers, the cool morning air a stark contrast to the lingering warmth of sleep, and knew, with a sinking feeling, that her peaceful day had just gone to the dogs - or, more likely, something much worse.
+
+**Setting:**
+
+Eleanor's home, "The Hayloft Clinic," was a converted barn on the outskirts of the small, picturesque town of Havenwood, nestled in the rolling hills of Vermont. The barn itself was a testament to rustic charm meeting modern practicality. One half housed her living quarters: a cozy, open-plan space with exposed beams, a roaring fireplace, and a large window overlooking sprawling pastures. The other half was a fully equipped veterinary clinic, complete with surgical suite, examination rooms, and kennels. Outside, a fenced-in paddock provided a safe space for larger animals to recover or rehabilitate. Havenwood was a place where everyone knew everyone, where the pace of life was slow and deliberate, and where the well-being of the local livestock was taken very seriously. The surrounding landscape was a patchwork of dairy farms, apple orchards, and dense forests, creating a backdrop of serene beauty that often belied the sometimes messy and demanding reality of Eleanor’s profession.

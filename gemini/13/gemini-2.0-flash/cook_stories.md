@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting centered around a cook named Agnes Juniper Willowbrook:
+
+**Story Opening:**
+
+The clatter of pans was Agnes Juniper Willowbrook's morning alarm. Not a melodic clatter, mind you, but a purposeful crash and bang orchestrated to coax the slumbering beast that was her kitchen back to life. Dawn hadn't even dared peek over the craggy cliffs yet, but Agnes, with her perpetually flour-dusted apron and a determined glint in her eye, was already battling a stubborn sourdough starter. Today was market day, and that meant feeding a crowd. A crowd ravenous for her blueberry scones, her lavender shortbread, and, if the spirits of the kitchen gods were smiling, her infamous smoked salmon and dill quiche.
+
+**Setting:**
+
+Agnes's kitchen was nestled into the side of a windswept hill overlooking the small, salt-kissed fishing village of Port Blossom. It wasn't just a kitchen; it was the heart of "Willowbrook's Delights," a tiny, almost-hidden bakery and cafe. The building itself was old, stubbornly clinging to the hillside with roots that felt as ancient as the sea. Stone walls, thick and uneven, kept out the worst of the ocean winds, while a mismatched collection of windows, scavenged from shipwrecks and long-forgotten cottages, let in a patchwork of morning light. Inside, the air was perpetually thick with the scent of baking bread, blooming herbs, and the faint, lingering aroma of sea salt. Shelves overflowing with jars of homemade preserves, bottles of infused oils, and stacks of mismatched china added to the comforting chaos. A large, well-worn wooden table sat in the center, often covered in a kaleidoscope of ingredients or the scattered pages of Agnes's recipe book, its spine cracked from years of loving use. Outside, a small, overgrown herb garden cascaded down the hillside, a riot of rosemary, thyme, and lavender, their scents mingling with the salty tang of the sea air.

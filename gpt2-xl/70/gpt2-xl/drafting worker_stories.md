@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named Mike. He had never been particularly interested in video games because, like most kids, Mike was too busy to play them. One day, however, Mike discovered a copy of a video game in the attic of his family's suburban home. His heart was immediately set on it.
+
+It was a platform game called Super Mario Bros. 3, a game he now considers his childhood idol. He wanted it so much, Mike worked his butler's butt off for it, making sure to take pictures of every single step. So much effort went into it. Mike, who as far as could tell was never interested in anything video games, bought the game, put it on the shelf in his basement, and forgot about it for a long time.
+
+Then later one day, Mike finally received the game he had been anticipating so long. He was thrilled. It looked amazing. The graphics were high resolution and extremely nice. He wanted it more than anything in the whole world.
+
+The game came in a tiny box that looked like it was pulled right out of a Nintendo arcade game cabinet. It carried this little red box that said "PlayStation" on it. To boot, every single game on the shelf had to say "PlayStation" on them too, too. Mike, who was 6'2, 190 pounds and a college student at the time, couldn't handle that. He thought he hated video games,

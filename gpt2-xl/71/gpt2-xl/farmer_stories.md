@@ -1,0 +1,7 @@
+Once upon a time, there was a farmer named Bob who built a big house with a big green field in his front yard. Then Bob and his family got old. His wife started having trouble standing, and his son Mike had some problems adjusting to his small body. They all had health problems, but Bob's problem was even worse: The house felt like a prison; it was suffocating. That's when their neighbor showed them a new kind of home. He got the idea to build the house completely out of recycled cardboard, so that the house would be a place of refuge. A way to escape from all the stress and strain of life, to be free.
+
+Bob grew old and went to the grave, but Mike kept building the house. Today, the house is still there – a little larger, but still very much the same. I first visited that house in 2012. That building is now being used as a place where people from The Woodlands and The Heights can enjoy a great meal and a drink at a locally made bocce ball court.
+
+Today I discovered that the wood flooring that decorates the bocce court is the same type of wood that was used to build Bob's house, and that it's been used to build one of the very few "living buildings" in The Woodlands. It's on the ground floor of this building and is the work of a retired man who has become the owner of the building.
+
+On

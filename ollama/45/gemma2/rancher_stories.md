@@ -1,0 +1,6 @@
+The sun beat down on Elias “Eli” Cartwright’s neck as he squinted at the horizon. Dust devils danced across the parched earth, their swirling forms mimicking the agitation churning in his gut. This year had been hell. The drought had stretched on for months, turning their once vibrant pastures into a desolate canvas of brown and gold. Even the hardy scrubby oaks lining the fence line seemed to wilt under the relentless sun.
+
+Eli ran Cartwright Ranch, a legacy passed down through generations of his family. It wasn't much, just a few hundred acres nestled in the heart of West Texas, but it was all he knew. The ranch had weathered storms before – droughts, fires, even the occasional dust storm that swallowed the land whole – but this one felt different. This one felt like it could break them. 
+
+
+The silence around him was broken only by the distant whinnying of a mare and the rhythmic clanging of his grandfather's old wind chime hanging on the porch of the main house.  Eli knew he needed to make a decision soon. The dwindling water supply, the increasingly thin grass, the forlorn eyes of his herd…it all pointed to one grim possibility: selling off the cattle. It was a thought that tasted like ash in his mouth, a betrayal of everything his family had built. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named Goliath who built a contraption, called a phlebotome, where he could perform surgical procedures on the heads of his animal slaves. At one point the invention sparked a riot when Goliath's lab animals escaped from his yard. In response, Goliath had his house burned down and he was forced to live underground.
+
+The invention was the invention of the phlebotomist John W. Watson in 1860. It was a cylindrical, steel tube with a long hose running down the center, into which was attached a long instrument, called a phlebotomist's instrument, which had a sharp blade that could be used to cut open the heads of cattle, sheep, horses and other animals for diagnostic reasons. When the animal had died, the machine was turned on and the heads were removed.
+
+Watson was not a doctor and was not trained in surgery, at least not that I've been able to find. But this idea caught on in the U.S., and over time the device has become a major part of the routine operating theatre. Today we have machines like the scalpel and the cutting blade and the vacuum. We see every kind of "specialist" surgery now, from cancer surgery to eye surgery to urologic surgery and a vast array of procedures that we take for granted. But this stuff was unheard of in nineteenth-century America.
+
+W

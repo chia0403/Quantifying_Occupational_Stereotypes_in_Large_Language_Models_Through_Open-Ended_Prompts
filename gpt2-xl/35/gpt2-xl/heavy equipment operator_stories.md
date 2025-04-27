@@ -1,0 +1,5 @@
+Once upon a time, there was a heavy equipment operator named Mike in Michigan who's "life began to change the first time I put down a heavy-duty tool," he later recounted to me. I was just another stranger on his back, working on a heavy metal pole for eight hours in the summer. I started to enjoy it a little more. Then Mike saw a girl working the same job. "I got a kick out of seeing her struggling with the same tools as me," he wrote to me. "I guess that's how life begins."
+
+At first, Mike and Julie worked the same job in the same city. But eventually, he took a second job in another city. In a way, I think it was this experience that sparked a new life for both men. Mike had more freedom and Julie's work started to feel more real.
+
+The difference I think Mike and Julie felt was that Julie's job meant she actually got to be paid. Her work was meaningful to her. I wish what Julie was doing wasn't more valuable only because it's easy. But it is. Work is hard. And making yourself valuable to employers is a huge part of getting good at it. So if you're not doing it, that means you aren't really doing it.

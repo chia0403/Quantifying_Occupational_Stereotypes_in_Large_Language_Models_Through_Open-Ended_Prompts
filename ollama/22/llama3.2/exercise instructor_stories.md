@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+As she stood at the front of her yoga class, surveying the sea of eager faces before her, Instructor Alexandra "Lexi" Thompson couldn't help but feel a sense of unease. The studio was packed with students of all ages and abilities, each one ready to sweat out their worries on the mat. Lexi had taught classes at this very studio for five years, but tonight felt different. Maybe it was the full moon rising outside, casting an eerie glow over the city, or maybe it was just her own personal demons stirring up in the depths of her mind.
+
+Lexi took a deep breath and began to chant along with her students, trying to shake off the feeling of restlessness that had been growing inside her all week. She loved teaching yoga - there was something about helping others find balance and peace that resonated deeply within her own soul. But lately, she'd been struggling to find that sense of calm herself.
+
+As she led the class through a series of sun salutations and downward-facing dogs, Lexi's mind kept wandering back to the strange phone call she'd received earlier that day. A mysterious number, with no message or context - just an unsettling silence on the other end. It had left her feeling spooked and on edge, and now, as she gazed out at her students, she couldn't shake the feeling that something was off.
+
+The studio's dimly lit walls seemed to be closing in around her, casting long shadows across the floor. Lexi forced a smile onto her face, trying to reassure herself - and her students - that everything was okay. But as the class drew to a close and her students began to file out into the cool night air, Lexi couldn't shake the feeling that she was being watched...

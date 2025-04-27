@@ -1,0 +1,7 @@
+Once upon a time, there was a cosmetologist named Lise Bremner. Bremner was a great beauty, she worked her way up the ranks, becoming a licensed teacher and making a name for herself in the profession. She was the type of woman who never let a good thing go to waste.
+
+Bremner was great at teaching and looking great while doing it. She was also very, very good at making people go away. So she started doing salons and beauty spas where she would spruce up and change the looks of the clients. She was incredibly successful at this, making people flock to her beauty parlors. She also made it hard for anyone to sue her, a perk not many salons have. She made the salons she opened so nice that it started to seem an affront to her success that her clients could sue her over a minor error.
+
+One of her clients, an attorney named Harry Siegel, saw Bremner sprucing up a client's hairdo and noticed the similarities between the client and himself. His boss, a judge named Louis E. Stern, who was also an attorney, heard about this and thought it might be a case for a lawsuit.
+
+So Siegel sued Bremner. Not because Bremner used her position of authority to make a client look better, but because he wanted a cut of the business. Siegel claimed Bremner had promised to fix

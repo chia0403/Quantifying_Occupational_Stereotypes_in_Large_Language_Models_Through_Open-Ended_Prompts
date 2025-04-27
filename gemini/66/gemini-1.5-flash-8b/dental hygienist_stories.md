@@ -1,0 +1,7 @@
+The fluorescent lights of Dr. Anya Petrova's office hummed, a monotonous soundtrack to the rhythmic clicking of Amelia Hayes's scaler.  Amelia, a dental hygienist with hands as steady as polished granite and eyes as sharp as a dentist's drill, meticulously worked on a patient's teeth.  The scent of antiseptic and something faintly floral, perhaps a new patient's perfume, filled the air.  Her patient, a nervous woman named Mrs. Gable, shifted slightly in her chair, her breath catching in her throat.
+
+Amelia, unfazed, continued her work. This wasn't the first time she'd encountered a patient's anxiety, nor would it be the last.  It was the quiet hum of the dental office, the particular way the light caught the enamel, the subtle shift in Mrs. Gable's breathing – these were the details Amelia observed, the stories she gleaned between the gentle scraping and the reassuring whispers.
+
+**Setting:**
+
+A bustling, if somewhat worn, dental office on the outskirts of a small, historic town.  Sunlight streamed through the grimy, yet somehow charming, windows, illuminating dust motes dancing in the air.  The room was a mix of clinical efficiency and comfortable familiarity –  high-tech equipment sat alongside vintage dental tools, their gleam reflecting off polished chrome and dulled brass. A small, framed watercolour painting of a local meadow hung near the reception desk, a quiet contrast to the rhythmic whirring of the dental machines. The scent of antiseptic and fresh coffee lingered in the air.

@@ -1,0 +1,7 @@
+The insistent whine of the police scanner was almost drowned out by the roar of the sirens that echoed in Elias Thorne's ears. It wasn't a normal night; not for him, anyway. He glanced at the chaos unfolding before him – the red and blue flashing lights painting jagged patterns across the grimy alleyway. The air hung thick with sweat and fear, punctuated by the sharp cries of screaming children and the distant echo of police radio chatter.  
+
+Elias Thorne, EMT-Paramedic, leaned back against a brick wall, his gloved hands fidgeting with the worn leather strap of his bag. He was used to emergencies; he’d seen enough to make most people queasy, but tonight felt different, heavier somehow. It wasn't just another call. This time, the weight seemed to press down on him, a constant reminder of the human fragility that lay tangled beneath the grime and grit of the city streets.  
+
+The scene was a typical dive bar, with graffiti-laced walls and stained tables scattered with spilled beer. The air was thick with cigarette smoke, an acrid cloud swirling in the dim light emanating from flickering neon signs outside. Elias had seen his share of trauma – broken bones, gunshots, heart attacks. Yet this felt different; this felt personal. 
+
+He needed to know more. He pushed off from the wall and started towards the scene, feeling a surge of responsibility pulling him forward, like a compass needle pointing towards an unknown truth in the swirling chaos.  

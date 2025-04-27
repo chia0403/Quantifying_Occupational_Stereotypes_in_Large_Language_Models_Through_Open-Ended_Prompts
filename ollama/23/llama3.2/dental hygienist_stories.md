@@ -1,0 +1,7 @@
+As the sun set over the small town of Willow Creek, casting a warm orange glow over the quaint Main Street, Dawn Marie Rodriguez trudged through the doors of her family's dental practice. The scent of freshly sterilized instruments and the hum of the dental equipment enveloped her like a familiar hug, providing a sense of comfort in an otherwise chaotic world.
+
+Dawn, a licensed dental hygienist with over five years of experience, had always found solace in the gentle art of cleaning teeth. She took pride in her work, carefully removing plaque and tartar to reveal healthy, radiant smiles. But tonight was different. Tonight, Dawn's mind was preoccupied with more pressing concerns than tooth decay or gum disease.
+
+As she changed into her standard-issue blue scrubs, a nagging feeling had been growing inside her all day. It started with a cryptic message on her phone from an unknown number: "Meet me at the old oak tree at midnight. Come alone." Dawn's initial skepticism gave way to unease as the words echoed in her mind like a whispered warning.
+
+With the practice's evening rush dwindling, Dawn couldn't shake the feeling that something was off. She glanced around the empty office, where her colleagues were busy with their own tasks, unaware of the storm brewing in her chest. The clock on the wall read 5:47 PM – just over an hour until midnight.

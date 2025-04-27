@@ -1,0 +1,5 @@
+The air hung thick with the scent of stale coffee and nervous sweat in Amelia Beatrice Hawthorne's cramped office. A single, flickering fluorescent light cast harsh shadows across the cluttered desk piled high with scripts, storyboards, and half-eaten granola bars. Outside, Los Angeles thrummed with its usual frenetic energy, a symphony of honking horns and rumbling engines that Amelia typically found exhilarating. But today, it just felt like another layer of pressure pressing down on her already fraying nerves. 
+
+Amelia had poured her heart and soul into "The Velvet Echo," a psychological thriller she'd been developing for the past three years. She’d secured financing, assembled a talented cast, and even found herself in the enviable position of choosing between two prestigious locations: a sprawling abandoned asylum nestled in the desolate Mojave Desert or an eerie, Victorian mansion perched on a cliff overlooking the Pacific Ocean.
+
+Now, just weeks before filming was scheduled to begin, her world was unraveling faster than the cheap paperbacks lining her shelves.  

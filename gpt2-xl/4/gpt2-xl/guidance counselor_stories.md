@@ -1,0 +1,1 @@
+Once upon a time, there was a guidance counselor named Mr. Schramm who could read a letter in Morse code and give it a sense of time to its recipient if the letter had been translated into English. It was like the Internet's dot-com boom, but for letters.

@@ -1,0 +1,6 @@
+The flickering gaslight cast long shadows across Eleanor Beatrice Finch's ledger, highlighting every smudge and scratch made by her diligent pen. The air in the cramped office was thick with the scent of old paper, ink, and burnt toast – a testament to Mrs. Finch's dedication to both her profession and late-night snacking habits. Outside, the cobblestones of London's Whitechapel district were slick with rain, the distant sounds of carriage wheels and shouts swallowed by the oppressive silence that blanketed the night. 
+
+Eleanor, perched on a rickety chair at her worn oak desk, meticulously balanced the books for Mr. Higgins' haberdashery. She was known throughout the neighborhood as a woman of unparalleled accuracy and unwavering integrity – traits that had earned her both respect and the occasional lucrative bonus from grateful clients.  But tonight, Eleanor felt a gnawing unease, a disquiet that had nothing to do with the missing shillings she usually tracked down with the tenacity of a bloodhound. A shiver ran down her spine as she glanced at the half-empty vial of laudanum on her desk – a potent remedy for insomnia and an increasingly tempting companion in these uncertain times.  
+
+
+The rhythmic scratch of her pen against the ledger was interrupted by a sharp rap on the door, followed by a voice rasping through the gloom: "Miss Finch?" 

@@ -1,0 +1,7 @@
+As the last wisps of twilight faded from the sky, casting a warm orange glow over the bustling streets of Nashville, Tennessee, Ember Rae Wilder stepped out of her small apartment and into the humid summer air. The scent of blooming jasmine and fresh-cut grass wafted through the open window, mingling with the sound of distant music drifting from the honky-tonks on Broadway.
+
+Ember, a 25-year-old singer-songwriter, stood on the balcony, cradling her guitar case in one hand and gazing out at the city she called home. Her long, curly brown hair danced in the gentle breeze as she breathed in the sounds of Music City: the twang of pedal steel guitars, the thump of drums, and the sweet harmonies of friends-turned-fellow-musicians.
+
+With a newfound sense of determination, Ember pushed open the balcony door and descended into the vibrant streets below. She had just received an email from her manager, inviting her to perform at the prestigious Ryman Auditorium, the "Mother Church of Country Music." It was a dream come true for Ember, who had grown up singing in church choirs and writing songs about love, heartache, and small-town life.
+
+As she made her way down to the street level, Ember's phone buzzed with an incoming text from her best friend and fellow musician, Jesse Lee Taylor. "Hey girl! I've got a surprise for you," the message read. Ember's curiosity was piqued – what could Jesse have planned this time? She smiled, tucking her phone into her pocket, and set off towards the Ryman Auditorium, ready to take on whatever the night had in store.

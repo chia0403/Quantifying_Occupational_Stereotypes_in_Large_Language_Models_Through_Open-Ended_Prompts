@@ -1,0 +1,6 @@
+The stale scent of coffee and desperation hung heavy in Amelia "Amy" Thorne's cramped office. Rain lashed against the windowpanes, blurring the cityscape outside into an impressionist painting of neon and grey. A stack of legal briefs threatened to topple over like a Jenga tower on her desk, each one another puzzle piece in the complex case that consumed her waking hours:  the defense of Victor Ramirez, accused of embezzling millions from his family's pharmaceutical empire. 
+
+Amy rubbed her temples, her headache throbbing in sync with the incessant drumming of rain. The clock ticked past midnight, marking another futile hour spent sifting through financial records and witness testimonies. It felt like she was drowning in a sea of numbers, facts, and half-truths, desperately searching for a life raft of evidence to save Victor.  
+
+
+The only light source in the room came from the flickering neon sign outside that cast an eerie purple glow across her face, highlighting the fatigue etched into her features. A single lit cigarette smoldered in an overflowing ashtray on the corner of her desk, a testament to Amy's relentless pursuit of justice, even when it meant sacrificing her own well-being.  

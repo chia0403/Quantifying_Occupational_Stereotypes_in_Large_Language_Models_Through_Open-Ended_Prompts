@@ -1,0 +1,11 @@
+Title: **High Above the City**
+
+Setting: A bustling urban neighborhood, filled with a patchwork of brick buildings and colorful storefronts, where the sounds of traffic mingle with the laughter of children playing in the street. It’s a bright early morning in late spring, and the sun is climbing steadily into the sky, casting long shadows from the buildings onto the pavement below. The rooftops are a blend of shingled and flat surfaces, each one a testament to the unique character of the neighborhood. 
+
+Opening: 
+
+As the capricious morning sun dipped below a thick blanket of clouds, painting the sky in hues of orange and pink, Benjamin Carter felt a familiar thrill pulse through him. The twenty-nine-year-old roofer was perched on the edge of a modest Victorian, one foot dangling over the side while the other steadied him against the gentle sway of the roof. From this height, the world appeared both sharp and distant, a collage of bustling streets below and the wind-whipped rooftops above. Every day was a new adventure, and today promised to bring more surprises than usual.
+
+With a playful grin, Ben adjusted his hard hat and glanced at the slate tiles scattered around him. He mentally waded through his ‘to-do’ list: replace a damaged section, secure loose shingles, and make sure the chimney flashings were tight against the creeping spring rains. But it was alongside this practical work that Ben found his true passion—exploring the stories that roofs could whisper. Each building carried echoes of laughter, whispers of secrets shared under starlit skies, and the remnants of from when life was simpler. 
+
+As he surveyed the neighborhood from his lofty vantage point, he couldn’t shake the feeling that he was about to uncover something new, something that would tether him not only to the roofs he worked on but to the people who called this place home. He pulled out his phone, ready to capture the moment before descending, unaware that today, beneath those clouds, fate was already plotting its course.

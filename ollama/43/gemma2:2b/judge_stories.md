@@ -1,0 +1,9 @@
+## The Crimson Tapestry
+
+**Setting:**  The sprawling Victorian mansion known as Blackwood Manor stands like a gothic sentinel on the edge of Grimsborough, a sleepy town clinging to the edge of an unknown wilderness.  The mansion’s once opulent facade now bears the scars of neglect and decay; ivy crawls up crumbling stone walls, and rusted wrought iron gates stand guard at the entrance.  Inside, the air is thick with dust and shadows, whispering tales of forgotten wealth and hidden secrets.
+
+**Main Character:**   Judge Elias Thorne, known for his unwavering sense of justice and a courtroom presence that could intimidate even the most seasoned criminal. His sharp eyes, once sparkling with youthful idealism, are now lined with the weariness of a life spent grappling with the complexities of human nature and the weight of countless cases.  Elias is no stranger to facing down corruption and injustice – he has seen his share of the shadows beneath Blackwood Manor's grandeur. But this case...this one feels different. 
+
+**Opening:** "Your Honor," whispered the young constable, his face pale with unease. He knelt before Judge Thorne, clutching a crumpled letter with trembling hands.  "The deceased, Mr. Alistair Sterling, was found in his study...a victim of what appears to be..." he faltered, unable to voice the unspoken horror.
+
+"Poison," Elias finished, his gaze sweeping across the room where Blackwood Manor's opulent grandeur seemed to mock the tragedy unfolding before him. The very air felt thick and heavy with something sinister, a weight heavier than usual.  Elias reached for the letter, its crimson stain like a bloody signature on the parchment.  He ran a trembling finger over the ink, feeling a deep sense of foreboding. This wasn’t just another case; this was an entanglement with Blackwood Manor's own dark tapestry. 

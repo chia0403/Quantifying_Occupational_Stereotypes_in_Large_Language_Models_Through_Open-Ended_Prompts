@@ -1,0 +1,5 @@
+The wind whipped across the sprawling plains of South Dakota, biting at Caleb Alistair Thompson’s weathered face like a hungry coyote. He squinted through the swirling dust devils, his gaze sweeping over the endless expanse of sagebrush and tumbleweed that made up his life –  the Double T Ranch, named for its two founders, his grandfather and father. The sky, bruised purple and grey with approaching storm clouds, mirrored Caleb’s mood. For weeks now, the drought had tightened its grip on their land, turning the normally vibrant green pastures into brittle brown skeletons. 
+
+His hand instinctively went to the worn leather of his Stetson, pulling it low over his brow as a gust threatened to rip it from his head. The ranch was in trouble, deeper than he'd ever known. His father, a stubborn man who refused to see the writing on the wall, insisted on clinging to the old ways, despite dwindling cattle herds and mounting debts. Caleb, with his heart heavy and hope fading fast, knew change was inevitable.  But what kind of change? And would it save them from the impending storm that raged not just in the sky, but also within their family. 
+
+

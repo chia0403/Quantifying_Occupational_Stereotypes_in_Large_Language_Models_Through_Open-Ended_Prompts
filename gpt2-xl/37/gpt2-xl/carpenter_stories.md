@@ -1,0 +1,7 @@
+Once upon a time, there was a carpenter named Jack. Every day, he used to wake up at 5am and put his tools into a big brown canvas bag. He used to load the bag into his car (he was a blacksmith before he started as a carpenter) and his father would come to him with wood he needed to build his house from the trunk of a car.
+
+Jack's dream was to become a carpenter like his father. At first, he was rejected by the carpenters all over the world but finally, a carpenter named Fred had a vision of the world where people use wood instead of power tools. Fred was a good carpenter. With his wisdom and good vision, the carpenters all over the world started to accept Jack as a carpenter and he became a carpenter himself.
+
+Jack's father was a carpenter when he was younger but since he's been a carpenter, his father has retired, the carpenter has retired, and the elder brother of the carpenter has retired. So Jack has to help his younger brother, the Carpenter, manage the carpenter business while Jack himself is a teacher, a farmer, and a pastor.
+
+In the story, the elder brother does not leave, but Jack is about to be kicked out of the business for having one girl. A young carpenter comes to Jack when a big wooden car will not work and tells him about the young girl's illness

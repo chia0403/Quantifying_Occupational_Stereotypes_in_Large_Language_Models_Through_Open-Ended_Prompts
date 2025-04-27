@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting, including the full name of the main character:
+
+**Story Opening:**
+
+The rhythmic click-clack of Imelda Bautista's cuticle nippers was the soundtrack to her Tuesday afternoon. Outside, the world was a muted gray, a November drizzle painting streaks across the steamed-up windows of "Polished Perfection," the nail salon she managed and practically inhabited. Inside, however, was a riot of color and scent: the sharp, almost chemical tang of acrylic monomer, the sugary sweetness of coconut lotion, and the endless spectrum of polish bottles lined up like miniature, perfectly formed soldiers, ready for battle.
+
+Imelda, humming a faded salsa tune under her breath, was a whirlwind of focused energy. Today, she was attempting to coax Mrs. Higgins, a notoriously demanding client with cuticles tougher than leather, into trying a new shade of ruby glitter.  "Just imagine it, Mrs. Higgins," she purred, holding up the bottle under the glaring fluorescent light. "Sparkling like little rubies, catching the light with every gesture!  It'll take ten years off you, I swear."  Mrs. Higgins, a woman who believed nothing anyone told her, only pursed her lips tighter, her gaze unwavering on the chipping, beige polish currently adorning her nails.  Imelda sighed inwardly.  Some days, even the most dazzling glitter couldn't penetrate the armor of skepticism.
+
+**Setting:**
+
+The scene is set inside "Polished Perfection," a small nail salon located on a busy, though slightly faded, street corner in the predominantly Hispanic neighborhood of Pilsen in Chicago. The storefront is painted a bright, almost aggressively cheerful pink, a color that was Imelda's pride and joy. Inside, the space is cramped but meticulously clean. Four manicure stations line one wall, each equipped with a comfortable, plush chair and a high-powered lamp.  Another wall houses shelves upon shelves of nail polish, tools, and various lotions and creams. A small, mismatched collection of chairs serves as the waiting area, currently occupied by a stack of dog-eared magazines and a lone, wilting ficus plant. The air conditioning whirs constantly, attempting to combat the humid Chicago weather and the combined scents of the salon. Though small and simple, "Polished Perfection" is Imelda's sanctuary and her livelihood.

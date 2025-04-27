@@ -1,0 +1,5 @@
+The scent of linseed oil and turpentine hung thick in the air, clinging to Amelia Rosalie Finch like a second skin. Her tiny studio, tucked away on the third floor of an old brick building overlooking a bustling Parisian street, was awash in the warm glow of late afternoon sunlight. Dust motes danced in the golden rays that slanted through the grimy windowpane, illuminating a chaotic scene: paint tubes lay scattered across her worktable like colorful jewels, brushes were strewn haphazardly across every surface, and canvases leaned against the walls, some half-finished, others blank and expectant.
+
+Amelia sighed, pushing a stray strand of auburn hair from her eyes. A canvas sat in front of her, its white surface mockingly pristine. She had been staring at it for hours, unable to find inspiration, the usual symphony of colours and shapes stubbornly silent within her mind.  The Parisian streets below seemed to pulse with life, a constant hum of laughter, chatter, and the rhythmic clip-clop of horses' hooves on cobblestones. Yet here, in this small sanctuary, Amelia felt utterly alone. 
+
+

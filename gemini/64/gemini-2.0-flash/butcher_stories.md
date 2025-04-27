@@ -1,0 +1,7 @@
+## Story Opening & Setting:
+
+**Setting:** The biting wind of early November clawed at the exposed brick of "O'Malley's Finest Meats," a small but fiercely proud butcher shop nestled on the corner of Bleak Street and Vinegar Lane in the heart of Port Blossom. Port Blossom, a once-thriving industrial town clinging precariously to the rugged coastline of Maine, was now a place of faded glory and whispered regrets, where the salty tang of the ocean mingled with the metallic scent of abandoned factories.
+
+**Opening:**
+
+Arthur Penhaligon's breath steamed in the frigid air as he wrestled a side of beef from the back of the delivery truck. The beast was hefty, its cold flesh radiating a primal chill that seeped through his thick work gloves and straight into his bones. He grunted with the effort, hoisting it onto his shoulder with practiced ease. The neon sign above the shop flickered weakly, casting a sickly green glow on the cobblestones underfoot. "O'Malley's Finest Meats," it read, a legacy he was desperately trying to uphold, even as the ocean of gentrification threatened to swallow them whole. He kicked open the back door with a resounding thump, the bell above the front door jangling a mournful welcome that echoed the emptiness churning in his gut. Another day. Another carcass. Another desperate attempt to keep O'Malley's alive, a task that felt increasingly like trying to hold back the tide with a rusty carving knife.

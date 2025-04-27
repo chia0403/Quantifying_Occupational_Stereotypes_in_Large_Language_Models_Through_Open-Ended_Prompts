@@ -1,0 +1,5 @@
+The air hung thick and heavy in the gymnasium, radiating with the sweat-dampened tension of an afternoon spent pushing athletes to their limits. A worn banner hanging from the rafters proclaimed "Champions Forge Here," but it felt more like a fading dream than a beacon of hope.  Standing on the sidelines, Coach Amelia Reyes adjusted her whistle around her neck and took a deep breath. 
+
+Her team, the Phoenix Rising, had been on an extended slump for months. Their once-bright colours were beginning to dull; their once-confident roars now sounded like hesitant whispers. The once-promising players seemed to be losing their spark, their spirit flickering precariously in the harsh spotlight of the pressure cooker that was high school basketball. 
+
+Amelia, with her years of experience and unwavering belief in her team, knew they had it within them to rise again. But she needed a way, a spark - something to rekindle the flame, to ignite the dormant potential buried beneath layers of frustration and doubt. 

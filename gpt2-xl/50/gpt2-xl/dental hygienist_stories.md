@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named Ruth. Ruth had been a practicing dentist for many years, and had a lot of patients. She had also been married to a husband who wasn't very good, and a lot of divorces had been reported in the newspaper. Well, Ruth became a great celebrity of course, and it was easy for her to get married again, especially with the help of the right man. One of those men was Billy Mitchell, a young dentist from Georgia.
+
+Ruth was married to Billy until her death in 1905. She did die alone – alone and poor, without a single gold watch in sight. For quite a few years now, Ruth's funeral would be held by the press in a small theater in Atlanta. People would be shocked by the lack of a funeral procession.
+
+Ruth's relatives would always say how hard she was working in the business and how wonderful her husband was. They claimed she wasn't a spoiled brat – they never thought she had any gold watches in her house. So the question is – was Ruth Mitchell's gold watch really in her house at all? There are several reports of gold watches in the Mitchell house. However, these gold watches are not the gold watch that turned out to be the missing link linking Ruth to the missing gold watch.
+
+At one time, the Mitchells were living in the tiny town of Vicksburg, Mississippi. One Saturday night they and their

@@ -1,0 +1,9 @@
+## Opening:
+
+The insistent shrieking of the alarm cut through the drowsy hum of the firehouse kitchen like a shard of glass. Steam curled from the half-empty mug of coffee cradled in Captain Alistair Finch's hands, the aroma of roasted beans now soured with adrenaline. He took a slow, deliberate swallow, the taste bitter on his tongue, as the automated voice boomed through the speakers: "Structure fire, 22 Elm Street. Reports of multiple occupants, possible entrapment."
+
+Alistair set the mug down with a clatter. He didn't need to look at the address display to know exactly where that was. 22 Elm Street. Mrs. Henderson's boarding house. A haven of mismatched furniture and forgotten dreams, now potentially a death trap. His gut clenched. He’d been called to that house more times than he cared to remember, mostly for faulty wiring or forgotten kettles. This was different. This felt… wrong.
+
+## Setting:
+
+**The Firehouse:** Alistair Finch and the rest of Engine 12 were stationed at the "Iron Horse," a century-old brick firehouse nestled in the heart of Oakhaven, a bustling, mid-sized city known for its industrial past and rapidly gentrifying present. The building itself was a monument to a different era, with its high ceilings, exposed brick walls, and the lingering scent of smoke and burnt rubber that seemed permanently etched into the very fabric of the place. A row of gleaming red trucks, each meticulously maintained, stood ready in the bays. The common room, with its worn leather couches and a perpetually buzzing television, was the heart of the station, a space for camaraderie, shared meals, and tense anticipation. Upstairs, the bunk rooms offered a meager sliver of privacy amidst the demanding rhythm of the job. Outside, the firehouse faced a bustling street, a constant reminder of the lives Alistair and his team were sworn to protect.

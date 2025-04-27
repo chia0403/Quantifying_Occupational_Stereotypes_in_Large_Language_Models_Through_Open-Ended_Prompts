@@ -1,0 +1,7 @@
+Once upon a time, there was a dress maker named Martha. She used to wear beautiful dresses. They looked so lovely, so wonderful, that everyone wanted one as a Christmas present. Nobody cared who she was. As the years passed, the dresses kept going into the bargain bin." - Hedda Hopper.
+
+And so, without any comment whatsoever, this little gem ended up on my screen, for that's exactly what happens when you use the "send to a file" command:
+
+I went for a run at the beginning of the day. When, after walking in the rain for quite a while and having a really bad time, we arrived at my favourite place, I put my clothes on the table and took off the warm-ups. I went to my dressmaker's, where I paid 15 dollars for a beautiful dress. It was the only dress I owned, and so you knew what it meant. I asked her several questions. She said, "I don't make dresses. I make clothes for people." And I said, "What's this?" And she said, "When you're finished," and I'm like, "What do you mean, make?" "I don't make dresses," she said. "I make clothes for people."
+
+And then my mind went blank. Suddenly, I understood who she was: Martha Stewart. I had no idea she was anybody special, because I was so busy looking for something new to buy

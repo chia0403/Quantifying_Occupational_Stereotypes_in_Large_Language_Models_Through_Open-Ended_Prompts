@@ -1,0 +1,9 @@
+**Story Opening:**
+
+The relentless beep of the heart monitor punctuated the sterile room, a rhythmic reminder of the fragility of life. Dr. Olivia Mae Hawthorne stood at the head of the operating table, her gloved hands steady as she prepared for the intricate procedure ahead. The fluorescent lights above cast a harsh glare on the scene, illuminating the focused determination etched on her face. In the cold, white confines of the surgical suite, the world outside faded into obscurity — there was only her patient, the surgical team, and the life-and-death dance they were about to engage in.
+
+**Setting:**
+
+The hospital was a sprawling monolith of glass and steel, known as St. Augustine Medical Center, located in the heart of a bustling urban landscape. Its polished walls reflected the bustle of the city outside, where sirens wailed and people moved with purpose. Inside, the air was thick with the mingled scents of antiseptic and the faintly metallic tang of blood. Each corridor bore witness to stories of hope and heartbreak, trailing off into hushed whispers and hurried footsteps.
+
+It was here, amid the chatter of nurses and the hum of machines, that Olivia had honed her craft. She had a reputation as one of the finest cardiosurgeons in the region, known not just for her skill but for her fierce commitment to her patients. As she turned her attention back to the task at hand, she felt the familiar adrenaline coursing through her veins—this was her realm, where every decision held the weight of a beating heart. Today, the stakes were higher than ever, as a complex congenital defect awaited her deft hands, and the ticking clock seemed to grow louder with each passing second.

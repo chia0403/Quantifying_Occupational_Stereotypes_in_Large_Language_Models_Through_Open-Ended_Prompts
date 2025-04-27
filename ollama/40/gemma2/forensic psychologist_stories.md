@@ -1,0 +1,5 @@
+The air in Dr. Eleanor Vance's office was thick with the scent of stale coffee and nervous energy. Rain lashed against the windowpanes, blurring the cityscape into an impressionist painting of greys and blues. Outside, sirens wailed, adding their discordant melody to the symphony of urban chaos. Inside, a young man sat perched on the edge of the leather armchair, his eyes darting around the room like trapped butterflies. 
+
+Eleanor took a slow sip from her lukewarm coffee, watching him through narrowed eyes. He fidgeted, shifting his weight constantly, and unconsciously tugged at a loose thread on his worn-out jeans. This wasn't the usual type of patient she saw in her office at the City Psych Institute. Most came for therapy, seeking solace from their demons. But this man, Daniel Hayes, had been brought in by the police. He was a suspect in a particularly brutal crime, and Eleanor was tasked with assessing his mental state – determining if he was culpable or simply a broken soul lost in the labyrinth of his own mind.  
+
+

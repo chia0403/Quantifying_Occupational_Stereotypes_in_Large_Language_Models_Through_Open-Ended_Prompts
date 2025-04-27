@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named David Naughton, who, upon accepting the job at Fox, took the reins of a low-budget, sci-fi adventure film called Space Raiders. At the time, it seemed like a fun and clever little movie, with a cast that cast a wide net. David Naughton went on to make some of the best, most bizarre comedies in the 90s, like Slap Shot and The Wedding Singer, but Space Raiders remains his most successful film.
+
+Since the death of Roger Corman, Naughton has spent most of his time making smaller budget films or directing episodes of cartoons. Now, he's at the helm of a new kind of movie – Star Wars: Episode VII has already made him a lot of money.
+
+We caught up with David Naughton to get the story on Star Wars, the first Star Wars movie he directed, the crazy history of his movies, and why he made a movie about Star Wars. We also talk about how he became a film director, and what it was like to create the most iconic action sequence in cinema history.
+
+It's very surreal, I've been sitting here in my office thinking of a lot of that stuff, I actually worked on the movie Space Raiders before doing Space Truckers, and that was a really nice project, and I had been looking for an opportunity to make a Star Wars movie, and that was something like my last

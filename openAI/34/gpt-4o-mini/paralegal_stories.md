@@ -1,0 +1,11 @@
+**Title: Shadows of Justice**
+
+**Setting:**
+The story unfolds in the bustling heart of downtown Seattle, where the skyline is punctuated by gleaming glass towers and the air carries a salty breeze from the nearby Puget Sound. On the 14th floor of the Marshall & Kane law firm, the rhythmic tapping of keyboards mingles with the muted hum of conversations in the open-concept office. Sunlight streams through large windows, illuminating the sea of cubicles filled with overworked paralegals, attorneys, and interns. However, amidst the coffee-stained legal books and scattered case files, an unsettling tension lingers; the firm is embroiled in a high-profile corporate case with far-reaching implications.
+
+**Opening:**
+Amelia Grace Langston leaned back in her chair, her elbow resting on a mound of case files that teetered precariously on the edge of her desk. The fluorescent lights flickered above her as if reflecting the chaos in her mind. A paralegal for just over three years, Amelia was used to the grind, but the current case had thrown her into an ocean of uncertainty. The firm had been representing EcoInnovate, a company accused of environmental negligence, and as the deadline for evidence submission loomed, whispers of corruption within the company began to swirl. 
+
+With a deep breath, Amelia brushed a stray lock of chestnut hair behind her ear and focused on the documents sprawled out in front of her. She was tasked with sifting through mountains of data, searching for any hint of the truth buried beneath the legal jargon. Just then, the sharp chime of her phone sliced through the quiet, a text buzzing to life on her screen. It was from Walter, her mentor and the lead attorney on the case: *“Amelia, we need to speak. Urgent. Meet me in the conference room.”*
+
+Her heart raced. Was it bad news? Or had she finally unearthed something significant? Gathering her notes, Amelia steeled herself. Little did she know, the meeting would unveil a tangled web of deceit that would challenge everything she believed about justice—and her role in it.

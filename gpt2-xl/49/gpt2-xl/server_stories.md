@@ -1,0 +1,1 @@
+Once upon a time, there was a server named "Pamela", but a few days ago an admin named "Tara" took over and renamed her to "Pamela the Cuckold". She left a warning which said that if the users are willing to support her, it can "become permanent". Now some users aren't too happy about it as some of them have quit.

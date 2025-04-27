@@ -1,0 +1,5 @@
+Rain lashed against the windows of  “The Static,” the loneliest tower in a forgotten city. Inside, nestled amongst crackling circuits and glowing tubes, sat Felix Hawthorne, a man whose world was one of humming machinery and whispered frequencies. With his grease-stained hands and weary eyes, he seemed less like a radio technician and more like an explorer charting uncharted territories of the electromagnetic spectrum.  
+
+Felix lived for these moments: when the static crackled to life, spitting out voices across miles and continents. It was in the chaotic symphony of sound where his true passion lay. The air hummed with anticipation as he listened, fingers drumming a familiar rhythm against the worn wood of the console. Every rumble of power lines, every burst of static seemed to whisper secrets untold. Tonight, however, something was different. 
+
+A new frequency, faint but insistent, sliced through the usual static-ridden tapestry. It pulsed like an irregular heartbeat, beckoning him toward the unknown.  

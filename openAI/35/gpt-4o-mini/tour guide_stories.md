@@ -1,0 +1,9 @@
+Title: **Shadows of the Old City**
+
+Setting: The narrow, cobblestone streets of San Javier, a historic town nestled along the rocky coast of Spain, still echo with the footsteps of ancient traders and explorers. Colorful houses with wrought-iron balconies cling to the hillside, their walls adorned with vibrant bougainvillea. The salty breeze carries the faint sound of distant waves crashing against the cliffs, blending with the chatter of market stalls selling everything from handcrafted ceramics to luscious fruits. Sunlight dapples the plaza, where an ornate fountain celebrates the town’s heritage with a gentle splash.
+
+As the day begins, a motley group of tourists congregates at the entrance of the old cathedral, their excitement palpable. Standing before them is the tall, lean figure of **Ignacio Manuel Serrano**, a seasoned tour guide with a passion for storytelling. His tousled dark hair reflects the sun's glow, and a weathered leather satchel hangs against his side, brimming with maps and historical trinkets. 
+
+With a warm smile and a glint of mischief in his eyes, Ignacio addresses the crowd, his voice a deep, melodic cadence that captivates even the most distracted. He gestures toward the cathedral's intricately carved façade, a masterpiece of Gothic architecture that looms majestically above them. "Welcome to San Javier," he announces, "a town where every stone has a story and every corner hides a secret. Today, we will uncover the mysteries of this enchanting place, but beware—what you find may linger in your minds long after you leave." 
+
+As the tourists lean in closer, a shadow flickers at the edge of the plaza, unnoticed in the excitement. Little do they know, Ignacio holds not only tales of the past, but a personal connection to the very secrets he is about to reveal, secrets that haunt him as deeply as the history he loves to share.

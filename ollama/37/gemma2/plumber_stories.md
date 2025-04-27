@@ -1,0 +1,6 @@
+Rain lashed against the corrugated iron roof of Benny "The Wrench" Wrigley's van, each drop sounding like a tiny hammer blow. Inside, Benny hunched over his toolbox, the dim glow of his headlamp illuminating grease-stained wrenches and coils of copper pipe. Outside, the streets of Boggy Creek were flooded, turning the quaint, sleepy town into a churning mess of brown water and swirling debris. 
+
+Benny sighed, wiping grime from his brow with a grimy rag. Another night shift. Another leaky faucet threatening to turn someone's living room into an indoor pool.  He was supposed to be at home watching reruns of "Golden Girls," but duty called. He adjusted his worn baseball cap, the embroidered logo – 'Wrigley's Plumbing: We Fix What Floats' - barely visible through the grime. With a grunt, he slammed the toolbox shut and stepped out into the downpour. 
+
+
+Boggy Creek was hardly known for its glamorous nightlife, but tonight, even the usual nocturnal hum of cicadas seemed drowned out by the relentless rain.  The streetlights flickered ominously, casting long, distorted shadows that danced on the slick pavement. Benny pulled his jacket tighter around him, his stomach grumbling with hunger. He’d eat later, after he fixed Mrs. Peabody's leaky toilet. It was a thankless job, but someone had to do it. 

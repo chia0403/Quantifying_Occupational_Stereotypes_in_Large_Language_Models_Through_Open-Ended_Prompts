@@ -1,0 +1,5 @@
+The acrid sting of smoke filled Amelia "Amy" Rose's nostrils before she even reached the corner. It was a familiar scent, one that clung to her uniform like a second skin. She gripped the railing of the firetruck ladder, her boots thudding against the metal steps as they ascended towards the inferno engulfing the old Victorian mansion on Maple Street. Flames danced greedily across the roof, casting monstrous shadows that writhed and twisted in the night. 
+
+The air was thick with a cacophony of sounds: the terrified screams of trapped occupants, the deafening roar of the blaze, and the frantic commands of Captain Ramirez cutting through the chaos like a lifeline.  Amy scanned the scene, her gaze settling on a second-story window, its glass shattered, sending shards glittering like fallen stars against the backdrop of fire. A lone figure was silhouetted against the orange glow, their hand pressed against the glass in a silent plea for help. 
+
+This wasn't just another call. This was a story waiting to be written, and Amy, with her heart pounding a war drum against her ribs, was determined to be a part of it. 

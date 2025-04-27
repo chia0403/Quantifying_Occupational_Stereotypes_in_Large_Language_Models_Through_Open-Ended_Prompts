@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting with an occupational therapist as the main character:
+
+**Story Opening:**
+
+The aroma of burnt sugar and disinfectant battled for dominance in the air, a familiar scent cocktail that always made Dr. Eleanor "Ellie" Vance take a deep, steadying breath before entering Room 308.  It was Mrs. Gable's room, and today was the day they attempted the impossible: transferring from bed to commode with minimal assistance. Ellie adjusted her name tag, ensuring "Occupational Therapist" was clearly visible, a silent promise to herself and her patients that she was there to help them reclaim their independence, one excruciatingly small step at a time.  She squared her shoulders and pushed the door open, a bright smile plastered on her face despite the knot of apprehension twisting in her stomach. Today wasn't just about Mrs. Gable; today was about Ellie proving to herself that she could still make a difference, even when she felt like she was barely holding herself together.
+
+**Setting:**
+
+The story is primarily set within the Willow Creek Rehabilitation Center, a sprawling, modern complex just outside of a small, historic town nestled in the Blue Ridge Mountains of Virginia. The center is known for its specialized programs in stroke rehabilitation, orthopedic recovery, and cognitive therapy.  It boasts state-of-the-art equipment, a hydrotherapy pool, a sensory integration room, and a meticulously maintained therapy garden.  However, beneath the gleaming facade of Willow Creek lies the quiet hum of human struggle, the palpable tension of hope and despair, and the intimate dramas unfolding within the walls of its many patient rooms and therapy spaces. The town itself is a picture postcard of Southern charm, with its quaint antique shops, farmers market, and stunning mountain views - a stark contrast to the sometimes brutal reality of the patients inside Willow Creek, fighting to regain their lives.

@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting featuring a cosmetologist named Delilah Mayfair:
+
+**Setting:** The stifling July heat clung to Havenwood, Ohio, like a cheap perfume. Main Street shimmered under the relentless sun, reflecting distorted images of the quaint boutiques and antique shops lining its brick sidewalks. One such shop, tucked between "Granny's Quilts & Curios" and "Bob's Bait & Tackle," was "Delilah's Dazzling Designs," a small, but fiercely stylish salon. Inside, the air conditioning hummed a valiant, if losing, battle against the oppressive temperature. The scent of hairspray, lavender shampoo, and simmering chamomile tea mingled in the air, a comforting aroma that promised transformation, or at least a temporary escape from the sweltering reality.
+
+**Opening:**
+
+Delilah Mayfair sighed, pushing a stray strand of auburn hair behind her ear. The glossy cherry-red manicure she’d given herself yesterday was already showing signs of wear. Mrs. Higgins, her 9:00 AM appointment, was running late, again. Delilah glanced at the wall clock, a gaudy, but beloved, vintage piece shaped like a lipstick tube. 9:17. Mrs. Higgins was reliably unreliable. Delilah knew, with a sinking feeling, that it wasn't just Mrs. Higgins' tardiness gnawing at her. It was the unsettling premonition that had been buzzing around her head like a persistent gnat all morning, a feeling that today, in Havenwood, Ohio, something significant was about to go terribly, fabulously, wrong.

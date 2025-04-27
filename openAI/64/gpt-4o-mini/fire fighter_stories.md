@@ -1,0 +1,11 @@
+**Title: "Embers of Courage"**
+
+**Setting:**  
+The city of Maplewood, nestled between a vast forest and a winding river, is known for its vibrant autumn leaves and small-town charm. However, the beauty is often marred by the threat of wildfires, especially during the dry season. The air hangs heavy with anticipation, and the scent of smoke lingers as firefighters prepare for what could be another challenging day. The headquarters of Maplewood Fire Department is a sprawling brick building, adorned with murals depicting brave rescues and the camaraderie of firefighters. Inside, the buzz of radios and the sounds of boots on the polished concrete floor create a rhythm of urgency.
+
+**Story Opening:**  
+The alarm blared, cutting through the early morning stillness, a sharp reminder of the dangers lurking in the dry underbrush of Maplewood’s outskirts. **Brandon Michael Foster** sprung from his bunk, adrenaline surging through him as he pulled on his uniform with practiced speed. With each tug of the fabric, he mentally prepared himself for the day ahead. Just last week, a fire had raged out of control just miles from his doorstep, an experience that still haunted him in the quiet moments. 
+
+Brandon, tall and sturdy with a tuft of dark hair perpetually tousled, had joined the Maplewood Fire Department not just to combat flames but to protect the community he loved. His heart raced not just from the alarm's urgency, but from the possibility of facing the very thing that had tormented him—fire. He gathered his gear, the weight of it a comforting reminder of his purpose. Today, the stakes felt higher; a sudden heatwave had intensified conditions, and rumors of a fire growing in the woods had surfaced.
+
+As he stepped out into the brightening morning light, the smell of smoke was already in the air, a gray haze creeping toward the city. The station was buzzing as fellow firefighters prepped the trucks, faces resolute, united by a shared spirit that had been forged in the heat of countless blazes. Brandon's thoughts drifted to the people he would protect, the homes he would save. Today, he promised himself, he wouldn’t let fear dictate his actions. Today, he would stand tall against the flames.

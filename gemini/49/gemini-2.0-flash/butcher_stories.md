@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting:
+
+**Setting:** The first pre-dawn light was just beginning to prick the inky sky over the small, perpetually damp fishing town of Port Blossom. A thick fog, smelling of brine and rotting seaweed, clung to the cobbled streets, muting the sounds of the waking seagulls to mournful cries. The salt-laced air nipped at exposed skin, promising another damp and chilly day.
+
+**Opening:**
+
+The bell above the door of "O’Malley’s Fine Meats" jingled with a rusty groan, disturbing the quiet of the early morning. Bartholomew ‘Bart’ O’Malley, proprietor and sole butcher of the establishment, didn't bother looking up. He knew the sound well, just as he knew the exact weight of a rump roast by feel and the specific angle to sharpen his boning knife for optimal precision. He was already waist-deep in his morning ritual: scrubbing the thick wooden chopping block until it gleamed pink under the single bare bulb hanging precariously from the ceiling. The cold water splashed up his arms, making the goosebumps rise, but Bart barely noticed. After thirty years, the chill was just another part of the job, like the scent of sawdust, blood, and the faint metallic tang that always lingered in the air, even after the most rigorous cleaning. He grunted, pushing a stray strand of salt-and-pepper hair out of his eyes with the back of his hand, a hand that was permanently scarred and calloused from years of wielding cleavers and knives. Today was market day, and Bart had a feeling, deep in his bones, that it wouldn't be a quiet one.

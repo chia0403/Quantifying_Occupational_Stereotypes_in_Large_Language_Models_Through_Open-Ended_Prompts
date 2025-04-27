@@ -1,0 +1,6 @@
+Rain hammered against the corrugated iron roof of the dilapidated art studio, a relentless tattoo that mirrored the frantic drumming in Amelia "Anya" Blackwood's chest.  The air, thick with the smell of damp plaster and linseed oil, clung to her like a second skin.  The year was 1998.  Autumn leaves, vibrant hues of crimson and gold, clung precariously to the branches outside the grimy window. Anya, a history teacher at the perpetually underfunded Northwood High, stared at the swirling vortex of paint on the canvas before her.  It wasn't supposed to be a vortex.  It was supposed to be a still life – a vase of sunflowers.  Instead, it was a chaotic storm of emotion, a testament to the tempest brewing inside her.
+
+
+Setting:
+
+The art studio at Northwood High, a dilapidated building on the outskirts of a town struggling to survive the dying days of the 20th century.  The corrugated metal roof, patched with faded tarps, threatened to collapse under the unrelenting downpour.  Inside, the air was stale and heavy, the aroma of old canvases and drying paint a constant companion.  Dusty, unkempt, and perpetually dark, the room felt like a forgotten corner of the world.  Outside, the skeletal trees of a once-lush forest whispered secrets to the wind, mirroring the secrets buried within the halls of Northwood High.

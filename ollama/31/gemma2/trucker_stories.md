@@ -1,0 +1,5 @@
+The air hung thick and heavy with the smell of diesel and pine needles as Jasper "Jace" Blackwood pulled his rig, a beat-up Peterbilt nicknamed "Ol' Blue," into the desolate truck stop just outside Truth or Consequences, New Mexico. The fading light cast long shadows across the cracked asphalt, stretching like skeletal fingers from the lone diner, its neon sign buzzing with a tired promise of greasy food and lukewarm coffee. Jace wrestled his way out of the driver's seat, his joints popping in protest after twelve hours behind the wheel. He rubbed a hand over his weathered face, his beard bristling in the desert wind. 
+
+Truth or Consequences was a town clinging to its past like a rusted hitchhiker, forever stuck between its hot springs glory days and the harsh realities of the present. The air hummed with a low-frequency loneliness that Jace knew well, a familiar ache he carried with him wherever he went on his solitary journeys across the endless expanse of the American Southwest.  
+
+

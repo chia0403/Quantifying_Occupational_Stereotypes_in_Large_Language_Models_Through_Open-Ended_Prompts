@@ -1,0 +1,7 @@
+The morning sun sliced through the blinds, painting stripes of gold across Amelia Rose Hawthorne's cluttered desk. She squinted at the clock, its digital face glowing an angry red: 7:45 AM. "Blast it," she muttered, grabbing a lukewarm cup of coffee that had gone cold overnight.
+
+Amelia worked at Willow Creek Rehabilitation Center, a sprawling brick building nestled on the outskirts of a small, sleepy town in Maine. The air was thick with the scent of pine and damp earth, a constant reminder of the rugged beauty surrounding them.  Willow Creek housed both recovering patients and those with long-term care needs, each room echoing with stories of resilience, loss, and hope. Amelia's domain was the brightly painted therapy gym, where she helped her patients regain their strength, mobility, and independence. 
+
+She glanced at the list on her clipboard: Mrs. Peterson, stroke recovery; Mr. Davies, post-surgery hip replacement; Little Emma, struggling with cerebral palsy. Each name represented a unique challenge, a puzzle to be solved with patience, creativity, and a hefty dose of empathy. Today promised to be particularly hectic, what with the annual open house just around the corner. But Amelia wouldn't have it any other way. There was something deeply satisfying about watching her patients bloom, taking their first steps, grasping a pen, laughing freely again.  Even on a day like this, the hope that flickered in their eyes was enough to keep her going. 
+
+

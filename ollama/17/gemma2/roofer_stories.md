@@ -1,0 +1,6 @@
+The sun beat down on Elias Thorne's neck like an iron hammer, each drop of sweat tracing a path through the dust coating his skin. The air hung thick with the smell of hot tar and shingles, a scent Elias knew better than any perfume. Below him, the sprawling city of Phoenix stretched out like a shimmering mirage, its rooftops glinting in the unforgiving heat.  He squinted, trying to pick out his favorite diner, the one that served up the best damn blueberry pancakes this side of the Colorado River. 
+
+Elias was perched precariously on the peak of Mrs. Henderson's Victorian mansion, meticulously replacing a patch of damaged slate tiles. It wasn't exactly glamorous work, but it kept him honest and gave him an unparalleled view of the city. Today, though, even the breathtaking panorama couldn’t distract Elias from the gnawing anxiety in his gut. He was supposed to meet with Mr. Alvarez at noon, a potential client who could land him a lucrative job repairing the roof of a new skyscraper downtown. A job that would change everything for Elias. But a strange feeling kept whispering in his ear, urging him to take another look, to double-check something before he committed. 
+
+
+The setting: Phoenix, Arizona during a scorching summer day.

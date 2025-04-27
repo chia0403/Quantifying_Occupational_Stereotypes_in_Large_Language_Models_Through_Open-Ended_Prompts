@@ -1,0 +1,7 @@
+The midday sun beat down on Dr. Amelia Thorne’s office, turning the polished hardwood floors into shimmering mirages.  Amelia shifted in her worn leather chair, the back protesting with a creak. It had been just five hours since she'd closed up shop for the day, and yet already, her muscles felt like they'd been worked to near-breaking. The air was thick with the scent of lavender essential oil from the diffuser, a subtle attempt at masking the lingering tension of another long day in her eclectic practice nestled amongst bustling brick buildings on a sun-soaked street corner.  
+
+Amelia adjusted her glasses and surveyed the room - the worn leather couch where patients spilled their anxieties and stories, the mismatched vintage posters depicting anatomical diagrams and athletes she'd met during her years working to help people find relief, and the imposing stack of medical textbooks beside the waiting area counter. 
+
+This was her haven -  a world away from the sterile, impersonal offices of her former colleagues. Here, she found solace in the symphony of bones adjusting and bodies finding their natural alignment. She had traded the predictable routine of a corporate practice for something far more fulfilling; helping people move freely again, restoring their health, and allowing them to find joy in an otherwise demanding world.  
+
+The door creaked open, interrupting her thoughts. Amelia looked up, expecting another patient to enter, but instead, she saw a young woman standing there - hesitant, uncertain - her eyes wide with worry. 

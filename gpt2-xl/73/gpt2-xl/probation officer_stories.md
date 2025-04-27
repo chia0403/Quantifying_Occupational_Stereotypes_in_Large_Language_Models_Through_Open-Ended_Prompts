@@ -1,0 +1,7 @@
+Once upon a time, there was a probation officer named Gary Stair who, to help solve the crime of a young boy murdered in 1981, discovered a letter addressed to a 15-year-old girl in Michigan named Tina, who went by the name Tina Grace. Stair and the police were in a rush so he sent the letter to the Michigan State Police Crime Lab. The lab's computer experts searched the letter for a match with any known offender. They found zero matches." Source: Freebase
+
+Stair found three possible suspects, but they didn't match the profile of the murderer at all: 1/2 – Danny Williams, Danny Williams' teenage son, and 3/4 (who?):
+
+And so, by chance, a letter was discovered addressed to Danny's fifteen-year-old daughter Tina on April 25, 1981. The letter contained a false name on the envelope, so the lab called up the "real" boy's phone number as well. A man answered, and a young woman identifying herself as Danny's daughter showed up to take the test. After Danny's name came up during the search, the name Danny Williams came up as well. The phone number on the envelope was a dead end, Danny and his name never happened. So it did not match. The crime lab decided the story of Tina Grace was a hoax.
+
+A decade later, in 1997, the Michigan Police Museum opened a room named "Tina Grace." And when

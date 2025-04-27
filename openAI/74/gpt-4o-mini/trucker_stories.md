@@ -1,0 +1,9 @@
+The sun dipped below the horizon, painting the sky with hues of orange and purple, as the last rays of light flickered across the endless asphalt of Highway 64. A solitary truck rumbled along the road, its headlights cutting through the encroaching twilight. In the cab, Earl Jonathan Mitchell gripped the steering wheel tightly, his weathered hands a testament to twenty years of life on the road. 
+
+Earl, a seasoned trucker with the grit of a man who had seen it all, had made this stretch of highway his second home. The roar of the engine harmonized with the rhythmic thump of tires against the pavement, a familiar lullaby that soothed his restless spirit. His truck, a well-worn Freightliner named "The Iron Horse," was adorned with an assortment of decals – remnants of a life spent traversing the country, delivering goods and stories alike.
+
+Outside, the landscape blurred into dark shadows and emerging stars, but Earl was lost in thought, replaying the memories of the roads he’d traveled and the people he’d met along the way. Each mile marker was a testament to his freedom, but as he shifted his gaze to the rearview mirror, something flashed momentarily—a glimpse of headlights that didn’t belong to any vehicle he recognized. 
+
+Unease crept into his bones as he recalled a warning he’d heard at the last truck stop: a series of unexplained disappearances had haunted this very stretch of road. But Earl was no stranger to the road’s mysteries. With a flick of his wrist, he turned up the radio, letting the crackling sing of classic country ease the tension.
+
+Tonight, he was just another long-haul driver chasing the sunset, but Earl Jonathan Mitchell had a sinking feeling that this journey was about to lead him somewhere he never expected.

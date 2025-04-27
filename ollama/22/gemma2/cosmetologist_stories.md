@@ -1,0 +1,5 @@
+The whir of the blow dryer was a familiar lullaby in Amelia “Amy” Rosewood's world.  She ran her fingers through the thick, mahogany strands cascading over her client’s shoulders, coaxing them into perfect waves. The scent of jasmine and coconut hung heavy in the air, mingling with the faint aroma of freshly brewed coffee that drifted from the corner where Mr. Garcia was hunched over his crossword puzzle. 
+
+Amy's salon, "The Polished Pearl," was a haven tucked away on a quaint street corner in Savannah, Georgia.  Wrought iron balconies adorned the pastel-colored houses lining the street, their vibrant blooms spilling onto cobblestone walkways. Spanish moss draped lazily from ancient oaks that lined the avenue, casting dappled shadows over the bustling sidewalk below. The air buzzed with the chatter of locals and the melodic twang of a banjo drifting from a nearby porch. It was a world away from the frenetic pace Amy had left behind in New York City, a place where she’d spent years honing her craft but never truly felt at home.
+
+

@@ -1,0 +1,6 @@
+The rhythmic buzz of clippers filled Bartholomew “Bart” Tremont’s tiny barbershop, mingling with the scent of bay rum and the soft murmur of old jazz emanating from a crackly speaker in the corner. Outside, the humid Georgia summer hung heavy, thick as molasses, but inside, Bart’s shop was a cool oasis, air thick with anticipation rather than heat. 
+
+His worn wooden chair creaked softly as Mayor Jackson settled into it, the familiar weight of civic responsibility momentarily lifted by the ritualistic snip and trim. Bart knew every man in this town – their stories, their secrets, their anxieties etched into their faces like well-worn maps.  He didn’t just cut hair; he listened, offered advice whispered between snips, and dispensed a comforting dose of normalcy in a world that felt increasingly chaotic. 
+
+
+But today, the air crackled with something different. A nervous energy buzzed beneath the usual humdrum. The Mayor wasn't his usual jovial self, his brow furrowed under the weight of an unspoken worry.  As Bart reached for the comb, he saw it – a flash of fear in the Mayor’s eyes that had nothing to do with a bad haircut. Something was coming, something big, and even Bartholomew Tremont, the steady hand in this small town's storm, couldn't quite figure out what. 

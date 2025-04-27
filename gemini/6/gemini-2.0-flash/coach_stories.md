@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting focusing on a coach character:
+
+**Opening:**
+
+"Damn it all to hell!" Coach Evelyn Beatrice Sinclair slammed her clipboard onto the hood of her beat-up Ford pickup, the metallic clang echoing across the deserted parking lot.  The setting sun cast long, skeletal shadows from the basketball hoops against the cracked asphalt, making the faded white lines of the court look like bones protruding from the earth. Another season, another near miss.  They'd had the talent, the drive, the potential…but something, some crucial element, was consistently missing. Evelyn rubbed her temples, the familiar headache throbbing behind her eyes.  This year was supposed to be different.  This year, the North Creek Bobcats were supposed to finally break the twenty-year curse and make it to the state championships.
+
+**Setting:**
+
+The story is primarily set in the small, economically struggling town of North Creek, nestled in the foothills of the Appalachian Mountains in western North Carolina.  North Creek is the kind of place where everyone knows everyone, gossip spreads faster than kudzu, and Friday night football is practically a religious experience.  The local high school, North Creek High, is the heart of the community.  It's a single-story brick building, weathered and worn, but fiercely maintained by a dedicated staff. The gymnasium, affectionately known as "The Bobcat Den," is the central hub for basketball, volleyball, and any other indoor school events. It smells perpetually of old sneakers, sweat, and floor wax. Outside the high school, the town consists of a main street with a few struggling businesses, a diner that serves as the community's unofficial meeting place, and rows of modest houses, many showing signs of age and neglect. The surrounding mountains, beautiful but unforgiving, loom over the town, a constant reminder of its isolation and the hardscrabble lives its residents lead.

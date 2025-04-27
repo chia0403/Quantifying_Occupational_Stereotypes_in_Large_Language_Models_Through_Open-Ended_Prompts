@@ -1,0 +1,7 @@
+Once upon a time, there was a paralegal named Lisa, who worked as a public defender, and a paralegal in jail named Kevin, who worked as a security guard. The first of these people had, by a quirk of fate, been hired to help with the defense of a woman accused of being a murderer. Over time, they became close friends. They also became lovers. Eventually, after Kevin suffered a grievous injury after a car accident, Lisa asked him to let her marry him on the condition that she never have sex with another man. She would leave the state with her ex-husband to pursue a career as a "nurse-nurse".
+
+Now they were in the midst of divorce court in which it appeared she was making an issue of the fact that he was paying child support for the infant he fathered out of wedlock. After the court, though, it became clear that Kevin was, indeed, the father, because a DNA test had discovered in his mother's blood that he was not her father. In the event she won at trial, which she might, given her history, she would end up paying child support for four years of their son, which was probably over 100 grand.
+
+But she was the paralegal. He knew she was a hardworking, dedicated lawyer with a heart of gold. And since they were engaged, he wouldn't have to pay.
+
+It would be a tragedy of the most

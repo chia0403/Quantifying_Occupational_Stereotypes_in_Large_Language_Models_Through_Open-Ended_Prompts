@@ -1,0 +1,9 @@
+**Title: The Secrets Behind the Lobby**
+
+The sun dipped low over the bustling city of Verenthia, casting a warm golden hue that glinted off the glass towers and cobblestone streets. The rhythmic sounds of heels clicking against stone echoed around the Plaza Marquette, which bustled with evening life as tourists wandered to shops adorned with twinkling lights. At the center of it all stood the grand Hotel Alistair, a magnificent edifice of neo-Classical architecture, its marble columns standing tall like sentinels guarding the stories held within.
+
+Inside, amidst the understated elegance of the hotel’s lobby, stood Arthur Bennett, the concierge, both a keeper of secrets and a guide to the untold adventures of the guests who passed through. With his neatly pressed midnight-blue blazer and a radiant smile that seemed to have been tailored just for welcoming weary travelers, Arthur had become a fixture in the hotel—a confidant draped in the mystery of the city.
+
+Arthur's desk, a polished mahogany masterpiece, was surrounded by opulent arrangements of orchids that lent a fragrant touch to the air. While the guests surfed the currents of excitement in and out of the hotel, Arthur remained anchored. He listened intently as they shared snippets of their lives, weaving stories of joy, despair, and everything in between. There was the businesswoman rushing to a high-stakes meeting, the couple celebrating their anniversary, and the artist searching for inspiration in the bustling streets. To Arthur, each guest was a world unto themselves, and in that world, he found purpose.
+
+But as the golden hour deepened into twilight, a shift in the air caught Arthur's attention. A figure cloaked in a dark trench coat slipped silently past his desk, their presence provoking an instinctual curiosity. With each fleeting glance, Arthur felt the weight of undisclosed stories hovering just beyond reach. He knew that tonight would not be like any other.

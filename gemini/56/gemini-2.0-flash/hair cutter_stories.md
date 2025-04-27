@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a hair cutter named Evander Silas Bright:
+
+**Story Opening:**
+
+The bell above the door of "Scissors & Souls" jingled a melody that was as familiar to Evander Silas Bright as the feel of cool steel against his palm. He didn't even look up from the intricate layers he was sculpting on Mrs. Hawthorne's perpetually anxious bouffant. "Just a minute, darlings!" he called out, his voice a rich baritone that belied his delicate work. The scent of lavender and something vaguely chemical – a complex perfume of perm solution and old dreams – hung heavy in the air. He carefully snipped a stray strand, assessing his work in the mirror, before finally turning to greet the newcomer. It wasn't a customer. It was Officer Davies, and the worry etched on his face was thicker than the hairspray Mrs. Hawthorne usually requested.
+
+**Setting:**
+
+"Scissors & Souls" was nestled on a quiet, tree-lined street in the heart of Havenwood, a town that clung to its Victorian charm like a faded velvet dress. The salon itself was a testament to Evander's eclectic taste. Mismatched antique chairs, upholstered in everything from floral chintz to emerald velvet, lined the walls. Sunlight streamed through stained-glass windows, casting kaleidoscopic patterns across the worn wooden floor. The walls were plastered with vintage movie posters and framed photographs of Evander's more daring (and eccentric) clients sporting his signature creations.  Old barber chairs, salvaged from various estate sales, held a collection of colorful, well-worn hair-cutting capes.  The air always smelled faintly of something herbal, thanks to Evander's penchant for brewing his own hair tonics, and the gentle hum of jazz music usually provided a calming backdrop to the snipping and chatter.

@@ -1,0 +1,7 @@
+Once upon a time, there was a salesperson named David. After selling a lot of stuff, David got some help from a couple of salespeople and got his income going. He then used the money he now had to go buy a big house. David then went to the bank to pay his mortgage. When he went into the bank to pay off the mortgage for the big house, the banker asked what was his income. David answered that he did not earn any income, as all his income came from his last sale, the house he bought. David then explained that his income came from selling his house. The bank manager asked if David's wife gave him any money as compensation. David said no.
+
+The bank manager asked David why he had paid the mortgage when he didn't earn any income. The bank manager asked David to tell David his reason for paying the mortgage. David responded that he only sold the real estate that he owned. David explained that the mortgage for the house was paid for by sales made by his salespeople.
+
+David later went into the bank to get the cash to pay off the mortgage. When he went into the bank to get the money to pay off the mortgage, the deposit officer said that the bank had foreclosed the house on David because the buyer of the house was not a good enough tenant and failed to maintain the house.
+
+The bank then had David arrested, and had David's wife, wife's sister, and his uncle's

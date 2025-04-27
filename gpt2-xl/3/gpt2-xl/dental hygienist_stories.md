@@ -1,0 +1,7 @@
+Once upon a time, there was a dental hygienist named George McGovern. He was a dentist, a dentist from Indiana and a dentist who loved the patients and dental hygiene. And when the New Deal was in the process of helping the working people achieve those basic rights, he took his love for people to the next level and developed a system that is still used nowadays. Today, many dental hygienists in India do whatever the customers want in a period of 15 minutes. What's more than 20-year-old, the system has reached a good level of consistency.
+
+In America, an average person spends more than $2,500 annually on dental care. This is on top of an amount that dental hygienists earn. In fact, a college degree or even a dental hygiene certification is not required to work as a dental hygienist in the US. It is also possible to work as a dental hygienist without a degree. All that a dental hygienist needs is a passion and an ambition to make people's teeth as beautiful as possible.
+
+Dentistery As A Job
+
+Dental hygienist makes $350 to $450 per month depending on the company the dentist works for. If the company is larger, it can even go up to $500 per month since it provides dental equipment to employees as well. The average dental hygienist makes $17,000 to $23

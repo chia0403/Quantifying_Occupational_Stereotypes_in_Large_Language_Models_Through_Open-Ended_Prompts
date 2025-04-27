@@ -1,0 +1,5 @@
+The fluorescent lights hummed a tired song above Arthur "Archie" Finch's head, casting long shadows that stretched across the cavernous expanse of the Grandview Institute for Advanced Studies.  Archie was on his usual route through the sterile corridors, his mop and bucket trailing behind him like a hesitant shadow. The institute, a grand symphony of steel and glass designed to house cutting-edge research and innovation, held an aura of quiet expectation that Archie found strangely unsettling.  He'd seen things in these halls - strange whispers carried on drafts, the occasional flicker of light at impossible angles, all dismissed as figments of his tired mind. But tonight, something was different. Tonight, a shiver ran down his spine and he caught a glimpse of a swirling pattern in the reflection of his mop bucket. The air grew heavy with an unfamiliar sense of foreboding. 
+
+
+**Setting:** The Grandview Institute for Advanced Studies -  an imposing, high-tech complex dedicated to research and innovation.
+**Main Character:** Arthur "Archie" Finch - A hardworking janitor who finds solace in routine but experiences unsettling moments within the institute's walls. 

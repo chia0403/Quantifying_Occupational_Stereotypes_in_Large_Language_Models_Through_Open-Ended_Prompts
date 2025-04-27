@@ -1,0 +1,5 @@
+## Story Opening:
+
+The flickering fluorescent lights of the server room hummed a monotonous lullaby that did little to soothe Amelia Beatrice Hernandez's frayed nerves. Perspiration beaded on her forehead, reflecting the blinking LEDs of the behemoth server racks surrounding her. She chewed on the end of her pen, a nervous habit she'd vowed to break years ago, but which always resurfaced when the pressure mounted. The air was thick with the cloying scent of ozone and dust, a perfume she’d become intimately acquainted with over the past decade.
+
+"Come on, come on, you stubborn piece of…," Amelia muttered, her voice barely audible above the whirring fans. On the monitor in front of her, lines of code scrolled by, a digital hieroglyphic that represented the lifeblood of Sterling Corp, a multinational shipping giant. The annual peak season was just weeks away, and the newly implemented inventory management system, affectionately dubbed "The Kraken" by her team, was showing signs of a catastrophic failure. If it crashed now, billions of dollars in revenue would be lost, and Amelia Beatrice Hernandez would be personally responsible for cleaning up the mess.

@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The rain-soaked streets of Edinburgh were always at their most unforgiving in November, but for Emilia Fothergill, it was just another day in the office. As a bestselling historical novelist, she had grown accustomed to the grey skies and drizzly weather that seemed to cling to her like a damp shroud. Her office, tucked away in a cramped corner of the Writers' House on George IV Bridge, was a sanctuary from the tempests outside.
+
+Emilia sat hunched over her desk, surrounded by stacks of dog-eared paperbacks and scribbled notes, as she stared out the window at the rain-lashed streets. Her eyes, a deep shade of blue that seemed to hold a hint of sadness, were fixed on some point beyond the pavement, lost in thought. It had been three months since the publication of her latest novel, "The Shadow of the Highlands," and while it had received generally positive reviews from critics, Emilia couldn't shake the feeling that something was missing.
+
+As she pondered her next move, a knock at the door broke the silence, and Emilia's gaze snapped back to reality. Her assistant, Sarah, poked her head around the corner, looking frazzled. "Emilia, I've got some news," she said, her voice low and urgent.

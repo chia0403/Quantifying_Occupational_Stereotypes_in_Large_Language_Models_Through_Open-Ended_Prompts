@@ -1,0 +1,7 @@
+Once upon a time, there was a hair cutter named Johnny. Johnny didn't know how to cut hair and ended up getting a razor on a pliers. This is a story about Johnny and his razor.
+The story is told by Johnny;
+He had long black hair and a full beard that reached just beyond his shoulders. Johnny decided that it would be fun to get some of his hair cut so he went to a barbershop. The place was small and was a mess with people crying in the chairs. "Hello sir. I want to shave my head and mustache."
+Johnny was very nervous and he was very quiet but he managed to calm the customers down by stating "I am no longer a razor boy, but a barber."
+After the customers had calmed down Johnny finished up his work and was headed to the restroom. He had just made it to the bathroom when the door opened and two men greeted him with very cold stares. "Why the long face man, are you a razor boy?". Without any hesitation Johnny turned around and said "Oh no, you see, I am a man without a beard and a razor" with a smile.
+The men looked at each other and before they could say anything the other two men grabbed Johnny's arm and pulled him to the other side of the barber room. "Where are you trying to go boys?"
+Johnny was pulled to the other side of the bar and after several stares yelled out "I am going

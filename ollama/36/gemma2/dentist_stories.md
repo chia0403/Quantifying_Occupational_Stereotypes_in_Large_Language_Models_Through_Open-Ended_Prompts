@@ -1,0 +1,6 @@
+The air hung thick with the sterile scent of disinfectant and peppermint as Dr. Amelia Brighton surveyed her domain. Gleaming chrome dental chairs lined the walls of her practice, their plush seats waiting for patients like vacant promises. Sunlight streamed through the floor-to-ceiling windows, casting long shadows across polished white tiles and illuminating a scattering of colorful children's books on a low shelf - a testament to Dr. Brighton's dedication to making the experience less daunting for younger patients. 
+
+Outside, the sleepy coastal town of Oakhaven hummed with the usual morning bustle. Seagulls squawked overhead, fishermen cast their lines in the harbor, and tourists strolled along the promenade, inhaling the salty air. But within Dr. Brighton's carefully curated oasis of calm, a different kind of tension brewed. 
+
+
+Amelia tapped her pen against her schedule, her brow furrowed as she reviewed the day's appointments.  She wasn't worried about the usual chipped teeth and cavities; it was Mrs. Clementine Henderson's upcoming visit that had her stomach churning. Mrs. Henderson, known for her sharp tongue and sharper criticisms, was notorious for leaving scathing reviews after every appointment.  Amelia needed this visit to go smoothly, but with a patient like Mrs. Henderson, anything could happen. 

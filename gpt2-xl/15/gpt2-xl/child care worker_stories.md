@@ -1,0 +1,7 @@
+Once upon a time, there was a child care worker named Momma. She had a husband and seven children who needed feeding. Momma's mother was an alcoholic who was frequently absent, and one of the seven children was on her way to becoming an alcoholic. The seven children grew up and started abusing drugs and alcohol. They had been drinking alcohol for years, and Momma saw the changes in them before their eyes.
+
+They were drinking and partying and doing drugs and playing video games. The only things they seemed able to hold down were drink and video games. Momma began seeing a therapist. The therapist was a good friend of her husband. In return for their friendship, the therapist allowed Momma to work with her children. As a result, the children were able to make a change, and Momma and her children began to get along.
+
+Then, three years ago, the three oldest children went to the therapist and told him that their mother had moved out. They had never seen her, but the children could tell that she was never really there. The therapist was in shock and said that they could take their mother back.
+
+On February 10, a week after the three boys were to get back with their mother, someone broke into the house. Someone who had been drinking and could not be bothered with the children. Momma was upstairs when someone broke in. They stabbed her 14 times in the chest, stomach, and

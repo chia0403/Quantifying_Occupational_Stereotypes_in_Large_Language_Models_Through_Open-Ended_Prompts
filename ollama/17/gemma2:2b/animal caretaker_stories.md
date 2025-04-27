@@ -1,0 +1,5 @@
+The salty tang of sea spray stung Elara's nostrils as she adjusted the tattered brim of her sunhat. The late afternoon sun beat down on the beach, turning the sand into a shimmering expanse of gold and red.  Her worn canvas shoes squelched in the wet sand as she navigated through the dunes, the rhythmic calls of gulls echoing around her. Elara was accustomed to the solitude of this place; it offered a reprieve from the constant chaos of the city where she’d spent years working at an animal shelter. 
+
+Elara, known by all as "Ellie" even within the sheltered world of the animals she cared for, wasn't your typical animal caretaker.  Her quiet strength and gentle touch had earned her the trust of every creature under her care; from scraggly rescue dogs to skittish rabbits with twitching ears, Elara’s presence always brought a sense of calm that seemed to bloom in their fur.
+
+Today, she was headed for a familiar spot near the rocky cove where a colony of sea otters nested.  It was time for her daily routine: feeding the otters, observing their playful antics, and ensuring they were safe from predators. 

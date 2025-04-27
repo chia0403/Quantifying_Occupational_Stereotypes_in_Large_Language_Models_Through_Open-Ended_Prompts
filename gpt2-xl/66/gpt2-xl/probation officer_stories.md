@@ -1,0 +1,7 @@
+Once upon a time, there was a probation officer named Steve.
+
+Steve started out with the Seattle PD. He had no criminal record, he didn't have an alcohol problem. He was hard working, good at his job, and he just got in trouble for being a hardass, making a joke, or saying something he shouldn't have. Steve made mistakes, the same ones we all make, except we do them in public instead of behind closed doors.
+
+Steve's probation had a couple of simple rules. Never take drugs or alcohol. Don't do anything involving gangs or drugs. And Steve wouldn't say anything to kids that they didn't want to hear.
+
+Steve wasn't perfect, but he did not break any of these rules. And if we broke our own rules, he'd give us a chance. He'd write us letters and come over to our house when his office wasn't in session (to help with paperwork), but his primary focus would be to let us keep our jobs and not send us to jail. There were a couple of times Steve's wife got him to agree to let us go on vacation where he would pay, and the judge approved of this, but not because Steve was a great teacher. He was always a bit of a dick. He once forced his wife to get a DUI. One day after a long long day of work, she got a DUI. Steve didn't like that one bit. The judge gave Steve the option

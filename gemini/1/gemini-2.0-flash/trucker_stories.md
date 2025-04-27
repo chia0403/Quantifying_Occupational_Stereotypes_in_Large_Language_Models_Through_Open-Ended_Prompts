@@ -1,0 +1,9 @@
+Okay, here's a story opening with a trucker named "Evelyn Mae Rourke":
+
+**Opening:**
+
+The diner reeked of stale coffee and regret, a familiar scent to Evelyn Mae Rourke. Outside, the pre-dawn sky was a bruised purple, threatening rain that hadn't yet materialized. She nursed her lukewarm cup, the gritty grounds scraping against her teeth with each swallow, and stared out the window at the deserted highway. The neon sign of "Maureen's Truck Stop - Home Cookin' & Hot Showers!" flickered intermittently, a melancholic disco ball in the oppressive darkness. A fly, sluggish from the cold, buzzed against the glass, mirroring her own restlessness. Evelyn was halfway through her cross-country haul, carrying a load of organic fertilizer from California to Pennsylvania. Usually, the rhythm of the road soothed her, but lately, a nagging unease had settled in her bones, a premonition that something was about to shift.
+
+**Setting:**
+
+The story opens at "Maureen's Truck Stop," a dilapidated diner located just off of Interstate 80 in the desolate, wind-swept plains of Wyoming. The diner is a relic of a bygone era, its once vibrant chrome peeling and its red vinyl booths cracked and worn. The parking lot is vast and mostly empty at this hour, save for Evelyn's eighteen-wheeler, "Betsy," and a few other weary-looking rigs. The air is crisp and cold, promising a long and lonely day on the road. Inside, the diner is dimly lit and sparsely populated. The walls are adorned with faded photographs of cowboys and dusty taxidermied animals, creating an atmosphere of faded glory and forgotten dreams. The only other occupant besides Evelyn and Maureen, the stout, grey-haired owner wiping down the counter with a practiced hand, is a lone figure hunched over a plate of greasy eggs in a booth near the back. The overall feeling is one of isolation and quiet desperation, a place where time slows down and secrets linger in the air.

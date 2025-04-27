@@ -1,0 +1,9 @@
+## Story Opening:
+
+The clatter of pans was a furious symphony in the pre-dawn gloom. Isabella “Izzy” Rossi, head cook and owner of "Bella's Bites" food truck, was a whirlwind of motion. Flour dusted her cheeks like a misplaced snowfall, and her brow was slick with a mixture of exhaustion and fierce determination. Steam billowed from the industrial-sized pot on the burner, carrying the savory scent of simmering marinara - her grandmother’s recipe, passed down with a side of “never-tell-a-soul” warnings.
+
+Izzy slammed a cast-iron skillet onto another burner, the metallic thud echoing in the confines of the truck. She needed to be *perfect*. Today wasn't just any day; it was the annual Bayview Food Truck Frenzy, a gauntlet of taste buds, judge's scrutiny, and cutthroat competition that could make or break a small business like hers. If Bella's Bites didn't pull out a win, or at least a decent showing, Izzy knew she'd be facing eviction notices and empty pockets before the summer was out.
+
+## Setting:
+
+The cramped interior of Bella's Bites, a vintage Airstream trailer meticulously renovated into a mobile kitchen, felt both comforting and claustrophobic. Chrome fixtures gleamed under the harsh fluorescent lights, reflecting the organized chaos of Izzy’s domain. Every inch was utilized: magnetic spice racks clung to the stainless steel walls, shelves overflowed with colorful vegetables, and a custom-built pizza oven dominated the far corner. A small window, currently covered with a drawn shade, offered a glimpse of the sprawling, empty parking lot where the Food Truck Frenzy would soon erupt in a cacophony of hungry customers and competing aromas. Beyond the parking lot, the pre-dawn sky hinted at the shimmering expanse of the Bayview Harbor, its calm surface a stark contrast to the storm brewing in Izzy's heart.

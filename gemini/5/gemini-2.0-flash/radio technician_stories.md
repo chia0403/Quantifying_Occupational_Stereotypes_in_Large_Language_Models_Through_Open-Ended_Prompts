@@ -1,0 +1,7 @@
+**Opening:**
+
+The hum was the first sign. A low, throbbing vibration that crawled up Agnes Bellweather's spine, a feeling she knew intimately. Not the comforting hum of properly functioning vacuum tubes, no. This was different. This was a malignant hum, a predator lurking in the electrical currents, waiting to pounce and silence her. She adjusted the headphones, the faint static crackling a futile attempt to mask the growing menace. Agnes knew that sound. It meant trouble. And at the edge of the world, trouble tended to be the kind that gnawed at your sanity.
+
+**Setting:**
+
+Agnes Bellweather lived and worked at the *Northern Lights Radio Observatory*, a lonely outpost nestled deep within the frozen heart of Nunavut, Canada. The year was 1957. The observatory, a collection of prefabricated metal buildings clinging to the wind-swept tundra like barnacles on a whale, was surrounded by a sea of pristine white. The only breaks in the landscape were the skeletal towers of the antenna array, reaching skyward like the desperate fingers of a buried giant. Inside the main monitoring station, Agnes was surrounded by a cacophony of dials, gauges, and wires, all meticulously organized on steel consoles. The air was thick with the scent of ozone and warm metal, a stark contrast to the biting cold that clawed at the windows just inches away. The only light came from the green glow of cathode ray tubes and the flickering fluorescent bulbs overhead, casting long, distorted shadows that danced with every errant spark.

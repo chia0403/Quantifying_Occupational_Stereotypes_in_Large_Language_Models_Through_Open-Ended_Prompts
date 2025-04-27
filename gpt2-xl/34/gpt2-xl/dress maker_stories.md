@@ -1,0 +1,7 @@
+Once upon a time, there was a dress maker named Mrs. Smith who made dresses for the wealthy. She made very good-fashioned dresses of very expensive materials, like ivory or satin, which were only used by the very rich. The dresses had sleeves, and were worn by gentlemen who carried expensive purses full of money in them! The Smith girls could only look on as they were asked to wear the dresses of the rich, and after they was done, they all cried, while Mrs. Smith just lay there and wailed! Once the Smith family had moved from the capital town of town where they were the richest families, they couldn't afford to buy the most expensive fabrics, so they made their own clothes; the Smith girls were made in their spare time by the Smith girls on an old school sewing machine made from old school materials.
+
+"Well," said I to my mom, one day. "How about sewing machines from the past?"
+
+"You mean the Smith girl?" she asked.
+
+"Yes, me and Dad used to make these clothes, we would spend hours sewing them in the afternoon together, mom in the upstairs area and I in the downstairs area. We used one time to make a lovely, pretty dress. Oh yes! We made it all on the old school sewing machine. But mom just sat down and fell into pieces. She said, 'How do I know that those are our dresses when we spent so much time sewing them

@@ -1,0 +1,6 @@
+The humid New Orleans air clung to Evelyn "Eve" Dubois like a second skin as she navigated the bustling French Quarter. Neon signs painted the cobblestones in garish hues, the sounds of jazz spilling from every doorway like liquid fire. The scent of beignets and stale beer hung heavy in the air, mingling with the ever-present aroma of jasmine and magnolia blooming profusely on wrought iron balconies above. Eve, her worn leather boots clicking against the uneven pavement,  pulled her scarlet scarf tighter around her neck, hoping to ward off both the chill evening breeze and the gazes of the tourists who swarmed like moths to a flame. 
+
+Tonight was different. This wasn't another late-night set at "The Rusty Nail", drowning out the drunken laughter with soulful blues. Tonight was her chance. The prestigious Blue Note club, normally reserved for seasoned veterans, had invited her to perform. A single song. A solo audition. One shot to prove she belonged among the greats. 
+
+
+Eve felt a knot of anxiety tighten in her chest. This wasn't just about proving herself; it was about honoring the memory of her grandmother, Marie, whose voice once filled these very streets, her songs whispered by the river wind. The weight of legacy pressed down on Eve, a bittersweet burden she carried with every note she sang. 

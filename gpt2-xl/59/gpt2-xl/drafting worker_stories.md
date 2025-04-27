@@ -1,0 +1,7 @@
+Once upon a time, there was a drafting worker named Kratos. A good one, mind you, and one of the best I had worked with in years. However, one day he came into the house unannounced and said, "I know there've been a lot of drafts lately, but we need to start drafting your daughter."
+
+At the time, the daughter was a toddler. Kratos had been working long hours, and a lot of family came over to stay. It had been a long day of work, and he was exhausted. He turned around to leave and the daughter suddenly appeared. Just the sight of her moved him, and he pulled her to his chest and said, in an undertone, "You have been an incredibly helpful person for me, and I want to thank you for the work that you do for everyone. But in order to save our marriage and have a real and viable relationship, we need to have sex, and I need you to do it."
+
+I know, I know, you couldn't refuse a request from one of the greatest in the draft, but I was shocked at her sudden acceptance. I just sat there for a minute, then said, "Kratos, I thought it was inappropriate for you to ask someone to have sex with you and your own daughter just because you have been working so hard the prior week."
+
+He smirked, then said, "You are a caring wife. I am

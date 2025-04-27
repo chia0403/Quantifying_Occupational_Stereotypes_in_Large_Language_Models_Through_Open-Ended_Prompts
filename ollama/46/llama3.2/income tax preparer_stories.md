@@ -1,0 +1,7 @@
+As the snowflakes gently fell onto the bustling streets of downtown Des Moines, Iowa, Aurora "Rory" Thompson stood huddled over her desk, sipping on a lukewarm cup of coffee and staring at the stack of W-2 forms in front of her. The fluorescent lights above hummed softly, casting an eerie glow over the cramped office space she shared with two other tax preparers.
+
+At 32, Rory had built a successful career for herself as a certified public accountant (CPA) specializing in individual and small business taxes. She took pride in helping her clients navigate the complex web of federal and state tax laws, often going above and beyond to ensure they received every deduction and credit available to them.
+
+Despite her professional success, Rory couldn't shake off the feeling of restlessness that had been growing inside her for months. Her long-term partner, Rachel, had recently left her for a new job on the West Coast, leaving Rory with a gaping hole in her life and a lingering sense of uncertainty about what came next.
+
+As she began to organize her notes from the previous day's clients, Rory's mind wandered to the upcoming tax season, which promised to be busier than ever. With the deadline for individual returns looming, Rory knew that every minute counted – but little did she know, this year would bring more challenges and surprises than she could have ever anticipated.

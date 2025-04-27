@@ -1,0 +1,7 @@
+Once upon a time, there was a pilot named Barry "The Fonz" Allen. He was one of the first three pilots that were actually on the air, when ABC's "The Ed Sullivan Show" premiered on April 11, 1956. When Allen graduated from the University of Illinois in 1957, he went to work for Dick Clark's short-lived "Tonight Show" on NBC.
+
+For the summer of 1957, Allen got some experience at being a member of the NBC "Flying J"; but for the next two years, after being let go by NBC, Allen was flying the S/s "Flying J" for the Continental Airlines. He started on September 5, 1958.
+
+On September 25, 1958, The Fonz was the "star" of ABC's first episode of "Ed Sullivan Show." He flew the S/s "Flying J" to Hollywood's celebrity-filled Waldorf Astoria Hotel on his regular Saturday morning drive from his home in Chicago, Illinois to the show. When Allen got to the hotel, he was welcomed by a whole host of celebrity guests that included Bobby Kennedy. The "Ed Sullivan Show" was then launched.
+
+In addition to the famous Hollywood stars, the show was also a huge success, and it soon became known as the "ABC of TV." All, other than the show's creator, Robert L. Clark, the show and the pilot "the pilot" were shot on a soundstage in front of a live

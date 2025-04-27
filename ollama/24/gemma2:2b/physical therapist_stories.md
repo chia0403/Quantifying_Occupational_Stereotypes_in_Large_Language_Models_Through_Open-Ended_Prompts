@@ -1,0 +1,5 @@
+The salty wind whipped Anya's auburn hair across her face as she stepped onto the rickety dock. The harbor was alive with movement, but all she saw were blurry streaks of boats jostling for space in the mist-shrouded dawn.  Anya adjusted the bulky bag slung over her shoulder, its contents a mixture of exercise tapes and heavy, weighted balls - a typical start to another day on the remote island of Havenwood. 
+
+Havenwood was where she'd gone after years at Boston's finest hospital, craving something quieter, something that challenged her but offered the chance for meaningful work. The town's isolation was a constant presence, not just in the raw ocean wind and unforgiving fog, but also in the faces of its residents – weathered, stoic, burdened by years of hardship.  
+
+Anya's specialty? Helping people like those who populated Havenwood. She treated injuries, chronic pain, even the emotional burdens that weighed down their souls as much as their bodies. Each patient a story waiting to be unlocked, each rehabilitation a step on the path towards regaining their lost mobility and sense of self. 

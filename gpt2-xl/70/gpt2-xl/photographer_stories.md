@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Chris White. I am not sure which of the two photos is from his site, because if you look at the photos, they are identical. I am just making sure. I do not know if the other photo is from in the same studio as this one, simply because of how close together we stand. A lot of times you'll find a photo on a site and if you compare it to that artist's, it is only a matter of a matter of a minute difference. There's a lot of guesswork going on with this. This artist's signature I am pretty sure came off on both photos because all I could say to myself was, "ok, if it comes off that way, it is his." In order to confirm this, I looked up Chris. The one in the upper right is from his site! Check it out:
+
+
+Now, I know his signature, because I get paid to be Chris White photographer in a couple of places. If someone is going to charge money for a signature, there are some things an artist should do before signing and I'm going to make an attempt at listing some of the things an artist should do here. A signature needs to be well signed, it has to be signed by the artist's hand, not his computer, especially when sending out digital files to the world.
+
+
+Here are the things an artist should do before signing, if the signatures do not look like Chris

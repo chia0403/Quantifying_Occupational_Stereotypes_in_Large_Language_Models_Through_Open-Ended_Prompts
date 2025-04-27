@@ -1,0 +1,5 @@
+The humid New Orleans air hung thick and heavy, a silken shroud clinging to everything it touched. Even inside the stately, yet undeniably decaying, mansion on St. Charles Avenue, a faint film of moisture slicked the palatial rooms. Antoinette Dubois, a woman whose name practically dripped with Southern grace (though her accent betrayed her Northern roots), dabbed at her brow with a delicate linen handkerchief. 
+
+She surveyed the grand ballroom, now echoing with the ghosts of jazz and laughter, but currently choked with dust and neglect. Sunlight, filtered through the overgrown magnolias in the garden, cast long, melancholic shadows across the peeling wallpaper and the cracked marble floor. It was a scene straight out of a gothic novel, a testament to faded glory and forgotten fortunes. 
+
+Antoinette sighed, the sound a soft rustle in the oppressive silence. "Well, Antoinette," she murmured to herself, adjusting the wide-brimmed hat that sat jauntily atop her perfectly coiffed blonde hair, "at least it has… potential."

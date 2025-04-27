@@ -1,0 +1,5 @@
+Rain hammered against the stained-glass window, its rhythm like the frantic drumming of Amelia’s heart. Outside, Seattle throbbed with life –  the neon blur of the Space Needle reflected in the puddles on the street, and the roar of ferries passing under the Alaskan Bridge. But within the sterile confines of her office on 4th Avenue, only the scent of old paper and damp wool lingered. Amelia Pierce, a lawyer known for both her sharp wit and even sharper suits, stood before the mahogany desk that had witnessed countless battles – legal ones, yes, but sometimes those too. Tonight, though, there was an air of battle-worn weariness around her. 
+
+Amelia’s eyes were fixed on the file in her hands - a photograph of a young boy's face plastered across its cover. His eyes, wide and innocent, held years of sorrow; years she had sworn to fight for. He wasn’t a client. Not yet. He was an orphan. A child whose life lay in a bureaucratic vortex – one that threatened to swallow him whole. Tonight, Amelia needed to find a way out. 
+
+

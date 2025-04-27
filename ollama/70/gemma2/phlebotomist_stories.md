@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Eleanor "Ellie" Beaumont's head, casting a sterile glare on the rows of labeled vials lining the metal cart. She inhaled deeply, trying to ignore the faint metallic tang that always lingered in the air of the small, cramped phlebotomy lab at Mercy General Hospital. The morning rush had just begun, and the waiting area was already filled with a symphony of coughs, sniffles, and anxious whispers. Ellie tapped her pen against the clipboard, reviewing each patient's name and test requisition before calling them into the room.
+
+Outside the window, the city of Oakland was waking up in a hazy morning mist. But inside the lab, the air was thick with anticipation, both for the patients who needed their blood drawn and for Ellie herself, who felt a familiar pang of anxiety as she prepared to face another day of needles and veins. 
+
+
+She wasn't sure why she stayed in this job. The long hours, the constant barrage of worried faces, the occasional shaky arm that threatened to send her needle skittering – it wasn't easy. But there was something about the small act of drawing blood, about knowing she played a vital role in diagnoses and treatments, that kept her going.  

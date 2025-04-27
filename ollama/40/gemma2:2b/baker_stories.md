@@ -1,0 +1,7 @@
+The aroma of warm cinnamon and sugared almonds clung to the air like a ghost. It wasn't just the scent of baking; it was a tangible embodiment of Esme Thistlewaite's soul.  For twenty years, her little bakery nestled in the corner of Main Street had been a beacon for weary travelers and locals alike. The quaint shop, with its peeling paint and mismatched windowpanes, hummed quietly, the only sound the gentle whirring of the mixing machine as it churned out Esme’s latest creation: lavender shortbread cookies, studded with edible silver blossoms.
+
+Today, however, a storm raged outside, churning up an unfamiliar kind of fear in Esme's gut.  It wasn't just the wind howling its discontent; it was the silence of her usual bustling afternoon crowd that unsettled her.  No children darted past, giggling and demanding their favorite gingerbread men, no men stopped by for their daily cuppa and a cinnamon roll.   There was an unsettling stillness in the air, broken only by the relentless rain drumming against her shop's windowpanes. 
+
+As she gazed out at the desolate street, she noticed it - a flicker of movement on the horizon. A shadow, large and indistinct, growing larger with every passing moment.  And then it came into focus: a carriage pulled by something that looked like a dozen oxen, its leather harness creaking ominously under the weight of its load.   
+ 
+Something in Esme's gut tightened. This wasn't just a storm. This was something else entirely.  It felt... ominous.   

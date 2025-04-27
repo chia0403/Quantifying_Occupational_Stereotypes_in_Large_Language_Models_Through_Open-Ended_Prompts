@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a manicurist:
+
+**Setting:**
+
+The late afternoon sun, thick and golden, slanted through the floor-to-ceiling windows of "The Painted Lily," a nail salon tucked away on a quiet, tree-lined street in the trendy Silver Lake neighborhood of Los Angeles. The air hummed with the gentle whir of ventilation fans, the soft clinking of glass nail polish bottles, and the hushed murmur of conversations punctuated by the occasional satisfied sigh. A fragrant blend of cuticle oil, acetone, and flowering jasmine – a deliberate choice by the salon's owner – hung in the air, creating a deceptively tranquil atmosphere. Each station was meticulously clean, adorned with fresh succulents in minimalist concrete pots and organized with an almost obsessive precision.
+
+**Opening:**
+
+Eleanor "Ellie" Rose Beaumont attacked Mrs. Gable’s cuticles with a fervor bordering on violence. Normally, Ellie found the meticulous work soothing, a miniature art form performed on the canvas of a human hand. Today, though, the glossy coral polish she’d carefully applied just an hour earlier felt like a personal affront, each perfectly rounded nail a reminder of the spiraling chaos in her own life. She gripped the cuticle pusher a little too tightly, her own hands trembling slightly despite her best efforts to remain steady. Mrs. Gable, oblivious to the internal storm raging behind Ellie’s carefully composed smile, continued to drone on about her upcoming trip to Scottsdale and the importance of matching her mani-pedi to her resort wear. Ellie plastered on an expression of polite interest, nodding at all the right moments, but inside, her mind was a runaway train barreling towards disaster. The text message she’d received that morning replayed in her head: "We need to talk. Tonight. Be at The Viper Room. 10 pm." The Viper Room. Of all the places…

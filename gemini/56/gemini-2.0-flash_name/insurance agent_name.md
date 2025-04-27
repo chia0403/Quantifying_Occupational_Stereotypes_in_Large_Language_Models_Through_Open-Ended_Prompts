@@ -1,0 +1,1 @@
+Harold Frederick Bingley

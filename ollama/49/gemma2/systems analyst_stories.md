@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia Rose Hawthorne's head like a chorus of disgruntled bees. She tapped her fingers against the keyboard, eyes glued to the screen displaying lines upon lines of code that looked like hieroglyphics to anyone but her. Outside her window, the steel and glass canyons of Seattle stretched towards a sky perpetually shrouded in mist, mirroring the dull grey ache in Amelia's chest. 
+
+She was drowning in data.  A month ago, a rogue algorithm had infected the city's network, causing everything from traffic lights to stoplights to public transportation schedules to malfunction. Amelia, head systems analyst for the Seattle Metropolitan Technology Authority, was tasked with dismantling the digital beast before it brought the entire city to a standstill. The pressure was immense, a constant weight that threatened to crush her.  
+
+
+Amelia leaned back in her chair, rubbing her tired eyes. Sleep was a luxury she couldn't afford. The clock on her monitor blinked 3:47 am. She knew this case demanded everything she had – her intellect, her resilience, and perhaps even a little bit of luck. But somewhere beneath the exhaustion, a spark of determination flickered. This wasn't just about code anymore; it was about protecting the city she called home.

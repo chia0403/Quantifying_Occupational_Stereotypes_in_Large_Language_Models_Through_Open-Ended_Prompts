@@ -1,0 +1,7 @@
+The crisp air of late afternoon hung heavy with the scent of honeysuckle and impending rain in the heart of Justice Courtroom #4.  Judge Alistair Sterling, a man whose presence commanded respect even before he'd entered the room, surveyed the sparse audience from behind his towering mahogany desk. His gaze settled on the young woman perched nervously in the defendant's chair: Amelia Thorne, a recent college graduate whose future hung precariously in the balance. 
+
+Amelia had come to this small town of Oakhaven to seek justice for what she believed was an injustice - the theft of her grandmother’s prized antique brooch, a delicate piece with pearls that shimmered like captured moonlight.  But Justice Courtroom #4 wasn't about justice; it was about appearances. Amelia knew this as keenly as she knew the weight of the tiny gold chain clutched in her hand. This case wouldn't be decided on fairness or truth - it would be decided on who had more power, and that often meant who had the most money. 
+
+Judge Sterling’s eyes narrowed as he heard the murmuring begin, a low ripple of tension before exploding into an irritated wave of accusations and counter-accusations. This case was a microcosm of Oakhaven itself:  the town's history woven into its architecture; secrets like cobwebs hiding in the corners of every room; whispers and accusations swirling through the air with every new breath. 
+
+Amelia’s fate was about to be decided, not on principle or law, but by the very fabric of her small town's complex web of influence and power.

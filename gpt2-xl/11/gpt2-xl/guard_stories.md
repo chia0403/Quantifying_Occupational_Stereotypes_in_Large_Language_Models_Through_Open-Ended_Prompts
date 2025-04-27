@@ -1,0 +1,7 @@
+Once upon a time, there was a guard named Alister Black. Black was a member of an organization called the Order of the Blackened Skull, which sought to exterminate vampires. Unfortunately, these guys had a flaw: they took every vampire they could track down, usually by using an ancient ritual to force their victims to enter a state of unconsciousness and be consumed by the undead. But things had changed when a vampire known as the Vampire Slayer came along. At first, it turned out that the Slayer could actually kill a vampire, giving Alister Black yet another reason to seek vengeance against the vampire. But by then, he'd become a part of an organization of other people that wanted the Vampire Slayer dead. (That is, before he and the others found out that the Slayer had never killed anyone in her life - a revelation that was totally unexpected, by the way - for which she lost her undead powers and joined them.)
+
+Alister Black is a guy played by Kevin Sorbo, for Christ's sake! He has a vampire hunting habit that comes at the cost of making them seem like assholes to the rest of the cast! Oh, it's also pretty predictable and stupid, so the writers could've written much more interesting character development and character relationships in the background, but I'm guessing those were just too many balls in the air with Alister and his little group to take it seriously.
+
+4) The Watcher in the Woods
+
+Ah, the

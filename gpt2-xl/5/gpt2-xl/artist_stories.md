@@ -1,0 +1,5 @@
+Once upon a time, there was a artist named Richard Thompson, who once won over 500 painting awards, one of the more impressive records in the world. In 2003, he suddenly decided to retire from the business, announcing that he was done with painting. "I have not been painting for over a year," the 69-year-old said at the time. "I have had very little time to focus on anything."
+
+It was the opposite of a retirement. The artist still painted, and the new work he produced is, in many ways, just as remarkable as the work he delivered at its peak.
+
+"It's a very intense painting. They're really amazing abstract works, and I think they capture something in this moment that is very human at times and very abstract at times," he told the BBC. "It's a very interesting painting, and I think it should be seen. And I will see one of the originals for just one day before the exhibition closes."

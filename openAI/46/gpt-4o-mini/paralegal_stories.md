@@ -1,0 +1,7 @@
+Title: Shadows of Justice
+
+Setting: The heart of downtown Chicago, where glassy skyscrapers tower over the bustling streets, reflecting the pulse of the city that never sleeps. The faint sounds of honking taxis and distant sirens blend with the chatter of hurried pedestrians. Inside the polished offices of Hawthorne & Wells, a prestigious law firm occupying the 35th floor of an iconic high-rise, the air is thick with ambition and the scent of freshly brewed coffee. Sunlight streams through the floor-to-ceiling windows, illuminating the rows of desks cluttered with files and legal briefs, a tangle of justice waiting to be unraveled.
+
+Opening Paragraph:
+
+Megan Elise Parker sat at her desk, a fortress of binders and legal pads surrounding her like the walls of a medieval castle. As a paralegal at Hawthorne & Wells, she often felt caught between the thunderous roars of courtroom battles and the quiet anticipation of the unknown that lingered in the office. Today, however, despite the bustle around her, the air felt electric. She tapped her manicured thumbnail against a stack of documents, her mind racing with thoughts of the case that had recently landed on her desk—a mysterious disappearance linked to a high-profile client. With each keystroke, she unearthed not just evidence for the case, but shadows of secrets that would challenge her understanding of justice itself. As the clock ticked nearer to five, a sense of urgency enveloped her, urging her to uncover the truth before it slipped away for good.

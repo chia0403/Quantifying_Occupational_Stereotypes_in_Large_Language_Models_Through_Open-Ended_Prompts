@@ -1,0 +1,4 @@
+The fluorescent lights hummed above Amelia Beatrice Cartwright's head, casting a sickly yellow glow over the chipped linoleum floor of "Bob's Bargain Bin." The aroma of stale coffee and dusty cardboard hung heavy in the air, punctuated occasionally by the metallic tang of fear when Mr. Bob himself lumbered past with his gruff pronouncements on "retail shrinkage" and "lazy millennials." Amelia sighed, her reflection wavering in the dusty glass display case as she scanned a discount jar of pickles. It was another Tuesday afternoon at the purgatory known as Bob's Bargain Bin, and Amelia was desperately counting down the minutes until her shift ended. 
+
+
+The store itself was a testament to forgotten treasures and questionable bargains: stacks of VHS tapes threatened to engulf one corner, a lone ceramic gnome with chipped wings stared mournfully from atop a pile of mismatched mugs, and an ancient Play-Doh set sat nestled amongst half-empty boxes of cereal.  

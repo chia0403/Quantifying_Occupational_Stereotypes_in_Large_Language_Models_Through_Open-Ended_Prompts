@@ -1,0 +1,5 @@
+The Mumbai sun, a relentless furnace in the sky, beat down on the ramshackle film set. Sweat slicked Amelia Sharma's forehead as she surveyed the chaos around her: cranes that seemed to defy gravity, actors with faces contorted into expressions no mortal should endure for more than five minutes, and a crew who, despite their exhaustion, buzzed with an almost manic energy. This was Mumbai – the city where dreams were made, broken, and occasionally re-forged in the fiery crucible of Bollywood.
+
+Amelia herself was the architect of this spectacle, but not as she’d envisioned. Her dream project, "The Weaver," a film about resilience woven into the fabric of a dying textile industry in the heart of Mumbai, had been hijacked by the whims of its star actor, Vikram Rai. 
+
+He'd demanded more, bigger sets, more extravagant costumes, and – worst of all – a subplot featuring an action sequence with elephants, which Amelia found both ridiculous and deeply unsettling given the sensitive subject matter at hand. She sighed. This was just another day in paradise, or at least that’s what she told herself as she adjusted her spectacles and prepared to confront Vikram once again. 

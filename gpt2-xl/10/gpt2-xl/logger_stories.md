@@ -1,0 +1,7 @@
+Once upon a time, there was a logger named Sam who logged over 1,000 logs, which were saved forever in a single index. Today, the Logstash server logs a massive 100,000 logs each minute to Elasticsearch. This post explores how to use the Logstash REST API library to collect and store logs from Logstash clients and Elasticsearch.
+
+The Problem
+
+Let me write this down for you so you don't have to read it as you read it: you're currently running a few systems in the cloud, including Elasticsearch. The logstash.logagent package, which comes with Elasticsearch and has a lot of configuration options, allows you to capture your logs to Elasticsearch as you read them, filter log events so only certain event types are logged, and so on. This was the default behavior for Logstash prior to version 2.0, but, for some weird reason, this behavior was removed in v2.0. Now, there are several workarounds for this problem. One is to rewrite the entire Logstash agent, but this was the wrong way to go.
+
+Instead of rewriting the Logstash agent, I decided to write a simple REST api for it that allows you to specify a bucket to store logs in, a list of events to log, and various options for filtering, and then to send those logs upstream, to an agent. In a nutshell, I wanted to be able to

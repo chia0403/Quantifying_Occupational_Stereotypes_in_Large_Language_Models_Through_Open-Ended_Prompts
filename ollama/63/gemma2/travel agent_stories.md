@@ -1,0 +1,5 @@
+The air in Esmeralda "Esme" Rose's office hummed with the low thrum of anxiety.  A stack of brochures lay open on her desk like colorful tombstones, each one representing another dream deferred. Outside, the bustling streets of New Orleans pulsed with life, a stark contrast to the stillness that had settled over Esme since the pandemic hit. The vibrant city, usually brimming with tourists eager for beignets and jazz music, was now eerily quiet, save for the occasional mournful trumpet drifting from a nearby bar. 
+
+Esme ran a hand through her fiery red curls, frustration tightening her jaw. She loved her job, weaving fantastical travel itineraries, crafting journeys that took people to the corners of the world and ignited their imaginations. But lately, all she'd been doing was offering refunds and apologies. "Staycations," they called them now. Esme shuddered. 
+
+The clanging of the bell above her door jolted her from her thoughts. A lone figure, bundled in a worn trench coat, stepped into the warm glow of her office, bringing with him the scent of rain and distant possibility.  

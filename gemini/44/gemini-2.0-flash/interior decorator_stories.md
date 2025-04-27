@@ -1,0 +1,8 @@
+## Story Opening:
+
+The scent of beeswax and despair hung thick in the air, a heady cocktail that assaulted Eleanor Vance's nostrils as she stepped across the threshold of the crumbling Victorian. Dust motes danced in the shafts of sunlight that pierced the grimy windows, illuminating cobwebs thick as tapestries and wallpaper peeling like sunburnt skin. She sighed, pulling her silk scarf tighter against the chill that permeated the house, a chill that had nothing to do with the autumn air outside and everything to do with the story Mr. Abernathy had relayed just an hour earlier in his office. A story involving a reclusive widow, a tragic accident, and whispers of a restless spirit.
+
+Eleanor tried to shake off the unease, reminding herself that she was Eleanor Vance, renowned interior decorator and champion of forgotten spaces. She breathed deeply, forcing a professional smile. This house, despite its obvious neglect and unsettling history, held potential. And potential, Eleanor knew, was just another word for opportunity.
+## Setting:
+
+The story is set in the fictional coastal town of Havenwood, Maine, during the cusp of autumn, a season that paints the landscape in hues of fiery red, burnt orange, and melancholic gold. The house itself, "Blackwood Manor," is a sprawling, three-story Victorian mansion overlooking the turbulent Atlantic. It stands isolated on a small promontory, accessible only by a long, winding driveway lined with gnarled oak trees that seem to claw at the sky. Blackwood Manor is a testament to a bygone era of wealth and grandeur, but years of neglect and the weight of its history have left it teetering on the brink of ruin, a faded beauty haunted by secrets and shadows.

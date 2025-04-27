@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Ken Starr. After leaving his job as a staffer for former Louisiana senator and Democratic presidential candidate, Jimmy Carter, Starr moved on to work for the Washington Post. There he earned his reputation as a fearless investigative reporter who made important and damaging revelations about presidents, most notably about Republican President Richard Nixon's involvement in Watergate. After leaving the Post Starr continued to work for CBS. Over the years, he has covered a wide range of stories from the presidential campaign of U.S. President William Clinton to covering sports, books and movie subjects. He is currently a fellow with the Annenberg Public Policy Center and an alum of the Columbia University Graduate School of Journalism.
+
+Brent Bozell
+
+Brent Bozell has been working in broadcasting since the 1970s, having begun his career as a producer for WHAM-FM in Baltimore. His passion for the news stems from his service with the National Rifle Association as a field representative during the 1984 election. During the 1988 presidential campaign, Bozell was a regular guest on John McCain's daily news discussion radio program, One America News Network. In 2005, Bozell founded the Media Research Center in Arlington, Virginia, that serves as the "think tank for conservatives and Republicans in the media."
+
+Brent is a veteran of the conservative radio talk show circuit. After a time with WMAL-FM in Washington, DC, Bozell launched the successful, daily conservative radio

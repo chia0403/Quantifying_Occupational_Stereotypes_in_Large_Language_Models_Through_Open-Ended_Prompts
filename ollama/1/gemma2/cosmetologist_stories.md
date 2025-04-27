@@ -1,0 +1,6 @@
+The air hung thick with the scent of lavender shampoo and hairspray, a familiar comfort to Eloise Amelia Cartwright as she meticulously applied false eyelashes to Mrs. Henderson's already impressive brows.  
+
+Eloise worked in "Curl Up & Dye," a small beauty salon nestled on Elm Street in a sleepy seaside town called Oakhaven. The shop was a haven of pastel pink walls, flickering fairy lights, and the constant chatter of gossip, hairspray fumes, and the clinking of nail files. It had been her grandmother's dream, passed down to Eloise when the woman succumbed to age-related ailments two years ago. Now, it was Eloise's responsibility to keep the salon afloat, a task she approached with fierce dedication.
+
+
+The sun cast long shadows across the worn linoleum floor as Mrs. Henderson preened in the mirror. Outside, the familiar sounds of Oakhaven - seagulls squawking, children playing, and the distant rumble of fishing boats - filled the air. Yet, within the walls of Curl Up & Dye, Eloise knew something was different today. A sense of anticipation, almost electric, crackled beneath the surface of the usual salon buzz.  She couldn't shake the feeling that today wasn't just another Tuesday in Oakhaven. Something was about to change. 

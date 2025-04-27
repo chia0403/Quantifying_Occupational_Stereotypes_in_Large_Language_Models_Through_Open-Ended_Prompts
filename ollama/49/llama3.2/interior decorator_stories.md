@@ -1,0 +1,7 @@
+Here's a potential story opening and setting for you:
+
+As she stood in front of the worn, Victorian-era chandelier, sipping her lukewarm coffee and surveying the dusty, cobweb-draped ceiling, Emily Rose Wellesley couldn't help but feel a sense of nostalgia wash over her. The grand, if slightly decrepit, mansion had been the Wellesleys' family home for generations, and it was where Emily grew up playing among its labyrinthine corridors and ornate rooms.
+
+Now, as a successful interior decorator in her late twenties, Emily found herself drawn back to this very house, not just out of sentimental reasons, but also because of the current client who had commissioned her to restore it to its former glory. Mrs. Harcourt, a wealthy socialite with a passion for antiques and historic preservation, had hired Emily to transform the mansion's faded grandeur into a breathtakingly beautiful retreat that would be the envy of all her friends.
+
+As Emily gazed up at the chandelier, now gleaming in the soft morning light that streamed through the grimy windows, she felt a thrill of excitement. She had always loved this house, and she was eager to unlock its secrets and bring it back to life. Little did she know, however, that her work would soon be put to the test by secrets and surprises lurking beneath the mansion's elegant facade...

@@ -1,0 +1,4 @@
+Once upon a time, there was a graphic designer named Steve S. who drew the first iteration of the web page, which we now know as the hypertext page, as some of its early designers, myself among them, have done in their lifetime. I was only able to obtain more of Steve's work, not sure why, so I have not yet dug up enough of it to share my impressions.
+
+
+Steve S. drew a fantastic page (the very first one!), I'd love to share one of my own, but it's pretty much out of print by now. It is a piece of my brain that has remained a secret until now. Let it be an inspiration, for I'm very, very fond of this piece as it reminds of many of my dreams and ambitions for this site.

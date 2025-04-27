@@ -1,0 +1,7 @@
+Under the flickering fluorescent lights of Harborview High School's dimly lit corridors, the echo of distant laughter from the school gymnasium carried a sense of lively warmth into the otherwise empty halls. The metal lockers stood like silent sentinels, their cool exteriors reflecting the dance of shadow and light. A gentle rain tapped against the tall windows, the steady rhythm a calming contrast to the chaos of the day now ended.
+
+James Everett, the school's janitor, moved methodically through the hallway, a custodial cart rattling quietly at his side. He wore a well-worn navy blue jumpsuit with "J. Everett" stitched in white over the heart. The weight of his keys jangled at his belt, a sound as familiar to him as his own heartbeat. With graying hair and a face lined with years of hard work and quiet contemplation, James carried the air of someone who had found peace in routine.
+
+As he swept the floor, the gentle swish of the broom on the linoleum accompanied the distant patter of rainfall. James had been a part of Harborview's heartbeat for more than two decades—through the laughter, the tears, and the ever-changing tides of young lives crossing the threshold year after year. To him, these halls whispered secrets of the past, places where stories were made and forgotten, yet in their own way, remained eternal.
+
+The squeak of sneakers on polished floors signaled the approach of someone from the gym, pulling James from his thoughts. He paused, glancing up from his work, curious as to who might emerge to disrupt his solitude.

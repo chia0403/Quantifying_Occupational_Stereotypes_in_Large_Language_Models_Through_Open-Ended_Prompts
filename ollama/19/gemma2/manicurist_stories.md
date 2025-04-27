@@ -1,0 +1,6 @@
+The scent of acetone and lavender hung heavy in the air, a comforting familiarity for Evelyn Rose Cartwright, better known as Evie to her clientele. Her tiny nail salon, "Painted Petal," nestled between a greasy spoon diner and a dusty antique shop on Elm Street, was bathed in the warm glow of fairy lights strung across the ceiling. The afternoon sun, filtering through the lace curtains, cast playful shadows on the rows of colorful polishes lining the shelves. Evie hummed along to an old jazz tune playing softly from a vintage record player as she meticulously filed the nails of Mrs. Henderson, a regular who swore by Evie's "magic touch" for turning chipped lacquer into works of art.
+
+But today, something felt different. A shiver ran down Evie's spine despite the warmth of the room, and the usually comforting aroma seemed to carry a faint undercurrent of metallic tang.  A sudden gust of wind rattled the windows, sending a flock of pigeons scattering from the narrow sidewalk outside. Evie glanced up, her brow furrowed, as a dark shape flitted across the sky, vanishing behind the cloud-streaked afternoon sun. 
+
+
+It was just the wind, she told herself, dismissing the unsettling feeling with a shrug. But a persistent unease lingered, a whisper of something out of place in the familiar rhythm of her day.  

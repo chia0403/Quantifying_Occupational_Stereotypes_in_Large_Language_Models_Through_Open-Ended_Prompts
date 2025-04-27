@@ -1,0 +1,13 @@
+**Title: Shadows of the Past**
+
+***Setting:*** The bustling streets of New Orleans in the summer of 2023, where the air is thick with humidity and the faint sound of jazz drifts from hidden corners. The city thrums with life—tourists capture the vibrant colors of Bourbon Street, while locals navigate the narrow, cobblestone alleys lined with wrought-iron balconies draped in vibrant flowers. As twilight descends, the lamps cast a warm, inviting glow on the facades of aged buildings, hinting at the stories held within.
+
+***Opening:***
+
+Amelia Grace Thornton leaned against the wrought-iron railing of her third-floor balcony, gazing at the flickering lights of the French Quarter below. The distant sound of a saxophonist playing a soulful tune mingled with the laughter of tourists, but Amelia's mind was far from the revelry. A stubborn knot of tension twisted in her stomach as she thumbed through her notebook, the pages filled with half-formed thoughts and questions that lingered like ghosts in her mind.
+
+As a seasoned investigative journalist for The Crescent Chronicle, Amelia had uncovered her fair share of secrets buried beneath the city’s vibrant surface. Yet nothing had prepared her for what she now sought: the truth behind the sudden reemergence of a decades-old cold case involving a missing girl named Lila Dupree. The case had haunted the city for years, the whispers of its unresolved tragedy weaving through the fabric of New Orleans like a dark thread.
+
+Amelia's heart raced as she recalled the vivid photo of Lila she’d stumbled upon in the archives—the girl’s bright eyes sparkling with mischief, captured forever in the innocence of childhood. As the years rolled on, Lila’s story had morphed into a ghost story—a cautionary tale told over drinks and late-night bonfires. But for Amelia, it was more than just another story; it was a journey that could unearth truths long buried and perhaps bring solace to a family still mourning.
+
+With a sigh, she flipped to the next page of her notebook, where she had scrawled the names of everyone connected to that fateful summer. Amelia could feel the weight of their histories pressing against her, each name a thread waiting to be pulled. She tightened her grip on the pen, her resolve hardening. She would uncover the truth, even if it meant diving into the depths of the city’s darkest secrets, where the line between past and present blurred—a pursuit that would force her to confront the shadows of her own life along the way.

@@ -1,0 +1,7 @@
+## Story Opening:
+
+The rumble vibrated up through Amelia Grace Hawthorne's calloused hands and settled in her teeth. It was a familiar hum, the song of the Caterpillar D11T bulldozer, a beast she knew intimately. Dust devils danced across the barren expanse of the Nevada desert, mimicking the swirling thoughts in her head. She squinted against the harsh glare, the sun reflecting off the immense, newly cleared patch of earth. Today was the day. Today, all the endless paperwork, the bureaucratic hurdles, the naysaying whispers, would finally be silenced by the roar of progress.
+
+## Setting:
+
+Amelia found herself at the heart of the "Project Phoenix" site, a sprawling, desolate stretch of desert located roughly 70 miles northeast of Las Vegas, Nevada. The area was a patchwork of sun-baked earth, scraggly Joshua trees, and sharp, unforgiving rock formations. The air hung heavy with the scent of dry dirt and the faintest metallic tang of the ongoing construction. In the distance, the shimmering heat haze distorted the stark lines of the surrounding mountains, making them appear like mirages in the unforgiving landscape. It was a place that tested resilience, both of equipment and spirit. Temporary office trailers, clustered near the perimeter, offered a meager respite from the elements, their air conditioners fighting a losing battle against the oppressive heat. This was Amelia's kingdom for now, a raw, challenging, and undeniably beautiful testament to the indomitable will of humankind.

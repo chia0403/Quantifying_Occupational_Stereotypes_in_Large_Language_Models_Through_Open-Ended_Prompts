@@ -1,0 +1,11 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The persistent hum of the air conditioner was a mocking counterpoint to the sweat prickling on Amelia Grace Harper’s brow. She squinted, pushing a stray strand of auburn hair from her face. The holographic projection of the "Oasis Heights" complex shimmered before her, a futuristic testament to green living and sustainable design, a monument to everything she believed in. It was also, she thought grimly, a potential monument to her career’s ruin. The deadline loomed like a vengeful god, and the damn structural calculations just refused to cooperate. One wrong decimal, one forgotten stress point, and the entire biosphere dome could come crashing down, taking with it not just a million-dollar investment, but also Amelia's hard-earned reputation. She took a long, shaky sip of her lukewarm coffee, the bitter liquid mirroring the taste of failure rising in her throat.
+
+**Setting:**
+
+The story unfolds primarily within **Harper Architects**, a small, independent firm nestled in the revitalized industrial district of **Neo-Kyoto, Japan**. Neo-Kyoto, circa 2077, is a vibrant tapestry of ancient traditions and cutting-edge technology. Gleaming skyscrapers, draped in vertical gardens and powered by solar energy, rise above meticulously preserved temples and tea houses. Flying vehicles weave through the urban canyons, and neon signs flicker in both Japanese and English, advertising everything from robotic geishas to personalized genetic therapies.
+
+Amelia's office is a minimalist space, reflecting her own pragmatic personality. Polished concrete floors are softened by a woven tatami rug beneath her ergonomic desk. Walls are mostly glass, offering panoramic views of the cityscape, a constant source of inspiration and a looming reminder of the ambitious projects she undertakes. The air is always slightly sterile, thanks to the advanced air purification system designed to combat the city's persistent pollution. While the aesthetic is clean and modern, small details betray a touch of warmth - a framed photo of her late grandmother, a small bonsai tree stubbornly clinging to life on the windowsill, and a scattered collection of hand-drawn sketches, testaments to the human touch in an increasingly automated world.

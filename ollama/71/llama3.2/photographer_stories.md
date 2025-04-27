@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+As the last wisps of sunlight faded over the rugged coastline, Aurora "Rory" Wynter stepped out of her small studio apartment, camera slung over her shoulder and eyes scanning the mist-shrouded streets of Tidelands Cove. The once-thriving fishing village was now a haven for artists and creatives, drawn by the same rugged beauty that had lured Rory to this coastal town five years ago.
+
+Rory Wynter had made a name for herself as one of the most talented photographers in the region, capturing the intricate dance between light and water with an uncanny sense of intimacy. Her latest project, commissioned by the local museum, was a series of moody portraits of Tidelands Cove's weathered fishermen – their faces etched with stories of stormy seas and lost livelihoods.
+
+Tonight, Rory had come to the edge of town to capture the golden hour, when the sea air carried a hint of salt and seaweed, and the rocks seemed to hum with an ancient energy. She knew that this was where she felt most alive, her camera pressed against her chest as she waited for the perfect shot – but little did she know, tonight's visit would bring more than just a breathtaking view...

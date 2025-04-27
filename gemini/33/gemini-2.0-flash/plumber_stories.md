@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting with a plumber as the main character:
+
+**Opening:**
+
+The shriek of a rusty shower head was a sound that sent a shiver down even the most calloused spine.  But for Bartholomew "Bart" Higgins, kneeling precariously in a clawfoot tub older than his grandfather, it was the sound of job security.  He tapped the corroded fixture with the back of his wrench, the metal ringing with a dull thud.  "Now, now, Beatrice," he murmured to the shower head, a habit he'd picked up from his dearly departed mother. "Let's see what's got your pipes in a twist, shall we?" He twisted the cold water tap closed, a little *too* enthusiastically. The ancient porcelain groaned under the pressure, and a hairline crack, previously invisible, spiderwebbed across the side of the tub. Bart sighed. This wasn't going to be a quick fix.
+
+**Setting:**
+
+The scene unfolds in the bathroom of Mrs. Elara Featherstone's Victorian-era home in the historic district of Port Blossom, Maine. Sunlight filters weakly through stained-glass windows depicting cherubic figures, casting kaleidoscopic patterns on the dusty floor. The house itself is a three-story gingerbread monstrosity, complete with turrets, gables, and a perpetually peeling coat of lavender paint. The air inside is thick with the scent of lavender potpourri, mothballs, and something indefinably *old*. The bathroom, specifically, is a time capsule.  A floral-patterned wallpaper, now faded and peeling, covers the walls.  A large, ornate mirror hangs above a marble-topped vanity littered with antique perfume bottles and brushes.  The clawfoot tub, the centerpiece of the room (and Bart's current nemesis), sits on elegantly carved legs and looks simultaneously regal and on the verge of collapse. Outside, the sound of seagulls and the distant rumble of lobster boats remind Bart that while he's wrestling with turn-of-the-century plumbing, the rest of Port Blossom is going about its day.

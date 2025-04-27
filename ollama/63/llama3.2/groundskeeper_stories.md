@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The misty dawn crept over the sleepy town of Ravenswood, shrouding its streets in a damp, gray veil. In the midst of this quiet morning, Emilia Rose Winters, a rugged and weathered groundskeeper, emerged from the gloom of her small cottage on the outskirts of town. Her thick, brown hair was tied back in a practical knot, revealing a smudge of dirt beneath her left eyebrow - a testament to another long day spent tending to the overgrown gardens and neglected green spaces of Ravenswood's wealthy elite.
+
+As she breathed in the damp air, Emilia felt a sense of familiarity wash over her. She had lived on the outskirts of town for as long as anyone could remember, keeping the secret lives of Ravenswood's residents hidden behind a veil of neatly trimmed hedges and perfectly manicured lawns. It was a life that suited her just fine - one that allowed her to keep to herself and watch the world go by from the quiet comfort of her own little patch of earth.
+
+But as Emilia began her daily rounds, she noticed something odd: a piece of paper stuck in the soil near the crumbling stone wall at the edge of town. The note was scribbled on, hasty and rough, with only three words scrawled across its surface: "They're watching you."

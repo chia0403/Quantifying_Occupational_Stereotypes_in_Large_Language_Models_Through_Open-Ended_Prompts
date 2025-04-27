@@ -1,0 +1,6 @@
+The air in Judge Amelia Harper's chambers hung thick with the scent of stale coffee and simmering resentment. Rain lashed against the tall windows overlooking the bustling city streets, blurring the neon signs into shimmering streaks of color. A lone desk lamp cast harsh shadows across the cluttered surface, illuminating a stack of unread files and a half-empty bottle of scotch. Amelia swirled the amber liquid in her glass, watching the ice clink rhythmically against the side. 
+
+Her reflection stared back at her – weary eyes hidden behind thick-rimmed spectacles, a tightly wound bun framing a face etched with the lines of countless sleepless nights spent grappling with the city's injustices. Tonight, however, the weight felt heavier than usual. The pending trial of Daniel "Diamond" Donovan - a notorious kingpin accused of orchestrating a city-wide gambling ring – loomed like a storm cloud over her head. 
+
+
+Amelia took a long swig of scotch, the burn momentarily dulling the gnawing anxiety in her gut. This case was different. It wasn't just about upholding the law; it was about justice for the countless lives shattered by Donovan's empire. And somewhere, beneath the layers of cynicism and fatigue, Amelia knew she wouldn't rest until she saw him brought down. 

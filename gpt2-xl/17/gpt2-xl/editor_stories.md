@@ -1,0 +1,6 @@
+Once upon a time, there was a editor named Jim. Jim was a friend of mine (he's the editor of Rants & Raves, too). Jim and I were both students at NYU and we were writing stories about sports around the campus and I remember I was writing in class but he wasn't. I was probably about 20 pages into a story about the great Bobby Fischer and I was telling Jim about a time of his where he broke his leg. He asked me what I'd say if I caught myself doing that same thing. I thought about it, and told him I couldn't stop. I'd been doing it more and more and couldn't help myself. I said it and then I broke my leg. As I'm falling I tell Jim, "I'm not going to think of anything good before this part because I know that will be it."
+
+
+So the story ended on what happened to Jim. And then one night the phone rang at my apartment. It was Jim. He said he was going to tell me he had cancer. I did the only thing you could do when I was writing that story. I got a calligraphy brush and started writing this terrible thing on my walls about how Jim and I should be friends after this and how I wanted him to know my love but what was the worst that could happen? That's when I knew the time was right to tell all the real Jim stories.
+
+How did being on a TV game show

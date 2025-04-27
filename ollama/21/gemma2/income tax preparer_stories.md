@@ -1,0 +1,3 @@
+The fluorescent lights hummed above Beatrice Willowbrook's head like a chorus of disgruntled bees. Papers piled high on her desk, forming miniature mountains of W-2s, 1099s, and receipts. The air was thick with the scent of stale coffee and desperation, a familiar fragrance in Willowbrook & Sons Tax Preparation during this time of year. Outside, February rain lashed against the windows, blurring the already gray cityscape of Hartford, Connecticut.  Beatrice sighed, her spectacles slipping down her nose as she stared at the latest mess on her desk: a jumble of receipts claiming everything from "spiritual enlightenment" to "llama therapy." This, Beatrice knew, was going to be a long tax season. 
+
+

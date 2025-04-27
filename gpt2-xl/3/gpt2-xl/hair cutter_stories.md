@@ -1,0 +1,7 @@
+Once upon a time, there was a hair cutter named Dwayne, who kept a blog of his experiences helping customers find their ideal cut. He was a quiet man who left his house about five days a week to work on the shops. At first, it was just his cut job, but Dwayne started to add on the occasional part-time freelance part-time gig. And in his spare time, he was always looking for a good meal. On his blog, he revealed the amazing deals he saw – and the people he worked with. With the exception of the restaurant, every one was awesome.
+
+"The whole experience was wonderful," Dwayne says after our lunch. "We only had to do two haircuts during our time together. Everything was done to order, from shampoo and conditioner to the scissors."
+
+"I couldn't turn down two weeks or two hours to spend with that man," his daughter, who was 16 at the time, laughs.
+
+It took Dwayne about 14 months to get his cut, but he remembers that the only hair trimming he was worried about was his front. His girlfriend's mom was getting her hair done and he was concerned about her daughter receiving something more than a straight cut. Dwayne recalls she gave him the name of a barber at the next house over, who could do a straight cut there. "I think the fact that I was working in a business I was comfortable with, where no one had

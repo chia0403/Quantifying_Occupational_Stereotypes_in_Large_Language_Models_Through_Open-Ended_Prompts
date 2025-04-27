@@ -1,0 +1,7 @@
+In the heart of Wyoming, where the horizon seemed to stretch endlessly beneath a sky as vast and blue as the ocean, lies One Horn Ranch. Encompassed by rolling hills dotted with sagebrush and the distant silhouette of the Rockies, the land seemed to breathe with a quiet, dignified strength. The air was crisp, carrying the faint scent of pine and earth, and the morning sun spilled golden light over the dew-kissed meadows.
+
+At the center of this sprawling expanse, a weathered barn stood sentinel, its red paint faded to a rustic charm that spoke of years braving the elements. Nearby, a modest farmhouse, adorned with a welcoming porch and a few steadfast rocking chairs, offered a warm invitation to those who had the fortune to visit.
+
+This was the world of Thomas "Tom" McAllister, a rancher whose life was as entwined with the land as the roots of the ancient cottonwoods lining the distant creek. At forty-seven, Tom bore the marks of someone who had known both the hardships and bounties of ranch life. His hands, calloused and strong, were emblematic of countless early mornings and late nights spent tending to his cattle and caring for the earth he held so dear.
+
+As the first light of dawn crept over the land, Tom stood on the porch, a steaming mug of coffee in his hand and a contemplative gaze set on the herd grazing peacefully in the distance. This was where his story began each day—a soul deeply rooted in the timeless cycle of seasons, a testament to resilience and an unwavering bond with the wild beauty of Wyoming's landscape.

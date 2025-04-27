@@ -1,0 +1,6 @@
+The scent of lavender oil and old silk hung heavy in the air of "A Stitch in Time," just like it always did. Amelia Rose Hawthorne, her fingers nimble despite their age, carefully pinned a seam on a sapphire blue gown. Sunlight streamed through the dusty attic window, illuminating motes of dust dancing in the golden beams. Outside, London buzzed with the clamour of the Blitz, yet within the confines of Amelia's workshop, time seemed to stand still. A symphony of snips and hums filled the air, accompanied by the soft crackling of a worn gramophone playing a melancholic waltz. 
+
+Amelia adjusted her spectacles, her eyes tracing the intricate lace trim of the gown. This wasn't just another dress; it was a dream woven into silk, a hope stitched with thread. For this was no ordinary commission. It was for Lily Davenport, the young actress whose spirit soared on stage, and who now needed a beacon of elegance to light her way through the darkness that had fallen upon her family. 
+
+
+Amelia knew every fold and curve of fabric as intimately as she knew the lines etched on her own face.  She wasn't just making dresses; she was weaving stories, capturing moments of joy and sorrow in each stitch. And tonight, more than ever, she needed to create something truly magical.

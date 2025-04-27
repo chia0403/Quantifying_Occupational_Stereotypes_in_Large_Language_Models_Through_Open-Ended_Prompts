@@ -1,0 +1,6 @@
+The air hung heavy with the scent of sawdust and granite dust.  Sunlight streamed through the open windows of the workshop, illuminating the swirling motes dancing in the stale air.  A shaft of light fell directly onto Alistair Finnian Thorne's calloused hands, his knuckles dusted white from gripping the chisel. He was hunched over a block of grey Vermont granite, its surface marred with intricate lines and deep gouges that whispered of his relentless pursuit of perfection. 
+
+Alistair’s workshop sat nestled at the edge of a sleepy New England town, where time seemed to move at a slower pace than in the bustling city just an hour south.  The sound of hammering echoed from within, a rhythmic counterpoint to the chirping of birds and the distant rumble of a passing tractor. This quaint corner of the world was Alistair's haven, his sanctuary from the clamor and chaos of the outside world. 
+
+
+His focus remained on the granite, oblivious to the encroaching twilight casting long shadows across the worn wooden floor. He was sculpting a phoenix, its wings spread wide in a defiant cry against the fading light. It was his most ambitious project yet, a testament to his unwavering dedication and a symbol of the hope that burned bright within him, despite the hardships he had endured.  

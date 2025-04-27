@@ -1,0 +1,7 @@
+Once upon a time, there was a forensic psychologist named Dr. David Lisak. Lisak is infamous because, on the strength of three single-authored opinion papers — including, most recently, the 2008 book he co-authored titled It's OK to be Different — Dr. Lisak claims that the science of forensic psychology is settled. In 2008, a federal judge described this as "bogus scientific 'debunking' by a single psychologist" — another in a long series of such dismissals.
+
+For many years, Lisak has remained popular within some circles, but his views are generally considered to be hopelessly outdated. Some forensic psychologists argue that the scientific basis for his arguments is not as solid as his arguments for psychopathy are, which Lisak seems to take as some sort of personal slight.
+
+As the case that I mentioned above illustrates, as he likes to call it, the science of forensic psychology is in dire need of updating. It is an outdated field, and at this stage is so largely based upon opinions from the past (particularly from the 40s and '50s), rather than on objective evidence and scientific concepts.
+
+When I first came across Dr. Lisak's work in 2008, that it would be misconstrued as the final word on the subject made me very wary. I've become particularly suspicious of Lisak's own words, which echo the old adage: "Everyone's got their axe to grind." (The

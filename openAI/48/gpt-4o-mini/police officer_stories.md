@@ -1,0 +1,9 @@
+Title: **Shadows in the Alaskan Wild**
+
+Setting: The story unfolds in the small coastal town of Seaward Bay, Alaska, where mist rolls off the water and the rugged mountains loom like sentinels over the landscape. The air is crisp, carrying the scent of salt and pine, creating a sharp contrast to the bustling life of the town’s bustling fishing docks. As winter approaches, the days grow shorter, leaving only a few hours of daylight where linked shadows stretch long across snow-dusted streets. The flickering streetlights cast an eerie glow that dances on the facades of weathered buildings, hinting at secrets buried beneath the town's surface.
+
+Opening: 
+
+Officer Eliza Mae Henderson had always felt a pull toward the ocean, its vastness mirroring the depths of her own thoughts. As she stood on the edge of the pier, the chilly wind tousling her dark hair, she gazed out at the churning waters of the Bering Sea. With her badge gleaming softly on her chest, she took a deep breath, allowing the salty tang to fill her lungs. Seaward Bay had always been a refuge, a place where the small community looked out for one another, but lately, a different kind of tension hung in the air.
+
+Just days ago, a fisherman had gone missing under mysterious circumstances, casting a shadow over the town that Eliza couldn't shake. As the lone officer for Seaward Bay, it was her duty to keep the peace, yet the investigation was beginning to whisper of darker secrets—whispers that promised trouble far beyond the quiet fishing village she loved. She pulled her coat tighter against her body, mentally steeling herself for the challenges ahead. The Alaskan winter hadn’t just come for the land; it seemed to creep into the very hearts of those who called this place home.

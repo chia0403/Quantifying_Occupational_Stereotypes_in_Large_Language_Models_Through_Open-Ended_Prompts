@@ -1,0 +1,5 @@
+The air in The Wanderlust Agency hung thick with the scent of jasmine tea and faraway places. Sunlight slanted through the dusty windows, illuminating shelves crammed with guidebooks thicker than phone directories and postcards depicting snow-capped mountains, turquoise lagoons, and bustling marketplaces. Eleanor Beatrice "Ellie" Thistlewick, perched on a stool behind the cluttered reception desk, surveyed her domain with a sigh. 
+
+It wasn't always like this. Once, The Wanderlust Agency had pulsed with the energy of adventure seekers, each client clutching a dream map in their hand and Ellie weaving those dreams into reality. Now, most of the dust settled on forgotten brochures advertising safaris to uncharted lands and cruises to mythical islands. 
+
+A bell tinkled as the door swung open, interrupting Ellie's reverie. A young woman, eyes bright with nervous excitement, stood framed in the doorway, clutching a tattered notebook and a faded map. The air around her buzzed with possibility, a stark contrast to the stagnant atmosphere that had become Ellie's daily companion. 

@@ -1,0 +1,4 @@
+The sun beat down on Elias Blackwood’s weathered face as he squinted across his sprawling ranch, Dust Devil Mesa. It wasn't the Texas heat that bothered him; he was used to it.  It was the dust. A perpetual haze hung in the air, kicked up by weeks of relentless wind and the skeletal remains of last year's crops. This drought had stretched longer than any Elias had seen in his forty years on the land, and worry etched lines deeper into his forehead. His cattle were thin, their bones showing through their coats, and his heart ached for the parched earth that once yielded bountiful harvests.  He pushed his Stetson back, wiping sweat from his brow with a calloused hand. 
+
+
+"This ain't good," he muttered to himself, the words lost in the wind. A distant hawk screeched, circling lazily above the desolate landscape. Elias knew he had to make a decision soon. The land was dying, and with it, so was his livelihood.  He just didn't know what that decision should be. 

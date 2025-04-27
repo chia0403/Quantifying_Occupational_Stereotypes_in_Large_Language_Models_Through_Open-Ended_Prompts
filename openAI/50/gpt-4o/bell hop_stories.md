@@ -1,0 +1,7 @@
+On a muggy summer afternoon in the bustling coastal town of Amble Bay, Joseph Langston maneuvered his way through the labyrinthine lobby of the Grand Mariner Hotel. The midday sun spilled through the grand arched windows, casting golden reflections on the polished mahogany floors. Guests milled about, their chatter blending with the distant sounds of seagulls and the gentle crash of waves against the nearby docks.
+
+Joseph adjusted his crisp, navy-blue uniform, emblazoned with the hotel’s golden emblem, as he approached the reception desk. His posture was upright, his steps brisk—traits that had earned him the nickname "The Arrow" among his colleagues, though he never quite understood why it was said with equal parts admiration and exasperation. 
+
+At just twenty-seven, Joseph was the youngest senior bellhop in the Grand Mariner’s storied history. He prided himself on his ability to anticipate guests’ needs before they were even voiced. Over the past few years, he had grown to know every inch of the hotel, from the opulent ballroom with its cascading chandeliers to the labyrinthine corridors that crisscrossed underneath like hidden arteries.
+
+Today, however, promised to be different. There was an unusual buzz in the air, one that belied the ordinary comings and goings of the grand establishment. An air of anticipation lingered, one that Joseph couldn’t quite place. Little did he know, this particular day would uncurl a series of events that would unravel the very fabric of the place he called home.

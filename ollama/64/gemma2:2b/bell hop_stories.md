@@ -1,0 +1,5 @@
+The crisp autumn air stung Theodore "Teddy" Sinclair's cheeks as he hurried down Fifth Avenue, the scent of hot pretzels from a nearby street vendor filling his nostrils.  He paused for a moment to adjust his worn fedora and squint at the flickering neon sign above the Grand Majestic Hotel - it was barely visible through the swirling rain. He hated this time of year, especially with its sudden chills that seemed to seep deep into your bones.
+
+Teddy wasn't from New York.  He had arrived just a few weeks ago, escaping the suffocating routine and endless monotony of his life in Cleveland, Ohio. The Grand Majestic promised anonymity, freedom, maybe even a bit of magic hidden somewhere within its opulent halls. 
+
+This was Teddy’s first night as a bellhop here, and he already felt the weight of countless stories contained within these four walls.  The city's heart beat beneath him - a symphony of honking taxis, muffled jazz from an underground speakeasy, and the constant, reassuring rumble of the subway system just beyond the hotel's facade. 

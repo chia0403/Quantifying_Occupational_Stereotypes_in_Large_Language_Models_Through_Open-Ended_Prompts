@@ -1,0 +1,5 @@
+The air hung thick with the scent of lilies and freshly cut pine as Amelia Beatrice Beaumont surveyed her latest project: a sprawling Victorian manor on the edge of crumbling grandeur. Sunlight streamed through dusty stained-glass windows, illuminating swirling patterns of amber and ruby across faded silk drapes.  
+
+Amelia adjusted her perfectly tailored blazer, smoothing down a stray blonde curl that had escaped her French twist. This wasn't just another renovation for her; this was a rescue mission. The house belonged to the late Mrs. Eleanor Blackwood, a renowned botanist who had poured her heart and soul into cultivating a hidden oasis within its walls. But after Mrs. Blackwood's passing, the manor had fallen silent, swallowed by neglect and overgrown ivy.
+
+Amelia took a deep breath, the scent of old paper and forgotten dreams filling her lungs.  This house whispered stories – stories she intended to bring back to life. With a gentle smile, Amelia turned towards the dusty grand staircase, its mahogany banister polished smooth by countless hands over the years. It was time to begin. 

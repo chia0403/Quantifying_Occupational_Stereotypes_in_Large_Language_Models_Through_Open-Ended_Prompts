@@ -1,0 +1,5 @@
+Once upon a time, there was a salesperson named Jack who spent his free time trying to earn a living by persuading people to buy one of his products. One day, a customer called up and demanded the company make one of his products, but Jack knew that making the product would take them completely against the grain of their company policy of not selling any product until they were paid.
+
+That night, he thought to himself, if all of this is going to the ground that fast, maybe I should take a little time to make a speech. And, thus, became one of the last humans to ever be born on this planet…
+
+This story, if you haven't heard it, is just hilarious, especially from Jack's point of view. We're sure that your kids will still laugh about it years down the line, but, hopefully, now you'll be one yourself.

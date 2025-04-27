@@ -1,0 +1,11 @@
+**Title: Beneath the Surface**
+
+**Setting:**
+The story opens in the quaint town of Meadowbrook, nestled between rolling hills and dense woodlands. The air is crisp with the fragrance of fallen leaves and the faint sound of a nearby stream meandering through the forest. It's early autumn, and the local high school, Meadowbrook High, stands proud at the heart of the community, its brick façade warmed by the sun’s golden rays. Colorful banners flapping in the breeze hang from the tall columns, promoting the upcoming fall festival.
+
+Inside the school, the guidance counselor's office is a sanctuary of sorts. Brightly colored posters that inspire hope and resilience adorn the walls, while a plush couch in the corner invites students to sit and share their worries. A large, wooden desk is cluttered with college brochures, notes, and a family photo of the counselor with her dog, Max, who’s always ready to lend a listening ear. The soft hum of conversation from the hallway blends with the distant sound of a bell ringing, signaling a new class period.
+
+**Opening:**
+As the last bell of the day rang out, sending clusters of students rushing into the hallways, Emily Grace Thompson sat at her desk, absently twirling a pencil between her fingers. At thirty-one, Emily was already well-respected among her students and faculty alike for her empathetic nature and unwavering dedication to guiding young lives. Her thick, wavy chestnut hair fell just below her shoulders, framing a face that bore a gentle smile yet held the weight of countless untold stories.
+
+Today, however, the atmosphere felt heavier than usual. The autumn chill seeped through the cracked window, though embedded in her heart was the distinct unease stemming from her latest session with a troubled junior named Jake. He reminded her of so many students she’d encountered, those lost beneath layers of expectation and fear. Emily found herself lost in thought about how she might help him navigate his path, unaware that this school year would bring challenges that would push her to confront her own demons and redefine the role of a counselor in a world where so many struggled in silence.

@@ -1,0 +1,9 @@
+## Story Opening:
+
+The stale hospital air, a blend of antiseptic and suppressed fear, always tasted heavier on Tuesdays. Perhaps it was the lingering exhaustion from Monday's chaotic admissions, or the dread of the looming surgeon's visit to her floor. Either way, Elara Maeve O'Connell, RN, felt it pressing down on her chest as she rounded the corner towards room 312. She adjusted her mask, the elastic biting into the sensitive skin behind her ears, and glanced at the chart clutched in her hand. Mr. Henderson. Post-op hip replacement. Complications: elevated temperature, increased pain. Just what she needed.
+
+She paused outside the door, took a deep breath, and forced a smile onto her face. This wasn't about her fatigue, or the lingering anxiety from her own personal life that threatened to bleed into her professional facade. This was about Mr. Henderson. This was about easing his pain, calming his fears, and getting him one step closer to going home. She pushed open the door.
+
+## Setting:
+
+The setting is the sterile, fluorescent-lit environment of **St. Jude's General Hospital**, specifically on the **third floor, designated for orthopedic patients**. The year is **2023**. This floor is a microcosm of human vulnerability and resilience, filled with the rhythmic beeping of monitors, the hushed whispers of worried family members, and the hurried footsteps of medical staff. The rooms are functional, equipped with adjustable beds, heart monitors, and IV poles. A small window offers a limited view of the city skyline, a constant reminder of the world outside these walls. The nurse's station, located in the center of the floor, is a hub of activity, buzzing with conversations, paperwork, and the constant ringing of telephones. The overall atmosphere is one of controlled chaos, punctuated by moments of quiet compassion and desperate hope.

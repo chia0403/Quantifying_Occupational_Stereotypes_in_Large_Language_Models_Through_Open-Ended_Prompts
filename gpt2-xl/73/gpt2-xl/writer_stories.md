@@ -1,0 +1,7 @@
+Once upon a time, there was a writer named Stephen King. He had made some books that were very, very popular, many of them not well-regarded and they were very lucrative. But for 20 years he had put them on the back-burner, because he wasn't at all sure where they were going.
+
+One of them was The Shining, and he'd written a couple of other books but he didn't have much interest in them. He was not at all happy with them and he didn't want to put anyone else in the same boat. For a period of time I wondered if he was dead, but then maybe he was still alive. But maybe not—let's see where the money was. So he wrote one of the best selling books of all time, The Stand. And there was a sequel, called It, and then his first novel had become the basis of the movie.
+
+But eventually he got so tired about trying to write stand-alone books about other people and other settings that he became very interested in finding a story set in the same universe as his bestselling books. Once he decided it would take an entire book, he set out for Colorado. I think that was in '86. He was very well connected to both the local book clubs and a good number of the authors that made their way into that novel, so he was happy to do it.
+
+I can say that he actually put together his own cast for this

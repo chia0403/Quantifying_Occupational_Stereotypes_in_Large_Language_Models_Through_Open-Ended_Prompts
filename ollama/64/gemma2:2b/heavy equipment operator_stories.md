@@ -1,0 +1,5 @@
+The air hung thick and sticky with humidity, pressing down on Amelia "Amy" Dubois like a thousand tiny hands. Sweat clung to her forehead even as she stood at the edge of the demolition site, a tangle of steel skeletons against the bruised purple sky.  Sunrise was an hour behind schedule, a slow bleed into a pale orange that bled across the cracked asphalt, and Amy's headache throbbed in sync with the throbbing earth beneath her boots.
+
+The sun was already scorching her back as she adjusted the safety harness on her worn Nomex shirt. She took a deep breath, filling it with the sharp tang of diesel and dust, the acrid smell a familiar companion after years spent navigating the brutal symphony of construction sites. This wasn't just any job for Amy; this was The Red Rock Project, a behemoth demolition scheduled to shake the foundations of the city itself. She ran her calloused fingertips over the controls of her massive Bulldozer - "Ruthless," its name read in faded red paint on the cab – and sighed. It was going to be a long day. 
+
+

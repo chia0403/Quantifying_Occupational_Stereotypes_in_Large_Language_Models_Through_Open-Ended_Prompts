@@ -1,0 +1,5 @@
+The rain hammered against the awning of "The Salty Mermaid," each drop echoing like tiny percussion in the quiet pub.  Inside, amidst the fogged glass and worn leather booths, sat Amelia Thorne, her reflection flickering from the dim glow of the neon mermaid above the bar. Her name was an ironic choice; she wasn't built for the sea, but rather for the solace of a well-worn bottle, the slow murmur of conversation, and the steady rhythm of pouring drinks.
+
+Amelia's hands moved with practiced ease, swirling a fresh cocktail in the glass. It wouldn't be long before someone walked through the door, burdened by some problem, seeking the comfort that only Amelia’s quiet presence could offer.  The storm outside was just beginning to rage, mirroring the tempest in her own heart. She wished she had an answer for everyone who came through those doors - a solution for their woes or at least a comforting distraction. The reality was, sometimes the best you could do was listen and provide a moment of silence before the storm broke all over them again. 
+
+

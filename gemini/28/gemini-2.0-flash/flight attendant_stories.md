@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The metallic tang of coffee clung to Amelia Rose Thorne's senses as she surveyed the galley of the Boeing 777. Outside, the dawn bled across the sky in bruised hues of purple and grey, painting a melancholic masterpiece against the backdrop of the sprawling tarmac. Amelia, however, had no time for artistry. She had 247 passengers to shepherd across the Atlantic, and the overhead bins looked like they'd already lost a wrestling match with a family of overpackers. She straightened the stack of safety cards for the tenth time, a nervous habit she hadn't managed to shake in her seven years with Celestial Airways. This wasn't just another flight. This was Flight CA302 to London, and somewhere in the cabin, nestled amongst the unsuspecting tourists and weary business travelers, was the reason Amelia hadn't slept properly in weeks.
+
+**Setting:**
+
+The story opens at **John F. Kennedy International Airport (JFK) in New York City**, specifically inside a **Boeing 777, aircraft registration N773CL, belonging to Celestial Airways**. The time is approximately **5:30 AM**, just before the passengers begin boarding for the transatlantic flight to London Heathrow Airport. The interior of the aircraft is clean but utilitarian, the familiar pale blue and grey color scheme of Celestial Airways doing little to dispel the sterile atmosphere. The galley, located at the rear of the first class cabin, is cramped but organized, a testament to the pre-flight checks already conducted by the flight crew. The air hums with the quiet thrum of the aircraft's generators, a low, constant drone that provides a strange sense of both anticipation and unease. The atmosphere is thick with the smell of jet fuel and the faint, lingering scent of cleaning products, a cocktail that Amelia has come to associate with the bittersweet feeling of leaving home.

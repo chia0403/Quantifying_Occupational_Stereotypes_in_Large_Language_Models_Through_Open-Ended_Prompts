@@ -1,0 +1,7 @@
+Once upon a time, there was a cosmetologist named David D'amo, who used the name Emane, and went around the neighborhood giving out beauty products. Emane was extremely popular in the neighborhood, since it was the best beauty product that anyone could buy. She was also incredibly kind-hearted, and made all kinds of things for the neighborhood. She never even asked for any money in return, except for some donations to her charity.
+
+One afternoon, Emane's house was burglarized. When the thief left, Emane started to panic. She looked around the corner and saw a large group of people. Emane panicked even more. She ran downstairs because she couldn't think of something good to do. She didn't see anyone, who she thought could identify the guy, or any place where she could run to.
+
+At that moment, she heard a voice that screamed her name like a scream in a movie. When Emane opened the door, she saw she had been mistaken for one of the burglars, who had somehow managed to get into the room. And he was covered in blood.
+
+The man started screaming in the most terrifying voice Emane had ever heard, at everybody inside the house. He was so excited that he didn't seem to care that he was bleeding to death. He was begging, "Help me! Help! I'm David D'amo," and he started running out

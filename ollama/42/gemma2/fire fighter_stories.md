@@ -1,0 +1,5 @@
+The acrid bite of smoke was no stranger to Amelia "Amy" Hayes. For ten years she’d breathed it in, tasted it, felt its sting on her lungs, its heat branding her skin.  It wasn't pleasant, but it was familiar. 
+
+Tonight, the smoke was different. A sickly sweet scent laced with something metallic hung heavy in the air, making Amy’s stomach churn. She adjusted her helmet, her hand lingering on the chipped paint of the Engine 14 where her name, neatly lettered in black, still read: "Hayes." This wasn't just another call; this was an inferno raging through the heart of their small coastal town, Cedar Creek. The ocean breeze usually carried the scent of salt and seaweed, but now it brought only the bitter tang of burning wood and fear.
+
+The engine roared to life, its siren a primal scream against the crackling chaos. Amy gripped the metal railing, her knuckles white as she watched the flames dance in the distance, consuming the old shipyard like a hungry beast. She could already feel the weight of responsibility pressing down on her – not just saving lives, but preserving the soul of Cedar Creek, her home.   

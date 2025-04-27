@@ -1,0 +1,9 @@
+**Title: Shadows in the City**
+
+The rain-soaked streets of New Haven glistened under the soft halo of streetlights, casting flickering reflections that danced on the dark pavement. City noises reverberated through the night: the distant wail of a siren, the honking of impatient taxis, and the murmurs of late-night pedestrians huddled under umbrellas. The air was thick with the scent of wet asphalt and impending mystery, a perfect blend for trouble just around the corner.
+
+At the edge of a bustling café, tucked between a dimly lit bar and a bookshop that had seen better days, sat a nondescript office door painted a faded shade of green. A flickering neon sign read “H. D. Mason, Private Investigator” in flashing red letters. Inside, the air was filled with the scent of strong coffee and the low hum of jazz music, giving the space an air of timelessness amidst the swirling chaos outside.
+
+Henry Donovan Mason, a man in his late thirties with a perpetually rumpled trench coat and an ever-present five o'clock shadow, sat at his cluttered desk, pouring over case files and city maps. His deep-set blue eyes, often shadowed by the weight of the world, flickered with determination as he traced a line on a printout of the city. Once a hotshot detective on the force, a string of bad luck and dubious decisions had led him into the world of private investigation—an arena filled with secrets, betrayal, and the occasional glimmer of redemption.
+
+Tonight, however, as rain tapped rhythmically on the windowpane, Henry felt a different kind of tension in the air. A new case had landed on his desk, one that stirred memories of a life he thought he’d left behind—one that promised danger and, perhaps, a clue to unearth long-buried truths. As he leaned back in his creaky chair, the shadows of the city beckoned him, ready to unveil their secrets, if only he dared to follow.

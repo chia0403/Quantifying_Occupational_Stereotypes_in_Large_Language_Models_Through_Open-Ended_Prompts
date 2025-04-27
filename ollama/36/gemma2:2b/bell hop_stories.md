@@ -1,0 +1,5 @@
+Rain lashed against the windows of the opulent Grand Elysian Hotel, mimicking the storm brewing inside 19-year-old Theodore "Teddy" Crane's gut. It was his first week as a bellhop at the legendary hotel, and he hadn't even managed to leave the cramped confines of the staff entrance without being bombarded by tourists who treated him like a mere shadow in their fancy gowns.  
+
+The grand lobby, with its marble floor glistening under the intricate chandeliers, felt more daunting than the city itself. Teddy clung to his battered bellhop uniform, wishing for something – anything – other than another misplaced luggage or disgruntled customer. 
+
+Outside, the world was an endless blur of flashing taxis and downpour, but inside the hotel, a different kind of storm raged: one of hushed whispers, flickering candles, and secrets whispered in shadowed corners. The Elysian held a certain magic, a silent undertow that seemed to swirl with every turn of the clock.  And Teddy, the bellhop on his first week of service, was inexplicably drawn into its heart. 

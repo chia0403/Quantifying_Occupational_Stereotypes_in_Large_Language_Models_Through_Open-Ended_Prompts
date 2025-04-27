@@ -1,0 +1,7 @@
+The humid Georgia air hung heavy as Amelia "Amy" Blackwood tightened the last wire on the junction box. Sweat plastered her overalls to her back, but she didn't mind. The sting of exertion was preferable to the gnawing anxiety that had become her constant companion lately.  She stepped back to admire her work, a neat row of copper wires neatly secured under the watchful gaze of a faded cartoon squirrel sticker on the box.
+
+Amy worked in Savannah, a city where history and modernity intertwined like the ancient oaks draped with Spanish moss and the gleaming modern skyscrapers that rose alongside them. The historic district was a labyrinth of cobblestone streets and antebellum mansions, each one whispering stories of a bygone era.  Today, Amy was tackling a particularly challenging job: rewiring the ornate lighting system in the grand ballroom of the old Mercer Mansion, a magnificent structure rumored to be haunted by the ghost of its former owner, a notorious gambler named Silas Black. 
+
+As the sun dipped below the horizon, casting long shadows across the cobblestones, Amy felt a shiver run down her spine. A draft snaked through the open window, sending a chill into the humid air. She dismissed it as the wind and turned her attention to the intricate chandelier hanging above, its crystal prisms glinting in the fading light. But then she heard it - a soft, mournful sigh echoing from the depths of the mansion.
+
+

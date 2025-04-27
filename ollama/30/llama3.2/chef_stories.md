@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+In the sweltering summer heat of New Orleans, Chef Étienne Baptiste stood at the helm of his family's beloved Creole restaurant, Le Coquette, on Bourbon Street. The air was thick with the smell of sizzling andouille sausage, the hum of jazz music drifting through the open windows, and the soft murmur of the lunch crowd as they devoured Étienne's signature dishes: gumbo, jambalaya, and beignets.
+
+Étienne, a man in his late 30s with a strong jawline and piercing green eyes that seemed to bore into those he met, surveyed his kitchen with a critical eye. His dark hair was slicked back, revealing a smattering of sweat on his forehead, and his white apron was stained with the remnants of last night's dinner service. Despite the chaos around him, Étienne exuded an air of calm, a sense of control that had been honed from years of working in some of New Orleans' top kitchens.
+
+As he expertly chopped onions for tonight's special, a dish Étienne had created especially for his wife's family reunion dinner party tomorrow evening, a sense of unease settled in the pit of his stomach. Tonight was supposed to be a quiet night, just a few dozen regulars and maybe some off-duty cops from the French Quarter precinct looking for a taste of home cooking. But Étienne had received an unusual phone call earlier that morning, one that had left him feeling like he was walking on eggshells. The voice on the other end had been low and menacing, saying only: "You know what's coming, Étienne Baptiste."

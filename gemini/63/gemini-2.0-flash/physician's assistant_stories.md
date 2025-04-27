@@ -1,0 +1,7 @@
+**Opening:**
+
+The insistent buzz of the pager vibrated against Amelia Grace Hawthorne's hip, a jarring counterpoint to the soothing rhythm of the echocardiogram she was performing. She sighed, never quite used to the immediacy of the healthcare world, even after five years as a Physician's Assistant. Carefully releasing the probe from the patient's chest and wiping away the gel, she muttered an apology to Mrs. Peterson, a sweet, elderly woman with a heart murmur as delicate as spun sugar. "Just one moment, dear. Gotta see if the world needs saving again."
+
+**Setting:**
+
+The story is set in the sprawling, somewhat dilapidated St. Jude's Hospital in the rust-belt city of Brickhaven, Pennsylvania. St. Jude's, once a pillar of the community, now struggles to stay afloat, burdened by outdated equipment, dwindling funding, and a patient population increasingly composed of the uninsured and underinsured. The cardiology department, where Amelia works, is tucked away on the third floor, a warren of dimly lit examination rooms, cramped offices piled high with charts, and the ever-present scent of antiseptic and quiet desperation. The windows offer a bleak view of the city's industrial heartland, a panorama of decaying factories and smokestacks coughing out plumes of gray. It's a place where hope often feels as scarce as parking spots, and where the dedicated staff, including Amelia, constantly battles against the odds.

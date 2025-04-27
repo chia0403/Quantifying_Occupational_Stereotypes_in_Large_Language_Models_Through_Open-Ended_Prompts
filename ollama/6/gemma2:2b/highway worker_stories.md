@@ -1,0 +1,5 @@
+The wind whipped across Route 81, biting through Caleb Carter's worn denim jacket like a hungry wolf. His work boots crunched on gravel as he adjusted the rearview mirror of his orange Dodge Ram, squinting at the relentless horizon stretching before him. Dust devils danced in the distance, their swirling forms mimicking the turmoil brewing inside his gut. 
+
+Caleb had been driving for ten years now, hauling asphalt and patching potholes with an aching predictability that somehow still felt like a rebellion against the vast emptiness of the country. He’d started as a teenager, dreaming of becoming a mechanic, but life in Kansas had a way of shaping dreams into something more grounded, less adventurous.  He’d carved a comfortable path for himself: his own truck, steady work, and enough money to keep the roof over his head. 
+
+But tonight, even that stability seemed to crumble like an unbaked cake beneath the weight of unspoken anxieties. The late-night stillness was broken only by the rhythmic hum of the engine and the distant echo of a passing train, each sound amplifying his growing unease.  A cold knot formed in his stomach. Something wasn't right. 

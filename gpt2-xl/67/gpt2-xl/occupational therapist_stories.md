@@ -1,0 +1,6 @@
+Once upon a time, there was a occupational therapist named Nancy Spitzer, a therapist based in New York.
+
+In the past, she had often discussed with clients the issue of the difficulty of using the "I" to make oneself feel that you are an effective listener. She would tell them that the feeling that is referred to as the "I' is an emotion, not a command. And so, to give oneself the illusion that the message is coming from inside, requires that a therapist give themselves the illusion that the message is coming from inside. She would tell the clients that this is an emotion, not a command. And, she would continue to tell them over time that that "I" is an "I" that needs to become a "he" or a "she." However, the more she tried to tell this to the clients, the more likely it is that they would actually become defensive of their "Ies" — the "I's" were, after all, the ones that were used to make them a "she" or a "he". And, in this way, their feelings that they "should" feel more comfortable with doing what they did at work (using their "Ies") actually became more of an obstacle than it was an aid — which was one of her primary goals.
+
+
+Over time, Nancy got to the point where she would start calling clients into her office and telling them that when the client has a difficult time being open

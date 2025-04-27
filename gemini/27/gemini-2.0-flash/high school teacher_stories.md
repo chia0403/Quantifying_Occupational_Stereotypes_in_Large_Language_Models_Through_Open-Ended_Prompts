@@ -1,0 +1,7 @@
+## Story Opening:
+
+The scent of old textbooks and impending doom hung heavy in the air of room 204. Miss Eleanor Beatrice Ainsworth, Advanced Placement English teacher and accidental martyr to adolescent angst, adjusted her spectacles and surveyed the battlefield. Desks were scattered like fallen dominoes, graffiti bloomed on the whiteboard like a particularly virulent strain of mold, and the faint, lingering aroma of Axe body spray clung to the atmosphere like a stubborn ghost. This was her final class of the day: AP Lit, period six, and she knew, with a certainty that burrowed deep into her very bones, that something monumentally, spectacularly disastrous was about to unfold.
+
+## Setting:
+
+The story is set in Northwood High, a public school in the affluent suburban town of Oak Creek, Pennsylvania. The school is known for its rigorous academic standards (which, in reality, mostly translate to immense pressure on students to achieve perfect grades), its state-of-the-art facilities (a brand new gymnasium that no one actually uses, thanks to budget cuts), and its deeply entrenched social hierarchy. Oak Creek itself is a picturesque town, all perfectly manicured lawns and oversized SUVs, hiding a simmering undercurrent of competition and discontent behind its veneer of idyllic perfection. The time is the late spring, a week before final exams, when the collective anxiety of the student body is at its peak.

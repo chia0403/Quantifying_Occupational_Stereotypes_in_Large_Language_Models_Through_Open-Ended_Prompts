@@ -1,0 +1,5 @@
+Rain lashed against the dusty windows of Mrs. Hemlock's antique shop, echoing the frantic thump-thump-thump of Amelia Thorne's heart in her chest. The air hung thick with the scent of cedarwood and aged paper, a comforting balm for the chaos swirling inside her. She was always happiest here, amidst the silent whispers of stories trapped between brittle pages and faded photographs. But today, even the antique books seemed to be holding their breath, mirroring the growing anxiety that choked Amelia's voice. 
+
+Her employer's death had been sudden and unexpected – a stroke that stole his vitality just as quickly as it arrived. Now, she was left drowning in a sea of unpaid bills, an overflowing archive, and the unsettling silence of her old mentor's legacy - the very thing that had drawn Amelia to this quiet corner of town. 
+
+The storm outside mirrored the turmoil brewing within.  Amelia glanced at the clock, its hands ticking away with agonizing slowness, before taking a deep breath and picking up a ledger thicker than she was tall. It held her only hope – an intricate network of debts and accounts that could either sink or save Amelia's life in this storm. 

@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The bell above the door of "Arthur's Clippers & Combs" jingled a lazy, almost mocking melody as Mrs. Hawthorne, the church organist, bustled in, her violet hat askew and her face a pinched mask of disapproval. Arthur, meticulously arranging his shaving brushes in a perfect, rainbow-colored gradient, sighed inwardly. He’d known this was coming. Mrs. Hawthorne's disapproval, much like her playing, was a daily occurrence, woven into the very fabric of Harmony Falls like the scent of pine and simmering apple cider. Today, however, it felt different, heavier, charged with a level of indignation that promised a sermon, not just a simple trim. "Arthur Penhaligon!" she declared, her voice sharp enough to shave a beard. "Have you seen the *poster*?"
+
+**Setting:**
+
+Arthur's Clippers & Combs sat on Main Street in Harmony Falls, Vermont, sandwiched between "The Cozy Kettle" diner and "Higgins Hardware," a symbiotic relationship he secretly cherished. The shop itself was a throwback to a simpler time. The walls were painted a comforting, pale green, adorned with faded black and white photographs of past patrons, their hairstyles frozen in historical absurdity. Sunlight streamed through the large front window, illuminating dust motes dancing in the air and reflecting off the gleaming chrome of Arthur's prized 1950s barber chair. The air perpetually smelled of bay rum, talcum powder, and the faint, lingering aroma of Mr. Henderson's pipe tobacco, even though the man had passed on years ago. A worn checkerboard rug covered the floor, its colors muted by time and countless footsteps. Outside, Harmony Falls, population 1,200, was a postcard-perfect New England town, complete with a white-steepled church, a babbling brook, and an unspoken understanding that things were always best kept... well, harmonious. Which, Arthur feared, was about to be irrevocably disrupted.

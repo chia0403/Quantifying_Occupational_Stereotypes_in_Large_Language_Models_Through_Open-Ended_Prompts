@@ -1,0 +1,6 @@
+The acrid tang of smoke filled Sergeant Bartholomew Quill's nostrils, mingling with the coppery scent of blood that had become all too familiar in these past few weeks. He squinted through the swirling haze, his weathered face creased with concern as he surveyed the scene before him. The once vibrant marketplace of Veridia was now a charred ruin, stalls reduced to smoldering skeletons and goods scattered like broken toys.  A lone, flickering torch cast long, distorted shadows on the cobbled streets, highlighting the grim tableau: bodies slumped against overturned carts, some clutching at empty wounds, others silent and still. 
+
+Bartholomew's heart hammered against his ribs, a drumbeat of dread echoing in the unsettling silence that hung heavy over the ravaged square. This wasn't just another skirmish with the Orcish horde from beyond the Grey Peaks; this was an act of calculated terror, aimed at breaking the spirit of Veridia.  He tightened his grip on the hilt of his sword, its familiar weight a small comfort in the face of such wanton destruction. 
+
+
+The setting is Veridia, a bustling port city nestled within a fertile valley surrounded by towering mountains. It's known for its vibrant marketplace, skilled artisans, and its stalwart defenses against the Orcish threat from beyond the Grey Peaks.  

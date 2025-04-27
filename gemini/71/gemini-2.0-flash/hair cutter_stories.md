@@ -1,0 +1,11 @@
+## Story Opening:
+
+The bell above the door jingled, a cheerful counterpoint to Amelia Beatrice Hawthorne’s mood. She sighed, pushing a stray strand of her own unruly, fiery red hair behind her ear. Another Thursday, another potential barrage of split ends and unrealistic Pinterest expectations. Amelia had learned long ago that “a little trim” often meant “a complete transformation,” and “just some layering” invariably evolved into a full-blown argument about bangs. She braced herself, turning towards the entrance with a plastered-on smile.
+
+“Welcome to The Crimson Clipper, where we…” the smile faltered. Standing in the doorway, dripping like a drowned rat and looking utterly miserable, was a woman whose face was as pale as the bleached blonde highlights Amelia specialized in. She clutched a sopping floral handbag and her lower lip trembled. “...make your hair dreams a reality,” Amelia finished weakly, hoping her voice didn't betray the sudden prickle of apprehension that had settled in her stomach.
+
+## Setting:
+
+The Crimson Clipper, located on a relatively quiet side street in the charming, albeit slightly faded, town of Havenwood, Connecticut, was Amelia's pride and joy. It occupied the ground floor of a two-story, brick building, its facade painted a vibrant, eye-catching crimson - a bold choice in a town that favored pastel shades and nautical themes.
+
+Inside, the salon was an eclectic mix of vintage charm and modern convenience. Gleaming chrome styling chairs sat on a black-and-white checkered floor, reflecting the light from the large, paned windows overlooking the street. Walls were adorned with framed vintage posters featuring iconic hairstyles from the 1940s and 50s, interspersed with shelves overflowing with brightly coloured bottles of shampoo, conditioner, and various styling products. A plush, velvet couch, rescued from a local antique shop, provided a comfortable waiting area. The air hung thick with the pleasant aroma of hairspray, perming solution, and a faint, comforting undercurrent of lavender, Amelia’s signature scent. It was a space designed to be both welcoming and inspiring, a sanctuary where transformations, both big and small, could take place. But today, the normally cheerful atmosphere felt heavy, as if the very air was holding its breath, waiting for something unsettling to happen.

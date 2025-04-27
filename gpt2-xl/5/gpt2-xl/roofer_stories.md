@@ -1,0 +1,7 @@
+Once upon a time, there was a roofer named Jack who worked in a place called The Black Rose. People lived around it, had a bit of a house and a business out there. But eventually he grew bored with the place and left it, moving to The Black Rose, which was a bit less boring. And so he had a little garden and a bit of a barn and a few chickens. So he lived in that way and made a small home.
+
+As time went by, he grew and eventually the Black Rose became a great city. It was huge, even by our standards. The walls were high and there were people hanging about on the roofs. Jack lived there for many years, until he got tired of the place. He decided that it was time for a break: he wanted to start a farm.
+
+So Jack went home and built himself a small hut, with a little shed at the front and a little barn up at the back. He got some tools and started to work. He had little chickens to start, but soon realised that one needed a bigger space. He brought in three goats and some sheep, and soon he became prosperous. His wife even became very happy there, and Jack grew very tall. For many years, Jack and his wife were happily married, with several children.
+
+Then one day, Jack got a nasty shock. Someone had broken in and stolen all the chickens and goats. People came out on the roofs, looking

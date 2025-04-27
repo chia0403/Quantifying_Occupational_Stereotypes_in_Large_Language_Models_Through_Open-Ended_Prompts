@@ -1,0 +1,9 @@
+## Opening:
+
+The squeak of her rubber-soled shoes was the only sound breaking the tense silence as Dr. Eleanor Grace Ainsworth edged closer to the bed. Sweat beaded on her forehead, despite the crisp, overly-air conditioned chill of the ICU. She needed to get him to budge. Even a flicker. Anything. Three weeks he'd been lying here, unresponsive, a victim of a hit-and-run that had left him more broken than whole. His limbs were stiff, his breath shallow and assisted, his face a mask of frustrating nothingness. Eleanor had seen this before, plenty of times. But there was something about this patient, something in the set of his jaw even in repose, that refused to let her give up.
+
+She adjusted the angle of the overhead lamp, casting a slightly warmer glow on his pale features. "Alright, Mr. Rossi," she said, her voice firm but gentle, "let's see if we can get those fingers wiggling again."
+
+## Setting:
+
+The story is primarily set within the sterile, brightly lit environment of **St. Jude's Hospital in downtown Chicago**. More specifically, it focuses on the **Physical Therapy unit**, particularly the **Neurological Rehabilitation wing**. Eleanor's work takes her to various areas of the hospital, including the **ICU**, the **orthopedic ward**, and occasionally the **pediatric unit**, showcasing the diverse range of patients she treats. The hospital itself is a sprawling, modern structure, a hub of constant activity, echoing with the beeping of machines, hushed conversations, and the rhythmic calls of nurses and doctors. Outside the hospital, the vibrant, bustling city of Chicago serves as a backdrop, a stark contrast to the controlled, clinical environment Eleanor inhabits during her working hours. The cold, unforgiving wind sweeping off Lake Michigan in early spring adds a layer of melancholy to the atmosphere, mirroring the struggles and challenges her patients face.

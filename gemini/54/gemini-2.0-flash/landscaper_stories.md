@@ -1,0 +1,7 @@
+The July sun, a merciless orange eye in the sky, was already baking the asphalt when Bartholomew "Bart" Finch arrived at 4 Pomegranate Court. He cut the engine of his beat-up Ford pickup, the "Green Ghoul," so-called for its perpetually mossy paint job and tendency to backfire at inopportune moments. The Ghoul shuddered and spat a plume of oily smoke, a grumpy farewell to the cool sanctuary of Bartholomew's air-conditioned cab.
+
+The setting was affluent, suburban Willow Creek, California. Four Pomegranate Court was a sprawling Mediterranean-style mansion, all stucco and terracotta, clinging to the hillside like a particularly ostentatious limpet. Manicured lawns stretched down towards a glistening kidney-shaped pool, and vibrant bougainvillea cascaded over arched doorways. It was the kind of place where the lawns were greener than the money used to pay for them, and Bartholomew made a good living off the upkeep.
+
+Bart climbed out, adjusted his sweat-stained baseball cap (emblazoned with "Finch's Fine Foliage"), and surveyed the scene. The initial assessment was… lacking. The rose bushes looked neglected, their blooms drooped and speckled with black spot. Weeds were staging a guerrilla invasion of the carefully laid flagstone path. And the less said about the state of the ivy on the pergola, the better.
+
+He sighed, a sound that carried on the gentle breeze. Time to work his magic. Mrs. Beatrice Worthington, the owner, was notoriously demanding, and Bart knew today was going to be a long, hot, and meticulously judged one.

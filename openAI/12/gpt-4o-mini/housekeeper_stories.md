@@ -1,0 +1,9 @@
+Title: The Whispering Walls
+
+In the heart of the quaint coastal town of Eldermere, where the waves kissed the rocky shore and the sea air hung thick with the scent of salt and blooming jasmine, stood an imposing mansion known as Briarwood Hall. Generations of laughter and sorrow echoed within its walls, and its ivy-clad façade both welcomed and repelled—a monument to history and secrets kept.
+
+It was within these creaking halls that Eleanor Margaret Wells began her work each day, rising before dawn to embrace the solitude that whispered through the darkened corridors. A housekeeper by trade, Eleanor had a gift for finding beauty in the mundane. With her mop and bucket in hand, she danced through the long corridors, elegantly dodging the ghosts of the past while polishing the banisters that had borne witness to countless gatherings.
+
+Today, however, was different. A storm brewed on the horizon, thrumming with a sense of foreboding that tugged at Eleanor’s instincts. As she dusted the ornate crystal chandelier in the grand foyer, her thoughts drifted to the rain-soaked treasures waiting to be discovered in the basement, an enviable collection of forgotten relics hidden from the world above. The mansion always seemed to come alive during storms, and if there was one thing Eleanor had learned during her years at Briarwood, it was that the past had a way of revealing itself when the thunder roared and the wind howled.
+
+Little did she know that today would uncover more than just memories—today, she would stumble upon a long-buried secret that could alter the very fabric of her reality.

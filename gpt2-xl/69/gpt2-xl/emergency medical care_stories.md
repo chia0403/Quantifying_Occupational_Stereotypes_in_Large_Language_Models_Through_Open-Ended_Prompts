@@ -1,0 +1,7 @@
+Once upon a time, there was a emergency medical care named in honor and it was called the ER. You may not know this, but the name for all this is actually quite appropriate. In addition to a nurse as the sole practitioner, the doctor was named after him. You may be surprised to know that that doctor today is called the Doctor ER. The doctor or nurse in the ER is called the Emergency Department; you may have seen it often as a common setting in hospitals.
+
+But what, then, should change when there's an emergency? And, more to the point, what should change with an emergency isn't a simple question. How should we do it right? What should we tell someone else? How do we tell someone who doesn't want to listen? How do we tell the government employees who are called upon to deal with a disaster? How do we describe it to people back home who don't know what to make of it?
+
+Those questions are all quite daunting. But they are all things we have to ask these days if we want real emergency care. Yes, today there is more than a physician behind the desk, but it isn't an emergency department in the sense that it lacks those basic needs like antibiotics, X-rays, or emergency care. Now it is an emergency that is a mixture of a multitude of emergency calls involving:
+
+Ambulance, an ambulance is a service that is not specifically organized as an ER but is usually staffed

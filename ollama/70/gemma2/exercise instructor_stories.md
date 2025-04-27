@@ -1,0 +1,6 @@
+The air hung thick with the scent of sweat and eucalyptus as Amelia Beatrice Worthington surveyed her class.  Sunlight streamed through the massive windows of "Zen Zone," illuminating beads of moisture clinging to foreheads and flexing biceps. A faint thumping echoed from the speakers, a steady beat guiding their movements. Amelia, in her signature neon green leggings and headband that read “Just Flow,” smiled encouragingly at the diverse group before her – retirees stretching with youthful enthusiasm, college students battling midday slumps, even a young man clearly more comfortable in a suit than spandex. 
+
+Zen Zone wasn't just another gym; it was Amelia’s haven, a sanctuary built on her unwavering belief that fitness could be both challenging and joyful. It was a place where anxieties melted away with each inhale and exhale, replaced by the shared rhythm of movement and the quiet hum of community. Today, however, something felt different. A tension crackled beneath the surface, an undercurrent Amelia couldn't quite place. 
+
+
+As she led them through a sun salutation, her eyes darted between familiar faces, searching for the source of this unease. Then, a new scent drifted in – sharp and unfamiliar, tinged with fear. It was subtle, but undeniable.  Amelia stopped mid-pose, feeling a chill crawl up her spine. Something had changed.

@@ -1,0 +1,11 @@
+The mahogany door creaked open like a weary sigh as Esme Beaumont stepped into The Crimson Room. It was always like this - a hushed whisper of anticipation against the backdrop of faded velvet curtains and the scent of old-world floral perfume.  Esme sighed herself, her heart mirroring the dusty elegance of the room. Today, however, even the familiar comfort seemed heavy on her soul. 
+
+The room itself was an opulent stage set for life's most dramatic moments - a grand ballroom with soaring ceilings, an elaborate fireplace that looked like it could swallow a small child whole, and a backdrop of ornate wallpaper depicting long-gone gardens bursting with life (but which felt curiously devoid of color these days). Esme surveyed her canvas, a silent ballet in the middle of its crumbling grandeur. 
+
+For years, she'd spent her mornings here, transforming neglected spaces into havens of comfort and joy - from stately old mansions to charming cottages, each one a unique masterpiece that reflected the heart behind it. But today felt different. The usual spark of creativity felt dampened, replaced by an unsettling sense of purposelessness. 
+
+She was supposed to decorate this very room for her latest client - the enigmatic Lady Amelia Hawthorne - whose eccentricity had already earned her infamy amongst society's elite. Esme had heard whispers of a tragedy that unfolded within these walls, a story whispered in hushed tones and shrouded in secrecy. The weight of it all settled heavily on her shoulders as she turned towards the mirror, her reflection staring back with an emptiness that mirrored her own. 
+
+
+**Setting:** A grand old mansion (circa 18th century) with an ornate interior that is still beautiful but run down due to neglect.  The exterior looks like a decaying castle. The Crimson Room is a large, opulent space within the mansion, serving as both living room and a sort of gathering place. It holds memories of past occupants.  
+**Character:** Esme Beaumont: A talented interior decorator known for her ability to breathe life into neglected spaces with an artistic touch. She is empathetic, creative, and driven by a deep love for beauty and transformation. However, she also has a hidden sadness that weighs heavily on her, which she struggles to understand or confront. 

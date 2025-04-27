@@ -1,0 +1,6 @@
+The scent of linseed oil and turpentine hung heavy in the air, mingling with the faint aroma of burnt toast from Elara Rose Blackwood's neglected breakfast. Sunlight streamed through the dusty attic window, illuminating motes of dust dancing in the golden beam. It settled on her canvas, a riot of chaotic brushstrokes that mirrored the turmoil brewing within her soul.  
+
+Elara sat hunched over her easel, her brow furrowed in concentration. She was battling with a portrait, a commission for a wealthy socialite who wanted to be captured in all her "radiant" glory. The woman had been a terror to work with, demanding endless revisions and throwing insults whenever Elara dared deviate from her vision. But the real torment wasn't the client; it was the blank space staring back at her on the canvas. It felt like a gaping wound, a reflection of the emptiness gnawing at Elara's own heart.  
+
+
+The attic, a converted storage space in her grandmother’s sprawling Victorian home, had once been a sanctuary for Elara. Now, with its peeling paint and cobwebbed corners, it mirrored the decay she felt within. It was a far cry from the vibrant, bustling art scene of the city below, where Elara dreamed of making her mark, but fear kept her tethered to this dusty attic and the suffocating confines of her grandmother's expectations. 

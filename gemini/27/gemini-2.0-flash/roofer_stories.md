@@ -1,0 +1,7 @@
+## Story Opening:
+
+The unforgiving August sun beat down on the shingled roof, each wave of heat radiating upwards like a physical punch. Sweat trickled down Leo Maxwell's brow, stinging his eyes despite the bandana he wore. He paused, gripping the worn handle of his roofing hammer, and took a deep breath. The asphalt shingles shimmered in the heat, distorting the already hazy view of the sprawling suburbs of Aurora, Colorado. He knew he should keep moving, but the oppressive heat was sucking the energy right out of him. Just one more row, he told himself, just one more before grabbing some water. He swung the hammer, the familiar *thunk* a small victory against the relentless sun, and braced himself for the next nail, the next shingle, the next dollar earned.
+
+**Setting:**
+
+The story opens on the rooftop of a two-story suburban house in Aurora, Colorado, during a scorching hot day in August. The house is typical of the area: a stucco exterior, a manicured lawn (mostly brown and crispy due to the drought), and neatly arranged flowerbeds. Other similar houses stretch out in orderly rows, creating a visual tapestry of middle-class American life. In the distance, the faint outline of the Rocky Mountains can be seen, shimmering through the heat haze. The air is thick with the smell of asphalt and the distant hum of lawnmowers. It's the kind of day where even breathing feels like an effort, and the rooftop becomes an isolated, unforgiving island under the relentless gaze of the sun.

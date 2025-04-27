@@ -1,0 +1,7 @@
+The neon lights of the city blurred into streaks of color as EMT  Evelyn "Ellie" Rodriguez raced through rush hour traffic. Her chest felt tight, not from the strain of her job but from a gnawing sense of foreboding that had clung to her like a shadow since she'd arrived at the scene. The red flashing lights on her rig reflected the crimson glow of the setting sun, painting everything in an ominous palette.  
+
+The hospital was a cacophony of beeping monitors, frantic shouts, and the sterile scent of disinfectant. Every other call was routine – a sprained ankle here, a mild heart attack there – but this one felt different. Ellie could feel it. There was something…off about the injured party. The victim's face, pale and contorted in pain, refused to be read as merely "injured".  It was a look of raw terror, like someone had just witnessed their soul stripped bare. 
+
+**Setting:** New Haven City, a bustling metropolis with a vibrant downtown area juxtaposed against the gritty underbelly of its industrial outskirts. The city's architecture is a chaotic blend of old and new, with towering skyscrapers rising above crumbling brick tenement buildings.  A sense of both hope and despair permeates the city. 
+
+**Main Character:** Ellie Rodriguez, a passionate and fiercely dedicated EMT with years of experience, but whose quiet demeanor hides a deeply buried fear that manifests in her work as she faces life-or-death decisions on a daily basis. 

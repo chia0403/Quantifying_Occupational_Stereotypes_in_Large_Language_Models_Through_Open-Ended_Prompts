@@ -1,0 +1,5 @@
+The smell of old paper, faint but persistent, clung to Amelia Thorne like an unwelcome second skin. It was more than just dust and time that settled in her tiny corner office, though it certainly had its share of that. No, it was the weight of hundreds of years' worth of financial history pressing down on Amelia's shoulders, a history she felt strangely obligated to decipher. 
+
+Amelia, with her spectacles perched precariously on the end of her nose and fingers meticulously tracing the faded ink on ledger after ledger, wasn't just any bookkeeper. In this ramshackle corner in the heart of London’s Victorian District, Amelia was the keeper of secrets, the unyielding guardian of lost fortunes, the silent witness to empires built and crumbled in equal measure. 
+
+The worn mahogany desk before her hummed with a low, almost imperceptible thrum, as if it too held within its hollowed wood the echoes of countless transactions, each one whispering tales of triumphs and tragedies. The air was thick with an unspoken tension; the weight of untold stories lay heavy on Amelia’s weathered shoulders, waiting to be unearthed and understood. 

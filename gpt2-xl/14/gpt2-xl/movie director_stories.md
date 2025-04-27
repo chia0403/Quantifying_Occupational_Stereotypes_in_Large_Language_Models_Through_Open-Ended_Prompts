@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named Joel Schumacher. I'm sure you've heard of him.
+
+A few years into his career, he decided to make a sequel to his first movie (Schumacher's Batman Begins). Schumacher was a busy guy, as he had a lot of important things to do -- but he took time off to make Batman Forever. He ended up passing the baton to Tim Burton, and though Burton himself was fired and replaced by the ever-so-talented Adam West, this movie did well both critically and commercially.
+
+Since then, it's been a pretty standard sequel formula. A bunch of cool, fun villains get defeated, Batman learns new abilities in the process, and everything ends with him at the top of the movie. But there have been a few exceptions -- The Dark Knight trilogy was a direct sequel, but also was a "spin off" that also had a bunch of spinoffs. So was Batman & Robin. And then there was 2005's The Dark Knight, which followed a young Bruce Wayne after his parents are murdered. Though it had all the trappings of a "prequel", it was just another Batman story, with a lot more of the same beats and characters -- until it also spun off into a prequel called Batman Begins!
+
+While I am in favor of sequels that focus on one area of Batman's character development, I'm not particularly fond of the fact that Batman

@@ -1,0 +1,5 @@
+Rain lashed against the arched windows of the Victorian manor, mimicking the tumultuous storm raging inside Esmeralda "Esme" Thorne's soul. A thick fog of frustration clung to her like a second skin as she surveyed the disaster zone of her latest project: Mrs. Hemlock's sprawling estate in the seaside town of Saltwind Cove. 
+
+For years, Esme had painstakingly built a reputation for transforming rundown homes into elegant havens, each room pulsating with color and life. But this…this was different. A silent film star of the past, Mrs. Hemlock's mansion felt as frozen in time as her faded portraits, every room echoing with echoes of forgotten grandeur.  
+
+The once-vibrant tapestry of floral wallpaper now seemed to mock Esme's aspirations, each faded hue a cruel reminder of what she could no longer do - breathe life back into this decaying relic. Saltwind Cove wasn't just a town; it was a living entity, its rhythm dictated by the ebb and flow of the sea.  But here, amidst dusty furniture, chipped porcelain, and peeling paint, Esme felt like an island adrift in a vast ocean of despair. 

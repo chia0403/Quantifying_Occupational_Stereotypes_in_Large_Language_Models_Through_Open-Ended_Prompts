@@ -1,0 +1,7 @@
+Once upon a time, there was a hair cutter named Sam who had a dream...to open a place that would make you feel special.
+
+Today, Sam's haircut business, The Golden Age is one of America's Most Luxury Hair Shops. A true destination for women, men and haircuts of all styles and price point, The Golden Age continues to be a destination for fine hair, for beauty professionals, for aficionados and for those truly looking for a new and different experience. From timeless classic styles to trendy fresh hairstyles, every customer receives a personal and unique experience.
+
+From the traditional Sam haircut to his take on a new style everyday, each customer is provided with personal grooming, unique haircuts and a personal stylist. After a relaxing and comfortable experience, our entire team is dedicated to ensuring the smooth delivery of your hair for all your appointments.
+
+A true family owned and operated business, each person involved is committed to delivering only exceptional service. With over 150 years of experience in the hair business, we understand that each customer is unique and their requirements, expectations, or expectations are unique as well. Whether it is our expert stylists working with each individual to deliver a unique and personalized result or our experienced team of manicurists that have more than 35 years of experience, The Golden Age is your premier hair salon. With your safety and your comfort at the top of our list of priority concerns, we make every attempt to ensure an enjoyable and relaxing

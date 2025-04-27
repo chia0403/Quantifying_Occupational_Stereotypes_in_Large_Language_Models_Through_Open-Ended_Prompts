@@ -1,0 +1,7 @@
+Once upon a time, there was a singer named Frank Turner. "He made a name for himself in the mid-1990s with a series of folk ballads about loneliness, heartbreak, and longing. In the late '90s he added more commercial songs about relationships to his repertoire, but still, the title remained his."
+
+That writer also says, "Like all great songwriters, Turner knew that pop is all about a song and never more apparent than on his most recent album, This Fire. All his songs are inspired by a personal story, but his new one, "The Lost Key," is more in the vein of David Bowie or the Cars; the song is about the lost key to a mysterious building that was built, after a fire, somewhere in an unlikely part of London. The key is found on a beach behind the restaurant where the story begins."
+
+That would definitely qualify as an unconventional songwriter. He may have been influenced by Bowie's songs and the Cars, but that doesn't tell us how or why his story started, how it played out, and why he decided to end the song with, "Oh, the key to the building you've been dreaming of is lost, but you're going to find it on your own, and I'm still here to bring you home."
+
+The song ended the same way the Beatles did—with a slow, sad fade out that only gave reason to believe that the main character's life was

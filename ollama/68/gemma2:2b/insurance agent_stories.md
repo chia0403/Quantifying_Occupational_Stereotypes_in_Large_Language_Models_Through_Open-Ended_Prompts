@@ -1,0 +1,5 @@
+The worn leather creaked beneath Amelia Thorne's calloused fingertips as she adjusted her glasses. "Another day, another policy," she muttered under her breath, watching the sun bleed into the horizon, turning the small office on Elm Street into a canvas of fading orange and soft violet.  It was a Tuesday in August, the air thick with humidity and the promise of storms brewing on the western horizon. 
+
+Amelia's clientele wasn't exactly glamorous - it was the kind of town that saw insurance as a necessity rather than an adventure. She wasn't complaining though; her office was nestled comfortably amongst the familiar faces of Elm Street: Mrs. Peabody, whose poodle had been known to chew through several sofas over the years, Mr. Johnson down the hall who kept his prized antique clock running even with Amelia's questionable sense of organization, and the ever-present scent of freshly baked apple pies emanating from Miss Miller's bakery just a few doors down.  
+
+But this Tuesday, something felt different. An undercurrent of unease hummed beneath the quiet normalcy of Elm Street, like the faint rustle of leaves before a storm. 

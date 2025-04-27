@@ -1,0 +1,6 @@
+The humid Georgia air clung to Amelia "Amy" Hayes like a second skin as she stepped out of her car.  Spanish moss draped from ancient oaks, creating a cathedral-like canopy over the manicured lawns of Oakhaven Estates, one of Savannah's most prestigious neighborhoods. The scent of magnolia blossoms mingled with the salty tang of the nearby ocean, a fragrance that both comforted and agitated Amy. 
+
+Oakhaven was known for its stately antebellum homes, each one whispering tales of bygone eras and grand fortunes.  But beneath the veneer of Southern charm, Amy knew secrets lurked. Rumors of ghosts, hidden treasures, and forgotten loves were woven into the fabric of these old houses like ivy around a brick wall. It was this intrigue that drew Amy to Oakhaven, and fueled her passion for real estate. 
+
+
+Today, she was meeting with Mr. Silas Blackwood, a man shrouded in mystery, about his late wife's rambling Victorian mansion at the edge of the neighborhood.  The house stood perched on a rise overlooking the city, its once vibrant paint peeling like sunburnt skin, and its windows gazing blankly out at the world. Amy had heard whispers that Mr. Blackwood was desperate to sell, haunted by memories he couldn't escape within those walls. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a bartender named Jack who did only three things: serve drinks as loudly as he could, make them with a lot of fun (and not too much liquor) and make sure they would be available again when they were gone. Then one day, a customer went away and Jack forgot to ask if he'd like dessert. He had to call the kitchen and get one made. The kitchen, ever the idealist, offered to call back on him, just the two of them. When he picked up the phone after the other person hung up he could hear a faint clicking sound, and the kitchen operator said, "We'll be back to order you two drinks once again", and she hung up. So Jack called back.
+
+"Where have you guys been? I was so close!!!" he shouted, then paused and smiled.
+
+"What are you smiling about, boy?", the operator replied. Jack raised both eyebrows and said, "I'd like it if you came in and order me two more drinks", and smiled at her as he said it.
+
+After she left the kitchen and the customer returned, Jack said, "Hey, do you mind if I sit here? If I do this good of a job, I'll surely get the next order right. And I want that next order to be a double!", and sat down with a sigh. Then the customer left and Jack said, "What a difference a few months make

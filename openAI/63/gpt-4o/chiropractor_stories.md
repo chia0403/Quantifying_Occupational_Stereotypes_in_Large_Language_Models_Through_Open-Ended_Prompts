@@ -1,0 +1,9 @@
+Dr. Emily Hartman gazed out the window of her sunlit office, the gentle hum of the Seattle streets below blending with the soft rustle of leaves in the breeze. Her chiropractic clinic, nestled in a historic brick building adorned with ivy, stood at the corner of Elm and Pine—a serene oasis in the bustling heart of the city. The room, awash with natural light, was accented by warm wood tones and botanical prints, exuding a sense of calm and healing.
+
+It was early autumn, and the air carried a crisp, invigorating scent. Emily took a deep breath, feeling an exhilarating mix of anticipation and purpose. Her gaze flitted over the meticulously arranged treatment tables and the wall adorned with anatomical charts, each element a testament to her dedication to her craft. Today marked the anniversary of her clinic’s opening, a milestone that reminded her of the countless lives she had touched in this very space.
+
+As she prepped for her first patient of the day, Emily felt the familiar comfort of routine seep into her bones. She recalled her journey—from the long nights poring over textbooks to the transformative moment when she first put her healing knowledge to work. Each adjustment, every relieved smile, fueled her passion to help others discover the power of their own bodies.
+
+Emily smoothed her white coat and smiled as Janelle, her ever-effervescent assistant, poked her head through the door. "First patient is here, Dr. Hartman," Janelle announced cheerfully, her presence a constant source of support and energy.
+
+Emily nodded, her mind already shifting gears to focus on the forthcoming consultation. This morning would begin like many others, yet each adjustment held a unique narrative—a story waiting to unfold under her skilled hands.

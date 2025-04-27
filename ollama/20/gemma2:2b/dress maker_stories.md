@@ -1,0 +1,6 @@
+The worn mahogany door creaked like an old man's bones as Elara stepped inside "A Stitch in Time." Its scent was familiar – lavender sachets tucked among the vintage fabric scraps, a faint whiff of citrus from the ever-present cleaning spray.  Elara ran her hand over the rough, wooden counter where threads and needles were arranged with reverence. The world outside was swirling in shades of grey, the sky a canvas of storm clouds that seemed to mirror the turmoil brewing inside her. Elara’s heart pounded against her ribs as she inhaled deeply – it had been days since her last commission, days since the whispers started. 
+
+**Setting:** "A Stitch in Time" is a small, family-owned dress shop nestled in the heart of a quiet coastal town in Maine. The storefront boasts the faded charm of an older era with its pastel paint and ornate window moldings. It was Elara's grandmother's legacy - passed down from generation to generation like a treasured heirloom. 
+
+
+**Character:**  Elara Blackwood, a talented dressmaker known for her intricate creations. She inherited a deep sense of artistry from her grandmother and a quiet passion for preserving the beauty of fabric. Despite her talent, Elara is burdened with a secret – one that threatens not only her shop but also her own identity. 

@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia Harper's head like a chorus of disgruntled bees, their pale glow illuminating the chaos of her desk. Papers overflowed from every corner, threatening to engulf her like a paper tsunami. Coffee cups, their contents cold and congealed, littered the surface like fallen soldiers. The pungent aroma of stale pizza hung heavy in the air, a testament to Amelia's long night battling a mountain of discovery requests for Mr. Bigler's upcoming defamation case.
+
+It was 5:47 am. Dawn hadn't yet broken over Chicago, and the city outside her window still slumbered, unaware of the legal battle brewing within its concrete walls.  Amelia Harper, a paralegal with the prestigious firm of Lawson & Finch, was wide awake, fueled by caffeine and the gnawing anxiety that came with facing down a deadline she couldn't possibly meet. 
+
+
+Her phone buzzed on her desk, a message from her boss.  "Harper," it read in all caps, "Update on Bigler case NOW." Amelia sighed, rubbed her weary eyes, and pushed back a stray strand of auburn hair that had escaped its bun. This was just another day in the life of a paralegal. Just another day fighting for justice, one document at a time.

@@ -1,0 +1,5 @@
+The air hung thick with the scent of dust and sagebrush, a familiar aroma that clung to everything in Dusty Creek, Wyoming.  
+
+Eleanor "Ellie" Harper squinted at the sunrise, its pale light painting long shadows across her weathered ranch hands' faces as they gathered for their morning meeting. A thin veil of smoke curled lazily from the nearby cookhouse, carrying the promise of coffee and biscuits – a much-needed fuel before facing another day in the unforgiving Wyoming landscape.  
+
+Ellie chewed on a stray piece of straw, worry gnawing at her gut like a hungry coyote. The drought had tightened its grip on Dusty Creek for months, turning once lush pastures into brittle brown skeletons. Livestock were losing weight, water was scarce, and whispers of selling up and leaving echoed through the town like mournful coyotes. Ellie refused to believe it was over; she'd built this ranch with her own two hands, her father's legacy etched into every sturdy fence post and weathered barn board. She would fight for Dusty Creek, for her family, and for their future. 

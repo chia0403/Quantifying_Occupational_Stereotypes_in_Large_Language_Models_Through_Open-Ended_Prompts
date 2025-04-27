@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named Ed DeMarco. DeMarco was a "dentist" as his clients were all so rich and he was the only doctor left working on Wall Street. Then he became a trader because Wall Street has no need for the dentist anymore. He was too busy trading against the teeth of his former clients. The tooth was his wife, his mother, his baby daughter. He would use that tooth to trade against and destroy the teeth of his enemies to make the world a better place.
+
+His first opponent was a banker called Frank Russo. "Frank" was the banker's brother and the banker is very angry that DeMarco has taken over his brother's profession. A small skirmish occurred when DeMarco went to an old family portrait in a picture frame to get a piece of a broken clock. The clock was worth about 10% of the family fortune! DeMarco also shot Frank to stop him from stealing a large investment! He knew that since Frank had done this, he wouldn't be allowed to trade with DeMarco again and could get himself severely punished for the criminal charge, thus making him less likely to retaliate.
+
+The two men came to blows and DeMarco became seriously injured in the clash. He suffered three broken legs and one broken arm. He was transported to a hospital where he was given an IV and eventually treated for nearly half a year before he recovered. That's how he got that tooth.
+
+He continued

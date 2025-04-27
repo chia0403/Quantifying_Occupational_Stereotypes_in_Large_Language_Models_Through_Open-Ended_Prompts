@@ -1,0 +1,8 @@
+Once upon a time, there was a baker named Sallie Yocum. After many years of baking, one particular recipe finally caught her eye. It called for just the perfect amount of flour, butter and eggs, a combination of ingredients that Yocum had never been able to find before. So one day, she decided to take a little trip to the local library. In an effort to try this recipe, she began to read up on baking.
+
+Soon she was hooked. "The more I read, the more I realized what really made a real difference was when I added real ingredients, like nuts and dried fruit, not just simple flours," said Yocum. "The end result was better, healthier chocolate chip cookies that lasted longer in the oven and were soft and fluffy enough to leave a pleasant after taste in the mouth."
+
+There are millions of people around the world creating these homemade chocolate chip cookie recipes. They're truly delicious and the fact that they're made from scratch means that their flavor does not have to be altered to achieve the perfect "cookie" texture and flavor. Not only are these homemade cookies delicious, they're healthy.
+
+
+Yocum has also discovered that when it comes to homemade chocolate chip cookies, it's not just the ingredients that make a difference. She also noticed that, once ingredients were combined properly, a very simple process is required. Once that was accomplished, you would simply have to let the cookies cool for a

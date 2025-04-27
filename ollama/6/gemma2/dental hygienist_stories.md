@@ -1,0 +1,6 @@
+The fluorescent lights hummed overhead, casting a sterile, pale glow on the row of gleaming chrome chairs in Dr. Evans' waiting room. The air thrummed with the low murmur of nervous chatter and the whirring of an unseen industrial fan battling the summer heat seeping in through the cracked windows. Amelia "Amy" Roseberry meticulously straightened the dental floss dispenser, her movements precise and practiced. Her reflection stared back from the polished countertop, a woman perpetually caught between professionalism and the faint tremor of exhaustion that always seemed to linger beneath her perfectly applied lipstick. 
+
+It was another Tuesday morning in Hilltop Dental, a world Amy knew inside out: the predictable rhythm of toothbrushing demonstrations, fluoride application, and the constant hum of anxiety from patients who’d rather face a root canal than the dreaded plaque scraper. But today, something felt different. A prickle of anticipation danced beneath Amy's skin, a sense that this Tuesday wouldn’t be like any other.
+
+
+The front door chimed its familiar jingle, heralding the arrival of Dr. Evans’ next patient.  A tall figure stepped into the waiting room, casting a long shadow across the faded floral carpet. This wasn't just another routine check-up. Amy could feel it in her bones. 

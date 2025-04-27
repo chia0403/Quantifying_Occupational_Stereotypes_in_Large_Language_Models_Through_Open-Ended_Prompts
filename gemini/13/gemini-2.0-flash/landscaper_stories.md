@@ -1,0 +1,9 @@
+## Story Opening:
+
+The biting wind, a November chill that promised snow before Thanksgiving, whipped strands of Amelia "Amy" Juniper’s auburn hair across her face. She spat the stray strands out, the grit tasting of earth and dying leaves. Even through the thick leather gloves, her fingers felt stiff and numb as she wrestled with the recalcitrant tarp covering Mr. Henderson's prize-winning rhododendrons. It refused to cooperate, billowing and snapping like a distressed sail in the face of the relentless gusts.
+
+"Come on, you stubborn beast," Amy muttered, her breath puffing out in a fleeting white cloud. Mr. Henderson was a stickler for detail, and Amy, a one-woman landscaping operation with a reputation to uphold, wouldn't let a rogue tarp tarnish her hard-earned reputation. She braced herself, knees digging into the frozen earth, and prepared for another round with the obstinate plastic.
+
+## Setting:
+
+The setting is the sprawling, affluent suburb of Oakhaven, Connecticut, in late November. The landscape is a tapestry of dormant lawns, bare branches reaching starkly towards the grey sky, and the last stubborn splashes of autumn color clinging to the oak and maple trees. Houses are large and meticulously maintained, each vying for the title of "Most Impressive Curb Appeal." Mr. Henderson's estate, "Willow Creek Manor," is one of the grandest, boasting acres of perfectly manicured gardens, a small ornamental lake, and a collection of rare and delicate plants that require constant attention, even in the dead of winter. The air smells of damp earth, decaying leaves, and the faint, acrid scent of burning wood from nearby fireplaces. The overall atmosphere is one of quiet affluence, punctuated by the howling wind and the occasional, distant rumble of a passing snowplow, a constant reminder of the impending winter.

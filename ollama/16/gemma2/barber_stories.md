@@ -1,0 +1,6 @@
+The air hung thick with the scent of bay rum and anticipation in Lorenzo "Lenny" DeMarco's barbershop.  Sunlight streamed through the dusty windows of the old brick building, casting long shadows on the worn linoleum floor. A chipped porcelain sink sat at Lenny's right, its rusted faucet dripping a steady rhythm that punctuated the quiet chatter swirling around him. 
+
+He was in his element, a symphony conductor wielding clippers and scissors rather than an orchestra. The rhythmic buzzing of the electric trimmer filled the air as Lenny meticulously trimmed Mr. Grimaldi’s salt-and-pepper mustache, their conversation a familiar back-and-forth about politics, the weather, and the latest gossip from Little Italy.  His shop, tucked away on a quiet street in New York City's Lower East Side, was more than just a place for haircuts; it was a haven, a community center, a stage where lives unfolded with every snip and stroke of the razor. 
+
+
+But today, something felt different. The familiar hum of the barbershop felt tinged with an unspoken tension. Even Mr. Grimaldi's usual jovial pronouncements seemed subdued. Lenny couldn't shake the feeling that a storm was brewing, one that could threaten the comforting rhythm of his life.  

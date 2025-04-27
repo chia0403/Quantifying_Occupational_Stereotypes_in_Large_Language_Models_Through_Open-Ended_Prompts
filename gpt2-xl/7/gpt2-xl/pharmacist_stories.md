@@ -1,0 +1,7 @@
+Once upon a time, there was a pharmacist named Alistair McKee. He owned that very store where you now work, and when he was running it, McKee made a lot of drugs. But not the drugs that you use regularly. He made them all sort of crazy. At some point during an unusually heavy supply of the stuff, McKee did something that we wouldn't necessarily recommend: he put all his stock onto one ship, a cargo ship that had no crew. So, he had a couple of hundred pounds of drugs on a vessel that was going to get sunk. And McKee's employees, who were good people and had been trained to keep all the goods away from the ship's cargo, they had to do the right thing. Instead of taking the drugs back to where they came from—that's where the crew was, in the safety of the hold—they had a bad idea. They took the drugs on board, which were of the most dangerous sort to the crew, and that's where a lot ended up getting lost. The rest ended up ending up in the hands of dealers selling to people who had lost their jobs. McKee was caught in a terrible dilemma, and it's the kind of dilemma every pharmacist is faced with every single day.
+
+This is not a game, I thought to the screen, but a book.
+
+Yes, exactly.
+
+When McKee's crew came up with a better plan to make

@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The biting wind howled through the empty bleachers, swirling fallen leaves around Abigail "Abby" Riley's worn sneakers. She barely felt it. The sting in her chest, a familiar ache compounded by the early November chill, eclipsed any physical discomfort. Staring out at the rain-soaked, barren field, Abby gripped the half-empty coffee cup, the cardboard warm against her numb fingers. Just yesterday, this very patch of earth had been a battleground, a roaring cacophony of cleats on grass, desperate shouts, and the euphoric cheers of victory. Now, it was just…empty. Like her.
+
+**Setting:**
+
+Abigail "Abby" Riley, Head Coach of the Northwood High School Ravens Women's Soccer Team, found herself perched atop the highest row of the home-side bleachers overlooking the school's main athletic field. Northwood High, a relatively small public school nestled in the foothills of the Appalachian Mountains in rural Western North Carolina, wasn’t known for its powerhouse sports programs. The surrounding town of Havenwood was even smaller, a place where Friday night football was more important than breathing, and the local diner was the center of gossip. The school itself was a sprawling brick building, worn but sturdy, surrounded by patches of dense forest and rolling hills. The soccer field, while meticulously maintained by the gruff groundskeeper, Mr. Henderson, felt exposed and vulnerable in the late autumn landscape, stripped of its vibrant summer green and clinging to the last vestiges of warmth before the long, cold winter set in. The air was crisp and clean, carrying the scent of damp earth and decaying leaves, a constant reminder of the season’s relentless march towards dormancy. It was a landscape that mirrored Abby's own feelings: tired, exposed, and desperately clinging to hope before the darkness closed in.

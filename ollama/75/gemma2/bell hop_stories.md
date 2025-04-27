@@ -1,0 +1,5 @@
+The Grand Blackwood Hotel hummed with the low thrum of late afternoon activity. In the cavernous lobby, polished marble floors gleamed under crystal chandeliers, reflecting the subdued chatter of guests and the clinking of champagne flutes from a nearby celebration. The air itself seemed thick with the scent of expensive perfume and fresh lilies, a testament to the opulence that permeated every inch of the building. 
+
+Amidst this symphony of luxury stood Alistair Finchley, bellhop extraordinaire. He was a man whose wiry frame moved with practiced grace, his crisp uniform somehow managing to look both impeccable and lived-in. His dark eyes, perpetually alert behind his pair of thick spectacles, scanned the scene, taking in the details like a seasoned chess player assessing the board. 
+
+Alistair had seen it all during his decade at the Blackwood: clandestine meetings, extravagant proposals, and even the occasional hushed whisper of scandal. But today felt different, a prickle of anticipation crawling up his spine. He couldn't quite place the reason, but the air crackled with an unspoken energy that hinted at something extraordinary about to unfold.  

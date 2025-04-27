@@ -1,0 +1,11 @@
+**Setting: The Rain-Slicked Streets of San Francisco, 2025**
+
+The fog rolled in thick, wrapping around the spires of the Golden Gate Bridge like a shroud. It was a typical gloomy morning in San Francisco, the kind that made the city feel simultaneously cozy and oppressive. Neon signs flickered to life as the early risers bustled past the stark glass and steel facades of high-rise buildings. The sound of distant seagulls mingled with the rhythmic tapping of umbrellas against cobblestone, while the ocean air carried a hint of salt and something else—something heavy.
+
+**Story Opening:**
+
+In the heart of the city, nestled between a bustling café filled with the smell of roasting coffee beans and a law firm that seemed to tower over every passerby, was a small, unassuming office. Inside, Amelia Larkwood adjusted her rectangular glasses as she pored over a stack of legal documents, her brow furrowed in concentration. At thirty-five, Amelia had carved out a successful career as a criminal defense attorney, her reputation as a fierce advocate etched firmly in the minds of clients and colleagues alike. Yet, today the atmosphere felt different, charged with a tremor of unease that whispered of secrets buried deep beneath the surface of her current case.
+
+She could hear the low hum of traffic outside, punctuated by honks and the occasional shout, but her attention was entirely absorbed by the case file in front of her. It detailed the arrest of her latest client, a promising tech entrepreneur accused of embezzlement—a charge that, if proven true, would not only ruin a life but send ripples through the entire tech industry. As she scanned the pages, a shiver of doubt crept up her spine. A flutter of uncertainty twisted in her gut; something about the evidence didn’t sit right with her. 
+
+Amelia stood, pacing her small office, contemplating the implications of what lay ahead. The rain drummed steadily against the window, mirroring the tumult of thoughts swirling in her mind. Above all, she knew one thing: unveiling the truth was a perilous journey, and she was determined to tread its treacherous path, no matter where it led.

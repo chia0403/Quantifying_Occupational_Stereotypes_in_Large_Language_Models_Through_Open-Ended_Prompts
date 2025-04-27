@@ -1,0 +1,3 @@
+The morning air hung heavy with the scent of sawdust and burnt coffee as Elias Thorne adjusted his welding mask. He grimaced at the harsh glare from the sun filtering through the factory windows, painting the already grimy space in an ever-shifting mosaic of light and shadow. The year was 1946, and war had left its mark on everything, not just on the scarred earth but also on the hearts and minds of men like him.  
+
+Elias, a man built strong and weathered by years spent hunched over blueprints and steel, felt the weight of the day's work pressing down on his shoulders. Today was for rebuilding, for patching the gaping wounds left in the wake of the conflict, and he was one of the few who could. 

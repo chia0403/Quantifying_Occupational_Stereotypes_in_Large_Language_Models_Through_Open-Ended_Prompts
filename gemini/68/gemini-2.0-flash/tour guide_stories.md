@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The salt-laced wind whipped at Amelia Beatrice Hawthorne's crimson scarf, tugging it loose from her carefully coiffed bun. She cursed under her breath, securing it once more before turning to the gaggle of tourists clutching their guidebooks like life rafts. "Alright everyone," she announced, her voice amplified slightly by the portable microphone clipped to her collar, "Welcome to the beginning of history, or at least, *our* version of it!" She flashed a practiced, dazzling smile. "Before us stands the crumbled facade of what was once the Grand Celestial Clockwork Factory. Marvel, ladies and gentlemen, at the birthplace of chronometric innovation, the heart of the Age of Gears!"
+
+**Setting:**
+
+The year is 2347. Amelia stands before the skeletal remains of a colossal, steampunk-esque factory building. Twisted, rusted gears jut out of the crumbling brickwork like broken bones. The entire structure is perched precariously on the edge of a cliff overlooking a vast, shimmering ocean of metallic scrap and discarded clockwork devices. The sky above is perpetually overcast with a haze of smog, a byproduct of the city’s reliance on geothermal and antiquated combustion engines. The air hums with a low, rhythmic thrum, the sound of countless machines still whirring beneath the surface of Neo-London, a city built atop the decaying remnants of its Victorian ancestor. The overall feeling is one of faded glory, a world where technological marvel and environmental ruin are inextricably linked.

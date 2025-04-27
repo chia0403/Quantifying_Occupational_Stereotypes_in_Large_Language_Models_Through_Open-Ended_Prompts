@@ -1,0 +1,5 @@
+The scent of sawdust clung to Elias Thorne like a second skin, mingling with the tang of pine and the ever-present musk of aged wood. The sun dipped below the horizon, casting long shadows across his workshop – an old barn he'd turned into a haven of creativity.  With each swing of his handplane, each precise cut of his saw, Elias felt a deep sense of satisfaction, a feeling as tangible as the rough-hewn timbers he worked with every day.
+
+Elias Thorne lived and breathed the quiet life of a woodworker. His days were filled with meticulous work on bespoke furniture for discerning clients: an intricately carved mahogany dining table for a retired senator; a sturdy oak bookshelf for a struggling writer; a delicate birdcage crafted from cherrywood for a lonely widow. Each piece was born from his hands, imbued with both skill and a touch of artistry.
+
+But tonight, something felt different.  A storm raged outside, whipping the barn's old gabled roof into a frenzy, its howling wind an unwelcome guest in Elias' sanctuary. The lightning flashed, illuminating the workshop for a fleeting moment before it was swallowed by darkness once more. 

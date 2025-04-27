@@ -1,0 +1,5 @@
+The desert wind whipped through Caleb "Steelback" Mallory's beard, biting at his exposed skin even beneath the worn leather of his Stetson. The sun dipped below the jagged horizon, painting the sky in hues of bruised purple and bloody orange. Dust devils danced across the cracked asphalt, mimicking the restless beat of Caleb's heart as he shifted through the cab's meager contents. A crumpled map lay beside a half-empty canteen, its edges frayed like his own weathered spirit.  His rig, "The Iron Serpent," groaned in protest as it rolled onto the desolate highway stretching towards nothing but endless sagebrush and swirling sandstorms. 
+
+**Setting:** The barren expanse of the Mojave Desert, USA. 
+
+**Main character:** Caleb Mallory (Steelback) - A seasoned trucker with a haunted past and a quiet resolve etched into his weathered face.  He travels the backroads in search of something elusive, something beyond the mundane routine of hauling cargo across the country. His silence speaks volumes; he carries the weight of secrets that only time can unravel. 

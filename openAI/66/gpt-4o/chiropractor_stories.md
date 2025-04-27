@@ -1,0 +1,7 @@
+Dr. Eleanor Grace Pinero leaned back in her worn, yet beloved, leather office chair, watching as the first rays of dawn painted the Seattle skyline with hues of pink and gold. Her chiropractic clinic, nestled in the heart of Capitol Hill, exuded a sense of calm despite the bustling city just outside its walls. The clinic, aptly named "Align & Thrive," was her sanctuary—a place where science and healing intertwined.
+
+The room was filled with soothing instrumental music, punctuated only by the gentle murmur of the small indoor waterfall in the corner. Shelves lined with books on anatomy and holistic health adorned the walls, interspersed with framed degrees and certificates that told the story of her unwavering dedication to her craft. The air was rich with the scent of lavender and eucalyptus, hinting at the therapeutic oils she often used in her practice.
+
+Eleanor's fingers absently traced the grain of the desk, a family heirloom passed down through generations of healers and caretakers. She closed her eyes, momentarily transported back to her childhood days spent at her grandmother’s side, learning the art of touch and the power of human connection.
+
+As the clock struck eight, she took a deep breath, savoring the quiet moments before her patients began to arrive. It would be a busy day filled with stories of pain and recovery, of tension and release. Yet, for Eleanor, it wasn't just a job—it was a calling. Here, within these walls, she knew she could make a tangible difference, one adjustment at a time.

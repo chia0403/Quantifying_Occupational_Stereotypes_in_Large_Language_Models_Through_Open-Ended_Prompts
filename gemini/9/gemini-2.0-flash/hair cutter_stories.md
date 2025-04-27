@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting for a story about a hair cutter:
+
+**Setting:**
+
+The late afternoon sun, a weak honey color, filtered through the dusty blinds of "Shear Perfection," a salon nestled in the heart of downtown Port Blossom, Maine. The town, known for its lobster rolls and stubbornly picturesque harbor, was currently experiencing a lull between the summer tourist rush and the crisp, apple-scented days of autumn. The air inside the salon was thick with the lingering scent of hairspray, perm solution, and just a hint of the day's forgotten coffee. Vinyl-covered waiting chairs sat empty, a stark contrast to the bustling scenes witnessed during the summer months. A vintage radio, perched precariously on a shelf next to a stack of dog-eared magazines, crackled with static and the faint strains of a country song. A half-finished crossword puzzle sat on the reception desk, next to a rotary phone that hadn't rung in hours.
+
+**Opening:**
+
+Evelyn Mae Harrington, owner and sole stylist of Shear Perfection, sighed, pushing a stray strand of silver-blonde hair behind her ear. The silence was getting to her. It wasn't just the absence of clients; it was the hollow feeling that mirrored the emptiness of her appointment book. She surveyed her domain: the slightly faded floral wallpaper, the scarred styling chair that had seen decades of bad perms and worse dye jobs, and the mirror reflecting back her own tired eyes. She picked up the well-worn comb, running it through her own fringe. Another day, another quiet defeat. Port Blossom was a good town, a friendly town, but sometimes, Evelyn felt as though it was slowly suffocating her with its predictable routines and unwavering acceptance of mediocrity. She yearned for a challenge, a burst of color, a *client* with hair that didn’t just want a trim and a rinse.

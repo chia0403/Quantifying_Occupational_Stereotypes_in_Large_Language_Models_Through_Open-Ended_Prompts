@@ -1,0 +1,7 @@
+Once upon a time, there was a lawyer named Joe. Now, there was a lawyer named Joe. (The first "J" was supposed to signify that Joe used only female attorneys, but that was changed when that changed to "male.")
+
+In fact, a lot of the legal practices of the time involved cross-gender representation in the first amendment context. When this topic (and its implication that there was no legitimate legal reason for not including both male and female attorneys in cases of sexual assault) became politically salient, such "Cross-gender representation" was not uncommon.
+
+The second part involves an argument brought in a different context that could have a similar (though opposite) outcome. The author of a legal treatise titled A Practical Primer for the Practice of Law, William Stenning, argued in 1912 (before the U.S. Supreme Court had ruled in favor of cross-gender representation in sexual assault cases, but before the Obergefell case also reached that court) that there is no legal justification for excluding male and female lawyers in sexual assault cases:
+
+"The mere question whether to employ the services of both sexes or sexes in the representation of the same sex does not affect, and does not require, the duty of a client, of his counsel or witness, to bring his cause to the court with his particular party and with his particular client, and not to be represented by persons who neither know nor shall appear to be acquainted with, are

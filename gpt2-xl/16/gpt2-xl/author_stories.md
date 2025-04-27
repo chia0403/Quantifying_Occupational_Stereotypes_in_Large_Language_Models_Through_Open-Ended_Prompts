@@ -1,0 +1,7 @@
+Once upon a time, there was a author named J.K. Rowling who became a success of a new literary form called Harry Potter. A series of books were created and one of them became a global phenomenon and has now become a literary phenomenon of the highest order. The first book in the series, Harry Potter and the Goblet of Fire, was published in 1997 and it had sales of more than 450 million copies worldwide by the end of last year. And that did not even include America, Europe, the world or any other part of the world with a sizable market. The second book, published in 1998, sold more than half a billion copies.
+
+
+Despite their popularity, both books had one thing in common: they were extremely difficult to read. Yes, even those books which everyone praised for their complexity and wit and how they managed to make you think and analyze, actually had some kind of a steep learning curve. And, when the fourth book was written, many authors and fans were expecting another book in the series. But J.K. Rowling could not come up with another book. But there were those who thought it was her fault for not producing a book. And this accusation was directed at her head translator, who had been working on the translation of the books since 2009…and who, despite knowing all the words to the previous four books as well as many others, had not been able to produce a new book in the series.
+
+
+So what was Rowling to

@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Mary Ainsworth, a professor at the University of Pennsylvania in Philadelphia. By her own admission, she was not much good at math, but she knew a great deal about people. In a long series of articles for scientific journals, she described two separate studies of personality, which produced strikingly similar findings. She divided the people in the study into two groups—one group was high on the three traits that make up the personality inventory from the OCEAN model, and one group was low on those characteristics.
+
+Those who were high on the three traits were much more resilient to stress. They were less likely to cry, stop eating, drink, or take drugs. They also showed less tendency to have sex, less interest in new or different things, and had little interest in sex. By contrast, when the participants were low on those characteristics, they were even more likely to stop eating, to fall asleep at night, and to take drugs. This is what she called the negative cycle of personality.
+
+In one study, Mary Ainsworth observed that people higher on trait three had different patterns of brain activity in regions of the brain normally used for emotional regulation. These brains were also more likely to show activity in a region of the brain that is also correlated with depression.
+
+The other study showed that people with trait three were more likely to suffer from depression, and that they suffered from a variety of problems other than depression

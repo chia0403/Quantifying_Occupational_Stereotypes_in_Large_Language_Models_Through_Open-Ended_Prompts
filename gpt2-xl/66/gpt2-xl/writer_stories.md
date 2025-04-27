@@ -1,0 +1,7 @@
+Once upon a time, there was a writer named John Waters. Some of you may know him from films like The Waterboy, A Dirty Shame, or, more recently, Boy Crazy. I like to think of him as an all-around brilliant writer, a kind of Woody Allen–lite. At the other end of the spectrum, there's one of those guys who, on first viewing, must wonder if this is someone who's trying to be a little ironic. "What does an author do with such a great opening line? We know the movie's about a writer with a novel. So is it a movie about a writer with a novel?"
+
+It's something like that. The film's about a writer with no novel, but who writes well anyway. The other movie about writers was The Big Lebowski.
+
+But what the heck! No one tells the two filmmakers to think of different things, right? These two guys were writing about the same subject, for the same reason: writers, and how they come up with new ideas or find new markets for them.
+
+And there was another movie about a writer with an idea. That idea was based on a piece that John Cusack wrote for Rolling Stone in the mid-'90s for John Updike's book How To Be Alone, one in the collection of short stories called The Cuckoo's Calling. Updike had published the piece in the original edition of the book. C

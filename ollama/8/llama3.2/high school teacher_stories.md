@@ -1,0 +1,5 @@
+As the last wisps of sunlight faded behind the worn brick buildings of Oakdale High School, Emily Jocelyn Thompson stepped out into the crisp evening air, her eyes scanning the deserted parking lot with a mix of relief and trepidation. The summer days that had seemed so long and languid just a few weeks ago now felt like a distant memory, replaced by the familiar anxiety of preparing for another year of teaching 9th-grade English to a room full of restless teenagers.
+
+Oakdale High School was nestled in the heart of small-town America, its very existence a testament to the enduring power of tradition and community. But as Emily gazed out at the quiet streets beyond the school's borders, she couldn't shake the feeling that something was about to change – that the complacent rhythms of her life were on the cusp of being disrupted by forces both within and outside the walls of Oakdale High.
+
+Little did she know, the summer of '23 would bring with it a whirlwind of unexpected events, secrets revealed, and the very fabric of Emily's life torn asunder.

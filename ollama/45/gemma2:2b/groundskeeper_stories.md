@@ -1,0 +1,7 @@
+## The Shadowed Glades 
+
+The first hint of dawn bled across the sky, painting the horizon in shades of bruised plum and lavender over the sprawling grounds of Blackwood Manor.  A chill wind whipped around Thomas "Tommy" Hawthorne's weathered face as he stood amongst the gnarled trees, his worn boots sinking slightly into the damp earth. The moon had been a cruel mistress tonight, spitting down icy rain that left the once-pristine grounds looking like the aftermath of a battle.
+
+Blackwood Manor was an imposing silhouette against the fading twilight, its stone walls etched with centuries of secrets and whispered tales.  Tommy, for his part, was content to remain in the shadow of these ancient walls - content to tend to the sprawling gardens that gave life and solace to the manor's inhabitants, a family he had known since childhood. He knew every rustle in the leaves, every groan of the ancient oaks, every echo of forgotten voices that clung to the crumbling stonework. 
+
+His tools were his companions, each one whispering stories of past summers spent pruning roses, tilling earth for new seedlings, and battling the relentless march of time that threatened to engulf Blackwood Manor altogether.  The wind moaned through the branches, its mournful cry a symphony only Tommy could hear. It was this silence, this solitude, that allowed his mind to wander - to delve into the forgotten corners of the manor, where whispers lingered in the air like phantoms. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a bookkeeper named Eileen, and she was kind enough to put me in contact with the people around here who work on the shop floor:
+
+Myself, Eric, Eileen's husband, Scott, and my brother, Kyle.
+
+Here's an update from Scott:
+
+After 4 years on the shop floor at the Old City location, Eileen passed away in March 2016. You can see her work on our wall, along with many other work by our other employees who work on the floor at various times during the day. It wasn't easy for Eileen, I know that much; and that's because she loved the job so much that she gave 100% the first time she turned it in (and that's not all she did for the store). She was always open to talking, and she loved her family and friends. She had three beautiful children, and no matter how busy she was working, all she wanted to do was come home and have dinner with them. She would've wanted me to send her my love and blessings each and every day when she took her leave. That's why I was so sad to hear of her passing. It really took a toll on me, because she was my wife, and she got to see me get married to my beautiful girlfriend, and she could never say I didn't do my part. She was an amazing cook, and made some of my favorite food on Earth. She

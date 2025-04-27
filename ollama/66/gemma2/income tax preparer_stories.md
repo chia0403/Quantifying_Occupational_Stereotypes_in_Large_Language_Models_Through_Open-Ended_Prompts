@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Beatrice "Bea" Pennyworth's head, casting a sickly yellow glow on the overflowing filing cabinets and stacks of crumpled receipts that threatened to engulf her tiny office. Outside, March rain lashed against the windowpanes, blurring the bustling street below into a watercolor wash of greys and yellows. The air inside was thick with the scent of stale coffee, printer ink, and desperation – the familiar aroma of tax season at Bea's Little Accounting Haven. 
+
+Bea, her perpetually frazzled hair pulled back in a tight bun, squinted at the latest return sprawled across her desk. It belonged to Mr. Henderson, the grumpy owner of Henderson's Hardware, who always insisted on claiming every penny he could, no matter how ridiculous the deduction. Today, it was a "tax-write off" for his prized collection of antique doorknobs. Bea sighed. She loved helping people navigate the labyrinthine world of taxes, but some days, like today, the system felt more like an elaborate joke than anything else. 
+
+

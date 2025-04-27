@@ -1,0 +1,4 @@
+The smoky haze hung heavy in The Rusty Note, clinging to the worn velvet curtains and swirling around Amelia Beatrice Thorne like a second skin. She inhaled deeply, the scent of stale beer and desperation mingling with the faint sweetness of jasmine from her necklace.  Her reflection, framed by the flickering neon sign outside, showed a girl on the brink: mascara smudged, blonde hair escaping its loose braid, eyes blazing with an intensity that could either ignite a crowd or burn her down completely. Tonight, Amelia was desperate for ignition. 
+
+
+The Rusty Note was a dive bar in the heart of New Orleans, a place where dreams went to die and ambitions were buried under layers of cheap bourbon and forgotten promises.  It wasn't the kind of place that launched careers, but it was the only stage Amelia could afford, the last flicker of hope in a city that devoured young souls like The Rusty Note devoured its beer kegs. 

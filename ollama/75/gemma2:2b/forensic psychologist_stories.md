@@ -1,0 +1,7 @@
+Rain hammered against the roof of Dr. Eleanor Vance's office, each drop an echoing drumbeat in the otherwise quiet study.  The storm outside mirrored the churning chaos inside her -  the case file clutched tightly in her hand felt like lead. It was a murder, but not just any murder. This wasn't a case of cold-blooded malice or an act of passion. No, this was something far more complex, something that twisted into knots in Eleanor’s mind and left her feeling utterly powerless.  
+
+The victim, Julian Sterling, was the son of a prominent politician and philanthropist. A man lauded for his charitable work and unwavering ambition, he had been found dead in his luxurious penthouse apartment, an empty vial of liquid sleeping pills clutched in his hand. It wasn't suicide. There was too much more to it - a meticulously planned facade, each detail designed to shield the killer from scrutiny.
+
+Eleanor’s gaze swept over the file, taking note of the forensic reports, the witness statements, and the seemingly mundane life details that now felt like cryptic clues in an elaborate game. She needed someone to play the game with her, someone who could decode the secrets hidden in Julian's very being - the man whose world was meticulously crafted yet now lay shattered on his own floor.
+
+The storm outside raged on, but inside Dr. Vance’s office, a quiet tension crackled between the swirling sheets of rain and Eleanor's determined gaze – she was ready to unravel this intricate knot, one thread at a time. 

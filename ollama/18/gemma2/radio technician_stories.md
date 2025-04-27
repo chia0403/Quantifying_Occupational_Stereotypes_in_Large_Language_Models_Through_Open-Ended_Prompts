@@ -1,0 +1,6 @@
+The air hung heavy with the smell of ozone and burnt solder as Amelia "Amy" Beatrice Jones squinted at the tangle of wires in front of her. Dust motes danced in the single shaft of sunlight piercing through the grimy window of the repair shop, illuminating the faded “Amelia’s Amps & Antennas” sign hanging crookedly above the door. It was a relic from a bygone era, when radio was king and everyone from housewives to soldiers relied on these clunky boxes for their daily dose of news, music, and entertainment. 
+
+Now, in this age of smartphones and streaming services, Amy’s shop felt more like an abandoned museum than a thriving business. But she clung to it with the tenacity of a barnacle to a ship's hull. This wasn't just a shop; it was her legacy, passed down from her grandfather, who had taught her everything she knew about deciphering the secrets hidden within these metallic carcasses. 
+
+
+Today, though, even Amy’s seasoned expertise felt strained. The radio on the workbench sputtered and hissed like a wounded animal, its internal mechanisms defying her every attempt at repair. A cold knot of worry tightened in her stomach. This wasn't just another broken receiver; it belonged to Old Man Henderson, a war veteran who relied on his radio for companionship during long, lonely nights. 

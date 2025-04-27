@@ -1,0 +1,7 @@
+Once upon a time, there was a counseling psychologist named Dr. Robert D. Brown. I think Brown is an inspiration. He's lived an inspirational life, and I believe he would encourage us to be as courageous and adventurous as we possibly can in our sexual quest.
+
+"Dr." Brown was married; he never got over the death of his wife. He began seeing a new counselor named Ann, the founder of the "Big Green Screen" therapy movement. She was a sexy and seductive blonde. Brown fell instantly in love with her, and they wed. Ann was beautiful, brilliant, and intelligent. She was the second female psychologist I have known to become popular as a sex therapist, and the first to marry and have a child. Brown and Ann had a beautiful home and a large, well-appointed residence. Brown believed that sex was a tool for changing the world, and that we could change our sexual practices through them.
+
+They were both incredibly smart, driven, passionate, compassionate people, and they never thought that they would fall in love. Brown's marriage, however, was failing. Ann and Brown were both highly active in their church and social life, but they never felt very close to their spouses. Brown even tried to divorce Ann and get a divorce, but there was no legal grounds for that, as Ann's marriage was not a marriage. He felt that everything was crumbling and he wanted out.
+
+So, after many failed attempts, Ann and

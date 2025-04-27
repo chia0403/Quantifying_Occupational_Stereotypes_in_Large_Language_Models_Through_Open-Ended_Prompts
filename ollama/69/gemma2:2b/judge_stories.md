@@ -1,0 +1,5 @@
+Judge Eleanor Sterling stared out her office window at the relentless drizzle blanketing the courtroom steps. The city's grey palette mirrored the heavy cloud hanging over her own soul. A cold knot formed in her stomach as she glanced at the docket on her desk - another case of familial neglect, another desperate plea for justice. 
+
+The courtroom, bathed in the warm glow of the afternoon sunbeams filtering through a dusty skylight, felt like an alien world, filled with hushed whispers and the scent of old leather and wood polish. Eleanor adjusted her glasses, the weight of her own past pressing down on her shoulders. She was a woman carved from stone – stoic, deliberate, with eyes that held a thousand unspoken tales. 
+
+The case today involved a single mother, Sarah Lawson, accused of neglecting her three young children, left alone in a cramped apartment while she fought for a promotion at the law firm. A promotion that, Eleanor knew all too well, was fueled by desperation and ambition – a fire that could easily turn into an inferno, destroying everything it touched.  The case would test not just Eleanor's legal acumen but her own inner demons. 

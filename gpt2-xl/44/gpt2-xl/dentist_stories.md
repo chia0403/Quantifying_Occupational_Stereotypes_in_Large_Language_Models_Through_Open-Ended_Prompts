@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named John F. Kennedy. You may know him as the man who led a young country to victory in the world's most popular sport (the presidency), the first to be elected to the highest office in the land ("Mr. and Mrs. President"), and the first to hold the highest office in the most popular country on Earth (the "honor" being conferred upon him by a Supreme Court ruling). One more thing, that one of the country's greatest heroes was also a dentist.
+
+The dentist's history is long and distinguished. He is a national hero. He is also a famous man who has been written about enough to be worthy of a biography. The following is the article from the October 14, 1964 issue, titled "Mr. President: Meet John F. Kennedy" by George M. Seldes with the caption: "This is a story about a man who has been the subject of a biography, a movie, a play, more than a few books, a television series, and a million and one articles about him. There is a reason this president and his wife have been featured so often, and his story has been so exhaustively told. They are John F. Kennedy, the president and his wife, Jacqueline. "
+
+Fascinating, that.
+
+The dentist, John F. Kennedy, was elected to the Presidency, the first man to take the office from a vice presidential candidate

@@ -1,0 +1,7 @@
+## The Whispering Walls
+
+Rain lashed against the windows of "Serenity Suites" - a quaint haven nestled amidst the bustling metropolis of New Albion.  Inside, its usual warmth was muted by a low hum of unease that settled like dust on the air. This wasn't just another ordinary Monday; it was the anniversary of Amelia Thornley's father's death – and she felt every bit as choked with grief as the city seemed to be in this particular storm.  
+
+Amelia, petite and perpetually adorned with a smile that could disarm even the most grumpy of individuals, scanned the lobby.  Her worn-out brown shoes tapped out a measured beat on the polished mahogany floor as she waited for her shift to begin. The usual flurry of visitors arriving at Serenity Suites was absent, leaving Amelia alone with the whispering walls and a sense of profound loneliness that seemed to cling to every corner of this place she'd called home for nearly fifteen years. 
+
+The heavy wooden door creaked open, ushering in a man whose presence demanded attention.  His face, etched with lines as deep as his eyes, seemed to carry the weight of untold stories, each one whispered through the silent corridors of time. Amelia knew this was Mr. Silas Blackwood - the owner's nephew, and she could feel him hovering at the edge of something he couldn't quite articulate. A storm brewed in his gaze, mirroring the tempest outside, and Amelia wondered if it might wash over her soon too. 

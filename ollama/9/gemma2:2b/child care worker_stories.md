@@ -1,0 +1,7 @@
+The faint scent of cinnamon swirled in the air as Elara, her heart already a hummingbird trapped in its cage, surveyed the scene: sticky-sweet remnants of pancake batter clung to one high chair, while a tower of bright plastic blocks stood precariously close to the edge of the play mat. Her young charges, the ten rambunctious blossoms she was entrusted to nurture, were a blur of movement and sound – giggling, squealing, and chasing after imaginary dragons in a kaleidoscope of color. But this wasn't the kind of scene Elara could linger on for long. 
+
+The day had started like any other: sunshine spilling through the skylights of the brightly painted daycare center; children’s laughter ringing out as they learned their ABCs, built towers that toppled before dawn could paint a new one; the comforting routine she loved. But something was different today. A tension thrummed in the air, palpable and unnerving. 
+
+It wasn't anything specific. It was just...off. The usually cheerful murmurs of the children had fallen into an almost eerie silence. And Elara felt it too - a prickling on her skin that refused to be ignored.  Her job title – 'childcare worker,' echoed in her mind, but she hadn't quite grasped the true meaning of that word until now. 
+ 
+The day was still young. The hour wasn't even past nine yet, and yet a shadow hung over Elara’s heart, heavier than the weight of all those sticky-sweet pancakes.   Her eyes darted around the classroom, scanning for something – anything – that might explain this sudden shift in the air. 

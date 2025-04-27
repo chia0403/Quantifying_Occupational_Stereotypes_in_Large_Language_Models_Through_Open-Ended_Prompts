@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named Tom Lassiter. Tom's life wasn't a simple one. In addition to his work in the Navy, he served in Vietnam. And though his work has brought him to San Francisco, it has also brought him something else: two wives.
+
+In April 1968, in Thailand, Tom and his girlfriend, Joannie, went to meet the young couple of a friend from his service, a captain. They were going to go to the beach. Tom and his girlfriend, Joannie, had been dating for over a year, and they'd gone to Vietnam together. Tom was in command of a combat diving team, but the four members of his unit were killed during a mission. Tom was devastated.
+
+On April 20th, while in the company of some fellow divers, Tom met a young woman named Joannie. Joannie was 23 but looked 15. She had blonde hair and auburn eyes. She was beautiful. Her blue eyes focused on Tom. She wore a long, black skirt that ended at her knees, a shirt that matched her skirt, a pair of high heels and a matching scarf. At first, Tom had no desire to talk to Joannie. She reminded Tom of his friend, who had also been in Vietnam. But when Joannie moved towards him, Tom could not help himself. He asked Joannie to marry him, and he kissed her.
+
+Tom and Joannie were married

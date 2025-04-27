@@ -1,0 +1,6 @@
+The air hung thick with the scent of bay rum and talcum powder, a familiar comfort to Bartholomew "Barty" Quillfeather. The worn wooden floorboards creaked underfoot as he moved between his stations, each equipped with its own antique mirror reflecting the soft glow of Edison bulbs strung across the ceiling. Sunlight streamed through the dusty windows, casting long shadows that danced with the whirring blades of his clippers.
+
+Outside, the bustling city of Veridian hummed with life – a symphony of carriage wheels clattering on cobblestones and hawkers’ cries selling their wares. But inside Barty's barbershop, nestled in a quiet back alley just off Main Street, time seemed to move at its own languid pace. It was a sanctuary for men seeking solace from the city's chaos, a place where stories were shared, grievances aired, and troubles forgotten – at least for the duration of a trim. 
+
+
+Today, however, Barty felt an unusual tension in the air.  A new client sat nervously in his chair, clutching a worn leather satchel. His gaze darted around the room, avoiding eye contact. He smelled of rain and woodsmoke, unlike any man Barty had ever seen before. Something about him hinted at secrets untold, whispers of adventure on distant shores. 

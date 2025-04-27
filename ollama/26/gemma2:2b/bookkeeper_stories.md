@@ -1,0 +1,8 @@
+Rain lashed against the grimy windows of "Jenson & Sons" Accounting, turning the already dim interior into a blurry, grey tableau. Inside, Amelia Jenson sighed, her fingers tracing the worn grooves of a ledger she'd grown intimately acquainted with over the years. The scent of stale coffee and paper, ever-present in the cramped office, filled her nose as Mrs. Henderson, the kindly but perpetually flustered owner, rattled on about the upcoming quarterly reports.
+
+Amelia, known by all as "Mimi" for her meticulous nature and penchant for finding an extra digit or two (and a corresponding tax loophole) in every transaction, found solace in the routine of it all.  Her days were a tapestry woven with invoices, receipts, and balance sheets - each thread meticulously knotted and measured to ensure financial harmony within the bustling town of Oakhaven. But as the storm outside intensified, Amelia's carefully ordered world felt like an unyielding, swirling vortex. 
+
+For years, she’d kept her eyes on the family business, watching it grow steadily from a quaint corner storefront into a thriving hub for local entrepreneurs. Now, with her brother leaving to join his dream of starting a sustainable farming venture in California, Amelia was left staring at the financial abyss that seemed to be growing deeper every day. 
+
+
+**Setting:** Oakhaven, a quiet town nestled amongst rolling hills and a sprawling river, is home to a vibrant network of small businesses, each holding a unique charm within its weathered storefront walls. But beneath the veneer of idyllic living, a silent tension simmers, especially for those like Amelia caught between legacy and uncertainty. 

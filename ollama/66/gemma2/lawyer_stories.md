@@ -1,0 +1,3 @@
+The air hung thick with humidity and the scent of stale coffee in Amelia Katherine Sterling's cramped office. Outside, Chicago was sweltering under a July sun, but the AC in her fourth-floor walk-up barely budged the oppressive heat. The rhythmic clatter of the old ceiling fan did little to combat the growing discomfort.  Amelia, perched on the edge of her desk, stared at the stack of files threatening to engulf her workspace. Each one held another story – another life entangled in the messy, often cruel, machinery of the law.  This case, however, felt different. It was personal. It whispered promises of revenge, of justice served cold, and a flicker of something dangerous danced behind Amelia's usually steely blue eyes. 
+
+

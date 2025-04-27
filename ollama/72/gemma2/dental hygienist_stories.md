@@ -1,0 +1,5 @@
+The sterile scent of bleach and peppermint hung heavy in the air, a familiar comfort to Amelia Beatrice Finch as she prepped her next patient's chair. Sunlight streamed through the window, casting dancing squares of warmth onto the linoleum floor. Outside, the chirping of birds and distant lawnmowers painted a picture of an idyllic suburban morning. But within the walls of Dr. Thompson's practice, reality was a symphony of buzzing drills, rhythmic suctioning, and the occasional startled groan from a nervous patient. 
+
+Amelia adjusted her mirrored glasses, catching her reflection in their polished surface. Her usually bright smile seemed strained today. The weight of another Tuesday morning at the dental office, its predictable routine and endless cycle of flossing demonstrations, pressed down on her like a stubborn molar.  She sighed, hoping for something – anything – to break the monotony before Mrs. Henderson with her infamous aversion to toothbrushes shuffled in for her usual cleaning. 
+
+

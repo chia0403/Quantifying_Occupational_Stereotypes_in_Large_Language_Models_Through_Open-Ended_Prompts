@@ -1,0 +1,7 @@
+Once upon a time, there was a private detective named Dick Van Patten that worked for the city of St. Louis. He was a former member of the National Black Panthers; a self-professed white supremacist and former member of the Ku Klux Klan. In 1971, he began looking into a number of people – like a number of other white supremacists he had come across over the years – that included the Reverend Clementa Pinckney, the Rev. Jeremiah Wright and many others. In short, he was a man with a number of questionable character traits that led him into questionable actions.
+
+"Van Patten said he had two main sources on the case," says Robert Maruska, author of "DETROIT RITUAL KILLING: THE CULT IN THE CITY OF ST. LOUIS FORCED FROM BEING OURS." "They are two young men who worked for himself and a friend, both of whom are in jail."
+
+Van Patten allegedly put each man under surveillance, hired a couple thugs to do some home invasions, and sent other men to look for them during the course of the investigation. They began doing some digging of their own. With the help of a local photographer and his wife, Maruska was hired to chronicle the investigation – and was eventually able to obtain a number of the documents that would later become "document 1."
+
+Document 1 was a police report detailing an incident that occurred on November 1

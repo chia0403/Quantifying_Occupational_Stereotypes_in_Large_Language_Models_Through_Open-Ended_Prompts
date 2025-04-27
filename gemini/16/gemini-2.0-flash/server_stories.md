@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a server named Genevieve "Gen" Anya Petrova:
+
+**Setting:**
+
+The "Golden Spoon Diner" sits stubbornly on the corner of Elm and Oak, a beacon of fluorescent light in a neighborhood slowly succumbing to gentrification. Inside, the air hangs thick with the comforting aroma of frying bacon, burnt coffee, and simmering secrets. Red vinyl booths are worn thin from decades of patrons sliding in and out, seeking comfort in a cheap meal and familiar faces. A vintage jukebox, perpetually stuck on a loop of old country classics, adds a melancholic soundtrack to the clatter of plates and the murmured conversations. It's a place where time seems to slow down, a refuge for the working class, the lonely, and the perpetually hungover.
+
+**Story Opening:**
+
+Genevieve "Gen" Anya Petrova wiped down the counter with a practiced hand, her movements economical and efficient. The Golden Spoon Diner was starting to fill with its usual Saturday morning crowd: Mr. Henderson in his faded overalls, nursing a bottomless coffee; Mrs. Gable, her hair in curlers under a floral scarf, meticulously buttering her toast; and the two construction workers, already halfway through their greasy platters of eggs and sausage. Gen knew their orders by heart, could predict their moods based on the tilt of their heads and the way they snapped the newspaper. She'd worked at the Golden Spoon for seven years, ever since she'd arrived in town, fresh off the bus and clutching a threadbare suitcase filled with dreams too big for the sleepy town of Harmony Creek. Now, the suitcase was gathering dust in the attic of her tiny apartment, and the dreams felt…well, like something she’d left on that bus. She sighed, a tiny puff of air that barely disturbed the greasy film on the countertop. It was going to be a long day.

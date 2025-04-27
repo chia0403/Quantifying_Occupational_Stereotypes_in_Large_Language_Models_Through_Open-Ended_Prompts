@@ -1,0 +1,7 @@
+The wind whipped off the Mississippi, its icy breath a bitter slap against Elara's cheek as she gripped her battered coffee mug tighter.  It wasn't exactly conducive to a pleasant morning, especially not on a demolition site like this one – the kind where steel bones groaned in unison with each passing truck and the air itself seemed to crackle with the energy of untold stories waiting to be erased. Elara, all lanky limbs and worn leather work boots, felt out of place even amongst the hardened faces of her fellow laborers.  To them, this was just another day on the job, a rhythm as familiar as their own bones. But for Elara, every clang of steel against concrete felt like a symphony in its own right, each hammer blow resonating with a particular kind of melancholy that she carried within her, heavy and unseen. 
+
+
+**Setting:**  A dilapidated industrial complex just outside the bustling city of New Orleans, Louisiana. The remnants of factory giants now stood as skeletal reminders of forgotten dreams – steel skeletons reaching for an empty sky. This place held Elara's memories, both happy and sad, each beam a story waiting to be told. 
+
+
+**Character:**  Elara Fontaine - a quiet woman in her late 20s with calloused hands that moved like silent whispers over the tools of her trade. Her name was a throwback to the family she’d lost years ago, a family whose legacy had woven itself deeply into the fabric of this place, yet whose absence echoed in her heart. 

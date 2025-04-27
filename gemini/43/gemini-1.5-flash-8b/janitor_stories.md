@@ -1,0 +1,6 @@
+The fluorescent hum of the Grand Galleria vibrated through the worn soles of Bartholomew "Barty" Butterfield's worn work boots.  Dust motes, illuminated by the harsh glare of the overhead lights, danced in the air like tiny, spectral ballerinas.  Barty, a janitor at the opulent shopping mall, was navigating the cavernous space between the high-end boutiques and the food court, a space usually echoing with the hurried footsteps of shoppers and the clatter of trolleys.  Today, however, an unsettling quiet hung in the air, a stillness as thick as the layer of polish Barty knew he'd be scrubbing off the pristine marble floors later.  The Galleria, usually a symphony of bell-ringing escalators, chattering voices, and the faint aroma of expensive perfume, felt…wrong. Empty.
+
+
+**Setting:**
+
+The Grand Galleria, a sprawling, multi-level shopping mall in the heart of a bustling metropolis.  Its architecture was a mix of sleek modern design and grand classical flourishes, with expansive marble hallways, towering vaulted ceilings, and shimmering crystal chandeliers.  While seemingly perpetually gleaming, the Galleria was a labyrinth of hidden corners and forgotten spaces where dust collected under the polished surface and shadows danced at the edges of light.

@@ -1,0 +1,5 @@
+The humid Georgia air clung to Elara Beatrice Vance like a second skin as she stepped out of her beat-up Ford Focus. The sun, already high in the sky, beat down on the cracked asphalt of Highway 98, turning the world into a shimmering mirage.  A swarm of cicadas buzzed their incessant song from the overgrown pecan trees lining the dusty road. Elara, pushing her auburn ponytail back from her sweaty neck, adjusted the floral print dress that felt more constricting than usual in this heat.
+
+Elara was an insurance agent for Vance & Sons, a family business inherited from her grandfather. She wasn't exactly thrilled about it, but the company had kept their small town afloat for generations, and she had a responsibility to keep it going. Her latest assignment: visit Jebediah "Jeb" Thornton at his ramshackle chicken farm just outside of Harmony Creek. Jeb was known for two things: raising prize-winning roosters with names like “General Patton” and being notoriously difficult to deal with. Elara wasn’t sure what kind of trouble she was about to walk into, but the unsettling feeling in her stomach told her it wouldn't be pleasant. 
+
+

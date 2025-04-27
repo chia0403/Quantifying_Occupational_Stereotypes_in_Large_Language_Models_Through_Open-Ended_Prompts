@@ -1,0 +1,6 @@
+The air hung thick with the scent of stale cigarette smoke and anticipation in the dimly lit rehearsal room. Dust motes danced in the lone shaft of sunlight piercing through the grimy skylight, illuminating Amelia Josephine Beaumont as she paced before the makeshift stage, her brow furrowed in concentration. A tangle of wires snaked across the floor, remnants of a failed sound check, and a discarded script lay open on a rickety chair, pages annotated with frantic scribbles. 
+
+Amelia, known affectionately by the cast as "AJB," was renowned for her ability to wring raw emotion from the most mundane scenes, but tonight, even she seemed frustrated. The production – a gritty reimagining of “Romeo and Juliet” set in a post-apocalyptic wasteland – had hit a snag.  Her vision, once clear and vibrant, now felt hazy and out of reach. 
+
+
+The cast, huddled together in the wings, watched her with a mix of apprehension and admiration. They knew better than to interrupt during one of AJB's "visceral moments," as they called them – periods of intense brainstorming that could last for hours, punctuated only by muttered curses and fervent scribbles on napkins.  This production was unlike anything they'd tackled before; a departure from the traditional Shakespearean romance, exploring themes of love, loss, and survival in a world stripped bare. 

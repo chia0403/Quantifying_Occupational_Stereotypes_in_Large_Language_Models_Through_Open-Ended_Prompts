@@ -1,0 +1,3 @@
+The biting wind whipped across the ochre landscape, stinging Rosalie Mae Bartlett's cheeks and carrying the mournful howl of coyotes from the distant mesas. The sun, a watery disc barely visible through the swirling dust, cast long, distorted shadows from the skeletal remains of last season's sunflowers. This was late October in Harmony Valley, Wyoming, and the harshness of the land was settling in for the long winter haul.
+
+Rosalie, her calloused hands shoved deep in the pockets of her worn denim jacket, surveyed the parched fields with a critical eye. Not a single drop of rain in weeks. Another dry spell, another year threatening to bankrupt Bartlett Ranch, the legacy her grandfather had painstakingly carved out of this unforgiving terrain.

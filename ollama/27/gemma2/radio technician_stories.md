@@ -1,0 +1,7 @@
+The static crackled like a thousand dying embers, a familiar white noise soundtrack to Elias Finch's life.  Elias wasn't sure if he preferred the hiss of faulty transmissions or the eerie silence that punctuated them – both held their own brand of unsettling beauty in this abandoned observatory perched atop Mount Sentinel. 
+
+Built in the early 20th century, the once-grand structure now resembled a skeletal giant, its rusted metal skeleton groaning against the relentless Montana wind. The vast dome, scarred by time and neglect, offered panoramic views of Missoula valley sprawling beneath them like a patchwork quilt, but Elias rarely looked out. He was content with the world confined within his makeshift workshop – a cluttered sanctuary of salvaged equipment, flickering LED lights, and the scent of soldering flux and ozone. 
+
+Elias, a man perpetually stained with grease and frustration, ran a calloused thumb over the receiver of a vintage Marconi radio, hoping to coax another whisper from its dusty coils. He was chasing ghosts – fragments of transmissions, whispers on the airwaves that hinted at something beyond the mundane humdrum of his isolated existence. Tonight, he felt it in his bones, something was different. The static held a new intensity, a pulsating undercurrent that thrummed through his worn-out headphones and into his very being.  He adjusted the dials with a familiar fervor, a flicker of hope igniting in his tired eyes. 
+
+

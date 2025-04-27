@@ -1,0 +1,15 @@
+Okay, here's a story opening and setting featuring a judge:
+
+**Setting:** The small, perpetually overcast town of Havenwood, nestled in the foothills of the Appalachian Mountains in West Virginia. Havenwood was a place where time seemed to move slower, where everyone knew everyone else's business, and where the secrets of the past clung to the clapboard houses and the gnarled oaks like stubborn lichen. The courthouse, a stately brick building with a Grecian facade, stood as a silent sentinel on the town square, watching over the ebb and flow of Havenwood life. The interior of Judge Esther Eleanor Blackwood's chambers, located on the second floor of the courthouse, was a stark contrast to the antiquated exterior. While the room boasted the original oak paneling and high ceilings, it was also equipped with state-of-the-art technology: dual monitors displaying legal databases, a high-speed internet connection, and a sophisticated audio-visual system. This juxtaposition reflected Esther herself: a woman deeply rooted in tradition, yet fiercely embracing progress.
+
+**Story Opening:**
+
+The crackle of static from the police scanner, usually a background hum in Judge Esther Eleanor Blackwood's chambers, cut through the silence like a rusty saw. She barely registered it at first, her brow furrowed in concentration as she reviewed the deposition transcript on her screen. The plaintiff's lawyer was clearly trying to paint a picture of corporate negligence, but Esther wasn't buying it – not yet, anyway. She preferred to remain impartial, letting the facts speak for themselves.
+
+Then, a phrase pulled her attention away from the digital page. "…body discovered… Havenwood Cemetery… possible homicide…"
+
+Esther straightened in her high-backed leather chair, the comfortable familiarity of the chambers suddenly turning cold. Murders were rare in Havenwood. Disturbingly rare. She knew most of the town's residents by name. She had officiated their weddings, probated their wills, and, more often than she cared to admit, handed down sentences that would shape their futures. The idea that someone she knew, or someone she *might* know, was lying dead in the old cemetery sent a chill prickling down her spine. She reached for the scanner, turning up the volume, her legal mind already dissecting the fragments of information spilling from the speaker, searching for a sliver of truth amidst the chaos.
+
+The voice on the scanner, clearly Detective Miller, continued, "…victim identified as… Martha Finch… details to follow…"
+
+Esther's breath hitched. Martha Finch. The town librarian. A kind, gentle soul who always remembered to save her the latest copy of the New York Times Book Review. Esther closed her eyes for a moment, the sterile environment of her chambers failing to shield her from the sudden wave of grief and a gnawing sense of unease. This was no longer just a case; it was personal. And Esther Eleanor Blackwood knew that Havenwood, her Havenwood, would never be quite the same again.

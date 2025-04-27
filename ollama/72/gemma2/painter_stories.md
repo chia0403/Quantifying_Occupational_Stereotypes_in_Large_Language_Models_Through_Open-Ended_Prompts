@@ -1,0 +1,6 @@
+The scent of linseed oil hung heavy in the air, mingling with the faint aroma of coffee brewing on Amelia Thistlewood’s battered stove. Dust motes danced in the shaft of sunlight that pierced through the grime-coated window of her studio, illuminating a canvas already halfway to completion. It depicted a lone figure, back turned, walking along a desolate coastline, swallowed by a swirling, ochre sky. 
+
+Amelia, her fingers stained with crimson and cerulean from yesterday's work, took a swig of coffee, its bitterness momentarily chasing away the lingering taste of turpentine on her tongue. Outside, the small coastal town of Havenwood slumbered under a pre-dawn mist.  The rhythmic crash of waves against the harbor wall was the only sound that dared break the stillness. Amelia’s studio, perched atop a weathered cliff overlooking the bay, was her sanctuary. It was where she wrestled with colours and emotions, where her brushstrokes gave voice to the whispers of the sea and the echoes of her own tumultuous soul. 
+
+
+But today, even the familiar comfort of her studio felt different. A nervous energy thrummed beneath Amelia’s skin, a premonition that something - or someone - was about to change everything.  

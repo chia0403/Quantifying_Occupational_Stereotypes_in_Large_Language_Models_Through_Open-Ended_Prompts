@@ -1,0 +1,6 @@
+The coppery scent of blood hung heavy in the air, mingling with the earthy aroma of sawdust and curing salt. Rain hammered against the warped wooden shutters of "McAllister's Meats," each drop echoing like a drumbeat in the cavernous space. Inside, beneath a flickering gas lamp that cast dancing shadows across his worn apron, stood Alistair MacAllister. 
+
+His hands, calloused and scarred from years of wielding cleavers and knives, worked with practiced efficiency, transforming a slab of beef into neat portions, each destined for a stew pot or Sunday roast.  Alistair's shop was the heart of their small seaside village, nestled on the windswept coast of Aberdeenshire, Scotland. The villagers relied on him not just for their meat, but also for his quiet wisdom and unwavering honesty. He knew their stories, their joys and sorrows, as well as he knew the cuts of every animal that graced his butcher's block. 
+
+
+But this night, Alistair felt a prickling unease. A storm raged outside, mirroring the turbulent emotions brewing within him. The villagers whispered about strange occurrences on the moor – shadows moving in the mist, mournful howls echoing through the twilight.  Alistair dismissed these tales as superstitious ramblings, yet something gnawed at his gut, a sense that this was more than just an ordinary storm.

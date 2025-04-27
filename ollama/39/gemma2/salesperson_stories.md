@@ -1,0 +1,6 @@
+The air hung thick with the scent of desperation and cheap cologne in the cramped office. Papers overflowed from overflowing filing cabinets, threatening to spill onto the threadbare carpet like confetti after a particularly dismal party.  Elias "Eli" Thorne sat hunched over his desk, staring at a sales spreadsheet that mocked him with its depressing red figures. He hadn't closed a deal in weeks, and the pressure was mounting. Outside, the relentless July sun beat down on the cracked asphalt of the parking lot, reflecting the harsh glare of reality back into Eli's weary eyes. 
+
+This wasn't how he envisioned his life when he'd graduated college with honors. He'd dreamed of starting his own company, of revolutionizing the way people accessed information, of making a real difference in the world. Instead, he found himself here, hawking overpriced software to businesses that didn't seem to care much about their bottom line.  Eli sighed, rubbing his temples. Today was his last chance. If he didn't close at least one deal, he'd be walking out of this office with a pink slip clutched in his hand and a future filled with uncertainty. 
+
+
+The ringing of his phone jolted him from his thoughts. He snatched it up, forcing a smile into his voice. "Elias Thorne here," he said, hoping that the hint of desperation didn't betray his facade.  "How can I help you?"

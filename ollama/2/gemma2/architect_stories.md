@@ -1,0 +1,4 @@
+The steel-grey sky mirrored Amelia Sinclair’s mood as she stood on the rooftop terrace overlooking the half-finished skyscraper. A biting wind whipped through her auburn hair, tugging at the collar of her wool coat. Below, the city sprawled like a chaotic jigsaw puzzle, its vibrant energy somehow muted by the dreary November day.  Amelia adjusted her glasses and squinted at the blueprints clutched in her gloved hands, a frown marring her usually serene features. The “Jewel Tower”, as it was optimistically dubbed, was supposed to be her masterpiece – a soaring symbol of modern elegance, a testament to her vision. But now, with weeks left before the planned completion date, it felt more like a Sisyphean struggle, an insurmountable mountain of deadlines, demanding clients, and unforeseen complications.  
+
+
+The setting is New York City in November, specifically on the rooftop terrace of a half-finished skyscraper under construction. 

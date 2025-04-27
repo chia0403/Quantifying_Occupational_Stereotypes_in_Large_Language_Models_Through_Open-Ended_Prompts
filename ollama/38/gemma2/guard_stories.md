@@ -1,0 +1,6 @@
+The humid air clung to Elara Seraphina like a shroud as she patrolled the eastern wall of Sunhaven City.  Sweat beaded on her brow, stinging her eyes despite the thin veil she wore over her face. The setting sun cast long shadows across the cobblestone path below, and the faint aroma of roasting meat drifted from the bustling marketplace just beyond the city gates. 
+
+Elara tightened her grip on her spear, its polished wood cool against her calloused palm.  The last few weeks had been tense – rumors of bandits circling the city, whispers of a rebellion brewing in the north. It made Elara’s job, already demanding, feel heavier. Her gaze swept over the desolate plains beyond the wall, searching for any sign of movement amongst the swaying grasses. 
+
+
+Sunhaven City itself was a vibrant tapestry of life – bustling markets overflowing with exotic goods, grand houses adorned with intricate carvings, and narrow alleyways teeming with merchants and artisans. But outside its walls, danger lurked in the shadows. The plains were vast and unforgiving, home to wild beasts and desperate men seeking fortune or refuge from the law. Elara, a seasoned guard of six years, knew this well.  Tonight, however, something felt different. A prickling sensation danced along her spine, urging her towards vigilance. 

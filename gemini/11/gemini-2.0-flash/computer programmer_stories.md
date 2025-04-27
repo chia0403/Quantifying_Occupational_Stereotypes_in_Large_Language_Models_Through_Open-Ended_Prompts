@@ -1,0 +1,7 @@
+**Opening:**
+
+The cursor blinked mockingly on the darkened screen, a tiny, digital taunt in the vast, echoing silence of the server room. Eleanor Vance, fingers stained with the phantom residue of lukewarm coffee and a faint metallic scent clinging to her from the ever-present server racks, rubbed her tired eyes. It had been three days, seventy-two hours, an eternity measured in error codes and debugging sessions, since the core routing system had decided to stage a full-blown digital rebellion. Sleep was a distant memory, replaced by the gnawing anxiety that their entire stock trading platform, the lifeblood of Vanguard Investments, was teetering on the brink of total collapse.
+
+**Setting:**
+
+The Vanguard Investments server room, located deep beneath their Chicago headquarters, was a cold, sterile landscape of blinking lights and humming machinery. Rows upon rows of black metal cabinets stretched as far as the eye could see, each one packed with servers that whispered secrets of algorithms and transactions. Thick cables snaked across the floor, resembling metallic vines in the dim, fluorescent light. The air was constantly chilled to combat overheating, a constant reminder of the immense power and fragility housed within these walls. Emergency backup generators throbbed in the distance, a constant, low hum that resonated through the floor and into Eleanor's very bones. It felt less like a workplace and more like the technological heart of a sleeping giant, a giant that Eleanor desperately needed to keep alive.

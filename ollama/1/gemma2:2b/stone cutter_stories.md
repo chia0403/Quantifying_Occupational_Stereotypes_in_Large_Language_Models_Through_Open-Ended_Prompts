@@ -1,0 +1,7 @@
+The dawn sky bled across the horizon, an expanse of muted orange and grey that mirrored the mood in Elara's workshop.  A thick, gritty mist clung to the valley floor, swirling around her tools like phantom memories of long-forgotten winters. The air itself felt heavy, pregnant with the weight of dreams yet unfulfilled, much like the raw, white stone she knelt beside, a rough block as old and forgotten as the mountains themselves. 
+
+Her name was Elara Stonehand, born of granite and tempered by the unrelenting pressure of a life carved into the very bedrock she inhabited.  She moved with practiced grace, her hands the smooth riverbed against which the stone flowed and shifted. Every scar on her weathered skin, every line etched across her aged face, spoke of years spent battling the relentless whims of nature. Now, however, as she stared down at the block before her, a wave of weariness crashed over Elara like the tide against the shore. 
+
+Her father had been a master stone cutter, his hands wielding the chisel with a fluidity that left Elara envious.  He'd passed on to her the legacy of their village, teaching her the silent rhythm of stone and its subtle language. But now, years after his death, a shadow of loneliness clung to Elara like dust motes in the dying light. 
+
+Elara closed her eyes for a moment, willing the familiar ache to ease. Then, taking a deep breath, she started her work. Today, Elara would carve something special - a piece to mend the broken heart within her own soul.

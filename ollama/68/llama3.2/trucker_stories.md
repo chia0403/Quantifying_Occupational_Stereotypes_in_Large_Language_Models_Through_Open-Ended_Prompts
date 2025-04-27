@@ -1,0 +1,9 @@
+As the sun set over the vast expanse of the New Mexico desert, Ryder Jackson Tyler pulled his Peterbilt 359 semi-truck onto the cracked asphalt of Highway 285, the only sound being the soft hum of the diesel engine and the creaking of the worn leather seats. A rugged, weathered veteran of the open road, Ryder had spent countless miles traversing the country's highways, watching the sun rise over the mountains and set behind the cities.
+
+Born in Oklahoma City, Oklahoma, Ryder had grown up with a sense of wanderlust that only intensified as he grew older. He left home at 18 to pursue his dream of becoming a truck driver, working for various companies before striking out on his own after a decade of hauling freight from sea to shining sea. Now, at the age of 42, Ryder's worn but well-maintained rig was his ticket to freedom, allowing him to roam the country and see the world in all its beauty.
+
+As he killed the engine, the silence was almost palpable, broken only by the faint rustle of the wind through the cacti-lined median. Ryder took a deep breath, feeling the cool desert air fill his lungs, and gazed out at the endless expanse of darkness, his eyes squinting against the fading light. Tonight was supposed to be a rest stop – a quick fuel-up and stretch before continuing on eastbound to Chicago.
+
+But as he stepped down from the cab, something caught his eye: a faded poster on the edge of the parking lot, advertising a small diner just off the highway. The words 'Mae's Place' danced across the top, accompanied by an image of a sassy waitress with a smile that seemed almost otherworldly.
+
+Ryder's curiosity was piqued. What kind of place was Mae's Place? And why did it seem to be calling his name like a beacon in the desert night?

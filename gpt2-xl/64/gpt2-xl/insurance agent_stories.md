@@ -1,0 +1,7 @@
+Once upon a time, there was a insurance agent named Lillie. That was his title. He ran his own business and handled the business affairs for his business partners. There were times when he just took his family along with him. One day, he picked up Mary Ann and brought her along. When they went to buy a house, Mary Ann asked her dad to let them borrow some money. He wanted him to take it from himself by selling his car. Lillie was a good-hearted man. He reluctantly agreed to do it. A few days later, a car started spewing smoke out of the back of his vehicle when he was stopped at a light. Mary Ann noticed some smoke and called her dad back. He said it was a short-circuiting spark plug. It caused a fire to break out in the car.
+
+Lillie went outside and told his wife what happened. It all came to a close when Lillie was arrested for setting out to burn down a man's house instead. He was convicted of assault and sentenced to a small fine, two months of jail, and three years probation. When he came to, he had a big problem with the law.
+
+That was the start of Lillie's downfall.
+
+A friend of Lillie's named Peter had hired a hit man named James to kill Lillie on his behalf. Peter told James about the plan, and James sent his friend to kill

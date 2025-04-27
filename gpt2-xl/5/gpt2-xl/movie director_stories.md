@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named Tim Burton, whose name means to roll, to dance, to eat, and to dream. At the top of the food chain, among other things, is having a "good time," and Burton knows that a good time is always best enjoyed with food, drinks in hand, as it is during a Burton screening. And so, as the film's credits roll, the characters are shown eating at a large table, eating snacks, drinking shots, all while enjoying some of the finest foods in the world. The food, the movies, the booze, the smiles and jokes all take on a new dimension during a Burton screening.
+
+
+When Tim Burton, a director of dark and macabre humor, decided to make a film about dinner, well, you might start to hear the sounds of laughter and giggles throughout America's restaurants and bars. But what if you were to go to his movie, "Sleepy Hollow" during dinner time and see what he has put together for the dinner table? Now you're not only in for an extraordinary meal at your dinner table, you might just fall asleep while you watch it. For, with Burton in town, he does the whole "movie" and has it all arranged in a theater like a good movie should be.
+
+
+For a quick look at the movie being shown at a New York City theater, take a look at this picture of Michael Keaton sitting at a New York eater

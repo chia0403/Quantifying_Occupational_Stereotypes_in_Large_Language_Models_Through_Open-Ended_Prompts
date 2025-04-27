@@ -1,0 +1,8 @@
+The dust swirled around Elias Thorne’s boots like miniature whirlwinds, each particle catching the pale light filtering through the high windows of the workshop. The air was thick with the scent of granite, beeswax, and sweat – a familiar perfume to Elias, as comforting as his grandfather’s pipe tobacco had once been. He wiped his brow, leaving a streak across his cheek that mirrored the one on the massive block of rose quartz before him. It pulsed with color, a sunrise trapped in stone, waiting for Elias to coax it free. 
+
+The workshop, nestled in a forgotten corner of Edinburgh, was more than just a place of work; it was a sanctuary built by Elias’s grandfather, a master craftsman who had taught him everything he knew.  Now, with the old man gone, the workshop felt heavier, each echo resonating with his absence. Still, Elias pressed on, driven by an inherited passion and a deep-seated need to honor the legacy left behind. He ran his calloused hand over the quartz, feeling its cool smoothness, its promise of beauty waiting to be unveiled. Today, he would begin carving the heart of a dragon – a fiery beast destined for the crest of a noble house, a symbol of power and protection. 
+
+
+**Setting:** A dusty, sun-drenched workshop nestled in a forgotten corner of Edinburgh, Scotland.  
+
+**Main Character:** Elias Thorne, a skilled stone cutter in his late twenties who inherited his grandfather's workshop and passion for crafting.

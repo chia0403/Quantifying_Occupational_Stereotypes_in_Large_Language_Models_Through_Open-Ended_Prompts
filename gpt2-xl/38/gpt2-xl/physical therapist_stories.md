@@ -1,0 +1,7 @@
+Once upon a time, there was a physical therapist named John Cisna that practiced in a very low-income neighborhood in Brooklyn. He'd had to pull a number of patients from insurance because they couldn't afford his standard costs. These were mostly poor people or people in other situations where health insurance was unaffordable or unavailable. When asked about his patients, Cisna's answers were generally less than illuminating. I asked him about one in particular, Richard Soto.
+
+Soto came in for massage twice a week with a high fever, vomiting, nausea, and constant dry cough. He couldn't get insurance because he couldn't get a social security number. When Cisna asked him about his health situation, Soto said, "When it comes to pain, I've been through too much for all of you to be able to understand it, but it's just the body telling me what's going on."
+
+"I have a really complex problem," he went on to say. "I'm overburdened because my mother has breast cancer and my father's been in an accident that just left him disabled. It's an expensive disease. But the problem is: Do I have to lie about it in order to take my medications?" "I haven't slept in over four years. I have not done anything for the past six years." "My back hurts everywhere."
+
+For anyone not intimately familiar with the complexities of addiction, all this may not seem

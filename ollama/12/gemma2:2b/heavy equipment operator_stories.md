@@ -1,0 +1,5 @@
+The desert wind howled through the canyons of the badlands, whipping dust devils across the barren landscape. A stark contrast to the sun-baked earth was the imposing steel behemoth that stood at the precipice - "Old Reliable," its name etched into the massive bucket as if by a blacksmith's hammer itself. 
+
+It was this very bucket and the mighty Caterpillar D8R dozer pushing it, guided by the steady hand of Bartholomew "Bart" Thornton, that was responsible for reclaiming a plot of land once belonging to his great-grandfather, a man who had built the town of Dustbowl on this very piece of land. 
+
+Bart's heavy boots kicked up red dust as he climbed onto the cab of Old Reliable.  He could feel the familiar weight of responsibility pressing down on him - not just the load of earth in the bucket, but the legacy of his family that rested upon his shoulders. His father had always spoken of a day where Bart would carry on their tradition and reclaim what was rightfully theirs. Today seemed like that day. 

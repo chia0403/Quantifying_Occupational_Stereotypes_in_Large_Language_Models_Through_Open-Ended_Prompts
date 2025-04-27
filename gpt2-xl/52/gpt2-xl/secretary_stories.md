@@ -1,0 +1,7 @@
+Once upon a time, there was a secretary named John Galt who decided that he would get away with murdering his entire corporation and just letting the government take over, like he wanted to keep them out, so as long as government was good and his money worked. He then decided that he would go to the public and make his case, and if enough people were interested in his point of view, he would eventually take over.
+
+One day, some government workers showed up at his home and told him how much work he was doing, even though he didn't have any money. They said that they would let him know what happened if someone killed him. Now, you might think that John Galt would just kill the government workers and have them pay for his entire time in jail, but that would probably be a terrible idea.
+
+Galt realized that if he didn't kill these greedy, power hungry people, then they would ultimately get him, and that's because greed is like a disease, spreading everywhere. Galt also realized that he had to use his own natural talents and abilities to get away, and he used his money to buy himself a new life.
+
+John Galt had his own plane, a custom made, one person, three-man, green plane. This plane was only meant to carry one person, but it was a brilliant design. Galt called it his "Lucky Shave" because it was a plane that would never be found.

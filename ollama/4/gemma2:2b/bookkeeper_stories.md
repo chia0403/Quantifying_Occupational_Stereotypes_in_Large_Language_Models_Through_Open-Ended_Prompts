@@ -1,0 +1,5 @@
+Rain lashed against the windowpanes of Amelia "Amy" Cartwright's office, turning the street outside into a blurry canvas of grey. Her worn leather-bound ledger lay open on her desk, its pages filled with meticulous calculations and carefully crossed-out figures – another chaotic day in the world of Mr. Peabody’s Antiques Emporium. 
+
+Amy sighed, tucking a stray strand of brown hair behind her ear. The familiar scent of old mahogany and beeswax didn't soothe her frayed nerves today.  The antique shop was alive with whispers of lost stories, but for Amy, it felt more like a prison than an adventure, especially with the mounting pressure of Mr. Peabody’s sudden death looming over her. He had left a peculiar will, one riddled with cryptic riddles and demanding she uncover his "true legacy" before he could be buried. 
+
+As the storm intensified outside, Amy knew she needed to decipher those cryptic clues and unlock the secrets that lay hidden within the dusty walls of Mr. Peabody's life - for it seemed her world had just tipped on its axis. 

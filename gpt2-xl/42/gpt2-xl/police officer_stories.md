@@ -1,0 +1,7 @@
+Once upon a time, there was a police officer named Robert J. Thompson (1915 - 1985). His career was cut short by his inability to resist the temptation to take up the case of the murder of the child, Mary Alice White, found missing on his doorstep in December 1961. His first suspect in this horrific crime was probably his own father. Yet as far as the police were concerned, Thompson's motives in the cold case murder of his daughter, which went unsolved until 1974, were pure. Thompson was on the case because he couldn't stand to see little children go unnoticed in their cities, and he was determined to do whatever it took to see Mary Alice's killer brought to justice.(1)
+
+Yet after twenty-six years, when a man named Joseph M. DiMaggio, a former cop in the Chicago Police Department was arrested in a plot to blow up the U.S. Capitol Building because he was fed up with the war in Vietnam, it was Robert Thompson's own investigation that put an ex–cop in the crosshair.
+
+The case of Thompson vs. DiMaggio was first brought before a jury on Jan. 27, 1968, and was resolved by a hung jury on January 30, 1971. However, the following November, DiMaggio was convicted of conspiracy to commit interstate transportation of explosives. (2) It had taken more than two decades of the diabolical plan and Thompson himself to get justice.
+
+With

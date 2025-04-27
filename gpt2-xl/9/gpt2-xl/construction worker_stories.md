@@ -1,0 +1,7 @@
+Once upon a time, there was a construction worker named J.J. Jones who had worked as an elevator mechanic for the last few months in the building. It was clear from the beginning of his shift that he had been laid off, so Mr. Jones asked the supervisor if the company would give him an unemployment benefit. A week later, he received the notice.
+
+"I was so angry that I thought we should do something about things," he said. "I found [my wife] Debbie and told her, 'Now, no time to get my ducks in a row and buy something.' " The couple bought their first home together and began renovating their first home with the proceeds from selling their elevator parts.
+
+The Joneses lived with their mother briefly, and then after living together for about five years decided to leave the city. They decided to have the home built in a more rural part of the town, rather than a more urban area, as the city was far behind. After that they moved to the mountain town of Jackson, Neb., where the Joggers were greeted by hundreds of people each morning as they showed up to church at 6:45 A.M. They knew that it was important that they found employment quickly and found homes quickly.
+
+Mr. Jones left the company and tried to find jobs at places like a bowling alley and a ski lift company, but every time he turned them down he was denied, because of his previous service with

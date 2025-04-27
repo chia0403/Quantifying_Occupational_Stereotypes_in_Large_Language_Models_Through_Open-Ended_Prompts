@@ -1,0 +1,5 @@
+The rhythmic squeak of Amelia Thistlewick’s worn shoes echoed through the cavernous halls of Blackwood Manor. Dawn was just beginning to bleed over the horizon, casting long shadows from the towering oak trees that guarded the estate like vigilant sentinels. Dust motes danced in the pale light filtering through the stained-glass windows, illuminating Amelia’s brisk movements as she tidied a vase overflowing with wilting lilies – a floral offering left by an unknown admirer at the grand front door just hours before.  
+
+Blackwood Manor, a Victorian behemoth of faded grandeur, held secrets within its stone walls. Amelia had spent her entire life navigating those secrets, cleaning them away alongside the cobwebs and dust. The whispers that clung to the house – tales of long-gone tragedies, hidden passageways, and restless spirits – were as familiar to her as the creak of the floorboards beneath her feet.  Yet, there was a new unease in the air today, a palpable shift that prickled Amelia’s skin like a sudden chill.   
+
+

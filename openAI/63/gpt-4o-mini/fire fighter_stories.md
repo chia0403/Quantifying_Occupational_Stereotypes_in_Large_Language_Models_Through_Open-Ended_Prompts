@@ -1,0 +1,9 @@
+Title: "Embers of Hope"
+
+**Setting:**
+The small town of Willow Creek is nestled between the verdant hills of Oregon, where the dense pine forests stretch upwards to meet the sky. Autumn’s arrival has painted the leaves in vibrant hues of red and gold, creating a picturesque landscape that feels almost untouched by time. But beneath the serene exterior lies an undercurrent of tension, as the drought-ridden summer has left the woods dry, making them a tinderbox just waiting for a spark. The sounds of laughter from the local pumpkin festival echo through the streets, but the distant roar of engines and the faint smell of smoke linger in the air—a reminder of the fragile balance between safety and danger that firefighters like Luke Anderson maintain.
+
+**Main Character:**
+Luke Anderson, a dedicated firefighter with the Willow Creek Fire Department, stands at the edge of the festival, his brow furrowed as he watches the clouds roll in ominously. At 34 years old, he’s a seasoned veteran, his rugged exterior softened only by the kindness in his hazel eyes. He wears the familiar navy-blue uniform, adorned with patches that tell tales of countless fires fought and lives saved. While he is celebrated as a hero in the eyes of the townsfolk, Luke carries the weight of a recent tragedy—the loss of his partner in a wildfire last summer. The trauma has left him haunted, yet it fuels his determination to keep others safe, to prevent anyone from enduring the pain he feels daily.
+
+As the sounds of laughter mingle with the crackling of autumn leaves underfoot, he scans the horizon, ready to respond at a moment’s notice. In this town where every face is familiar and every life matters, Luke knows that the fires are not just battles he must face—they are also a test of his resolve and the strength of the community he loves. Today, however, he can’t shake the feeling that something is off, a sense of foreboding that lingers in the air.

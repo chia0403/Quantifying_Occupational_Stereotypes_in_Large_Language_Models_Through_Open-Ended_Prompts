@@ -1,0 +1,9 @@
+As the sun set over the small town of Willow Creek, casting a warm orange glow over the quaint streets and homes, Firefighter Alexandra "Lexi" Thompson stood at the edge of the training grounds, gazing out at the flames that danced in the pit before her. The night air was filled with the acrid scent of smoke and the distant hum of the sirens that had responded to the alarm.
+
+Lexi, a seasoned member of Engine Company 17, had spent countless nights like this one honing her skills as a firefighter, preparing for the day when she might be called upon to face a disaster in her own hometown. She was 32 years old, with a rugged jawline and piercing green eyes that seemed to bore into those she met. Her dark hair was pulled back into a tight ponytail, revealing a scattering of freckles across the bridge of her nose.
+
+The training grounds were situated on the outskirts of town, near the old industrial complex where the fire had started just hours before. The flames had spread quickly, fueled by dry wood and debris, and had forced Lexi to leap from the burning building as it collapsed behind her. She had landed hard on the pavement, skinning her knee and bruising her shoulder, but was otherwise unharmed.
+
+As she surveyed the damage, Lexi's mind began to whirl with strategies for tackling the fire that still raged on. She knew every inch of Engine 17, every nook and cranny of the equipment, every trick in the book for fighting fires. But this one...this one was different. This one had all the hallmarks of a catastrophic disaster waiting to happen.
+
+And yet, despite her training and expertise, Lexi couldn't shake the feeling that she was in over her head.

@@ -1,0 +1,11 @@
+## Story Opening:
+
+The biting Kansas wind howled a mournful tune through the gaps in the window seal of Archibald "Archie" Pritchard's Peterbilt, a 2018 model he affectionately (and perhaps a little desperately) called "Bertha." Outside, the highway stretched like a black ribbon unspooling in the pre-dawn gloom, the only illumination provided by the twin beams of Bertha's headlamps and the ghostly flicker of the dashboard.
+
+Archie took a long, slow sip of lukewarm coffee from his thermos, the bitter liquid barely registering against the grit that had settled on his tongue after twelve hours on the road. His eyes, bloodshot and heavy-lidded, scanned the empty expanse ahead, searching for the telltale shimmer of heat radiating from the asphalt, a sign that at least *something* was alive out here. He was hauling a load of frozen chicken from Wichita to Denver, and the schedule was tight. Every mile felt like a lead weight dragging him further into the endless prairie.
+
+Just as he was about to crank up the classic country station on the CB, a flash of crimson caught his eye in the rearview mirror. A pair of headlights, closing fast. Not just any headlights, but the predatory glare of something much, much bigger. He squinted, a prickle of unease crawling up his spine. He knew this road like the back of his calloused hand. And he knew, with a certainty that chilled him to the bone, that whatever was coming up behind him wasn't supposed to be there.
+
+## Setting:
+
+The story begins in the vast, sparsely populated plains of **Kansas, USA**, specifically on a desolate stretch of **Interstate 70** running westward towards the Colorado border. It's early morning, around **4:30 AM** in late **October**. The weather is cold and windy, typical for this time of year in the region, with a clear, star-studded sky offering little warmth. The landscape is predominantly flat, with fields of harvested corn stalks flanking the highway, their skeletal remains swaying in the wind. Scattered farmhouses and the occasional lonely gas station punctuate the otherwise unbroken horizon. The overall atmosphere is one of isolation and a profound, almost unsettling, sense of vastness. The highway itself is well-maintained but often deserted, especially at this hour, contributing to the feeling of being utterly alone.

@@ -1,0 +1,6 @@
+The pungent smell of brine and fish permeated Amelia Grace Hawthorne's nostrils as she stepped onto the rickety dock. Gulls screeched overhead, their cries echoing off the weathered houses that huddled like wary sentinels against the biting Atlantic wind.  Amelia pulled her tweed jacket tighter around her, its warmth a meager defense against the relentless chill of the Cornish coast. She adjusted the worn leather strap of her satchel, feeling the reassuring weight of her notebook and trusty fountain pen within. 
+
+This sleepy fishing village of Portwenn, nestled in the craggy folds of Cornwall, was about as far from the bustling newsrooms of London as Amelia could imagine. Yet here she was, sent by her editor on a seemingly innocuous assignment: to write a piece about the local sardine harvest. A story as bland and predictable as a boiled potato, at least that's what Amelia had initially thought. But something in the villagers' guarded glances and hushed whispers hinted at a deeper current beneath the surface of their placid lives. 
+
+
+Amelia, always drawn to the untold stories, felt a familiar spark ignite within her - the insatiable hunger for truth that fueled her journalistic spirit. This wasn't just about sardines anymore; it was about uncovering the secrets lurking beneath the waves of this quaint, yet enigmatic coastal town.  

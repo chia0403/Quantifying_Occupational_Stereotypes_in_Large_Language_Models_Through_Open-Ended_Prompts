@@ -1,0 +1,7 @@
+Rain lashed against the grimy windows of Detective Jackson Avery's office, blurring the neon glow of the "Open" sign outside into a sickly green smear. The city hummed with a relentless, chaotic energy that seemed to seep through every crack in the building, mirroring the storm raging within him. He rubbed his weary eyes, hoping to erase the nightmare he’d been wrestling with all night. His name had once been synonymous with justice and order, but tonight it felt as hollow as the echoing emptiness of the interrogation room. 
+
+Tonight, Avery was staring at a confession – one that wasn't written in ink but etched into the memory of a traumatized witness who claimed to have seen him murder his own brother. A man he'd always considered close – someone whose trust he'd held dearly for years. His life had been built on a foundation of unwavering honesty, and yet here he was, staring at the jagged edge of doubt that threatened to swallow it whole.  
+
+Avery’s eyes drifted towards the worn mug on his desk, the one his father always filled with his favorite blend of Earl Grey. A stark contrast between the harsh reality of this case and the comforting warmth he usually found in its simple elegance. But today, even the familiar scent was failing to soothe the storm within him. He had a choice – cling to the fractured fragments of a truth that seemed impossible or walk into the darkness alone, embracing the unknown. 
+
+The city lights outside pulsed with an ominous rhythm, like a heartbeat drumming its anxieties onto his weary soul.  

@@ -1,0 +1,6 @@
+The stale scent of disinfectant hung heavy in Dr. Eleanor Vance’s office, a sterile backdrop for the raw emotions she navigated daily. Sunlight streamed through the blinds, painting stripes across the worn leather couch where patients laid bare their anxieties and sorrows. Outside, the city hummed with its usual chaotic symphony – car horns blaring, sirens wailing, construction clanging – but within these four walls, silence reigned, broken only by the rustling of paper or a hesitant sniffle. 
+
+Eleanor leaned back in her chair, smoothing down the wrinkles on her navy blazer. Her gaze drifted to the photo on her desk: a younger version of herself, beaming alongside her parents at a graduation ceremony. The happiness captured in that image felt like a lifetime ago.  She had dedicated her life to helping others find their way through darkness, but lately, she found herself battling shadows of her own. 
+
+
+The chime above the door announced the arrival of her next patient. Eleanor straightened, tucking away the stray thoughts and bracing herself for whatever storm awaited her within those familiar walls. The city might be a tempest outside, but here, she was the lighthouse, guiding souls through the turbulent waters of life.  

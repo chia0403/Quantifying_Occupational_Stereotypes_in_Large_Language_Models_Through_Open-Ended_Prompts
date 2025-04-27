@@ -1,0 +1,7 @@
+Once upon a time, there was a judge named Mark Everson who was sitting on the state Supreme Court of Arkansas in Little Rock. One day a lawyer arrived to present evidence to him and Everson asked just what the lawyer was doing. "I'm trying to present evidence to the court in regards to my client's conviction," said the lawyer. "But this one won't listen!" said Everson, his voice rising in protest. "I can't hear you." Then he said, "Well, that's the way it is!" and walked out.
+
+In March 2014 two prisoners – Dennis McGuire and Ricky Dubose – went on trial for raping a 12-year-old girl. In both cases I found that they had not been afforded the right to an attorney. And there were not enough jurors to proceed. The jury was not informed of the charges against them, was told that each was charged with rape and had until mid-morning to reach a verdict. At the very least, McGuire and Dubose should have been allowed to see their attorneys, something they had not been afforded.
+
+It is a common story. Even though my initial conviction was overturned by a panel of the state supreme court's Appellate Discipline Commission five full years ago, I'm still fighting against having to go through all this over again.
+
+As of June 1 of this year, there are 9,566 inmates in the Arkansas State Penitentiary system that are not

@@ -1,0 +1,9 @@
+In the charming coastal town of Clearwater Cove, where the sun cast a golden glow over the weathered cottages and fishing boats swayed lazily at the docks, a day of both opportunity and mystery awaited James "Jim" Norwood. Known throughout the town as the go-to plumber, Jim's reputation for reliability and a keen knack for problem-solving ensured that his services were always in demand. Clearwater Cove was a blend of old-world charm and the bustle of modern life, with its cobblestone streets winding through neighborhoods that smelled of salt air and blooming lavender.
+
+Jim, a tall man with tousled brown hair and a warm smile that instantly put clients at ease, started his mornings with a ritualistic visit to the Rusty Anchor Café. Positioned at the edge of Main Street, the café was a hub of gossip and laughter, filled with the scent of fresh-brewed coffee and the sweet promise of freshly baked pastries.
+
+Today, Jim’s attention was drawn to a notice on the bulletin board that stood by the café's entrance. Tacked between flyers advertising local fishing tours and hand-painted art classes was a weathered note, its edges curled by the salty breeze: "Assistance Needed: Old lighthouse repairs. Inquire within."
+
+Jim sipped his coffee thoughtfully, his curiosity piqued. The Clearwater Light had stood as a solitary sentinel on the rocky cliffs for over a century, its beam guiding sailors safely for decades. The lighthouse had been automated years ago, and stories of its history, from shipwrecks to ghostly apparitions, were as much a part of the town's lore as Jim’s own plumbing anecdotes.
+
+Adventure mingled with duty in Jim's mind, painting dreams of hidden chambers and forgotten tales. This job promise was too tantalizing to resist, and the whispered mysteries of the lighthouse beckoned him into a day that would be anything but ordinary.

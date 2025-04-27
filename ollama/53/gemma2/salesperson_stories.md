@@ -1,0 +1,6 @@
+The humid air hung heavy over the asphalt lot, smelling faintly of gasoline and desperation.  Rosalind "Roz" Finch adjusted her smile, the edges already starting to feel strained under the relentless midday sun beating down on Phoenixville, Arizona. Another scorcher. Just another day peddling dreams in a town where hope was as scarce as rain. Roz tapped her manicured nails against the steering wheel of her beat-up Toyota Corolla, its faded blue paint reflecting the shimmering heat waves rising from the cracked pavement. 
+
+Her gaze drifted to the sprawling lot of "Phoenix Valley Motors," a testament to ambition and hubris that now sat half empty, shrouded in dusty silence. A lone "For Sale" sign flapped listlessly in the breeze, its once bright colors dulled by the relentless Arizona sun.  It was here, amidst the ghosts of past sales pitches and forgotten dreams, that Roz had staked her claim as a car salesperson, hoping to carve out a piece of success for herself in this unforgiving desert town.  
+
+
+The chime of her phone interrupted her thoughts. It was Mr. Henderson, the dealership owner, his voice tight with anxiety. "Roz, any bites today?" he asked. Roz swallowed hard, knowing that the answer would likely determine more than just her commission check – it might even affect her future here in Phoenixville.  

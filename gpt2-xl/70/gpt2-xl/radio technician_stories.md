@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Jim. He had a big heart and he had a knack for getting people together, putting them at ease and making them laugh. Jim's real skill was in solving mechanical problems, but every now and then his brain would wander and land on something a bit less logical, and a little more whimsical. His dream was to make radio stations as fun to listen to as those in radio dramas. He'd gotten a small patent for the product, created a small but loyal following among amateur radio enthusiasts, and turned that following into business opportunities for his son, Bill.
+
+Jim was so excited with his invention, he said a few things with a hint of enthusiasm and ended up on TV. Now, I can't imagine what this would be like if some kind of mechanical "solved problem" would be shown on television. But as soon as his TV show "The Jack-In-The-Box" arrived, Jim became so famous with his patented invention, he could do anything.
+
+The Jim-In-The-Box
+
+The first thing he did, of course, was put in that famous antenna. As for his name, the radio station used the classic "Jim-In-The-Box" brand name (I can't recall when that name started, but I do remember many jokes about "The Jack-in-The-Box" and Jim getting a little nervous when others called out the name).

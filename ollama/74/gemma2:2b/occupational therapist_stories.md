@@ -1,0 +1,5 @@
+The salty air whipped Amelia’s hair around her face as she stood on the windswept beach.  Her worn sandals sank into the damp sand with each step as she surveyed the unruly chaos that was Oceanside Park in August -  a scene of constant motion and potential. Her name was Amelia Croft, and she wasn't just any occupational therapist; she was a champion for those who found their lives tangled by the invisible threads of disability. 
+
+Her gaze fell on the brightly colored beach chairs stacked haphazardly against a dilapidated picnic table. Children with faces painted like mischievous mermaids squealed and chased each other in a whirlwind of energy, while teenagers with bandanas pulled low over their eyes huddled on the edge of the tide, lost in the rhythm of their laughter as they attempted to surf on the gentle waves. But Amelia noticed the quiet girl sitting alone by the water's edge. Her thin fingers nervously tapped against the worn denim of her jacket as she stared at the crashing waves, a small frown creasing her forehead.  
+
+Amelia knew that behind that shy demeanor lay a silent struggle, a story she was determined to unlock. 

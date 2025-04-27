@@ -1,0 +1,11 @@
+**Setting:**
+
+The year is 2147. The City of Atheria, a glistening spire of chrome and bioluminescent flora, dominates the arid landscape of what was once the American Southwest. Atheria is a carefully curated oasis, built on a foundation of recycled resources and advanced hydroponics, a shimmering beacon of hope in a world ravaged by climate change. Outside the city walls stretches a vast, unforgiving desert, dotted with decaying remnants of the old world, swallowed by sand and forgotten.
+
+The specific location is the Atheria Botanical Gardens, a sprawling complex on the city's upper levels, designed to showcase the beauty and resilience of life. It's a symphony of colors and scents, from the towering bio-engineered sequoias to the delicate, self-illuminating orchids. But the Gardens aren't just for show. They also play a vital role in Atheria's ecosystem, providing oxygen and filtering the city's air.
+
+**Story Opening:**
+
+"Another day, another dead dandelion," sighed Elias Thorne, his gloved hands tugging at the stubborn weed clinging to the manicured lawn of the Elysian Meadow. His full name was Elias Thorne, but everyone just called him Thorne. He adjusted his respirator, the filter humming softly against his cheek, and tossed the offending plant into his collection basket. The sunrise, a muted orange haze filtered through the atmospheric regulators, painted the chrome and glass of Atheria in a soft, ethereal glow.
+
+Elias wasn't usually one for complaining, but the genetically modified dandelions of the Atheria Botanical Gardens were proving to be particularly resistant to the weed killer allocated to his sector. He glanced at the time displayed on his wrist-mounted console. 06:00 hours. He had two hours before the Garden’s viewing platforms opened to the public, two hours to wage his silent war against imperfections in this meticulously crafted paradise. Thorne took a swig from his nutrient paste dispenser, the artificial strawberry flavor doing little to lift his spirits. He loved the Gardens, truly. He found a strange solace in tending to the living things within their protective dome, a stark contrast to the metallic hum of the city beyond. But some days, the sheer weight of maintaining this artificial beauty, this fragile illusion of nature, felt almost unbearable.

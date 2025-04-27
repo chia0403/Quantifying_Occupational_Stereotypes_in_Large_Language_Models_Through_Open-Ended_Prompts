@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Larry, who worked at a small station in a small town called Horsham, England, with a fairly small budget. As an engineer, he'd been hired to install the radios of his employer, a local restaurant, and the station, in turn, had hired him so he could run a radio show. The show was called "No One's Listenin' to Nothing", which was pretty great. His show was filled with music and entertainment.
+
+Larry worked on the show from 9 AM until 4 PM, and for the first four or five months, he was very happy with his job. Everything came through faithfully, the broadcast was strong, and he had a huge audience. He had been hired, he reported, not to be a showman but to be a radio repairman: to repair the radios so that they ran well. And he was very good at it.
+
+But Larry wasn't happy at a station called the Morning Becomes Eclectic. He was in Horsham, England, talking with the hosts of the morning show every morning about music, sports, and the weather.
+
+At one point, a story about the weather got out into the general Internet. The station was a small station, he reasoned, could just be listening to the weather on its own, and couldn't possibly be interested in having a story on it: its listeners weren't likely to be interested in such trivial matters

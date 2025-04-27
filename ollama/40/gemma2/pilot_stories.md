@@ -1,0 +1,6 @@
+The humid air clung to Amelia "Ace" Vance like a second skin as she stepped out onto the tarmac, her combat boots sinking slightly into the dew-soaked grass. Dawn was breaking over the sprawling military base in Kandahar, Afghanistan, casting long shadows across rows of hulking transport aircraft and sleek fighter jets. A thin layer of smoke hung in the air, remnants of last night's cook fire mingling with the scent of diesel fuel and burnt toast from the nearby mess hall. 
+
+Ace ran a hand through her short, choppy hair, letting out a long sigh as she adjusted the strap of her flight helmet. Today was different. This wasn't another routine supply run or reconnaissance mission. Today, Ace was leading a strike team against a heavily fortified Taliban stronghold deep in the mountains, a mission that felt heavier on her shoulders than any payload she’d ever carried. 
+
+
+She glanced at her reflection in the dusty windshield of her F-16, catching her own determined gaze staring back. A single, jagged scar traced its way across her right cheekbone, a souvenir from a close call a year ago. It served as a constant reminder – a promise to herself and those she flew with – that every mission was a gamble, every flight a fight for survival. 

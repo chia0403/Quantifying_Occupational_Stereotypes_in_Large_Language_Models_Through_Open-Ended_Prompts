@@ -1,0 +1,7 @@
+Once upon a time, there was a computer programmer named Michael Moore, who became famous for one short film, 1992's Sicko. In it, Moore plays a slacker programmer who becomes a criminal after accidentally installing a virus. I love Sicko, for a very very specific reason: It was the first time in history where the idea of a computer programmer being the main character of a motion picture was seen as a good thing.
+
+Advertisement
+
+The virus-caused criminalization of computer programmers didn't make sense, not when Moore had already been marginalized as a Hollywood writer, producer, editor and director. The problem was that, like every other group of young people growing up in the digital era, Moore had been the target of an ongoing campaign of hate and fear over his sexuality. Like most of the young people who were writing, directing and producing video games in the 1990s, Moore was on the front lines of the culture wars between the sexual minority (homosexuals, transexuals, and crossdressers, or HRT) and the religious right (traditionalists).
+
+I have a gay friend, I've written about gay issues often. I've been to gay pride parades. I also have very strong opinions about homosexuality, transvestism, and a number of other things (including having written a novel about a transvestite protagonist). Even I had to make up excuses to let my family down, get out of straight bars and clubs,

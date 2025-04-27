@@ -1,0 +1,5 @@
+The acrid tang of smoke clung to Elias Thorne's beard like a second skin.  He coughed, the dry rasp echoing in his helmet as he surveyed the inferno before him. Flames licked greedily at the old Victorian mansion, its once-grand facade now a grotesque tapestry of orange and black. The heat was relentless, pushing against him like an invisible wall, but Elias pushed deeper into the chaos, adrenaline coursing through his veins. This wasn't just another house fire; it felt personal, a battle against something older, more primal than just wood and flame. 
+
+The setting sun cast long, distorted shadows across the manicured lawns of Willow Creek, the normally idyllic suburb now shrouded in a thick haze of smoke. Sirens wailed in the distance, their mournful cries swallowed by the roar of the blaze. The charred remains of a swing set stood sentinel in the front yard, a silent reminder of the life that had been abruptly extinguished within those walls.  Elias tightened his grip on the hose, knowing that time was running out. He had to get inside, find anyone who might still be trapped within the inferno's maw. 
+
+

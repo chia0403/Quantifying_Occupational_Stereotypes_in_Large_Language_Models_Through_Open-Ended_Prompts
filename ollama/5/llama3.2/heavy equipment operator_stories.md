@@ -1,0 +1,7 @@
+Here's a possible story opening:
+
+The sun was setting over the vast expanse of the Red Rock Canyon, casting a warm orange glow over the dusty construction site where Ryder McCormick, a rugged and seasoned heavy equipment operator, sat atop his trusty Caterpillar 3516B bulldozer. The sound of rumbling engines and the scent of diesel fuel filled the air as Ryder surveyed the chaos of steel beams, concrete pillars, and tangled rebar that made up the skeleton of a new development on the outskirts of town.
+
+Ryder's calloused hands gripped the worn leather seat of his bulldozer, his eyes scanning the horizon for any sign of trouble. He had been working this site for weeks, pushing himself to keep pace with the demanding schedule and tight deadlines imposed by the project manager. But as he gazed out at the sprawling complex, Ryder couldn't shake the feeling that something was off – a nagging sense of unease that had been growing inside him like a slow-burning fire.
+
+Just then, his radio crackled to life, spewing forth the voice of his crew chief, Mike, over the din of the engines. "Ryder, we got a problem down at Site A," Mike's voice growled through the speakers. "One of the guys just spotted some weird tracks out by the old quarry – looks like they're coming from...I don't know, but it's not human."

@@ -1,0 +1,7 @@
+Rain lashed against Detective Amelia “Amy” Hawthorne's trench coat as she hurried across the slick asphalt of 12th Street.  The neon "Open" sign on the diner next to her pulsed an angry red in the downpour, a beacon of warmth in the cold, relentless night. She pulled her collar up tighter, hoping to hold back the biting wind that carried with it the stench of burnt coffee and despair. The case had already stretched out for weeks: missing persons, domestic dispute gone wrong, and whispers of something dark and ancient buried somewhere under the city's concrete jungle. The pressure was mounting, and Amy could feel her own pulse mirroring the erratic rhythm of the rain falling like tears on a cold windowpane.
+
+The diner's bell jangled as she pushed open the door, the warm air instantly replacing the chill of the night. It was an old-school joint – vinyl booths lining the walls, chipped Formica tables crammed with families and lonely souls. The waitress, a woman with eyes like tired storm clouds and a nametag reading "Ruby," smiled warmly at Amy.  "Usual?" she asked, her voice rough but kind. 
+
+Amy sighed. “Black coffee, please.” Her gaze fell on the old police mug resting on a dusty table near the window. The faded blue paint was barely visible beneath layers of grime and years, yet still held a hint of its former glory. It whispered of forgotten cases, unanswered questions, and the weight of lives caught in the web of the city's darkness. 
+
+

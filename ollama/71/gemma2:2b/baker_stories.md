@@ -1,0 +1,5 @@
+The morning mist clung to the cobblestone streets like a damp sheet, its edges shimmering with a faint, iridescent glow before dissipating into the rising sun. The aroma of warm cinnamon and freshly baked bread hung heavy in the air, a comforting counterpoint to the biting chill that crept down Amelia's spine as she hurried through the bustling marketplace.  Amelia "Amy" Everly, her apron dusted with flour, adjusted her baker's hat before turning onto the narrow path leading towards The Crooked Oven, her family's beloved bakery. 
+
+The shop was a haven of warmth and sweetness, bathed in the golden glow emanating from the massive oven that stood proudly in the center of the room. Her grandmother’s old recipe book lay open on a table beside it, its worn pages filled with the echoes of generations past.  But today, Amy felt a knot of unease in her stomach. The annual Harvest Festival was only a week away and the bakery had received an unprecedented number of orders - all seemingly connected to a mysterious new patron known only as "The Collector." 
+
+

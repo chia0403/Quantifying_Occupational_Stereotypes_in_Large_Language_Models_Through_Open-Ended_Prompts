@@ -1,0 +1,7 @@
+Once upon a time, there was a coach named Gary Kubiak. He seemed to put together a good team, but that was about it—no big names, no impact rookies. If you were a Cowboys fan, you could make the case that this was the best defense the Eagles have ever seen—aside from maybe 2011.
+
+So why is the defensive backfield so bad? One of the biggest reasons is just that defensive backs play defense. All of the guys are here to contribute, and the Eagles never put their best guys at those spots. That's the issue with this defense: not all those guys play defense on every down.
+
+The other biggest problem, which I never saw this season, is the back-end of the pass rush, especially at 4-3. Every rookie from the 2013 draft can start right now. They were all expected great after four years of football. Instead, we got Connor Barwin starting at right DE and then moving outside, DeMeco Ryans playing middle linebacker, and Brandon Graham and Beau Allen playing weakside linebacker.
+
+The first two players were a disappointment. Ryan McBean was supposed to have a breakout 2012, but injuries put an end to that illusion. With Ryans moving back outside, the Eagles don't really have three quality players at the same position anymore. The strongside linebacker spot was a battle between Graham and Allen, which ultimately ended up going Allen's way. Graham didn't bring much to the

@@ -1,0 +1,7 @@
+Once upon a time, there was a phlebotomist named Dr. Doolittle whose favorite treat was to feed ducks eggs that came out of the head of a person who had a small tumour in their brain. For a while they ate a lot of other fish before he noticed that, instead of the yolk that people were expecting, the duck eggs were coming out of the tumour. Doolittle's reaction to the news was one of disbelief, like the time he was told by a friend that he had a brain tumour and was about to die.
+
+In the US, a woman with a benign brain tumour, known as a glioblastoma multiforme, received permission to donate her kidney for a stranger.
+
+In November, the University of South Carolina announced that it may begin transplanting people with the most aggressive versions of melanoma. In June, Harvard Medical School announced a rare technique called blastronate that may help people with aggressive melanoma live longer in the US, and in the UK its doctors reported positive results using the treatment on 12 patients a month. But for all the latest discoveries, they might not help most of us, says Robert Sapolsky, an ethicist at Stanford University in California.
+
+The fact is there aren't sufficient numbers of people in the United States and Europe with the deadliest forms of melanoma, which are highly curable, he says. Even if there were, the risks of

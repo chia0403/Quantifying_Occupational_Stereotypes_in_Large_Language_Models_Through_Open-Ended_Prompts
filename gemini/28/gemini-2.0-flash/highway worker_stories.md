@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a highway worker named Martha Jean Pritchard:
+
+**Setting:**
+
+The sun beat down on US-95, baking the black asphalt to a shimmering, hazy mirage. Heat radiated upwards in visible waves, distorting the Joshua trees that stubbornly clung to the ochre-colored earth on either side of the road. It was August in the Mojave Desert, and the air hung thick and heavy, smelling of creosote and melting tar. The sky, a vast and unforgiving blue, offered no respite, no promise of coolness. Mile marker 117 was the designated spot today, just south of Searchlight, Nevada, a town whose name felt cruelly ironic in this relentless glare. The only shade came from the battered, orange Department of Transportation truck parked haphazardly on the shoulder, its engine ticking and popping with the effort of its morning's labor.
+
+**Opening:**
+
+Martha Jean Pritchard wiped a bead of sweat from her brow with the back of her calloused hand, leaving a streak of grime across her forehead. She squinted at the bubbling asphalt, the heat amplifying the ache in her bad knee. Fifty-three years old, and this desert heat was starting to feel less like a challenge and more like a personal affront. She adjusted her reflective vest, the fluorescent orange a painful assault on the eyes even through her polarized sunglasses. "Damn sinkholes," she muttered under her breath, more to the unforgiving landscape than to her two-man crew, Earl and young Daniel, who were unloading the first bags of asphalt patch from the truck. Another day, another hole to fill, another battle against the relentless forces of the Nevada desert. Today it was the sinkhole, tomorrow it could be anything. She picked up her tamper, its weight familiar and comforting in her hand. Time to get to work, before the asphalt got hot enough to fry an egg.

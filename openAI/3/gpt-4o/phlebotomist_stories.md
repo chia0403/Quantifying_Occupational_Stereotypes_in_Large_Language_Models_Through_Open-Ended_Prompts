@@ -1,0 +1,9 @@
+The sun was just beginning to crest over the skyline of Winchester City, painting the sky in hues of pink and gold, as Emilia Cartwright navigated the quiet, pre-dawn streets. The city, usually a bustling metropolis by mid-morning, felt like a different world at this hour, still shrouded in the whispers of the night. 
+
+Emilia relished this time of day, when the air was crisp and clear, and the cacophony of everyday life had yet to begin. Her destination was St. Margaret's Clinic, a modest brick building nestled between a bakery that had yet to open and a bookstore that always seemed to be closed, regardless of the hour.
+
+As a seasoned phlebotomist, Emilia had long since adapted to her early morning routine. The clinking of glass vials, the familiar scent of antiseptic mingling with coffee from the break room, and the quiet anticipation of patients looking for care was as comforting to her as any well-worn routine. Today, however, there was a strange tension in the air, a subtle disquiet that Emilia could almost taste. It wasn’t the chill in the October air; it was something else, something she couldn’t quite place.
+
+Emilia pushed open the frosted glass door of the clinic, the fluorescent lights flickering to life as she entered. Her colleague, Peter, a nurse known for his kindness and ineffable punctuality, was already there, prepping for the day. They exchanged a warm nod, words unnecessary in their routine. The phlebotomy station was Emilia’s domain, each needle and vial neatly arranged, waiting to serve its purpose.
+
+As she donned her white coat, an unexpected thought crossed her mind—what secrets lay dormant in the blood she collected each day? These vials were more than just samples; they were fragments of lives, stories contained within, waiting to be told. Today, she had a feeling, would be anything but routine.

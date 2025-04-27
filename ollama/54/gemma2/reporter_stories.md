@@ -1,0 +1,5 @@
+The humid air clung to Amelia "Amy" Blackwood like a second skin as she navigated the labyrinthine streets of Hong Kong's Kowloon district. Neon signs, dripping with garish hues, flickered above bustling markets overflowing with exotic fruits and glistening trinkets. The cacophony of hawkers' calls, taxi horns, and Cantonese chatter swirled around her, threatening to drown out the rhythmic click-clack of Amy's heels on the uneven pavement. She gripped her notepad tighter, her fingers brushing against the worn leather cover embossed with the words "Hong Kong Free Press." 
+
+Amy was chasing a story, one that whispered promises of corruption and intrigue buried deep within the city's glittering facade.  Her target: Mr. Chen, a shadowy figure rumored to be pulling strings behind the scenes of Hong Kong's booming tech industry. Finding him wouldn't be easy; he was a ghost, flitting between luxury hotels and private villas, leaving no trace but rumors and whispered fears. But Amy Blackwood wasn't afraid of ghosts. She hunted them for a living. 
+
+

@@ -1,0 +1,6 @@
+The musty scent of aged paper clung to Amelia Rosethorn like a second skin. It was a fragrance she cherished, as comforting as a warm blanket on a cold night.  The air in the Blackwood Library hung thick with it, a symphony of whispers from countless untold stories within its walls. Sunlight streamed through stained-glass windows, casting rainbows across the worn oak floors and illuminating dust motes dancing in lazy swirls. 
+
+Amelia, perched precariously on a ladder amidst towering shelves of forgotten lore, ran her fingers along a spine, its faded gold lettering barely visible. It promised tales of ancient beasts and forbidden magic, a whispered invitation to worlds beyond imagination. But as Amelia reached for the book, her gaze fell upon a single, pristine volume tucked away in a shadowed corner. Its cover bore no title, only an intricate silver clasp that seemed to pulse with an unseen energy. A shiver ran down her spine. This was no ordinary book. It felt… alive. 
+
+
+Blackwood Library, nestled deep within the misty Scottish Highlands, held more secrets than its cobbled exterior suggested.  For Amelia Rosethorn, its custodian, it was a sanctuary, a refuge from the outside world and a portal to infinite possibilities. But today, something had shifted. A presence, unknown and unsettling, lurked within its ancient heart. 

@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Eleanor Beatrice Finch, their sterile glow failing to pierce the gloom that had settled over her tiny Manhattan apartment. Outside, the city pulsed with its usual cacophony – sirens wailing, car horns blaring, music thumping from unseen parties. But inside, silence reigned, broken only by the rhythmic click of Eleanor's keyboard as she wrestled with a particularly obstinate paragraph. 
+
+Her coffee had gone cold hours ago, the dregs swirling at the bottom of her chipped mug.  The manuscript lay open before her, a sprawling epic fantasy filled with dragons and magic and angst – all things Eleanor normally found thrilling. But tonight, it felt like wading through mud. Each sentence seemed to weigh down her already burdened spirit. 
+
+
+Eleanor was an editor for a small independent publishing house, a job she loved in theory.  She relished the challenge of shaping raw talent into polished gems, of guiding authors through the treacherous waters of publication. But lately, the joy had drained away, replaced by a gnawing anxiety. The world outside seemed to be crumbling – political unrest, climate disasters, and an ever-present sense of impending doom – and it bled into her work, making even the most fantastical tales feel hollow. 

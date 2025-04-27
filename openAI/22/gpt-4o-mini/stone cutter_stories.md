@@ -1,0 +1,9 @@
+**Setting: The Moonstone Quarry, nestled deep within the jagged cliffs of Eldergrove Valley**
+
+As dawn broke over the craggy peaks of Eldergrove, the first rays of sunlight spilled into the Moonstone Quarry, casting a silvery glow on the glistening stones that lay strewn across the landscape. The air was cool and crisp, filled with the earthy scent of fresh rock and the distant echo of water trickling from the nearby brook. Towering cliffs encircled the quarry, their faces glittering with deposits of rare minerals that had drawn stone cutters from miles around.
+
+**Main Character: Thaddeus Weathersby**
+
+At the heart of this rocky wonder stood Thaddeus Weathersby, a seasoned stone cutter with calloused hands and a weathered face that spoke of decades spent laboring under the sun. His dark curls were tousled by the gentle breeze, and his piercing green eyes reflected a relentless determination—a trait he inherited from his father, who once carved statues from blocks of granite that adorned the town square. Thaddeus was an artist, a craftsman; with each swing of his hammer, he felt the pulse of the earth beneath his feet, coaxing the beauty hidden within the cold, unyielding stone.
+
+Today, however, was no ordinary day. Rumors of a celestial event had spread like wildfire through the valley, whispers of a rare meteor shower that would illuminate the night sky. Thaddeus could feel a sense of anticipation building among the other workers, but his thoughts were elsewhere. He was preparing for something even more significant—a piece he had envisioned for years, a sculpture that would capture the essence of the valley itself. Little did he know that the coming night would change the course of his life forever.

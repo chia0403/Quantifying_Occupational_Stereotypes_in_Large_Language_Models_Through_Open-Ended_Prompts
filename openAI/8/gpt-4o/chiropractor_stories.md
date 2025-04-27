@@ -1,0 +1,9 @@
+Dr. Eleanor Whitaker unlocked the door to her clinic just as the early morning sun began to filter through the oak trees lining Maplewood Avenue. The fresh scent of rain lingered in the air, remnants of last night’s downpour that had washed the sleepy New England town clean. Her practice, nestled in a charming, refurbished brick building, was a beacon of warmth and healing to those who sought refuge from their aches and strains.
+
+Inside, the waiting room was a sanctuary of soft blues and greens, designed to ease the tension of anyone who entered. The walls were adorned with local artwork—scenes of the nearby rolling hills and the timeless expanse of the Atlantic Ocean. A gentle hum from the salt lamp mingled with the distant call of a songbird, creating a symphony of peace.
+
+Dr. Whitaker moved with purpose, her footsteps quiet against the polished wooden floor as she prepared for the day ahead. Her patients were not just clients; they were her community. Each spine a story, each visit a chance to heal and connect. Today promised a full schedule, but Eleanor embraced the challenge. Her hands, skilled and compassionate, were ready to restore balance to those in need.
+
+As the clock neared eight, Eleanor took a moment to ground herself, closing her eyes and breathing deeply. Her mind drifted back to why she’d chosen this path—her father’s battle with chronic pain and how helpless she’d felt as a child. It was that sense of powerlessness that had driven her to find a way to make people’s lives better, to give them hope and relief.
+
+The bell above the door chimed softly, announcing the arrival of her first patient. Eleanor stood, smoothing down her crisp white coat with a welcoming smile. Today, like every day, was a new opportunity to transform lives in the heart of Maplewood.

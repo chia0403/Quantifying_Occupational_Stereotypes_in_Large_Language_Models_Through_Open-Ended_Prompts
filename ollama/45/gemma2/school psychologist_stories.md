@@ -1,0 +1,4 @@
+The fluorescent lights hummed overhead, casting a sterile glow over the worn linoleum floor.  Rain lashed against the windows of Dr. Eleanor Vance's office, each drop exploding into a tiny starburst on the glass. A faint scent of lavender hand sanitizer lingered in the air, doing little to mask the underlying smell of stale paper and childhood anxieties. Eleanor sat at her desk, reviewing the file before her: Jason Miller, 10 years old, reported exhibiting "unusual behavior" in class. The specifics were vague – withdrawn, staring into space, muttering to himself.  Eleanor sighed, pushing aside a stack of unanswered emails. These were the days she hated most, the days where every child seemed to carry their own invisible weight. She wished for a moment that her job wasn't about deciphering the language of fear and confusion, but about simply listening to laughter.
+
+
+But then Jason Miller walked in, his shoulders hunched, his eyes downcast. 

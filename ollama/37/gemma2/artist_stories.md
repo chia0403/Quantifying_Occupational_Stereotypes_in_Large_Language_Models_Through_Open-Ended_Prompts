@@ -1,0 +1,6 @@
+The air in Elsie Evelyn Hawthorne's studio smelled like turpentine and regret. Not the kind that lingered like a bad memory, but the sharp, acrid scent of paint being hastily scraped off canvas.  
+
+Elsie’s fingers trembled as she wrestled with her latest masterpiece, or rather, what had been intended to be her latest masterpiece. The cityscape sprawled across the canvas was supposed to capture the vibrant energy of New York City at dusk, but now it resembled a chaotic storm of conflicting hues and jarring shapes.  Sunlight streamed through the dusty skylights of her loft apartment, illuminating the cluttered workspace: tubes of paint in every imaginable color, brushes in various stages of use and abuse, and stacks of canvases leaning precariously against each other. The city's symphony of sirens and distant laughter seemed to amplify the silence that had settled around Elsie, a silence as thick and heavy as the humidity settling on the pavement below. 
+
+
+The deadline for the prestigious Metropolitan Art Exhibition loomed closer with every passing hour, and Elsie was no closer to finishing her piece. She glanced at the calendar hanging crookedly on the wall – July 15th, exactly two weeks away. Two weeks to salvage what little remained of her artistic vision before it completely evaporated under the pressure. 

@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+The sun had just begun to set over the ancient city of Petra, casting a warm orange glow over the intricately carved façade of the Treasury building. Amidst the sea of tourists swarming around him, Ephraim Amari bin Salem stood confidently at the entrance of Al-Khazneh, his bright blue eyes scanning the crowd as he prepared for another long day of leading visitors through the labyrinthine streets and monuments of Petra.
+
+As a seasoned tour guide with over ten years of experience, Ephraim had seen it all - from enthusiastic families on their first trip to the ancient city to haggard backpackers searching for the perfect Instagram shot. He took pride in sharing his knowledge of Jordan's rich history and culture with each group, but he couldn't help feeling a twinge of restlessness as the day wore on.
+
+For Ephraim, Petra was more than just a tourist destination; it was his passion, his heritage, and his home. Born and raised in the small village at the foot of the mountains that cradled the ancient city, he had grown up listening to stories from his grandfather about the Nabataeans who once called Petra their own. Now, as he watched a group of visitors gathered around him, eagerly awaiting his explanation of the Treasury's intricate facade, Ephraim felt a sense of responsibility wash over him - to share not just the facts, but the emotions and stories behind this sacred place.
+
+As the day began, Ephraim smiled warmly at the group and launched into his usual patter about the history and significance of the Treasury. But beneath his polished exterior, he couldn't shake off the feeling that something was off - a sense of unease that seemed to emanate from the very heart of Petra itself...

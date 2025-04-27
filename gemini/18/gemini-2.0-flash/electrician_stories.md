@@ -1,0 +1,5 @@
+**Setting:** The biting wind whipped off the Puget Sound, rattling the poorly insulated windows of the abandoned lighthouse. Rust-colored paint peeled from the exterior like sunburnt skin, revealing the grey, salt-stained concrete beneath. The air hung thick with the smell of brine, mildew, and something vaguely metallic, like old pennies left to rot. Inside, dust motes danced in the weak beam of Amelia Flores' headlamp, illuminating cobwebs strung thicker than fishing nets.
+
+**Story Opening:**
+
+Amelia Flores swore under her breath, her breath puffing out in white clouds in the frigid air. "This is it," she muttered, her voice echoing in the cavernous space, "the job that finally kills me." The listing contract, clutched in her gloved hand, boasted "historic charm" and "unparalleled views." What it failed to mention was the imminent structural collapse, the pervasive damp that threatened to electrocute her at every turn, and the sheer, soul-crushing isolation of being miles from the mainland, knee-deep in pigeon droppings, trying to resurrect a lighthouse abandoned to the gulls and ghosts.

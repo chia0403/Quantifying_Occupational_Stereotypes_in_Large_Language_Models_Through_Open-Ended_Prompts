@@ -1,0 +1,4 @@
+Rain hammered against the corrugated iron roof of the abandoned warehouse, mimicking the relentless drumming in Dr. Eleanor Vance's head.  The air, thick with the smell of mildew and something faintly metallic, clung to her like a shroud.  Dust motes danced in the single shaft of light piercing the gloom, illuminating a scene that screamed desperation.  A single, crimson stain bloomed on the cracked concrete floor, a stark contrast to the surrounding grey.  This wasn't just another crime scene; this was personal.
+
+
+Setting:  The dilapidated warehouse, a forgotten corner of the industrial district of Blackwood, lay nestled between a defunct rail line and a sprawling, overgrown park.  The rain-lashed windows reflected nothing but the darkness within, a stark mirror to the turmoil in Dr. Eleanor Vance's heart.  The building, once a hub of bustling activity, now stood as a monument to forgotten dreams and simmering secrets.

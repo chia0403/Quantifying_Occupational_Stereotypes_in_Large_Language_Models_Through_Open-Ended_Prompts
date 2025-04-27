@@ -1,0 +1,7 @@
+Once upon a time, there was a server named tnpc.net. It was a good time. tnpc.net was great, by the end, it had almost 3000 servers.
+
+Then something happened. Something, the story has it, so important and huge to all the servers it was no longer part of the server group and it was no longer a good idea for tnpc.net to host games on it's servers. After all, that's how its name came into being. What was once a simple server group for simple games to be hosted on, it became a host for everything from MMO content to the biggest military bases in the Solar System.
+
+But something changed over the last 2 years and that's how the admins became aware of the change in servers and eventually it broke into their minds, that tnpc.net has changed for so long, with so much of its reputation attached to it, that it now became impossible to keep the servers they started hosting on. And then some.
+
+Eventually there was a point in time, in June 2013 that the server group, after countless discussions, had reached the decision to close the tnpc.net infrastructure. All the content that was hosted on servers belonging to "The Server Group" could no longer be hosted there anymore. And with that came a number of new server groups. Some of those had just launched and some of them were already quite known. Some of them started accepting registration

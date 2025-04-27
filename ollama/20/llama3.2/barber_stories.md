@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun had long since set on the small town of Willow Creek, casting a warm orange glow over the quaint Main Street. The smell of freshly brewed coffee wafted from the local café, enticing passersby to come and sample the day's latest brew. On the corner of Main and Elm, the sign above "Harrison's Barber Shop" creaked in the gentle breeze, reading in bold letters: "Established 1923 - Where a haircut is more than just a trim."
+
+Inside the shop, Harrison Everett Thompson was busy prepping for another day of making his clients look and feel their best. A skilled barber with over two decades of experience under his belt, Harrison took pride in every snip, clip, and shave he performed. His eyes twinkled behind a pair of wire-rimmed glasses as he expertly combed the tangles from a customer's hair, lost in thought about the upcoming town festival that would bring a boost to the local economy.
+
+As the door swung open, signaling the arrival of his first client of the evening, Harrison couldn't shake off the feeling that something was off. A hush had fallen over the town since the previous day's news broke - and he wasn't sure what it was, but he was determined to find out.

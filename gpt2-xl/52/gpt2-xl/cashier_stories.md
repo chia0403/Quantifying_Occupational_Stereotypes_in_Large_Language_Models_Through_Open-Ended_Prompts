@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named Karyn Ponder. Karyn Ponder was a person of faith who was employed at a Target in Dallas, TX. When she was fired from Target, Karyn joined the fight for religious liberty at Target. "I am just trying to spread a love of Jesus Christ," Karyn stated on Facebook. Karyn continued, "I am not saying that I am perfect but that is not the point at all. It is not like I am a perfect person, but it is not the job of Target to make me perfect, I'm just trying to spread a love of Jesus that is in fact more powerful than anything a Target can do." Her Facebook photo can be seen at the following link:
+
+http://www.facebook.com/pages/Karyn-Ponder/44687926262611?sk=wall
+
+Karyn's Facebook page contains many religious texts on religious liberty. In her own words, Karyn believes "The most important part of a Christian's journey is the church on his or her street. Christians who stand up for their faith in their local church and stand up for the rights of those who profess the Christian faith deserve the love of a local church and a community willing to stand in solidarity with them. It is just that simple. We are all called first by Jesus Christ to love and serve our neighbors." (Karyn's Facebook page at the link).
+
+Karyn

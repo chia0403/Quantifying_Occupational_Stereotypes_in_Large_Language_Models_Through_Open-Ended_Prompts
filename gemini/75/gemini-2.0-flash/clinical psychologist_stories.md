@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The stale, recycled air of the waiting room hung heavy, thick with the anxieties of the unseen. Dr. Eleanor Vivian Holloway tapped a manicured nail against the worn arm of her chair, the sound a tiny drumbeat against the quiet hum of the fluorescent lights. Late. Her ten o'clock appointment, a Mr. Silas Abernathy, was late. Again. This was the third consecutive session he’d kept her waiting, each time offering a flimsy excuse involving rogue squirrels, malfunctioning toasters, or the unexpected need to assist a neighbor with a particularly stubborn pickle jar. Eleanor suspected he was simply testing her boundaries.
+
+**Setting:**
+
+Eleanor's practice, "Holloway Behavioral Wellness," occupied a sun-drenched suite on the tenth floor of the Bradbury Building in downtown Los Angeles. The Art Deco landmark, with its intricate ironwork and skylit atrium, offered a beautiful, if somewhat anachronistic, backdrop to the often-grim realities she encountered. The suite itself was deliberately calming. Soft sage green walls were adorned with calming abstract prints. A bubbling water feature gurgled gently in the corner, competing with the muffled sounds of city traffic fifteen floors below. Her office, just beyond the waiting room, was a sanctuary of order, its shelves lined with textbooks and framed diplomas, each strategically placed to project an aura of competence and empathy. The only jarring note was the small, potted cactus on her desk, a prickly reminder of her own sometimes-barren emotional landscape.

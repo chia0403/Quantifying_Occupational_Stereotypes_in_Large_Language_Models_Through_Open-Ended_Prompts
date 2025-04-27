@@ -1,0 +1,7 @@
+Once upon a time, there was a editor named Jeff Kinney who was known as Kinney the editor. I worked for him for about a decade, and we had some good years. In early 2012, however, he made the decision to quit the newspaper, move on, and do his own thing. Over the course of the next few months, I continued to work for him.
+
+
+I also continued to edit my own column, the Kinney Letter, because I enjoy doing it. It's easy. The Kinney letter is the thing I do to relax when I'm not doing an actual job. The Kinney Letter never got any worse, and never grew into a thing that was worth doing at the expense of the other pieces I edited (although, after a few months, I realized it was too much of a distraction from all of the other stuff I was doing). At any rate, I did two other pieces that year that weren't actually essays. I also did a blog post, in which I talked about what would happen after the Kinney, the letter, and the Kinney blog post and the Kinney Letter's disappearance.
+
+
+In early 2013, however, the Kinney Letter became the thing I did when I was not doing a job. The Kinney Letter became something like a personal journal. It became the thing a few minutes of my life that made me happy, if you can really call it that, because I was just happy to be writing

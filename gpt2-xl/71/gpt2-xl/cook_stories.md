@@ -1,0 +1,7 @@
+Once upon a time, there was a cook named Edie who wanted a new career and took a job at the Lizzie Borden family's C&L Batter Book, which was owned by George Borden. Because Lizzie was accused of killing her husband, Edie joined the police to hunt her and became the prime suspect. At first, it seemed like she was innocent.
+
+But as the truth came out that Lizzie was the actual killer, Edie confessed in front of her lawyer. She admitted that she could not have killed George. Instead, she murdered her husband. Lizzie was eventually found guilty.
+
+Then Edie's lawyer hired one of our attorney's, who was a friend of his. He was a nice guy who would work weekends to pay for Edie's lawyer, because he knew that her best chance of winning was by getting an acquittal. By the time Edie's lawyer had finished his work and had presented the court with his report in the evening, he was found dead in his sleeping bag. The coroner determined that he got out of bed and collapsed right away before jumping to his death from a second floor apartment.
+
+Then, the police got some new information and decided that Lizzie was guilty again. The entire investigation had been compromised. She had confessed and covered it up in order to keep her job. Since then, she has not been seen in public and all of her files and files from

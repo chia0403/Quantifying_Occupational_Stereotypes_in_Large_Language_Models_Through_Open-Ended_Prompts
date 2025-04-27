@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun was just starting to peek over the horizon, casting a warm orange glow over the dense forest that stretched out as far as the eye could see. In a small clearing surrounded by towering pines and hemlocks, 35-year-old Jasper Reed "Mac" Thompson settled into his worn leather saddle, adjusting the strap under his chin as he prepared for another day of logging on the family's ancestral land.
+
+Mac had grown up in these woods, learning the ins and outs of the trade from his father, who had learned it from his father before him. It was a life that ran deep in Mac's veins, and one that he took great pride in continuing to carry on with each new season. As he gave a final tug on the reins, the sound of the horse's hooves on the forest floor echoed through the stillness, a reminder that another day of work lay ahead.
+
+The logging company Mac worked for was small, family-owned operation that had been in existence for over a century. It was a business that relied heavily on tradition and hard work to get by, and one that Mac was happy to be a part of. But as the years went by, he couldn't help but feel a growing sense of unease about the future of their land and the way it seemed to be changing around him...

@@ -1,0 +1,6 @@
+The flickering fluorescent lights of Dr. Amelia Blackwood's dental office hummed a monotonous tune, a counterpoint to the rhythmic click-clack of her drill.  Amelia, a woman built of quiet intensity, focused intently on the patient's molar, her brow furrowed in concentration.  Outside, the city of Aethelgard thrummed with a life Amelia rarely participated in.  This was her sanctuary, her quiet battlefield where enamel was her enemy and precision her weapon.
+
+The office, tucked away on a narrow side street, was a study in muted greys and clinical whites.  Sunlight barely penetrated the grime-coated windows, casting long, skeletal shadows that danced with the dust motes swirling in the stagnant air.  A chipped porcelain vase held a single, wilting rose, a forgotten offering from a previous patient.  The air, thick with the antiseptic tang of bleach and the faint, metallic scent of fear, clung to Amelia like a second skin.
+
+
+Aethelgard, a sprawling metropolis built on the ruins of a forgotten empire, boasted towering skyscrapers that scraped the perpetually overcast sky.  Beneath their towering heights, the city whispered tales of ancient secrets and forgotten glories, secrets that Amelia, for all her dedication to her craft, often felt were as buried deep as the nerve endings in her patient's teeth.

@@ -1,0 +1,4 @@
+The biting wind whipped Amelia Kensington's camera bag around her legs, stinging her cheeks.  The salt spray from the churning Atlantic, a relentless grey curtain against the bruised sky, stung her eyes.  She crouched low, her breath misting in the frigid air, her lens pressed against the cold, damp glass.  The crashing waves, a symphony of raw power, provided the only soundtrack to the desolate beauty of the rugged cliffs overlooking the Irish Sea.  This was her sanctuary, her battlefield.  Amelia, a freelance photographer specializing in coastal landscapes, found solace in the raw, untamed beauty of the Irish coast, a stark contrast to the bustling city life she'd left behind in London.  It was a place where the echoes of centuries whispered through the wind-battered rocks, a place where the soul could bare its wounds.
+
+
+Setting:  The dramatic cliffs of County Donegal, Ireland, a wild and windswept region on the northern coast.  The year is 2024.

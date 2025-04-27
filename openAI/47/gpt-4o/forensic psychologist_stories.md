@@ -1,0 +1,9 @@
+In the heart of a city that never sleeps, where neon lights cast colorful patterns across rain-slicked streets, Dr. Elara Montgomery navigated her way through the labyrinthine corridors of the Central Police Precinct. The echo of her footsteps bounced off the walls, mingling with the hum of the overnight shift. With a mind as sharp as the suits she wore, Elara had built her reputation on a foundation of unyielding logic and intuition honed through years of piecing together the fractured reflections of the human psyche.
+
+The precinct was a relic of the 1930s, its art deco facade standing in stark contrast to the towering glass giants surrounding it. Inside, the atmosphere was a mix of sterile modernity and bygone charm: fluorescent lights buzzing over battered wooden desks, filing cabinets with drawers that never quite closed, and the distant trill of telephones being picked up by officers in various states of urgency.
+
+Elara’s office was a quiet enclave at the end of the hallway, walls lined with bookshelves sagging under the weight of volumes on criminal behavior, psychology, and the occasional true crime novel she indulged in during rare moments of respite. This room was her sanctum, a place where deep contemplation matched intensity with the chaotic outside world.
+
+As she settled into her chair, the leather creaking under the familiar weight, Elara knew the case file lying unopened in front of her would be the start of something haunting. The pale envelope bore the seal of the homicide division and a stark label: “URGENT – Dr. Montgomery.”
+
+She took a deep breath, the scent of brewed coffee mingling with old paper, and reached for the file. With steady hands, she flicked it open, bracing herself for whatever grim tale awaited—the uneasy thrill of the unknown already sparking in her chest.

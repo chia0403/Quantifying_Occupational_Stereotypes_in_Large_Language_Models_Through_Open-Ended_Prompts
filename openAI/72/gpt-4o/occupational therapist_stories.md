@@ -1,0 +1,7 @@
+In the heart of the bustling city of Harbor Springs, where the concrete jungle melded with the horizon of the shimmering bay, Emma Lisbeth Caldwell began her day with the usual ritual: a brisk walk along the meandering Riverwalk that snaked through the city’s central park. The morning air was crisp, tinged with the invigorating scent of dew-kissed grass and just a hint of salt from the distant sea.
+
+Emma, an occupational therapist of ten years, was well-acquainted with the city’s rhythm. Her small practice was nestled in a charming brownstone on Rigby Street, a stone's throw from the vibrant art district. The facade, with its large bay windows and flower boxes bursting with marigolds and lavender, hinted at the warmth and care found within its walls.
+
+It was an unusual place for a therapy practice, but Emma believed the artsy atmosphere set her clients at ease, offering them not just a place of healing but an invitation to explore new avenues of self-expression. Cheery paintings from local artists adorned the walls, each telling a story of resilience and hope.
+
+As she reached the steps of the brownstone, Emma paused for a moment, taking in the serene yet lively environment. Her eyes lingered on the bustling corner café across the street, where a few early risers were already queued for their morning brew. The city was waking up, its residents readying themselves for the day ahead, and so was she — eager to welcome new faces and continue her lifelong mission of helping others regain independence and joy in their daily lives.

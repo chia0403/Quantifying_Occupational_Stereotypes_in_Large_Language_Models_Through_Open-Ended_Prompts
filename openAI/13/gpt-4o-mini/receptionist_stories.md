@@ -1,0 +1,11 @@
+**Title: Echoes in the Lobby**
+
+**Setting:** The story unfolds in the bustling downtown district of Riverton. The city is a blend of modern skyscrapers and vintage architecture, where the golden hues of the sunset reflect off glass-paneled buildings and cobblestone streets. At the heart of this vibrant landscape sits the grand Evergreen Plaza Hotel, an emblem of luxurious hospitality with its ornate marble lobby, crystal chandeliers, and plush velvet seating. Guests come and go, creating a symphony of chatter, laughter, and the distant clinking of glasses from the hotel’s in-house restaurant on the second floor.
+
+**Opening:** 
+
+Odessa June Harper’s fingers danced over the keys of an antique typewriter, the rhythmic clacking blending seamlessly with the murmurs of guests milling about the Evergreen Plaza Hotel's lobby. The scent of freshly brewed coffee wafted through the air, mingling with the faint notes of a violinist entertaining patrons in the corner. She pushed her thick-rimmed glasses up the bridge of her nose and glanced up just in time to see an elegantly dressed man—his suit immaculate, his demeanor confident—walk through the revolving doors as if he owned the very ground upon which the hotel stood.
+
+“Welcome to Evergreen Plaza,” she greeted, her voice warm and inviting, a practiced smile on her lips. Odessa was used to this ritual; each day spent as the first point of contact for hotel guests was both a privilege and a puzzle. She thrived in her role as a receptionist, balancing the demands of check-ins and inquiries while weaving the unique stories of the guests into her own life's tapestry.
+
+But today felt different. The atmospheric weight of an unsettled mystery loomed beneath the hotel’s polished surface. Odessa couldn't quite place it—perhaps it was the intense look in the eyes of the man who had just entered or the flicker of something anxious among the guests. Whatever it was, it tugged at her curiosity, setting her heart racing. She thought of the old lantern that had been recently restored in the lobby—it had once illuminated hidden corners of the hotel. Maybe it was time for her to illuminate a few secrets of her own.

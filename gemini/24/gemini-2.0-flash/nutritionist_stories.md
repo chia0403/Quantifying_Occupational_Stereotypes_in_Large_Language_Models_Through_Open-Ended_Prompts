@@ -1,0 +1,11 @@
+## Story Opening:
+
+The smell of roasted fennel, cardamom, and the faint, metallic tang of blood hung heavy in the air. Dr. Eleanor Ainsworth wrinkled her nose, pushing open the creaky door to her small office. It wasn't an unusual aroma, considering her profession, but tonight it felt particularly…ominous. She'd been on call until late, counselling a distraught marathon runner whose iron levels had plummeted pre-race. All she wanted was a cup of chamomile tea and the sweet oblivion of sleep.
+
+But her office, usually a haven of calming creams and organized file cabinets, felt wrong. A single, Edison bulb cast long, dancing shadows, illuminating the framed certificates on the wall – her PhD in Nutritional Science, her board certification – as if mocking her. On her mahogany desk, usually pristine, sat a small, wicker basket overflowing with something dark and…sticky.
+
+Eleanor's heart began to thump a frantic rhythm against her ribs. She knew this basket. It was one she used for presenting healthy breakfast options to her younger clients. What was it doing here, filled with something that looked suspiciously like…
+
+## Setting:
+
+Dr. Eleanor Ainsworth’s office, located in the back of a renovated Victorian house in the historic district of Asheville, North Carolina. The building housed a collective of holistic wellness practitioners, including acupuncturists, massage therapists, and herbalists. Eleanor’s space, while small, was meticulously curated to project a sense of calm and competence. Walls were painted a calming sage green, accented by framed botanical prints. A large, oak bookcase held a collection of cookbooks, nutritional journals, and brightly colored smoothie cookbooks. A worn, but comfortable, armchair sat in the corner, ready for longer consultations. The overall aesthetic was deliberately earthy and inviting, a conscious effort to counteract the often-intimidating world of diet and health advice. The scent of essential oils, usually lavender or citrus, usually permeated the air, a constant attempt to soothe frayed nerves and foster trust. The large window overlooked a small, manicured garden, usually providing a tranquil view. Tonight, however, the darkness outside seemed to press against the glass, amplifying the unsettling feeling within the room.

@@ -1,0 +1,7 @@
+Once upon a time, there was a paralegal named Monica, a girl from a nice, good family, the kind of folks you would expect to have the sense not to use their children as punching bags. When she was 14, Monica and her friends met a new boy, Jason, who wore a bowler hat backwards and had the eyes of a rat. The boys quickly turned from best friends to lovers, and soon came to live with Monica and her husband. She grew suspicious, though, when Jason went missing one evening.
+
+At the time, there was nothing to indicate that a girl had been abducted. Monica watched the night from her window, looking out for her brother. When police were called the next morning, it turned out Jason had somehow managed to get on a plane and had disappeared without warning.
+
+The day after Jason's disappearance, Monica found out that something was terribly wrong. By the time she was arrested, it had already been revealed that Jason had been molested by a woman named Jessica. Monica's parents divorced, and she never saw her childhood friend again. The news that Jason had died in a car crash that same night shattered Monica's only connection with her friend, and she turned to drugs. After her friends told her that Jessica was likely the "monster" that had pulled Jason from the path of his dream, Monica became convinced that she was a murderer too.
+
+Monica had her first true taste of crime when she went on trial

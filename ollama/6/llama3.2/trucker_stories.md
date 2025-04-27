@@ -1,0 +1,7 @@
+As the sun set over the vast expanse of the Arizona desert, casting a warm orange glow over the crumbling adobe buildings of Tombstone, Jack "Havoc" Hawkins climbed into his worn leather trucking seat, the creak of the old springs beneath him a familiar comfort. The worn dashboard, adorned with scratches and scuffs from countless miles on the open road, seemed to hold stories of its own, whispers of which only Jack could hear.
+
+A grizzled veteran of the long hauls, Jack had spent years navigating the country's highways, watching sunrises over mountains and sunsets over rivers. He'd seen it all – from the desperation of small-town truck stops to the glamour of city streets, where high-rises pierced the sky like shards of glass.
+
+Jack's truck, a trusty Peterbilt 359 with the nickname "Bertha," was his home away from home, a mobile fortress that had kept him safe through countless storms and breakdowns. As he fired up the engine, the rumble of Bertha's diesel heartbeat echoed through the desert night air, a sound that seemed to match the beat of Jack's own restless heart.
+
+Tonight, however, something felt different. A sense of restlessness settled in the pit of his stomach, like a loose stone in a worn-out shoe. It was as if the open road itself had called to him, promising adventure and mystery on the other side of the next horizon. And with that thought, Jack "Havoc" Hawkins hit the gas, ready to face whatever lay ahead – and nothing would ever be the same again.

@@ -1,0 +1,7 @@
+Once upon a time, there was a salesperson named Mike.
+
+Mike was born in an internment camp, his parents fleeing the Nazis. He fought in World War II, was wounded, and was a prisoner of war in the USSR, where he served in the secret Soviet "special operations unit" dubbed the "Sparta Seven," under the alias of Vladimir Strzok. He returned to the United States during the 1970s, married, had children, and eventually built a successful electronics company in Los Angeles, with a $4 billion valuation.
+
+He was married for 35 years to his best friend and his best business partner, Mary Mork. Their marriage was rocky at best. Each had a series of affairs with secretaries of other married guys, and each became involved with an older married woman. And when one or both were cheated on by their wives, the marriage unraveled. Mary married an architect. Mike married a model. Mary married a singer-actress on TV who would later become a singer on MTV. Mike married a writer, who wound up writing for a satirical magazine.
+
+But Mike's life was as happy as could be — till it was derailed when he was sent to the dreaded "Pit." Mike was in his mid-40s, and a Vietnam veteran at the time (he had made the ultimate sacrifice during the Battle of Ia Drang). He was told the best way of avoiding becoming a permanent part of that war was

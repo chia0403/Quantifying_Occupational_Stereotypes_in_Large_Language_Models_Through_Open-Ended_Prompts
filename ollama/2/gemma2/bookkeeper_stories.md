@@ -1,0 +1,5 @@
+The stale scent of coffee and aging paper hung heavy in the air of Finch & Feather's Accounting office. Sunlight streamed through dusty windows, illuminating motes dancing in the perpetual haze of fluorescent bulbs overhead. Amelia Grace Thornton meticulously balanced her ledger, each entry etched with the precision of a surgeon.  At 27, she was already considered one of the most meticulous bookkeepers in town, capable of unraveling even the most convoluted financial web. But lately, a knot of unease had begun to tighten in Amelia's chest, a premonition that something wasn't quite right. It started with an odd delivery - a large, dusty ledger bound in leather, addressed simply to "The One Who Sees."  
+
+Amelia lived alone in a tiny apartment above a bustling bakery on Elm Street. The aroma of fresh bread often drifted into her space, offering a comforting contrast to the sterile environment of her office. But even the scent couldn't fully mask the growing feeling that something was amiss, a shadow creeping closer with each passing day. 
+
+

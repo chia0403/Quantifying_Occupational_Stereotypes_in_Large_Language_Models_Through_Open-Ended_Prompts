@@ -1,0 +1,5 @@
+Rain lashed against the windows of "The Hungry Crab," blurring the neon sign with its watery sheen. Inside, the air was thick with the aroma of salt and grease, a symphony conducted by the perpetually churning kitchen staff.  Amelia “Amy” Cartwright surveyed the scene from behind her worn red uniform, the faintest flicker of annoyance burning in her amber eyes. The late shift was always the slowest, yet tonight felt especially quiet. A few weary souls at their usual booths, a couple huddled in the corner, and that’s about it. 
+
+Amelia pushed back a strand of fiery auburn hair, trying to remember why she hadn't quit earlier. It wasn’t the lackluster clientele, not exactly.  It was more like a persistent feeling - a weight of expectations tied to her grandmother's legacy.  The “Cartwright Charm,” they called it, that old-school service with an undeniable warmth and genuine care for each diner. 
+
+Even on nights as dreary as this one, Amy clung to the hope that someone would walk through those doors, looking for a little escape amidst the storms. 

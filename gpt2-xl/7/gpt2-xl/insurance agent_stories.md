@@ -1,0 +1,7 @@
+Once upon a time, there was a insurance agent named Richard who had a business in New Jersey and was collecting premiums for the company. One insurance agent got a contract to run the business but she kept it for herself. After a while, somebody said that's a bit too much, she's already in this business, why do we care about her company? So they fired her and went around taking over the insurance agency. And soon enough, they had all the customers' money and became wealthy. The idea was that insurance should be a business; there must be some profit. So they did not care about the people behind the insurance company. They only cared about their own profits.
+
+They started out by writing their own insurance policies on their own clients. Then, when they had enough money, they tried to extend their operations into other industries by acquiring all sorts of different businesses. And so, because no one ever called them any more, they called themselves "Insurance companies."
+
+So, "Insurance" means a lot of things, but it definitely means "Business that pays me money." It is not surprising that there are lots of companies running around selling insurance, all claiming to be "insured."
+
+This is a classic example of the difference between the "individualist" and the "collectivist" theories of economics. When you start out with individualism, you do not have the idea that the individual is the measure of value. You may believe that the best

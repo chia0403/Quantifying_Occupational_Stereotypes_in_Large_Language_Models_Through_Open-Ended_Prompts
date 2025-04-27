@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named Betty White. Then there was the late-night hostess, who wore a corset and a fedora and a bow tie and who got the first two Emmy Awards for best actress. She was the Queen of daytime television. Then there was the late-night hostess, who wore a corset and a fedora and a bow tie and who got the first two Emmy Awards for best actress. She was a celebrity in her own right, and she has been described as the first serious TV star.
+
+Then things slowed down for the Queen, who fell out of favor with audiences. The star, who had been in showbiz since she was 11 years old, was not as sexy to talk about anymore — and as a result, audiences didn't like her.
+
+But this is a very different time than the Queen's day. The day of daytime television is long history in itself. And I want to take a side trip on the very strange history of late-night hosts over the last dozen or so decades.
+
+If you have ever watched the late-night hosts on the network news shows at home, you have seen three main things. First, they were the biggest stars — bigger stars than everyone else had ever hoped for. Second, they were very overpaid on each show — because they got to put down their careers and live like celebrities. Third, they were all wearing nice suits — with tie tails

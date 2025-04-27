@@ -1,0 +1,5 @@
+Once upon a time, there was a concierge named J.R. Who? I'll tell you a story about him.
+
+On one of those nice summer nights, I stayed at J.R.'s place. There was a piano in the living room and a piano in the bedroom; it was on his side of the house. I could hear the pianos, not as much as I can hear a siren on the highway, but loud enough, like the beat of a heart beating to a beat. It was at J.R.'s place in Long Island, and a neighbor had made a recording of it, on one of his old record players. I was trying to write a song, the story of J.R. Who, and I asked my wife to come into the room and read it to me so I could hear her voice. What came out of me then was not a very good song but I stuck with it.
+
+One day in our house, with the help of a neighbor who was going the opposite direction, we went to a restaurant, but they were doing it so loud that we couldn't go in the back door. We went to J.R.'s. It was a Friday, and the place was crowded for a meal, and there was one table right outside the kitchen. He said, "I want to show you something." And he took me up into his bedroom with him. He had been on a business

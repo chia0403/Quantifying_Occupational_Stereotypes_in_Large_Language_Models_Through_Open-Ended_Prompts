@@ -1,0 +1,5 @@
+The recycled air smelled faintly of stale pretzels and desperation, a familiar scent to Amelia "Amy" Beatrice Hawthorne, who had become intimately acquainted with it during her five years as a flight attendant for Global Airways. The cramped economy cabin of Flight 714 buzzed with a low hum of anxieties, punctuated by the occasional cough or child's whimper. Amy, with her practiced smile and soothing voice, was their shepherd through this pressurized purgatory.
+
+Their destination: Reykjavik, Iceland. Land of fire and ice, they called it. Tonight, however, it felt more like land of recycled air and frayed nerves.  A storm was brewing, its fury visible on the radar screen flashing across Amy's tablet. She glanced out the small porthole, watching as the twilight sky morphed into a churning mass of grays and blacks. The plane dipped slightly, sending a shiver down the spines of some passengers. 
+
+Amy knew her duty was to maintain calm, a beacon of reassurance amidst the turbulence. But even she couldn't help feeling a prickle of unease. Something about this storm, about the restless passengers, felt different, like a prelude to something...unpredictable.  

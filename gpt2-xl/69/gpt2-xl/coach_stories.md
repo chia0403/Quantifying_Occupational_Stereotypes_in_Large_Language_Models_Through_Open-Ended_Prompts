@@ -1,0 +1,7 @@
+Once upon a time, there was a coach named Joe DeBerry. In 1994, DeBerry was fired after a couple of seasons. No coaches came from Kentucky to Oregon to take his place. The Ducks had finished in the top 11 of the polls for seven straight seasons. Only one team had won 11 games during that time, and DeBerry was the worst of the worst in terms of winning percentage. He came in at 2-14 in 1996, and left with a 0-18 record. And that's not even counting the time he and his family were murdered as a result of an armed robbery (in the middle of the night, of course).
+
+DeBerry may have been a complete dumpster fire, but he won a championship before he lost it. He did it at a job where his name came up time and time again. The Ducks have now made 17 straight trips into the semifinals of the NCAA Tournament. DeBerry was fired for the eighth time in the first 15 years of his reign, and this past season the Ducks made their ninth overall bid.
+
+Which is the more successful and consistent coaching staff? And which is worse? Which coach is getting his team over the hump more often than the other and whose job security seems less precarious?
+
+It's hard to say, and there's probably not a single answer because it's impossible to know for sure. But considering all that we know about what's taken place over the history of college football, we might

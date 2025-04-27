@@ -1,0 +1,9 @@
+In the heart of downtown, where the city lights shimmered like a galaxy of stars against the velvet night, stood the venerable Hargrove Tower. It was a structure as old as the city itself, with its art deco architecture a proud reminder of eras gone by. Through its bustling halls and echoing corridors roamed Jonathan "Johnny" Davis, the tower's dedicated janitor, a stalwart presence amidst the constant churn of urban life.
+
+Every evening as the office workers filed out, their heels clicking on the marble floors, Johnny would slip into his routine with the grace of an old ritual. He knew each creak of the ancient elevator, every stain on the carpeted hallways, and the stories behind the framed photographs lining the walls. To Johnny, cleaning was not just about tidying up messes left behind, but about tending to the soul of Hargrove Tower itself.
+
+The scent of freshly brewed coffee intertwined with the aroma of floor polish, creating a unique olfactory signature that only night owls like Johnny would recognize. He prided himself on making sure that each surface glistened under the fluorescent lights, ready to greet the morning crowd that would fill the building with life once more.
+
+Yet beyond the sweeping and scrubbing, Hargrove Tower hid secrets that intrigued Johnny. There was the locked door on the 10th floor that no one ever entered, the whispering echoes that seemed to float down the stairwells after midnight, and the mysterious notes slipped under his closet door that simply read: "Look closer."
+
+To the outside world, Jonathan Davis was just a humble janitor. But within the walls of Hargrove Tower, he was a guardian of its mysteries, more than ready to uncover what lay beneath its venerable facade. The city slept, and so began another night in Johnny's hidden realm.

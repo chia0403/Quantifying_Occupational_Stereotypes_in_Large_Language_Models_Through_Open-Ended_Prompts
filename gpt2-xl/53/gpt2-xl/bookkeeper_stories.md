@@ -1,0 +1,7 @@
+Once upon a time, there was a bookkeeper named Mr. Bob and what was his name. The character was written by John Ostrander, who's known mostly for taking creative risks in his time at Marvel. Ostrander's books have always been about writing by the book and that's no different in The Fallen. Ostrander has always gotten a good deal of praise for his writing, so this was no surprise.
+
+The Fallen is set in a dystopian world where the rich live in luxury while the lower and middle classes, known as the "fallen", live their lives in shanty towns. The latter are the only ones on the ground and they live off whatever they can get from scavengers, merchants, or those that sell off their corpses. The novel has an in-depth look at the daily lives and daily concerns of the fallen.
+
+It's important to note that The Fallen is set in a dystopian future, so the world is not exactly the place that this book takes place. It's almost hard to describe what life is like for the fallen and what they go through in their daily lives. The Fallen is set in the distant future, and while it isn't too far into the future, it's just as dystopian as any other dystopian world.
+
+The Fallen centers around the exploits of a group of renegade scavengers called The Lost, who are living in a shanty town while trying to eek as much money and resources away from

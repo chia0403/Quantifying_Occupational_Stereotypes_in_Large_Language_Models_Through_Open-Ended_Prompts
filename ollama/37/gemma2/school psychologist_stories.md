@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Dr. Eleanor Vance's head, casting a sterile glow on the worn linoleum floor of the elementary school counseling office. Outside, the crisp autumn air swirled fallen leaves against the windows, painting fleeting patterns of rust and gold. Inside, however, the room was as unchanging as ever: a beige box dotted with posters depicting happy children sharing crayons and solving puzzles. 
+
+Eleanor sighed, pushing aside a stray strand of auburn hair that had escaped her tight bun. Another day, another anxious child waiting to be coaxed out of their shell. This time, it was eight-year-old Liam Henderson, his face pale and drawn as he sat rigidly on the tiny blue chair. He clutched a worn stuffed dragon, its once vibrant scales now faded and frayed.  Liam had been referred by his teacher for extreme withdrawal and an inability to focus in class. Eleanor hoped she could unravel the knot of worry tightening around this young boy's heart before it choked him entirely. 
+
+

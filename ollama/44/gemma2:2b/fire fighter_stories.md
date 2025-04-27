@@ -1,0 +1,7 @@
+The wind whipped around Elias "Eddy" Caldwell's face, carrying with it the acrid scent of burning pine and the unsettling quiet of a deserted mountaintop.  He adjusted his helmet, its worn plastic visor reflecting the eerie orange glow of the sunset. The air was heavy with the unspoken weight of yesterday’s storm, and the mountain loomed above him like a skeletal giant, its rocky slopes bleached white by a relentless snowstorm that had started hours ago.
+
+Eddy wasn't afraid of storms, not really. He'd faced down blizzards fierce enough to swallow whole towns in his twenty years as a firefighter. But this storm felt different. The wind seemed to carry a sense of foreboding, like the mountain itself was holding its breath, waiting for something. Something big. 
+
+He scanned the barren landscape with practiced ease, the red and yellow markings on his boots the only splashes of color in the icy expanse.  His crew – a mix of seasoned veterans and fresh faces, all united by their shared fear and duty – were spread out across the mountain, combing through the ravaged area for any signs of life. 
+
+Eddy's gaze fell upon the burnt remains of a cabin nestled against the foothills. Its roof, a mangled pile of charred timber, served as the only witness to its sudden demise. He knelt down, his eyes following the faint line of smoke curling up from the rubble. A single ember glowed in the darkness, like a dying star. 

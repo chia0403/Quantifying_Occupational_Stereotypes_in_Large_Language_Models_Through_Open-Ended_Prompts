@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named Ms. W. I met her while I was in college. She told me my problems stemmed from a terrible incident between my mother and my father. She asked me to try not to think and talk about it. She said, "You need lots of time away from your family — a time to think about the future and ask yourself what you want out of life."
+
+She said if I went back to being a child — even a child raised by animals — I would be a very unhappy child. She was right. I was angry all the time, and couldn't sleep. I was sure there would be many more incidents, although my family was very much aware of the warnings and made sure I was safe. They even talked to me about what to do if I got kidnapped. They convinced me that if my father ever raped me again, I should not report him to the police.
+
+I'm not talking about a day-by-day, month-by-month rape. I was a child. It was all about the time when his attention was turned toward me. It was all about how often he used the word "rape." I was a child. He's a pedophile. What more do you need to know?
+
+The problem with pedophiles is that they don't know they're pedophiles until they're in their thirties, fifties, or even older, and their ability

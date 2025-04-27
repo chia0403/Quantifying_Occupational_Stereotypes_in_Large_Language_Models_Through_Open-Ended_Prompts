@@ -1,0 +1,5 @@
+The biting wind whipped across the barren plains, sending shivers down Elara Wren’s spine even through her thick woolen cloak. Dust devils danced in the distance, swirling like angry spirits against the backdrop of the unforgiving sky.  Elara adjusted the worn leather strap holding her chisel and mallet, their familiar weight offering a small comfort amidst the vast emptiness. Her workshop, a cluster of weathered stone buildings huddled together at the base of the Crimson Cliffs, seemed a mere speck in this boundless landscape. 
+
+Here, on the outskirts of the Dustbowl, Elara Wren carved more than just stone. She sculpted stories, whispered secrets into granite, and breathed life into lifeless rock. Each crack she honed, each facet she polished, held a memory, a dream, a piece of her soul. And today, as she surveyed the unfinished marble bust before her, she felt a strange pull, an unnerving sensation that this particular sculpture would be different, that it would change everything. 
+
+

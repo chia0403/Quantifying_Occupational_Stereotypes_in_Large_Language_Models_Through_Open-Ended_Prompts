@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named Joe Johnston. In 1986, Joe Johnston made what proved to be a career defining film: "Dead Man Walking." Johnston's first film, "Donnie Brasco," established Johnston as a major talent, but "Dead Man Walking," while popular, was a box office bomb (a gross of only $26 million). "Dead Man Walking," however, proved to be Johnston's breakthrough film, and he went on to direct over 40 more film which were all wildly profitable.
+
+However, Johnston would never become the mega star that Joe Rogan and the late Dan Akroyd were, or the big budgeted, star-making projects that were planned for Johnston. His greatest triumph was the film, "Super Size Me". Johnston and screen writer Aaron Hall were writing this film in 1990, just as Johnston was going through his divorce from his wife, and after their divorce, Johnston began his drinking and drinking problem.
+
+In 1992, Johnston began to drink again, started taking cocaine and sleeping with a woman on-and-off for a long time, until he finally killed himself. However, Johnston's career was far from over, as he had two more films written about him, "Burden of Dreams," (1997) and "Super Size Me" (1998). "Burden of Dreams" was his biggest success to date, and the film grossed over $400 million worldwide.
+
+Unfortunately, as Johnston was

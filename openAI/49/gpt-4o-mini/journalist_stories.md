@@ -1,0 +1,11 @@
+**Title: Shadows of Arkham**
+
+**Setting:** The rain-soaked streets of Arkham, a city steeped in mystery and shadow. The gas lamps flicker, casting eerie shadows on the cobblestone pathways, while the distant sound of thunder rumbles ominously overhead. It's late autumn, and the trees that line the streets are stripped bare, their gnarled branches reaching toward the slate-gray sky like desperate fingers.
+
+**Opening:**
+
+The relentless patter of rain drummed against the window of Eliza Montgomery’s cramped office on the third floor of the Arkham Bulletin, drowning out the muffled conversations from the busy newsroom below. The air was thick with the smell of damp paper and old ink, mingled with the faint aroma of burnt coffee. Eliza had long since learned to ignore the chill that lingered in the corners of her tiny space, her focus zeroed in on the flickering monitor in front of her, which displayed a jumble of unfinished articles and fragmented thoughts.
+
+A seasoned journalist with tousled auburn hair and piercing green eyes, Eliza had spent years digging through the city’s underbelly, unearthing secrets that many preferred remained buried. Today, however, she found herself ensnared in a web of her own making, her latest investigative piece on the mysterious disappearance of Arkham’s homeless population leading her down a dark path. The rain outside intensified, matching the brewing storm in her mind, as she recalled the chilling words of the old man she had interviewed just days before—“They're taking them, you know. The shadows come for those who don’t belong.” 
+
+Fingers trembling slightly, Eliza took a deep breath and leaned back in her chair, glancing at the collection of photographs pinned above her desk: faces of the missing, each with a story that begged to be told. In that moment, she realized she was on the brink of uncovering something far more sinister than she could have ever anticipated. And as the lightning flashed outside, illuminating the dark corners of her office for a fleeting second, Eliza knew she was not just reporting a story—she was stepping into a treacherous game where the stakes were higher than she had bargained for.

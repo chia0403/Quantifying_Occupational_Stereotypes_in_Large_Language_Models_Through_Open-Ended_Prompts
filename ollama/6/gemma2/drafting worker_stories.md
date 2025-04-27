@@ -1,0 +1,7 @@
+The air hung thick with dust motes dancing in the single shaft of sunlight piercing through the grimy window. Amelia Thistlewick, her brow creased in concentration, meticulously traced lines across the blueprint spread on her workbench. The faint scent of graphite and stale coffee filled the cramped workshop, a symphony familiar to Amelia's senses after years spent amidst the clanging metal and whirring gears of Ironhaven Forge. 
+
+Ironhaven, nestled within the shadow of the colossal Cogheart Mountain, was a sprawling metropolis fueled by industry. Its streets hummed with the constant churn of machinery, its sky perpetually shrouded in a haze of coal smoke. The forge district, where Amelia toiled away, pulsed with an even more frenetic energy. Sparks showered like diamonds from furnaces, and bellows roared, their rhythmic panting echoing through the labyrinthine alleys.
+
+Amelia’s fingers danced across the blueprint, her mind translating abstract lines into intricate mechanical designs. She was a draftsman, a translator of dreams, transforming the visionary blueprints of Ironhaven's engineers into tangible reality. Today, she was working on a design for a new gear system for the Cogheart Mines, a project that promised to revolutionize extraction and bring riches to the city. But as Amelia traced the final lines, a nagging feeling crept into her mind – a sense that something wasn't quite right about this blueprint. 
+
+

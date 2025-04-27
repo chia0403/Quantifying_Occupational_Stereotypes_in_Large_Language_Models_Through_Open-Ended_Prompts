@@ -1,0 +1,7 @@
+Once upon a time, there was a chef named Tom. His wife's name was Linda, and he would cook up some recipes to eat to celebrate Valentine's Day on a regular basis, always with a little bit of an edge, for when he felt the need.[13]
+
+Tom's story was later revealed to have been fabricated by his sister, who was forced to take care of him while her husband went into business by running the restaurant. They also became partners, but it was revealed after his sister told him he could leave, and even suggested his work as a chef was too hard that he would always return to his original business of cooking.[14] He also revealed during her visit, that he was married to a woman who passed away in childbirth.[15]
+
+Tom eventually opened his restaurant, which became the place to be on Valentine's Day, and he continued to use it after that. He had an arrangement with Tom, Linda, and Linda's daughter Emily, and he agreed to help Tom with his restaurant, not expecting to be repaid, especially when he left the restaurant business,[12] but eventually decided it would be best to return to being his usual self.[13]
+
+Tom's restaurant would become known as the New York Café of Tom's Special Favorites, named after the restaurant's original name when he first closed it.[13] His wife and daughter, too, also continued to serve her business for Tom as the restaurant gained a following for its

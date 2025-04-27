@@ -1,0 +1,5 @@
+The air hung thick with the scent of stale coffee and regret in the Grand Majestic Theater.  Moonlight filtered through the dusty grimy windows, illuminating swirls of dust dancing in the air. The red velvet seats were vacant, their plushness now faded and cracked like an old leather purse. This was Archibald Fitzwilliam’s domain, his kingdom of discarded popcorn kernels and forgotten dreams. 
+
+Archibald, or Archie as he preferred, meticulously scrubbed a section of the stage floor with his worn-out mop, humming a melancholic tune under his breath. He wasn’t sure what it was about this place that drew him in every night, even when the silence felt heavier than a lead curtain. Perhaps it was the ghosts of laughter and applause that still lingered in the air, or maybe it was the hope that one day, he might witness another sold-out show, feel the electric energy of a captivated audience again.  He wasn’t sure, but tonight, as Archie wiped away the last traces of spilled soda, something felt different. 
+
+

@@ -1,0 +1,5 @@
+The air in Agnes Henrietta Butterfield’s office hummed with the quiet drone of the ancient adding machine. Outside, the late October sun cast long shadows across the cobblestone streets of Edinburgh, painting the gaslight lamps in pools of warm amber. The scent of damp earth and chimney smoke drifted through the open window, mingling with the faint aroma of ink and leather that clung to Agnes’ worn ledger.  
+
+Agnes, her silver hair pulled back in a tight bun, tapped a delicate finger against the aged paper. The ledger lay open before her, revealing a dizzying array of figures – debits, credits, receipts, invoices – all meticulously recorded in her precise hand. Each entry was a tiny piece of a larger puzzle, a financial tapestry woven from the lives and businesses of Edinburgh's merchants and tradesmen.  Agnes prided herself on her accuracy, her ability to unravel even the most tangled threads of commerce. But today, a knot had formed that felt different – more complex, more unsettling. 
+
+

@@ -1,0 +1,7 @@
+The morning mist clung to Blackwood Manor like a sleepy dragon, its silver tendrils weaving through the gnarled branches of ancient oaks.  Even as the sun climbed higher in the sky, it failed to thaw the bone-chilling chill that lingered on the air. Beneath the skeletal boughs of a sycamore tree, Edgar Thorne, his worn overalls splashed with the day's morning mud, surveyed the vast expanse of Blackwood Manor's grounds. 
+
+Edgar, known as "Mac" by everyone who frequented the estate, had been tending to its overgrown edges for longer than he cared to remember. The manor itself was a sprawling monument to faded grandeur, its once proud facade now hidden behind layers of creeping ivy and crumbling stonework.  The air hung thick with the ghosts of laughter and whispered secrets, and Edgar's job wasn't just keeping the lawn tidy; it was tending to them all. 
+
+His work boots crunched on the gravel path as he started his daily ritual - clearing the weeds that choked the flower beds around the crumbling fountain, its chipped porcelain face a silent monument to forgotten elegance.  He couldn't help but wonder what secrets lay hidden beneath those layers of moss and decay, what stories whispered in the wind rustling through the leaves. The silence was profound here, broken only by the cawing crows circling overhead. 
+
+And as he bent down to trim a stray branch from a rose bush, he heard it - a faint rustle coming from within the thick tangle of ivy clinging to the base of an old oak tree.  

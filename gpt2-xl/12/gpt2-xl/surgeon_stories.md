@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named Richard H. Mott, a former marine biologist who became a surgeon at the Walter Reed Army Hospital. He soon proved himself to be one of the most accomplished surgeons of the entire war. By the time he came to work at the Naval Hospital in Washington DC, his name was on the lips of the most illustrious of the American surgeons, including General Leonard Wood, the famous Army surgeon-general.
+
+Mott was an early proponent of an open-heart procedure, which required one to use a heart catheter (a catheter with an opening so small that it's usually located at the center of the chest, near the heart). This procedure was not new and had been used successfully by military surgeons for years. He thought it was a better alternative to the standard chest tube, used to open up arteries to the lungs and veins to carry oxygen.
+
+His patients were usually young men who were sent to the hospital with broken hearts. Mott's method was simple. He allowed the heart to come to the surface of the chest as a fresh set of valves were being placed around both it and the artery to be opened. Once in place, he would place an arterial artery catheter through one of these valves and bring a blood sample through it.
+
+When the surgery was done, the surgeons would seal the two ends of the opening with silicone tubes as anesthetized patient. Then, after taking a few minutes to

@@ -1,0 +1,6 @@
+The scent of rain-soaked earth clung to Amelia Thistlewood’s worn corduroy jacket as she pushed open the door to The Crooked Quill, its familiar warmth a welcome respite from the dreary November afternoon. A low hum of conversation and the rhythmic clack of typewriter keys filled the air, creating a comforting soundtrack to her usual Tuesday night ritual:  a steaming mug of Earl Grey tea and a few hours dedicated to chasing down elusive characters in her head. 
+
+The Quill was Amelia's sanctuary, a cozy haven tucked away on a cobblestone street in Edinburgh’s Old Town. Its mismatched furniture, overflowing bookshelves, and flickering gas lamps whispered tales of forgotten lore and unfulfilled dreams, fueling the writer's imagination with every visit. Tonight, however, a new sense of unease hung heavy in the air, a subtle discordance to the usual comforting chaos. 
+
+
+Amelia settled into her favorite corner armchair, its plush velvet yielding beneath her weight, and took a long sip of tea.  The familiar taste did little to quell the prickling sensation at the back of her neck. She glanced around, noticing the hushed tones of conversation, the averted gazes, and the strange tension that seemed to have settled over the usually lively space. A shiver ran down Amelia’s spine, an unwelcome companion on a night that promised creative solace. 

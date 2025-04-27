@@ -1,0 +1,7 @@
+In the heart of New Orleans, where the humid air carried whispers of jazz and secrets alike, stood a small office on the corner of Chartres and St. Louis. The paint was chipped and the brass nameplate hung slightly askew, but to anyone in the know, it exuded an irresistible charm. The office belonged to Thaddeus Leland, a private detective with a penchant for solving the unsolvable.
+
+It was a sultry September evening, the kind where the sky hung heavy with the promise of rain, and the gas lamps flickered to life, casting golden halos on the cobblestone streets. Inside, the room was furnished with a well-worn desk piled high with case files, a vintage fan buzzing lethargically in the corner, and a half-empty glass of bourbon sitting dangerously close to the edge. 
+
+Thaddeus leaned back in his rickety wooden chair, his fedora tilted low over his brow as he studied the latest case—a mysterious disappearance that had captured the attention of the city. He absently twirled a pencil between his fingers, his sharp blue eyes focusing on the vibrant mural of masked revelers that adorned the wall, a stark contrast to the chaos that simmered just beneath the surface of the city.
+
+As the storm clouds gathered outside, Thaddeus felt a familiar excitement stir within him—a challenge, a puzzle waiting to be pieced together. Little did he know that this case would lead him straight into the murky depths of New Orleans’s underbelly, where danger lurked in every shadow and the truth was as elusive as a ghost in the night.

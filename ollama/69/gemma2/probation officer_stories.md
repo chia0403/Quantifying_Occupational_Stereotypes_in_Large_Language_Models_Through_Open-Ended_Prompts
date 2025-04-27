@@ -1,0 +1,5 @@
+The stale scent of burnt coffee hung thick in the air of Amelia Grace's cramped office. Outside, the pre-dawn sky bled hues of bruised purple and sickly yellow over the sprawling concrete jungle of Chicago. Rain slicked the grimy windows, mirroring the sheen on her desk piled high with case files.  Each one represented another soul teetering on the edge, another life grappling with the weight of their past mistakes. Amelia sighed, rubbing a hand over her tired eyes. Another day, another chance to mend broken lives, or at least try. 
+
+She reached for the file marked "Jenkins, Michael," his name scrawled in bold, angry letters across the front. Michael Jenkins was a recent parolee, convicted of armed robbery and known for his volatile temper. Amelia had a bad feeling about this one.  His probation report was filled with red flags – missed appointments, substance abuse, and escalating threats towards other residents in his halfway house. This wasn't just another case; this was a ticking time bomb waiting to explode. 
+
+

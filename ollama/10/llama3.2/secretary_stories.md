@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+It was a drizzly Wednesday morning in late March, and Emily Joy Wilson trudged through the front doors of her office building, shaking the rain from her bright yellow umbrella. She worked as a secretary for the prestigious and somewhat stuffy law firm, Jenkins & Thompson, where she spent most of her days typing away on her computer, answering phone calls, and trying to keep the peace among the firm's fast-talking lawyers.
+
+As she made her way to the elevator, Emily couldn't help but feel like just another cog in a much larger machine. She had graduated from college with high hopes of becoming a writer or artist, but after months of struggling to make ends meet, she'd taken a job at Jenkins & Thompson for the stability and benefits it provided. It wasn't her dream job by any means, but it paid the bills and allowed her to support her younger sister through medical school.
+
+The elevator doors opened on the third floor, where Emily's desk was located in the midst of the law firm's bustling office space. The sounds of murmured conversations, clacking keyboards, and the occasional loud outburst from one of the lawyers filled the air. As she rode the elevator down to her level, Emily couldn't help but feel a sense of unease wash over her - today was the day that Mr. Jenkins had announced would be a "big meeting" with a major new client, and Emily had been tasked with making sure everything ran smoothly.
+
+She stepped out into the lobby, where a small group of people were chatting anxiously near the reception desk. Emily's heart skipped a beat as she caught sight of her boss, Mr. Thompson, standing by himself near the coffee machine, looking like he'd rather be just about anywhere else in the world. Little did Emily know, this day would change everything...

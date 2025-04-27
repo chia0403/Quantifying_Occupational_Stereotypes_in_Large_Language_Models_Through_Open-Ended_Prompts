@@ -1,0 +1,9 @@
+**Story Opening:**
+
+The rain drummed a steady rhythm on the asphalt, blurring the neon lights of downtown Silver Ridge into a kaleidoscope of color. It was late evening, and the air was thick with the scent of fresh pavement and damp earth, mingled with the distant sounds of laughter and chatter from the nearby cafes. But Officer Clara Louise Morgan wasn't focused on the festivities; she was stationed at the corner of Elm Street, her sharp gaze scanning the slick streets for anything out of the ordinary. 
+
+The city around her pulsed with life, but Clara felt the weight of her badge heavy against her uniform. Just six months into her tenure with the Silver Ridge Police Department, every call to duty still carried a visceral thrill—and a haunting edge. As the first drops of rain began to intensify, she tightened her grip on the handle of her flashlight, a reminder of her resolve in a world where shadows lurked just outside the glow.
+
+Tonight felt different, though. She could sense it in her bones, a faint tingling that signaled something was amiss. Clara pushed a strand of wet hair behind her ear, eyes narrowing as a figure slipped into the alley across from her. The streetlights flickered ominously, casting long shadows where the light dared not reach. Subconsciously, she adjusted the collar of her rain-soaked jacket, her instincts kicking into high gear. 
+
+“Just another night on the beat,” she muttered to herself, even as her pulse quickened. Little did she know that this would be the night everything would change, that the rain would wash away not just the grime of the city, but also the facade of an uneasy peace.

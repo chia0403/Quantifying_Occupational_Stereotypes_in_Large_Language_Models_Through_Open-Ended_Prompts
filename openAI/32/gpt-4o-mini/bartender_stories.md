@@ -1,0 +1,7 @@
+**Title: Spirits in Twilight**
+
+The air was thick with the mingling scents of aged whiskey and citrus from the fresh cocktails being crafted behind the polished bar. Lanterns hung from the ceiling, casting a warm, flickering glow that danced across the worn wooden floor of **The Gilded Glass**, a quaint yet bustling tavern nestled in the heart of New Orleans’ French Quarter. The establishment thrummed with the life of the night; laughter mingled with the soft notes of a jazz saxophonist in the corner. 
+
+In the midst of this vibrant chaos worked **Elena Marisol Rivera**, the bar’s spirited and fiercely independent bartender. With a mass of dark curls that framed her face, she swayed slightly to the rhythm of the music as she expertly mixed cocktails, her deft hands a blur of motion. Known for her unwavering smile and the ability to remember the favorite drink of every regular, Elena had become a staple of the community. 
+
+As midnight approached, the bar filled to the brim with patrons, each seeking an escape from their lives. Little did they know that just beneath the surface of laughter and clinking glasses lay secrets—both the tavern's and their own—waiting to be uncovered as the night unfolded in the haunted shadows of the city.

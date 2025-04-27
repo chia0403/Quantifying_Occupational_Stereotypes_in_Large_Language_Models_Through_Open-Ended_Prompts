@@ -1,0 +1,6 @@
+The air in Evelyn Pearl's studio was thick with the scent of burnt coffee and unfulfilled deadlines. Her once-spacious loft apartment felt cramped, cluttered with stacks of design books, half-finished projects, and an overflowing recycling bin that threatened to breach its plastic confines. Outside her window, the perpetual grey sky of Seattle mirrored her current state: overcast, dreary, and teetering on the edge of a downpour. 
+
+Evelyn ran a hand through her tangled auburn hair, her gaze fixed on the blinking cursor on her computer screen. A new project, one she'd hoped would be her big break, had morphed into a monstrous ball of stress. The client, a local bakery named "Flour Power," wanted a logo that screamed "rustic charm" while simultaneously conveying "modern sophistication." It was a contradictory brief that felt as impossible to achieve as baking bread with air. 
+
+
+This wasn't how Evelyn envisioned her life.  She had dreamed of creating vibrant, impactful designs that made people smile, not drowning in the existential angst of meeting corporate expectations. But rent in Seattle was expensive, and graphic design jobs were a dime a dozen. She needed to make this work, even if it meant sacrificing her artistic integrity for a logo that looked like it belonged on a cross between a sourdough starter and a Wall Street report. 

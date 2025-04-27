@@ -1,0 +1,4 @@
+The greasy spoon diner smelled like burnt coffee and desperation, a familiar aroma to Silas "Red" McAlister. He pushed his worn Stetson back on his head, wiping a hand across his tired eyes.  His rig, a cherry-red Peterbilt he affectionately called 'Ruby,' was idling outside, its chrome gleaming dully under the harsh glare of the desert sun.  Silas's calloused fingers tapped impatiently against the chipped Formica table. He'd been stuck in Dustbowl Junction for longer than planned - a busted transmission and a mechanic with an eye for gold had conspired to eat up his precious hours. The setting sun painted the cracked asphalt highway in hues of orange and purple, stretching endlessly towards the horizon like a burnt-out promise. 
+
+
+The air hung heavy with the silence of forgotten dreams and simmering discontent. Dustbowl Junction was one of those places where time seemed to stand still, trapped between yesterday's hardship and tomorrow's uncertainty.  

@@ -1,0 +1,6 @@
+The scent of jasmine tea mingled with freshly baked croissants drifted through Amelia Rose Hawthorne's small travel agency nestled in a quaint corner of Edinburgh. Sunlight streamed through the arched window, illuminating dust motes dancing in the air and painting warm stripes across her worn oak desk.  Amelia, her fiery red hair pulled back in a loose braid, tapped away at her laptop, her brow furrowed in concentration. She was meticulously crafting the perfect itinerary for Mrs. Worthington, a retired school teacher yearning for an adventure in Peru. But Amelia's own wanderlust throbbed beneath her skin, a restless ache that longed to break free from the confines of her tiny shop and explore the world beyond her window. 
+
+She glanced at a framed photograph on her desk – a faded snapshot of herself standing before the ancient ruins of Machu Picchu, a grin plastered across her face. That trip had ignited something within her, a passion for uncovering hidden gems and sharing those wonders with others. Yet, lately, Amelia felt stuck, tethered to her responsibilities by a weight she couldn't quite name.  
+
+
+Perhaps, she mused, the key to unlocking that weight lay not in her own travels, but in the journeys she helped orchestrate for others. 

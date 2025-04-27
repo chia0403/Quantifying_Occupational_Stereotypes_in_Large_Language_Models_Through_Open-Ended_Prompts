@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+The fluorescent lights of the abandoned high school cast an eerie glow over the dusty hallways, where the echoes of long-forgotten laughter and tears seemed to linger in every corner. The once-proud school, built in 1955 with a gleaming white facade and sweeping curves, now stood as a testament to neglect and decay.
+
+In a small janitor's closet nestled between the classrooms, a lone figure stirred. His name was Emilio Javier Morales, a quiet, unassuming man who had spent over two decades keeping the school's floors spotless despite its dwindling student body. With his weathered denim jacket slung over his broad shoulders and a mop of graying hair, Emilio went about his daily routine with a quiet dedication that belied the weariness in his eyes.
+
+As he methodically swept up crumbs and dust bunnies from under the worn desks, Emilio's mind wandered to the strange occurrences that had begun plaguing the school. Doorknobs would turn on their own, only to jam when someone tried to open them; lockers would rattle with an otherworldly energy, as if something inside was shifting and sighing in frustration; and whispers seemed to emanate from every corner of the hallways at night, like a chorus of restless spirits.
+
+Despite the whispers, Emilio knew better than to investigate. He had seen enough in his years of quiet service to know that some secrets were best left unspoken. But as he emptied the trash cans into the alley behind the school and watched the sun set over the rooftops, casting long shadows across the deserted playground, a sense of unease crept over him like a cold mist. Tonight was different.

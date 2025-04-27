@@ -1,0 +1,6 @@
+The stale air of Gate 42 clung to Eleanor "Ellie" Beatrice Campbell like a second skin. The fluorescent lights hummed above, casting an unflattering pallor over the rows of waiting passengers, their faces etched with varying degrees of impatience and boredom. Ellie fidgeted with the silver name tag pinned to her crisp blue uniform, its edges threatening to poke into her collarbone. 
+
+This was her least favorite part – pre-flight purgatory. The airport terminal, a sprawling labyrinth of duty-free shops, overpriced coffee stands, and echoing announcements, always felt like an oppressive waiting room for something that would inevitably disappoint.  
+
+
+Ellie scanned the boarding queue, half hoping to spot someone familiar - maybe a friendly face from her last flight who might offer a brief conversation about anything other than the weather or airline food. But she was greeted by a sea of unfamiliar faces, their expressions mirroring her own restless anticipation. The gate agent droned on about delays and baggage allowances, his words bouncing off the sterile walls like trapped echoes. Ellie sighed, wishing for the familiar hum of the engines, the gentle rocking motion of takeoff, anything to break this tedious monotony. 

@@ -1,0 +1,5 @@
+Okay, here's a story opening with setting and the main character:
+
+**Story Opening:**
+
+The salt-laced air hung heavy, thick with the promise of an afternoon storm. Elara Maeve O’Connell shivered, pulling her worn denim jacket tighter around her. It was late October in Kennebunkport, Maine, and the picturesque harbor town, usually bustling with tourists, was slowly surrendering to the quiet solitude of the off-season. The wind whipped through the colorful buoys hanging outside the weathered lobster shacks, their cheerful paint chipping under the relentless assault of the elements. Elara found a small amount of shelter on the porch outside the shop. The sign hanging above her head, "Seashells and Sundries: Esther's Emporium," creaked rhythmically in the breeze. It was an old shop, packed floor to ceiling with kitsch and mementos. But what caught Elara's attention were the little signs that said "Handicap Accessable" and "Sensory sensitive hours on Thursday." Inside, she knew, awaited Mrs. Gable, her newest, and perhaps most challenging, client.

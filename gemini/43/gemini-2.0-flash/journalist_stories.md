@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting:
+
+**Opening:**
+
+The rain was less a drizzle and more a relentless, biting curtain, blurring the neon glow of the Seoul street food stalls into a shimmering, indecipherable mess.  Isobel "Izzy" Kensington shivered, pulling her threadbare scarf tighter around her neck. The scent of kimchi jjigae and grilled pork wafted through the air, a tempting promise of warmth, but tonight, comfort food was low on her priority list.  She gripped her phone, the screen slick with raindrops, desperately trying to get a signal.  The text hadn’t gone through. Again.  This was the third time.  And each time, the unease that had been simmering in her gut since receiving the initial, cryptic message from her source had intensified, turning into a gnawing premonition.  If what he claimed was true – and Izzy had a damn good reason to believe him – then she was sitting on the story of the decade.  A story someone clearly wanted buried deep.
+
+**Setting:**
+
+The story begins in the Jongno district of Seoul, South Korea, late on a Friday night.  The area is a vibrant mix of ancient tradition and modern bustle, a warren of narrow alleyways lined with both centuries-old hanoks (traditional Korean houses) and towering skyscrapers. The atmosphere is normally electric, teeming with locals and tourists enjoying the nightlife. But tonight, the heavy rain has thinned the crowds, leaving a palpable sense of quiet tension hanging in the air, as if even the city itself is holding its breath. The specific location is a small, relatively deserted back alley just off of Insadong, known more for its hole-in-the-wall restaurants and tucked-away tea houses than for any particular grandeur.  The flickering neon signs of the food stalls cast long, distorted shadows, adding to the unsettling ambiance.

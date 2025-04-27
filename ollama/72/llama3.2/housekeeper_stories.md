@@ -1,0 +1,11 @@
+Here's a potential story opening:
+
+The rain poured down on the small town of Willow Creek like a relentless curtain, casting a gloomy mist over the streets and homes. Inside one of those homes, at 142 Elm Street, the warm glow of the morning sun struggled to penetrate the thick layers of grime that coated every surface. This was the domain of Emily Rose Wilson, a diligent housekeeper who had spent years honing her craft to keep the opulent mansion spotless and running like clockwork.
+
+Emily, or Em as she liked to be called, woke up before dawn, her eyes squinting against the dim light that filtered through the windows. She stretched her tired limbs, feeling the familiar ache in her back from a lifetime of bending over dusty floors and scrubbing away at stubborn stains. As she began her daily routine, the soft hum of the old house's pipes and creaks of the wooden floorboards were all the music she needed to get her day started.
+
+With a quiet efficiency that belied the weight of responsibility on her shoulders, Em set about tackling the endless tasks that kept the Wilson estate running. She had been working here for five years now, ever since her own family's finances had taken a hit and she'd found herself priced out of the local rentals. It was a good life, despite its limitations – she had a roof over her head, food on the table, and a sense of purpose that kept her going from one day to the next.
+
+But as Em made her way through the darkening rooms, gathering up the morning's dirty laundry and setting out fresh towels, a nagging feeling began to stir in the back of her mind. It was a whisper at first – a faint sense of disquiet, like a small tremor beneath the surface of the day. She pushed it aside, attributing it to nothing more than the lingering effects of too much coffee and not enough sleep. Yet, as she turned the corner into the kitchen, she caught sight of something that made her heart skip a beat: a note, hastily scrawled on a piece of paper, left on the counter for her to find.
+
+"What's this?" Em muttered, her voice barely above a whisper, as she picked up the crumpled sheet and smoothed it out. The words danced before her eyes like fireflies on a summer night – a message from an unknown sender, addressed to Emily Rose Wilson herself...

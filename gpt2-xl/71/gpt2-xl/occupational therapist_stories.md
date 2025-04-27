@@ -1,0 +1,7 @@
+Once upon a time, there was a occupational therapist named John Lewis. He and his wife, Mary and their four children lived in a small apartment, on a block in Manhattan with an airy view of a mountain, called the Gables. John worked there, one weekend a week, with a full-time secretary. The idea was to provide a small but loving environment for their four children — to make them secure and nurturing, giving them everything they needed and hoping that they would develop a taste for life outside.
+
+Their neighbors were many, but they were all very strict. Lewis had learned from his father that there are no nice people, but no bad people either. He knew that he could work with the residents and do good things for them, and he did.
+
+One day, a man came to their house to buy a painting. "What's the deal with these people?" the man asked. "They're crazy," John replied. "They like our neighbors so much, they buy their homes and run up their credit cards."
+
+The salesman looked at Mary. "Don't you have any respect for them?" the salesman asked, and then he leaned in with his voice now softer: "I don't understand you, Mr. and Mrs. Lewis. The neighbors. Their kids play with our kids' friends and they buy our stuff and they don't give anything back. If I were you, I'd run over there and kick the hell out of

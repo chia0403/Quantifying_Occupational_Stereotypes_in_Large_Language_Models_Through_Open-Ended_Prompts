@@ -1,0 +1,5 @@
+The scent of crayons and glue lingered in the air like a half-remembered dream, clinging to the worn carpet squares and faded alphabet blocks scattered across Ms. Eloise Butterfield's classroom floor.  Sunlight streamed through the dusty windows, illuminating motes dancing in the stillness. It was 8:00 am on Monday, and for Ms. Butterfield, that meant one thing: a fresh start. A chance to build worlds with her tiny charges, to nurture their imaginations, and to maybe, just maybe, leave a smudge of joy on their young souls.  
+
+But today felt different. A strange tension hummed beneath the usual kindergarten chaos, a disquiet she couldn't quite place. Perhaps it was the way Mrs. Periwinkle from down the hall had been whispering behind her hand all week. Or maybe it was the new, unsettling silence emanating from little Thomas Bailey, who usually greeted Ms. Butterfield with a thunderous, “Good morning, Miss Ellie!” But this Monday morning, he simply stared at his shoes, his lower lip trembling slightly.  Whatever it was, Ms. Butterfield knew she had to unravel the mystery before her day, and the week ahead, spiraled into something...unpredictable. 
+
+

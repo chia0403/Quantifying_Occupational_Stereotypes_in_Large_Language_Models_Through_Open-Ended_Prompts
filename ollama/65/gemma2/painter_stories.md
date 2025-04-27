@@ -1,0 +1,5 @@
+The air in Amelia Rose Blackwood's studio hung thick with the scent of linseed oil and turpentine, a familiar perfume that usually soothed her soul. But today, it felt cloying, suffocating. Dust motes danced in the shafts of sunlight slanting through the grimy skylights, illuminating the canvases leaning against the walls like weary soldiers. Each one bore the mark of Amelia's struggles – bold strokes that bled into each other, hues clashing in a desperate attempt to capture something, anything, that felt real. 
+
+Her studio was crammed into the attic of an old Victorian house perched precariously on the edge of Beacon Hill, overlooking the bustling streets of Boston below. The city sprawled out like a living tapestry, a kaleidoscope of color and chaos. Amelia loved it – its frenetic energy, its raw beauty – yet today, even the vibrant cityscape seemed to mock her with its vibrancy.  She stared at the blank canvas in front of her, its pristine white surface mirroring the hollowness she felt inside. 
+
+

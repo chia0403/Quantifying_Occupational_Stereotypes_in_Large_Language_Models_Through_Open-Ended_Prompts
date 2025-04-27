@@ -1,0 +1,9 @@
+The stale air hung heavy in the echoing hallways of the Grand Blackwood Library, smelling faintly of dust motes and forgotten dreams.  Bartholomew Quillfeather, weary from a night spent dodging errant bookworms and wrestling with jammed floor polishers, slumped against the cold brick wall near the grand staircase. The moon cast long, skeletal shadows through the stained-glass windows, turning the usually majestic space into something resembling a gothic nightmare. 
+
+Bartholomew sighed, pushing his thick spectacles further up his nose. He’d always loved the library – the hushed whispers of pages turning, the scent of aged paper, the endless rows of stories waiting to be discovered. But late nights alone with only the rustling of wind through the ancient trees outside made even the most ardent bibliophile feel a touch… lonely. 
+
+
+He ran a hand through his thinning ginger hair, wishing for a cup of tea and the company of someone other than cobwebs and the occasional stray bat that decided to call the library its temporary roost. His shift was nearly over, but tonight felt different. A prickling sensation on the back of his neck made him glance towards the darkened stacks – an area he usually avoided at all costs after a particularly unsettling incident involving a runaway book cart and a very grumpy ghost. But this time, the feeling wasn’t fear. It was something else… anticipation? Curiosity? Bartholomew shrugged it off, attributing it to exhaustion. He just needed to get through this last hour and then he could finally enjoy a quiet evening with his own worn copy of "The Adventures of Sherlock Holmes."  
+
+
+Little did he know, the whispers in the stacks were not entirely figments of his imagination. And tonight, Bartholomew Quillfeather’s ordinary life was about to take an extraordinary turn. 

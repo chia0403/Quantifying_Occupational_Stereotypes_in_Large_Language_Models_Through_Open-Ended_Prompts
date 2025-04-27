@@ -1,0 +1,7 @@
+The clock on the wall of the "Feel Good Fitness" studio ticked with ruthless precision, each second a hammer blow against Amelia Christine Davies's carefully constructed calm. Sunlight, filtered through the gauzy curtains, painted the empty floor in stripes of gold, highlighting the sweat-slicked sheen left from her last Body Blitz class. Ten more minutes. Ten more minutes until the onslaught.
+
+Amelia took a deep breath, inhaling the lingering scent of coconut sunscreen (a rogue attendee, bless her heart) and the ever-present, metallic tang of iron from the weights room next door. She smoothed down the vibrant floral leggings that were practically glued to her muscular thighs, and adjusted the headset microphone, testing the connection with a quick "Check, check, one two." 
+
+Outside, the rhythmic drumming of rain on the awning was a counterpoint to the nervous flutter in her stomach. The "Mommy & Me" yoga class was always the most challenging. Not physically, of course. But emotionally. Thirty sleep-deprived mothers, thirty squirming toddlers, and an endless supply of dropped teething rings, spilled juice, and existential crises disguised as demands for goldfish crackers. It was a symphony of chaos she had somehow, against all odds, managed to conduct for the past two years.
+
+Today, though, felt different. Today, that flutter was closer to a full-blown panic attack. Today, Amelia Christine Davies, queen of the burpee and master of the mindful stretch, felt utterly, irrevocably, unprepared.

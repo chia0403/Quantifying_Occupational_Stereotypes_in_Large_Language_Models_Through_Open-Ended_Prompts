@@ -1,0 +1,7 @@
+Once upon a time, there was a income tax preparer named Michael."
+
+That's a good story. It's so good that it's almost a story in itself: in "Michael" the story's protagonist—as is often the case with the most memorable, and least-read parts of fiction—has a happy ending. The character of Michael in this story, however—for which I received some credit as a writer—is a complex one, but as an example of a story that's about as far from my own life as an anecdote can get, it stands out like a sore thumb. So let me offer some insight to help you imagine, for one moment, how that happened.
+
+Here's the backstory: Michael is married to the most amazing wife ever: someone he considers a perfect match. She teaches math at a high school, and she cooks dinner for him every night (a story my friend and I made up while on a walk around Cambridge last summer). They have no kids. They're pretty well off: Michael owned a business that made high-end handbags, and was just getting bought by an import agency for the world's largest manufacturer of designer handbags. The wife's main job was teaching classes for older Americans in their 50s and 60s to help them stay at home, even as the economy was tanking and many of them were starting middle-class lives themselves.
+
+Michael never planned on earning a living from taxes, but

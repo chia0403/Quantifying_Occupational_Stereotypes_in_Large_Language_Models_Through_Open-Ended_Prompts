@@ -1,0 +1,11 @@
+**Title: Shadows of Healing**
+
+**Setting:** It was a chilly autumn morning in the small town of Eldridge, where the leaves turned golden and crimson, carpeting the sidewalks with nature’s transient beauty. The air held a crispness that hinted at the approaching winter, and the scent of wood smoke curled through the streets, reminiscent of homes filled with laughter and warmth. Nestled at the heart of Eldridge was St. Thomas Medical Center, an aging brick building that wore its years gracefully, surrounded by sprawling oak trees and manicured gardens. Inside, the faint sound of bustling nurses and the soft beeping of medical equipment created a symphony of both anxiety and hope.
+
+**Story Opening:**
+
+Emily Catherine Walker adjusted the stethoscope around her neck, the familiar weight a comforting reminder of her responsibilities as a physician’s assistant at St. Thomas Medical Center. With her dark chestnut hair pulled back into a neat bun, and her scrubs freshly pressed, she navigated the busy hallway, her brown eyes scanning the myriad of patient charts that cluttered the nurses' station. Today felt different—an undercurrent of tension hung in the air, amplified by the storm clouds gathering outside the tall windows, threatening to unleash its fury.
+
+As she entered Exam Room 4, the faint scent of antiseptic mixed with something floral—a small vase of wilting roses on the windowsill. There sat her first patient of the day, an elderly man with worry etched across his face. She cleared her throat softly, offering a reassuring smile. “Good morning, Mr. Thompson. How are we feeling today?” 
+
+But as Emily prepared to take his blood pressure, she couldn’t shake the feeling that today would bring more than just routine check-ups and treatment plans. Whispers of something unsettling flickered on the edges of her thoughts, an instinct honed by years of practice, a feeling she had learned long ago to respect—a storm was brewing, not just in the sky but within the very walls of St. Thomas Medical Center.

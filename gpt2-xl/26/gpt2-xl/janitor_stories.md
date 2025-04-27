@@ -1,0 +1,7 @@
+Once upon a time, there was a janitor named John Doe who was working at the St. Joseph Correctional Facility for the Department of Rehabilitation and Correction. That is where he got his name. The day before he was to walk out the door, a guard knocked on Doe's door and demanded to see him. Now, what is the difference between John Doe and the other inmates? John Doe had a job and other inmates had all the time they wanted. That wasn't something you really want in the world of prisons, was it?
+
+When you work at a prison, you have to go every day to do work the inmates have set aside for you. You can't just show up and enjoy the day and walk out the next day. So, you're going to work for your pay. Sometimes, you have someone tell you what to do because they want you to do what they want you to do. So, who works on the day you're coming in? You! Why are you working on this day? Maybe you're in for a surprise.
+
+The other day, I received a call from my lawyer, but I couldn't answer him because I had gotten locked up with my sister, so he had to call my brother, who was in jail. This was a good thing, because we were able to communicate with our family in jail. My lawyer got my lawyer's number from my cellie. So, maybe he was working too.
+
+Now

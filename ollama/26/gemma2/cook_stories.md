@@ -1,0 +1,6 @@
+The aroma of burnt sugar and sizzling onions hung heavy in the air, mingling with the salty tang of the ocean breeze that snaked its way through the open windows of The Salty Spoon.  Inside, the small diner buzzed with the low hum of conversation punctuated by the clinking of silverware against chipped mugs.  Amelia Clementine, known affectionately as "Amy" to regulars, stood at her station, a symphony of controlled chaos unfolding around her. 
+
+Her brow was furrowed in concentration as she flipped a perfectly golden pancake, one of many destined for the hungry faces lining the booths. The diner, perched precariously on stilts overlooking the choppy waters of Port Haven, had been her family's legacy for three generations.  Amy, with her flour-dusted apron and fiery red hair pulled back in a loose braid, was the newest chapter in that story. 
+
+
+The sun dipped below the horizon, casting long shadows across the bustling harbor, painting the sky in hues of orange and purple. The air grew cooler, bringing with it the sound of foghorn cries echoing across the water. Amy wiped her hands on her apron, catching a glimpse of herself reflected in the stainless steel of her griddle: tired eyes framed by freckles, a determined set to her jaw, and a smudge of batter clinging stubbornly to her cheek. She knew the night was just beginning. 

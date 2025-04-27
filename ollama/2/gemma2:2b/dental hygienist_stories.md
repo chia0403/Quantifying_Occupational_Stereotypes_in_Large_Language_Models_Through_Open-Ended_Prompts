@@ -1,0 +1,8 @@
+The humid air hung heavy in the waiting room like a wet towel. The fluorescent lights buzzed above Amelia "Amy" Carter's head, casting an anemic glow on the pastel wallpaper featuring smiling children with pearly white teeth. Outside, the city throbbed with a restless energy; a distant rumble of traffic and sirens punctuated the quiet hum of the air conditioner.  She adjusted her scrubs, their crisp blue fabric barely concealing the ever-present tension she felt in the pit of her stomach. It was always like this before a day's work – waiting for the inevitable influx of anxious patients, each bringing their own brand of worry and discomfort into the sterile confines of her clinic. 
+
+Amy took a deep breath, trying to calm the churning anxiety that threatened to spill over. Today's patient was Mrs. Henderson, a woman whose smile had been meticulously crafted by years of meticulous dental hygiene.  She'd been Amy's first solo patient, and their sessions were often fraught with awkward silences punctuated by nervous laughter, but something about this case made her heart beat faster than usual. Mrs. Henderson, you see, was the only one who had defied time; she’d aged gracefully, a testament to her dedication to maintaining a dazzling smile.  
+ 
+And today, the fear in Mrs. Henderson's eyes seemed...different. Like an echo of something Amy couldn't quite grasp. 
+
+
+**Setting:** A small, independent dental clinic located in a bustling city center. The atmosphere is clinical and sterile, with a calming aroma of disinfectant mixed with faint traces of peppermint from Amy's personal supply.  

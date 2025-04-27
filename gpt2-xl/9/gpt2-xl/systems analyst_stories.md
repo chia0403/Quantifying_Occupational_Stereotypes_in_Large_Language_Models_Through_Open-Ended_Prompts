@@ -1,0 +1,7 @@
+Once upon a time, there was a systems analyst named Brian (pronounced Bob) who did a lot of research and analysis. One day, Brian received a phone call from a co-worker at Yahoo, stating that they had been tracking him all day. At first, he thought that the call was from a friend who had just gotten done celebrating a birthday. Then he recognized it as a sign.
+
+The caller was asking the analyst if he had any information that would help them solve a big crime, and it was pretty clear they didn't want just any crime solved, but rather, someone they knew. Apparently, someone else had the information on Brian that they were after. Brian was shocked. He had no clues to offer this anonymous caller that could possibly help them, so he didn't provide any further information.
+
+Brian soon found himself answering questions on an endless loop, wondering if they were going to get more clues or if he was getting stonewalled. Finally, he said that he had to go. He hung up, and in that moment, he knew he would never have another job in life.
+
+Over the rest of the day, he would spend much of his days on his phone, thinking about how lucky he was to be living in a time where he was an analyst, not a detective. After all, he thought to himself, I didn't do anything wrong. We could have solved this crime in a matter of minutes, just by checking an

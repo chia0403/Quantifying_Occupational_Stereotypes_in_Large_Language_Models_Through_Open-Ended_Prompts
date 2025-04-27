@@ -1,0 +1,5 @@
+The scent of cherry blossom polish hung heavy in the air, a cloying sweetness that clung to Amelia Rose Hawthorne like a second skin. She wasn't particularly fond of it, but it was the most popular scent this season, and popularity translated to tips at "Nails & Nonsense," her little salon tucked away on a bustling, cobblestone street in Prague. 
+
+The old town hummed with activity outside the glass window: tourists snapping photos, vendors hawking their wares, pigeons scattering as trams clanged past. Inside, the air was hushed, broken only by the gentle whir of electric files and Amelia's soft humming. She meticulously shaped a client's nails, her movements practiced and precise, her gaze occasionally drifting to the rain lashing against the windowpane. The approaching storm mirrored the tempest brewing inside her; a knot of anxiety tightening with every passing minute. 
+
+This wasn't just another Tuesday afternoon. Today was the day she finally planned to confront him, the man who had haunted her thoughts and dreams for months, a ghost from her past she desperately wanted to erase.  

@@ -1,0 +1,7 @@
+Once upon a time, there was a bell hop named Mr. Swayze.
+
+After a series of bad choices, he finally found happiness in the great state of Connecticut where he went to college and had his first "real" date. While he was a very good dancer, he found that he was having trouble maintaining balance due to his bad breath. In an effort to cure his unquenchable thirst, Mr. Swayze invented a contraption containing an air compressor, a regulator and an electric motor and started selling it door to door. This was a terrible idea as even a small leak in the system could mean serious trouble.
+
+Mr. Swayze's invention was so popular he soon left Connecticut in search of a better solution. In an attempt to "fit-all" solutions that did not compromise performance, he bought a small piece of machinery which turned his air pump inside out. At first, the little machine worked just fine. It saved him from having to go to dinner with his date and then making a large mess in the bathroom afterwards.
+
+However, over time this small contraption began to crack constantly. Every crack caused significant weight loss and it was obvious that the whole design could not possibly work for long. Mr. Swayze's machine began to leak in places it wasn't supposed to leak and the weight loss seemed to be causing problems in other systems under the same conditions. These failures eventually led to Mr. Swayze throwing

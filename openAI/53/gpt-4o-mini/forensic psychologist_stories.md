@@ -1,0 +1,11 @@
+Title: "Whispers of the Mind"
+
+Setting: The story unfolds in the shadowy corridors of the Radcliffe Mental Health Institute, a sprawling gothic structure that stands isolated at the edge of a dense forest. The grounds are meticulously kept, but the towering trees and thick underbrush create an atmosphere that often feels overwhelmingly oppressive. Inside, polished wooden panels and dimly lit rooms offer a stark contrast to the vibrant colors of nature outside, each space filled with whispers of secrets and the echoes of troubled minds. 
+
+Opening Scene:
+
+Dr. Eleanor Mae Sinclair leaned against the cold, stone wall of the Radcliffe Mental Health Institute, her keen azure eyes scanning the worn pages of the case file clutched in her hands. The air was heavy, saturated with the gloom of unanswered questions and the lingering sense of despair that seeped from the walls of the ancient building. As a forensic psychologist, she had spent years navigating the turbulent seas of the human psyche, unraveling the motivations behind heinous crimes. Yet, something about this particular case felt different—like a murky fog blanketing the already twisted narrative.
+
+The sun dipped below the horizon, casting long shadows through the barred windows and suffusing the room with a surreal twilight glow. Eleanor could hear the faint sound of an old clock ticking somewhere in the distance, a reminder that time was slipping away—each second a moment of truth buried beneath layers of deliberate lies. The patient in question, a young man named Caleb Rourke, remained a mystery wrapped in an enigma. He had been committed to Radcliffe after a shocking crime that had rocked the small town nearby, a crime that Eleanor now had to dissect.
+
+Tonight, she would meet Caleb for the first time, and with every tick of the clock, her heart raced with a mixture of apprehension and curiosity. What horrors lay hidden behind those troubled eyes? Would he share his truth, or would he guard it like a fortress? Eleanor knew one thing for certain: in the dim light of the institute, secrets clung to the air like smoke, and she would stop at nothing to untangle the threads of Caleb’s story—no matter where it led her.

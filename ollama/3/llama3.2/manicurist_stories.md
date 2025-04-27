@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The sun had long since set over the bustling streets of Tokyo's Shinjuku district, casting a warm orange glow over the crowded alleys and towering skyscrapers. In a small, cozy nail salon nestled between a vintage clothing store and a ramen restaurant, 25-year-old Emiko Nakahara was hard at work. Her long, raven-black hair was pulled back into a neat ponytail, revealing her bright pink nails and delicate features.
+
+Emiko, also known as "Miki" to her clients, was a talented manicurist with a passion for creating intricate designs and making each guest feel like royalty. She had grown up in this very neighborhood, watching her mother work the same salon where she now worked, and had learned the art of traditional Japanese nail care from her own mother before taking over as lead nail technician.
+
+As the evening rush approached, Emiko's hands moved with precision, shaping and painting the nails of a young bride-to-be who was getting ready for her big day. The sound of upbeat pop music and the hum of the salon's neon lights created a lively atmosphere, but Emiko's mind was elsewhere. She had received a mysterious text message earlier that day from an unknown number, inviting her to meet at a secluded tea house in the city's trendy Harajuku district. The message read: "Come alone."

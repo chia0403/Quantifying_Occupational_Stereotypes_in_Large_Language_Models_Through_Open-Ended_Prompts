@@ -1,0 +1,7 @@
+Once upon a time, there was a painter named Picasso who studied the way in which modernism was expressed in the art of the day — and that the 'Graphic Novel'. In his own words, 'The novel is like an ocean liner; the ocean has a good deal of water, but it does not stop there.' In the 1930s, he studied this type and produced a style of graphic novels that he himself had coined — the 'postmodern' form, which he was to call, in the late 1960s, the 'graphic novel'. But, for our purposes, here, we'll stick with the 'proto-graphic novel' — the 'tear Gas' style. It is, in this sense, the 'classic' graphic novel, having found its way down to us from its first literary and journalistic forefather, the 'graphic novel' (i.e. the long form of novel).
+
+
+The concept was born during a period when Picasso was exploring new ways of describing and representing his art process. One of the ways he did this was to record the 'painting process' of the artist's hands and fingers on some paper, drawing what he saw and describing what it resembled in various parts. This, then, became the earliest version of the 'painting pad' — a digital version of an idea — which can be seen in the image below.
+
+
+Picasso's concept was to create a pad with a

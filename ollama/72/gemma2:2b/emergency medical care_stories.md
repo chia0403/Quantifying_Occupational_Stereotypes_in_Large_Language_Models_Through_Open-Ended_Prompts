@@ -1,0 +1,5 @@
+The neon lights of the city pulsed against the velvet sky like an oversized heart. Rain slicked the cracked asphalt, reflecting the holographic advertisements that glowed like fireflies in a storm. Every sound felt amplified in this concrete jungle – the screech of tires, the rumble of a distant siren, even the soft "thump" of Amelia's boots on the wet pavement. 
+
+Amelia, known as "Amie" to those who truly knew her, had always thrived in chaos. As an EMT with the city's notoriously understaffed medical response unit, she moved through life at a frenetic pace, each minute a crucial rhythm. Tonight was no different.  She clutched her bag of essential equipment, its familiar weight a comfort in the darkness, as she pulled up to the alleyway entrance marked with an emergency call light. 
+
+It wasn't just the adrenaline pumping through her veins - it was the weight of another life hanging precariously in the balance. This time, it was young Maya, who was bleeding from a gash on her arm and unconscious.  "Don’t worry," Amie whispered to herself, a silent promise to fight for the girl's life as she had promised countless times to do. 

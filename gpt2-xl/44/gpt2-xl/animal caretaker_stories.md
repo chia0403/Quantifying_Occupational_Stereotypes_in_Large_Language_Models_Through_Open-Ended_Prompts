@@ -1,0 +1,7 @@
+Once upon a time, there was a animal caretaker named Miss. You know those people that look like the old lady in the black dress in "The Wizard of Oz"; the ones that were probably old enough to be your mom? She was Miss. And she ran the animals in the zoo or whatever. And she looked at animals like, "Okay, let's put this one in the kitchen, and this one in the barn, and..." And then the end of the movie came, and she ran away and left the animals to rot for a year. The animals who were in the kitchen just sort of went crazy, and they started going around in the barn and the animals in the barn were like, "Look at the big scary scary house! Look at all of these animals sitting on the side of the road! They're eating up all the oxygen!" And all this kind of stuff.
+
+GROSS: And she came back in the ending, but she's not with you?
+
+HONKINSON: She never was there. It was - she was out there. I can't recall what the circumstances were when she came back, but I don't even know how it happened.
+
+GROSS: I want to return to your writing about the experience of being on the set of "Saturday Night Live," which I imagine was kind of disorienting, in the sense that you didn't know when you were going to be on the show. And

@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named Dr. William Sears. He was so famous at one point that even the New York tabloid papers featured him on their front page. Then came one of those great mass media trends of our era – "The Oprah Show". It was very easy for a celebrity to make herself famous, since she could tell stories, play with her hair, make little talk show speeches, give autographed books back to the author, and have someone look all over for her. People watched this show all the time, especially women. You couldn't sit down for days without someone commenting on his appearance. Suddenly, he became famous.
+
+The media had found a new target for their ad dollars and this one was easy prey - a woman who wasn't very concerned about her health and diet. She had something called "self-talk". I believe it is what Oprah called it - "the thought that guides her actions."
+
+Dr. Sears used to wear a turban and a brown sash around his neck in tribute to his religious beliefs. He'd never eat animal products and he loved the fruits of his labour. Eventually, this became a problem for some of his friends and he had to dress in a more conservative way. Soon after, the media caught on to this fad and they called him out by name. Some say that he started to show signs of Alzheimer's from all the publicity that comes with being famous.
+
+If that's

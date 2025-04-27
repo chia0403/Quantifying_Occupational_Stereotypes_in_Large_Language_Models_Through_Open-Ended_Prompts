@@ -1,0 +1,6 @@
+The rusted wind chimes clanged against each other, their mournful melody swallowed by the roar of the approaching storm. Inside the ramshackle hangar at Hangar 79,  Amelia "Ace" Brighton tightened her grip on the joystick, her knuckles white against the worn leather. Rain lashed against the corrugated metal roof, drumming a frantic rhythm that mirrored the beat of her heart. Outside, the sky was a bruised canvas of purple and grey, lightning cleaving through it like jagged teeth.
+
+Ace wasn't one for sentimentality, but the impending storm felt personal, as if the very sky was conspiring against her. The fate of her cargo – a package containing experimental technology she couldn't divulge, only call "vital" – hung in the balance. A single glance at the aging map pinned to the wall beside her confirmed it: this wasn't just any storm. It was the kind that swallowed aircraft whole, leaving behind nothing but scattered debris and whispered tales of misfortune. 
+
+
+Ace ran a hand through her short, fiery red hair, her gaze fixed on the battered P-51 Mustang she affectionately called "Red Devil." This old bird was as stubborn as she was, a testament to their shared history of defying odds and pushing boundaries. But even Red Devil had its limits, and this storm… well, this storm was something else entirely. 

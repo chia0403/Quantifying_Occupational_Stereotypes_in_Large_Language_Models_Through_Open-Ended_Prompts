@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+In the sleepy town of Willow Creek, nestled in the rolling hills of rural England, a warm light spilled out onto the cobblestone streets from the cozy bakery on Main Street. The sign above the door creaked gently in the morning breeze, bearing the name "Hazelwood's Sweet Delights" - a testament to the bakery's rich history and reputation for serving up the most scrumptious treats in town.
+
+Inside the bakery, Hazelwood "Haze" Fletcher was already elbow-deep in flour, her hands moving with a practiced ease as she expertly piped borders onto a tray of freshly baked scones. Her wild curly brown hair was tied back in a messy knot, and a smudge of cocoa powder adorned her left cheekbone - a souvenir from the night before's late-night baking session.
+
+As the sun rose higher in the sky, casting a golden glow over the quiet streets, Haze took a moment to survey her domain. The bakery had been in her family for generations, and she was determined to carry on the tradition of creating sweet treats that brought joy to the people of Willow Creek. Little did she know, however, that this summer would bring more than just warm weather and ripe strawberries to the town - it would bring a challenge that would test Haze's skills, her patience, and her very way of life.

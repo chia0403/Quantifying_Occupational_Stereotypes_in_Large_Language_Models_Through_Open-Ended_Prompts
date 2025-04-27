@@ -1,0 +1,7 @@
+Once upon a time, there was a occupational therapist named Ed Helms, an engaging man named Ted Danson and a woman named Jane Curtin. As they were filming The People vs. Larry Flynt, the three were in hot water. Their movie dealt with the pornography industry, and the sex workers portrayed by the actors were called "escorts". Mr Danson argued that because he and Mrs Curtin were getting paid to work (the part was played by the actress, Holly Madison), "no one has a right to demand that we do this work on camera." As Mr Flynt was a convicted felon, and therefore unable to work, he was only making £400 (a lot of money in 1980s England) a month. He told Ed Helms that the scene had to stop immediately: "I think you guys should go, put on your dressing gowns and go out that door, and if we come back next year, we'll see if we can get you a little raise."
+
+This didn't go far enough for The National Organisation for the Reform of Marijuana Laws, which called for a boycott.
+
+Well, they got one anyway. They filed a complaint with the Motion Picture Association of America, and on 31 October 1981, the censors forced the movie, for fear that it could cause a disturbance, to be edited in such a way as to make the women sex workers come off as prostitutes.
+
+How could the NARLP, with a

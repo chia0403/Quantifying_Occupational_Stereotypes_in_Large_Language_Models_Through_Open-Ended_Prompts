@@ -1,0 +1,7 @@
+Once upon a time, there was a insurance agent named Mark Dantonio. His son, Dan, is now the Michigan coach. And now Dan Dantonio is preparing for his first home game as Michigan coach, facing Ohio State on Saturday.
+
+"He was one of the pioneers, right?" said Dan Dantonio, whose father went to U-M in the late 1950s and worked with legendary coach Bo Schembechler. "For my dad — who would've thought it was possible to go into sports. The thought of, 'Oh, the U-M basketball team was undefeated,' or a U-M football team that was ranked No. 1 didn't quite cross your mind back then."
+
+To be sure, in 1980, the University of Michigan had been on the outside looking in for a while. The Big Ten had come aboard, giving the Wolverines just enough money to take a long, hard look at the world. But even then, not everyone was sold that the Wolverines — at that time ranked 13th in the nation and still ranked No. 2 in early 1980 — could make serious noise in the major college ranks.
+
+"The Big Ten made money," said Dantonio, a former Ohio State quarterback. "It was an extremely strong league. This wasn't the old Big East. I remember the first time that I ever saw Jim Tressel give a speech as the coach of the Buckeyes, and what

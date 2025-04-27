@@ -1,0 +1,5 @@
+The rhythmic clang of the ambulance siren cut through the humid Georgia night, its red and blue lights painting strobing patterns on the slick asphalt. Inside, Amelia Grace Rivers, EMT extraordinaire, meticulously checked her equipment: oxygen tanks secured, bandages fresh, shears at the ready. Her partner, a seasoned medic named Jake, muttered a curse under his breath as he wrestled with a recalcitrant patient, a young man sprawled across the back seat, groaning and clutching his side.
+
+The dispatch call had been vague – "Possible gunshot wound," Amelia remembered, a chill snaking down her spine despite the stifling heat. Now, as they sped towards the flickering yellow light of the local diner, where the injured man was last seen, the details felt all too real. 
+
+Amelia took a deep breath, steeling herself for whatever awaited them. This wasn't just another call; it felt different, heavier somehow. The air crackled with an unspoken tension, a sense that tonight, amidst the chaos of a small Southern town, something truly significant was about to unfold.  

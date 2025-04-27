@@ -1,0 +1,6 @@
+The antique clock chimed three times, its melancholic melody echoing through the cavernous halls of Blackwood Manor. Amelia Thistlewood, her hands perpetually stained with lemon polish and lavender-scented cleaner, paused in her meticulous dusting. A shiver ran down her spine despite the roaring fire crackling in the grand fireplace. She glanced at the portraits lining the walls, their eyes seeming to follow her every movement. The manor was vast, a labyrinth of echoing rooms draped in velvet curtains and shrouded in an unsettling silence, broken only by the ticking of clocks and the occasional creak of floorboards.
+
+Amelia was not easily spooked. Having worked as a housekeeper for the Blackwood family for over twenty years, she’d grown accustomed to the whispers and tales surrounding the manor – whispers of restless spirits and dark secrets buried deep within its walls.  But today, something felt different. The air hung heavy with anticipation, prickling her skin with goosebumps. 
+
+
+As Amelia stepped out from the drawing-room, a gust of wind slammed the front door shut with a deafening thud, sending a jolt through her.  She swallowed, her heart pounding in her chest. Perhaps it was just the storm brewing outside, she thought, but a chilling voice whispered in the back of her mind: something was about to happen. 

@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named J.J. Eberling. She had been in the nursing profession for 17 years when she was killed by a drunk driver, while trying to help another man who had crashed. That driver was subsequently sentenced for DUI and driving drunk. A year later, Eberling had again died from her injuries.
+
+The driver who killed Eberling had his DUI charges dropped in 2009, but the prosecution continued to pursue vehicular homicide charges because he had another conviction for DUI in 2003. After losing the DUI charges, the defendant pleaded guilty to vehicular manslaughter and was sentenced to 10 years probation and fined $18,400. He was also required to attend an anger management program.
+
+After Eberling's death, the defense filed a motion to dismiss the case, alleging the prosecutor committed misconduct by using Eberling's failure to complete the anger management program as an excuse for not pursuing vehicular manslaughter. The trial court held that there was insufficient evidence of the defendant's criminal conduct to support his claim that the prosecutor had committed misconduct.
+
+In 2012, however, the Wisconsin Attorney General's Office requested that the trial court reverse the trial court's order allowing the prosecution to dismiss the vehicular homicide charge. The attorney general alleged that Eberling's DUI was not the cause of her death, as there was no evidence to suggest that she was driving under the influence when she was on the phone with her sister. She

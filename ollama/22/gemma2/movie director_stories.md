@@ -1,0 +1,6 @@
+The late afternoon sun slanted through the dusty window of Amelia Beatrice Sterling's makeshift office, bathing everything in a warm, orange glow. Papers were strewn across her antique desk - crumpled shooting schedules, marked-up scripts, and coffee-stained notes – testament to the relentless churn of pre-production for "Nightshade," her most ambitious project yet.
+
+Amelia, known simply as "Ms. Sterling" on set, was a woman forged in the fires of Hollywood's unforgiving heart. Her piercing blue eyes had witnessed countless triumphs and failures, her weathered hands held both clapperboards and Oscar statues. Now, at fifty-two, she found herself staring down another beast – a low-budget supernatural thriller with a script promising chills and thrills, but carrying the weight of her own past demons on its spine.  
+
+
+The air in the cramped office hummed with anticipation, laced with the faint scent of stale cigarettes and unwashed ambition. Outside, Los Angeles pulsed with its relentless rhythm, oblivious to the quiet storm brewing within Ms. Sterling's mind. Tonight, she would make a decision that could either launch her career into stratospheric heights or plunge it into the abyss. 

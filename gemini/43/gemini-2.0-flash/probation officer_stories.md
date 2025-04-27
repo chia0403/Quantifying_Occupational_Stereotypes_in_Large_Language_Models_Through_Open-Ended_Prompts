@@ -1,0 +1,13 @@
+## Story Opening:
+
+The aroma of stale coffee and disappointment hung thick in the air of the Hopewell County Probation Department. Outside, the October wind howled a mournful tune, rattling the aging windows and mimicking the constant anxiety that gnawed at Eleanor "Ellie" Marie Rodriguez. She stared, bleary-eyed, at the overflowing inbox on her desk, each manila folder a contained explosion of bad decisions and broken promises. This morning, the explosion felt particularly close to home.
+
+A pre-sentence report landed with a soft thud on top of the pile, courtesy of Brenda, the perpetually-harassed receptionist. Brenda gave Ellie a sympathetic wince, already anticipating the inevitable flood of paperwork and phone calls the report heralded. Ellie recognized the name etched on the folder - Michael "Mikey" Davies. A name she’d hoped never to see again. Mikey had been a bright kid, a flicker of genuine potential in a sea of bleak circumstances. Now, at 23, he was facing charges of aggravated assault, a far cry from the college applications he’d once dreamed of sending.
+
+Ellie sighed, pushing the overflowing ashtray – a relic from a bygone era, and a constant source of guilt – further away from the report. She knew this one was going to be a long, hard battle, and a fight against a system that seemed designed to grind people like Mikey into dust. She just hoped she had enough fight left in her to make a difference.
+
+## Setting:
+
+**The Hopewell County Probation Department, Hopewell, Pennsylvania:**
+
+Housed in a repurposed section of the old Hopewell County Courthouse, the Probation Department is a drab, uninspired space. Fluorescent lights flicker intermittently, casting a harsh, unforgiving glow on the peeling paint and stained carpets. Desks are crammed together, separated by flimsy partitions that offer little in the way of privacy. The air conditioning, perpetually stuck on "Arctic," is a constant source of complaints. The break room, a small, windowless space with a perpetually broken coffee maker and a vending machine that only dispenses stale crackers, is a testament to the department's lack of funding and general sense of neglect. Outside, the courthouse square boasts a tired monument to a forgotten Civil War hero, surrounded by patchy grass and overflowing trashcans. Hopewell itself is a small, economically depressed town, clinging to the fading memories of its industrial past. The town's main street is lined with boarded-up storefronts, interspersed with pawn shops and dollar stores. A pervasive sense of stagnation hangs in the air, a feeling that nothing ever changes, and that hope is a luxury few can afford.

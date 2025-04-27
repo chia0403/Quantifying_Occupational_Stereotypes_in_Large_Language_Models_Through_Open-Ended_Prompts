@@ -1,0 +1,7 @@
+Rain lashed against the corrugated iron roof of the dilapidated Victorian house, mirroring the tempest brewing inside Dr. Eleanor Vance, forensic psychologist.  The scent of mildew and decaying wood hung heavy in the air, a constant reminder of the grim reality that awaited her within.  This wasn't her typical caseload.  Not a bank robbery, not a domestic dispute.  This was the meticulously preserved, almost museum-like, home of the renowned eccentric collector, Arthur Finch.  Finch, a recluse who’d amassed a bizarre collection of antique toys, taxidermied animals, and unsettlingly detailed miniature dioramas depicting scenes of violence.
+
+
+The house, nestled deep within the rain-swept woods of Blackwood Hollow, had a palpable sense of foreboding.  Twisted branches clawed at the windows, their skeletal fingers grasping at the gloom.  A constant, low hum emanated from somewhere deep within the house, a sound that both intrigued and unnerved Dr. Vance.  The air felt thick with unspoken secrets, with whispers carried on the wind that seemed to echo the jagged shards of glass scattered on the overgrown lawn.
+
+
+Dr. Vance, her trench coat plastered to her body, pulled her soaked scarf tighter around her neck.  The local police chief, a gruff man named Sheriff Hayes, stood beside her, a knot of worry etched on his face.  "He was found this morning, Doc," Hayes muttered, his voice barely audible above the drumming rain.  "Found... in his workshop.  Seems peaceful enough, but something's just… wrong."

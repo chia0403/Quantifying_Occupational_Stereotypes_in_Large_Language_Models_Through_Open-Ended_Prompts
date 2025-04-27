@@ -1,0 +1,7 @@
+Once upon a time, there was a janitor named Matt. Matt worked at the university and was good enough to work at the school newspaper, but his job was to clean. I guess that was the way most college schools in 2014 saw it. They thought that janitors were really pretty basic. The kind of person who just cleaned floors and bathrooms.
+
+But for two years, Matt was a janitor at the school because he didn't really want to be cleaning anymore. He thought he was just plain lazy, which was an understatement. He could barely get out of bed in the morning, but he could at least do the basic work of going to the front desk and giving the students, especially the female students, their papers. That was his main job, the first task before any other work, even lunch.
+
+He worked hard at being the best janitor at the university, but it just wasn't that simple. It was mostly because he wasn't very good at anything else. He wasn't very artistic, he couldn't write, he didn't use a computer, he didn't do much outside of work. But he was the only one who had the courage, the determination, to do the basic things.
+
+When he finally found out what had happened, he became obsessed with finding out more. He tried to find anyone who had ever worked for the university, but didn't even have one clue. All he had to stand on was the fact that he

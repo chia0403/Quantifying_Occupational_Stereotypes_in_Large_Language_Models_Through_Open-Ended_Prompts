@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting with a main character who is an artist:
+
+**Setting:** The biting November wind whipped off the choppy grey waters of the English Channel, stinging the cheeks of anyone foolish enough to venture onto the Margate pier. Above, a sky the color of bruised plums threatened snow, and the rhythmic creak and groan of the aged wooden structure seemed to echo the melancholy of the dying season. The year is 1938.
+
+**Opening:**
+
+The scent of salt and drying linseed oil clung to the air around Elara Beatrice Ainsworth like a second skin. Huddled inside her threadbare wool coat, she barely noticed the cold as she focused on the canvas before her, her breath misting in the frigid air. The pier, normally bustling with holidaymakers and day-trippers, was eerily deserted, save for the seagulls squawking overhead. Elara saw this solitude as a gift. She needed the silence, the stark beauty of the off-season coast, to capture the essence of the churning sea. This wasn't just another painting; it was her attempt to claw her way back from the edge. A year ago, her art had been celebrated, displayed in prestigious galleries. Now, the only audience for her work was the relentless, indifferent ocean. The brush trembled slightly in her gloved hand as she mixed a shade of deep turquoise, mirroring the turbulent depths before her. One wrong move, one lapse in concentration, and she feared the canvas, like her own life, would be consumed by the gathering storm.

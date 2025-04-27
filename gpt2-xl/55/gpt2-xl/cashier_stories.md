@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named Sue. Sue always seemed to be in the wrong. She would always choose the most expensive soda in the fridge. She would take her eye off the prize--the bottle of Coke--in the aisle. Even when she noticed the prize didn't really exist. Sometimes, Sue could spot all the way from the back corner of the room. She would then put her nose in the middle of the aisle, with her arms straight in front of her. If the prize did not exist, Sue would just walk on by. The prize did actually exist, though. It was a bottle of Coke.
+
+She was also a thief. She stole from stores all the time. She even stole from stores where a reward was given. She would steal it and never bring it back. In fact, she rarely sold anything. In fact, she didn't even like selling anything. If any employee at Coke would get hold of her, she would not give it back for free. She would instead charge them for it. Even then, she never took out the extra cash, and she only ever paid the manager, not the employee. She even claimed to the manager that she did not want any money from the store.
+
+Of course, she didn't keep the merchandise. She destroyed the shelves, and then she would sneak away with it.
+
+Then a new employee came on the job. She was not the very good one though,

@@ -1,0 +1,7 @@
+The wind whipped around Elias Thorne like a scorned lover's touch.  His thick auburn hair, usually tamed under his beanie, was a wild mane that fought against the gusty November air. Rain hammered down on the rusted corrugated iron roof of the old mill building, each drop exploding in a miniature geyser of water as it landed. Elias wiped a hand across his face, leaving behind a damp trail of grime and soot, and cursed under his breath. Another hour of this, another day spent battling the elements and the ever-present gnawing doubt about whether he'd make rent this month.
+
+Elias wasn't your typical roofer. He preferred to think of himself as an artist - not painting masterpieces on canvas, but shaping and molding metal into something beautiful and functional.  Each shingle, each nail hammered with precision, was a brushstroke in his personal landscape. But the city felt more like a hostile wasteland than a canvas these days, its concrete canyons choking his soul and mocking his dreams. 
+   
+**Setting:** A dilapidated mill district in a decaying industrial town on the outskirts of Boston. The air hangs thick with coal smoke and rain-soaked dust.  The buildings are scarred by time and neglect, their once gleaming facades now weathered into a patchwork of grey and rust.
+
+**Character:** Elias Thorne. He's in his mid-thirties, ruggedly handsome with a hint of weariness etched into his face. His hands are calloused, strong, and capable, yet haunted by the weight of responsibility he carries on his shoulders. 

@@ -1,0 +1,7 @@
+The dust devils danced across the cracked asphalt, each swirl a miniature tornado mocking Clayton “Thunder” Jackson's slow-moving truck. The air hung heavy with the aroma of diesel, sweat, and freedom - the smells of a life spent hauling miles across America, a rhythm as relentless as the rumble of his engine. Thunder’s rig, affectionately nicknamed "The Lady," sat precariously on the edge of Devil's Gulch, its chrome reflecting the unforgiving Arizona sun.  
+
+A lone figure stood at the edge of the highway – a silhouette against the fiery landscape. The sky bled into the horizon, painting a vibrant tapestry of orange and crimson as thunderclouds gathered overhead. This wasn’t just another passing storm; it was something deeper, a foreboding presence that whispered tales of forgotten secrets and buried memories. 
+  
+Thunder squinted his weary eyes, tracing the figure's outline with growing curiosity. The silhouette shifted slightly, and Thunder realized - a lone raven circled above, its black wings slicing through the afternoon heat, mirroring his own troubled soul. His hand instinctively reached for the worn leather of his truck's steering wheel, a familiar weight that held years of memories and miles driven. The rumble in his gut was more than just hunger; it was a knot of unease tightening with every passing moment.  
+
+He knew this wasn’t just about delivery. Something deep inside him sensed a shift in the wind, a change brewing as unsettling as the coming storm. 

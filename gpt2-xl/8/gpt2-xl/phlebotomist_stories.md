@@ -1,0 +1,6 @@
+Once upon a time, there was a phlebotomist named Phyllis. She and her colleagues were testing which animals fed up and how, and she went to the great and small cats. Phyllis noticed that a small cat would eat only small prey (she gave the cats the name "jaguar"). Then, one day, she went out with a female of this species. All of a sudden, her phlebotomist began seeing a big cat eating only a rabbit. Phyllis knew that cats did that all the time, because she's seen them do it.
+
+Some years later, when she was working at the National Zoo, she met someone named George Gershwin. Gershwin had read her paper on the jaguar, and she asked him what he thought about what she found. To his credit, he said, "That's fascinating! It suggests that a cat, for a while, will eat only one kind of prey for a short period." Phyllis had discovered that a cat, and perhaps a large cat, can switch from one prey to another in a matter of minutes. George Gershwin had discovered jaguars didn't "gut one prey and pick up another one!" (They did that, as Phyllis discovered, but with the prey in a different place.) He didn't know that they did this all the time.
+
+
+That the behavior could happen is one thing

@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+The sun was setting over the vast expanse of the Red Rock Canyon, casting a reddish-orange glow over the dusty terrain as Ryder Thompson climbed out of his worn-out pickup truck. The air was thick with the smell of grease and diesel fuel, and the sounds of cranes and excavators echoed in the distance. Ryder wiped the sweat from his forehead, surveying the sprawling construction site before him. He had spent countless hours working on this project, as a heavy equipment operator for the local contracting firm, but he still felt like an outsider.
+
+As the newly appointed project manager, Ryder was tasked with overseeing the final stages of the $100 million Red Rock Canyon Highway expansion. The job came with its own set of challenges - from navigating treacherous terrain to dealing with the bureaucratic red tape that seemed to follow every major construction project. But Ryder was determined to see it through, fueled by a mix of pride and stubbornness.
+
+With his hard hat securely fastened, Ryder began to make his way towards the cranes and excavators, checking off equipment on his clipboard as he went. The sounds of the site grew louder, and the smell of freshly brewed coffee wafted from the nearby trailer, where his crew was gathered around a battered old cooler. Ryder couldn't help but feel a sense of camaraderie with his team - they were a rough-around-the-edges bunch, but they knew their stuff.
+
+As he reached the edge of the construction site, Ryder's phone buzzed on his belt buckle. He pulled it out, squinting at the screen to see a text from his boss, Tom Harris: "Meet me at the top of the hill in 20. We need to talk about the scope of work."

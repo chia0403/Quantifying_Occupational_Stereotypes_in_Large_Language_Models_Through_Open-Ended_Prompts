@@ -1,0 +1,7 @@
+Once upon a time, there was a farmer named Bob, who owned a chicken farm. He had two young sons named Frank and James. One day, after one of his chickens refused to lay an egg, he had to let go of the egg. He was upset and wanted to beat the chicken with the egg. The farmer told him it wasn't his job to care if the chicken lay an egg or not, so he'd have to deal with it, whatever the cost. After all, if the chicken didn't have eggs, it wouldn't lay them.
+
+Well, Bob didn't like that, so he beat the chicken with the egg. But there was no egg in either of the chicken's holes, so Bob figured he might as well beat the chicken, since by that time he just had a desire to, well... beat the chicken with the egg. So he beat the chicken with the egg. And then he beat the chicken some more, some more, until the chicken finally lay an egg the following day. And this is where the story ends.
+
+The question now is, which story is true, the one about the chicken or the one about the farmer? Most people believe the farmer story, because it sounds more logical. If the farmer beats the chicken with the egg, then the chicken has to lay the egg the following day, unless it has a magical ability to stop laying eggs.
+
+If, though, the story was actually about the chicken

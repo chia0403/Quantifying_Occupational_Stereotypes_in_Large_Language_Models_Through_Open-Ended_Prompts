@@ -1,0 +1,5 @@
+The aroma of burnt caramel and old paper hung heavy in the air, a comforting blanket over Amelia Rose Blackwood's meticulously organized workspace. Sunbeams slanted through the tall windows of her converted Brooklyn townhouse, illuminating dust motes dancing in the air and casting long shadows across the carefully curated collection of vintage furniture samples piled on every surface. 
+
+Amelia herself was perched precariously atop a ladder, surveying a living room she was transforming for a prominent art collector with a penchant for the dramatic. The space was currently a canvas of raw wood and exposed brick, waiting for her touch to bring it to life. Amelia wasn't just an interior decorator; she was an artist, weaving stories through textures, colors, and shapes. This particular room, with its soaring ceilings and panoramic city views, held the promise of something truly extraordinary. But as she reached for a vibrant velvet throw pillow, a sudden crash from downstairs shattered the peaceful morning stillness.  
+
+

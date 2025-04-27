@@ -1,0 +1,6 @@
+The August sun beat down on Bartholomew "Barty" Finch's neck like an angry blacksmith's hammer. Sweat beaded on his brow, stinging his eyes as he maneuvered another slate tile onto the steeply pitched roof of Mrs. Periwinkle’s Victorian mansion. He could feel the rough grit of the shingles beneath his calloused fingers and the wind tugging playfully at his faded baseball cap. 
+
+Barty whistled a tuneless melody as he worked, his weathered boots clinging to the sloping surface. The sprawling city of Oakhaven unfolded beneath him like a green-and-grey patchwork quilt, its intricate web of streets buzzing with activity that was far removed from his solitary perch atop Mrs. Periwinkle's roof. 
+
+
+He loved this view – the endless horizon, the sliver of blue sky peeking through the smoke plumes rising from distant factories, and the comforting knowledge that he was one step closer to finishing the job. This particular roof was a beast, requiring meticulous precision and unwavering focus. But Barty relished the challenge, finding solace in the rhythm of his work – the measured placement of each tile, the satisfying clink against the metal flashing, the steady progress inching him towards completion. 

@@ -1,0 +1,6 @@
+The rhythmic clink of bones resetting echoed through Dr. Amelia "Amy" Kensington's office. Sunlight streamed through the dusty windows, illuminating motes dancing in the air like fireflies trapped in amber. Outside, the Arizona desert stretched out, an unforgiving landscape of ochre and crimson under a relentless sun. Inside, however, Amy's haven was cool and calm, smelling faintly of lavender essential oil and sandalwood incense. 
+
+She had built this practice from the ground up, brick by aching back, over the past five years. It wasn't always easy, especially in this small desert town where gossip traveled faster than the tumbleweeds that rolled down Main Street. But Amy thrived on helping people find relief from their pain, restoring mobility and balance to their bodies. She saw herself as more than just a chiropractor; she was a healer, a confidante, a beacon of hope in a world often weighed down by aches and burdens both physical and emotional. 
+
+
+Today's patient, a gruff rancher named Hank, sat on the examination table, his weathered face etched with the story of a life spent under the Arizona sun. He had come for relief from a particularly stubborn back spasm that had him doubled over in agony. Amy knew Hank well, having treated his son for a broken leg a few months back. 

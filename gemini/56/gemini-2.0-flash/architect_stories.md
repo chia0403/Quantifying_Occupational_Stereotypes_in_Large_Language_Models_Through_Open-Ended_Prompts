@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring an architect named Eleonora Isabel Vance:
+
+**Setting:** A late October evening in Prague, Czech Republic. The Charles Bridge is awash in the warm, diffused glow of gas lamps, their light bouncing off the Vltava River's dark, swirling surface. The air is crisp and carries the scent of roasting chestnuts and damp cobblestones. Gothic spires pierce the inky sky, silhouetted against a sliver of a waxing moon.
+
+**Opening:**
+
+The last tourist of the day had long since retreated, and the only sounds that echoed across the Charles Bridge were the gentle lapping of the Vltava and the rhythmic click of Eleonora Isabel Vance's heels on the ancient stones. She stopped halfway across, the wind whipping strands of her dark hair across her face. Eleonora drew a gloved hand into the breast pocket of her wool coat, retrieving a worn, leather-bound sketchbook. She flipped it open to a page filled with precise, almost obsessive, sketches of St. Vitus Cathedral. Each gargoyle, each intricate archway, each flying buttress was rendered in meticulous detail.
+
+For weeks, Eleonora had been consumed by St. Vitus, drawn to its soaring ambition and the palpable weight of history embedded within its walls. Tonight, though, the cathedral was not her focus. Tonight, she was searching for something else, a subtle shift in perspective, a hidden line that would unlock the puzzle that had brought her to Prague in the first place: the design of the city's newest and most controversial museum. A museum that, despite its ambitious aim to celebrate Czech modernism, felt jarringly out of place within the city’s historical embrace. And Eleonora, hired as a consultant to try and soften its impact, was beginning to feel the crushing weight of expectation. She shivered, not entirely from the cold.

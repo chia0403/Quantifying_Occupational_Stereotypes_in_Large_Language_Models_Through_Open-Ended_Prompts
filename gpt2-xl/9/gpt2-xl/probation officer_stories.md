@@ -1,0 +1,7 @@
+Once upon a time, there was a probation officer named Frank Kelleher. He was always so impressed with a young lady's sense of entitlement that he wrote her a letter of recommendation without the young lady's consent. In his letter he mentions that he expects that in ten years he'll remember her as an "amazing young lady."
+
+In one of those instances, some time around 1970, Kelleher learned that he would be fired. The reason would later be revealed to me. Although he was a male, and he is by no means a bad person, Kelleher was a pedophile. A convicted pedophile. (More on that later…) He was relieved to find out in 1970 that the FBI's Child Exploitation Task Force would not employ him for his role as this program was beginning to unravel. A few years later, in 1977—about 30 years after he wrote this letter—Kelleher would receive a little girl as "collateral damage."
+
+It wasn't until the early 1970s that America became aware of Child Pornography. The federal government began to understand what it meant when men would email pictures of children. It began to look at the porn-selling network and recognize that it was connected to the distribution of other sexually enticing goods.
+
+At that point, the federal government began an effort, with the intent of bringing these men to justice, to prosecute pedophiles. In a number of cases, arrests occurred, indictments filed

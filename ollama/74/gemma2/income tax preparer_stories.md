@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia Pearl Harrington's head, their sterile glow illuminating a chaos of crumpled W-2s, receipts spilling from overflowing boxes, and half-eaten donuts glazed in despair.  Amelia, despite her carefully applied lipstick and the attempt at normalcy in her neatly ironed blouse, felt as overwhelmed as her cluttered office in rural Oregon. It was tax season, that mythical beast that reared its ugly head every year, promising chaos and stress in equal measure.
+
+This year, however, felt different. A tremor of unease vibrated beneath Amelia's usual weariness.  It wasn’t just the avalanche of paperwork or the relentless ringing phone; it was a sense that something was off, like an unseen current shifting beneath the placid surface of her predictable life. 
+
+
+Amelia glanced at the framed photo on her desk – a faded picture of her late husband, Thomas, his grin warm and familiar. He'd always said she had a gift for numbers, a knack for seeing order in the most confusing jumbles. But lately, even Amelia struggled to find clarity amidst the tax forms and financial anxieties of her clients.  As the aroma of burnt coffee filled the air, Amelia sighed, a deep, weary sound that seemed to echo the unspoken fear gnawing at the edges of her mind: this year, something wasn't going to be as simple as it had always been.

@@ -1,0 +1,1 @@
+Nathaniel Edward Hawthorne

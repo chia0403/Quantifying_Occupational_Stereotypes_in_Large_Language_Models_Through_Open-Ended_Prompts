@@ -1,0 +1,5 @@
+The air hung thick with humidity in the Los Angeles night, mirroring the oppressive weight pressing down on Elias "Leo" Delacroix's shoulders. He stood before his meticulously curated film set –  a crumbling, Art Deco mansion perched precariously on Hollywood Hills. Neon flickered from a vintage marquee above the entrance, casting dancing shadows across Leo’s face. The city below pulsed with restless energy, yet he felt oddly isolated in this haven of forgotten grandeur.
+
+Leo was a man of contradictions: meticulously polished and introspective. His films were lauded for their lyrical beauty and gritty realism, but his personal life remained shrouded in an almost palpable enigma. He lived behind a veil of controlled aloofness, rarely speaking to the press or even interacting with colleagues. This evening's premiere for "The Mourning Rose," his latest cinematic masterpiece, felt like a performance itself – one he was determined to nail, despite a mounting sense of unease. 
+
+Tonight, Leo wasn’t just facing the scrutiny of critics and audiences; he was confronting something far more personal: the ghosts of his past that seemed intent on haunting him once again.  

@@ -1,0 +1,7 @@
+Once upon a time, there was a artist named David Burd who created hundreds of beautiful, whimsical designs featuring the most unlikely creatures. Now, I would suggest that Burd, who once lived for 40 years from 1967 to 2003, should have been given a break. However, his legacy lives on in the hearts of many who love quirky and cute artwork. The internet has an endless supply of art to love: it's filled with artists like David Burd and his contemporaries who create amazing art. However, to celebrate the artist, he was inducted into the Puck of Pop Art Hall of Fame.
+
+Burd began this journey with his most famous work: a cartoon-like picture featuring a fox, a cat, a dragon and a raccoon. When the artist started, he used a large typewriter to produce the artwork. The artwork, now a staple in a number of children's books and comic books, depicts creatures that seem impossible to imagine, but they're as real as can be. They're inescapable, and these little creatures' peculiarities come with the territory of being cute. Many believe Burd's artwork will always bring joy.
+
+Check out Burd's greatest hits below from his Puck of Pop Art Hall of Fame induction ceremony:
+
+Via: BoingBoing (via BoingBoing)

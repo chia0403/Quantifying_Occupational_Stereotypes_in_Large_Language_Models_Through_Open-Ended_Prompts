@@ -1,0 +1,5 @@
+The setting was a symphony of green, stitched together by rows of corn that stretched toward the horizon like an army of hopeful soldiers. Sun-drenched and heavy with the promise of autumn's bounty, the land breathed a humid sigh. Dust devils pirouetted lazily in the distance, tiny dancers across the vast stage of Iowa farmland.
+
+Eliza Mae Harding, her hands calloused and stained the color of earth, stood at the edge of the cornfield, the rusty buckle of her overalls digging into her hip. The air hung thick and heavy, a tangible blanket threatening rain. Eliza Mae scanned the horizon, a familiar worry etching lines into her already weathered face. The sky, a bruised purple in the west, was a liar. It had promised rain for days, and delivered only scorching sun.
+
+She adjusted the brim of her straw hat, its woven threads frayed and softened by years of faithful service. The air held the scent of dry earth and the faint, metallic tang of pending electrical storm, a scent she knew better than any perfume. This year, more than any other, the rain was crucial. This year, Eliza Mae's entire future rested on it.

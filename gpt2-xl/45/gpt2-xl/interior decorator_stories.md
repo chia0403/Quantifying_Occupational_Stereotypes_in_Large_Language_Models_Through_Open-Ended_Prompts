@@ -1,0 +1,7 @@
+Once upon a time, there was a interior decorator named Mary who worked for the family living in an ordinary house for around six years. She had good taste, though, and she had a way with things. She could figure out what was valuable and what was worthless, because she knew everything about the house. That was the beginning of her success, and it was a success she inherited and never lost. She was very proud of her knowledge, and so she kept herself ahead of everyone else.
+
+
+One day — Mary had been teaching some kind of course in the library one Monday morning — one of the students — he was a kind of a boy but a bit strange, like the last time she saw him after the war or the one before that — suddenly got very frightened at the sight of the "big wooden chest," that was the word in which Mary had used to describe the desk on which she was sitting, and he ran away. He did not know why he was so frightened, for Mary had never mentioned the chest, and she did not really pay much attention to that sort of things. But she did look about the room — it was a big room, probably twenty by twenty, she supposed — and she did ask herself one or two questions about the contents, and one of them was, "How can this be the work of a dead man?" After that she forgot the lesson.
+
+
+But the lesson was kept, for several weeks, so that when the student

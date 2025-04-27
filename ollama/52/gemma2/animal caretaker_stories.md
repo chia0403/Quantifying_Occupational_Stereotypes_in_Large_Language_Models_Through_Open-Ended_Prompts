@@ -1,0 +1,5 @@
+The scent of hay and disinfectant hung thick in the air, mingling with the earthy aroma of freshly tilled soil from the vegetable patch outside.  Sunlight streamed through the open barn doors, illuminating dust motes dancing in the breeze. Amelia Beatrice Thorne, better known as "Amy" to the animals under her care, hummed softly as she cleaned out the rabbit hutch. She ran a calloused hand over Patches' soft fur, earning a contented twitch of his nose.
+
+The setting sun cast long shadows across Meadowbrook Farm, painting the rolling hills in hues of orange and purple. Amy, perched on the edge of the barn steps, gazed at the sprawling landscape she called home. This wasn't just a job for her; it was a haven, a refuge where creatures great and small found solace under her watchful eye.  The farm belonged to her aunt Millie, who had taught Amy everything she knew about caring for animals, from soothing a frightened lamb to patching a rooster's broken wing. Now, with Aunt Millie gone, the responsibility of Meadowbrook Farm rested solely on Amy's shoulders. 
+
+

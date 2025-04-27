@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Elijah "Eli" Thorne's office, mimicking the relentless drumming in his head. The neon sign outside flickered erratically, casting grotesque shadows across the cluttered desk where he sat hunched over a lukewarm cup of coffee – the third one that evening. The scent of stale cigarette smoke and desperation hung heavy in the air, as familiar to Eli as his own worn leather jacket. 
+
+The office itself was a testament to years spent on the fringes of society: chipped paint peeled from the walls, revealing glimpses of faded floral wallpaper; a flickering fluorescent light buzzed incessantly overhead; and stacks of case files threatened to topple over at any moment.  It wasn't much, but it was his haven, a refuge from the sleazy underbelly of New Haven he called home.
+
+Eli glanced down at the crumpled note clutched in his hand. A single sentence scrawled across it in hurried handwriting: "Find her, or she's gone forever." The urgency thrummed beneath the words, a frantic plea that resonated with a gnawing sense of dread in Eli's gut. This wasn't just another missing person case; this was personal.  

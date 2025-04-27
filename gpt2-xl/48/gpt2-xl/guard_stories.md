@@ -1,0 +1,7 @@
+Once upon a time, there was a guard named Jabba the Hutt. He was in very poor health and was in serious need of medical attention. When asked why he was in such a serious state, he simply responded: "Do you want money or not?"
+
+If that's not bad enough, he was also a very successful businessman who held many titles in his day. His greatest success was the Galactic Empire, but despite his great wealth and power, there's no indication that he ever paid any taxes or even paid attention to the finances of the government. Instead, Jabba was in a constant state of financial and political chaos, as he fought numerous battles with the Hutts over control of the criminal underworld along with competing criminal syndicates.
+
+The fact that the Hutt was in such poor health meant that he was constantly on edge. He kept on a very close watch on his many enemies, usually making sure that they weren't leaving his palace alive. He was very close to falling into a coma during one of these battles and, since none of his henchmen knew how to take on a Jedi Master who had already been trained by Darth Vader, Jabba thought he had been betrayed. Fortunately, for the Empire, he survived due to one of his underlings taking an ill-fated shot intended for him, saving his life.
+
+After recovering from his coma, Jabba began to see a psychotherapist and took steps to improve his state of

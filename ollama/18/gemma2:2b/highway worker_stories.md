@@ -1,0 +1,6 @@
+The morning air was thick with diesel fumes and the promise of another scorcher.  Dust devils danced across the cracked asphalt of Highway 87, swirling in a chaotic ballet against the backdrop of endless blue sky. "Cinder" McGee adjusted his Stetson, squinting at the rising sun that bled orange onto the horizon. The heat already felt like a furnace blasting from within his back-worn coveralls. It was going to be another day hauling concrete for the state, just one more on the never-ending list of repairs stretching out before him. 
+
+"Cinder," called John, his coworker and friend - a man with a perpetual frown etched onto his face that seemed as permanent as the lines on his truck's bumper. "You comin'?" he barked from behind the towering rig, the engine humming like a grumpy bullfrog. 
+
+
+This was the life Cinder had chosen – lonely yet strangely fulfilling. Working the long, sun-baked stretches of Highway 87 meant years spent in solitude, only broken by the occasional chatter with John or the distant thrum of the other trucks on the dusty highway.  But he wasn’t complaining. He found a strange peace in the rhythm of the construction site -  the methodical thud of his hammer against metal, the steady hum of machinery, and the sheer vastness of the open road stretching before him like an endless canvas. 

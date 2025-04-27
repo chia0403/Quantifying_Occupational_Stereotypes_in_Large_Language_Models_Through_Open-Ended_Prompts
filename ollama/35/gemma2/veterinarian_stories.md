@@ -1,0 +1,6 @@
+The pungent aroma of disinfectant mingled with the sweet, earthy smell of hay. Sunlight streamed through the open barn doors, illuminating dust motes dancing in the air. Amelia Blythewood, her scrubs stained with a medley of animal residue and sweat, surveyed her bustling practice – Pine Ridge Animal Hospital. Outside, nestled amongst rolling hills carpeted in wildflowers, lay the quaint town of Harmony Creek, population 350 and home to more animals than humans.
+
+Amelia loved it here. The quiet charm, the friendly faces (both human and furry), and the challenge of caring for creatures great and small kept her spirit vibrant. But today, a different kind of buzz filled the air. A new patient was arriving - one unlike any she'd encountered before. 
+
+
+The call had come in early that morning, whispered with urgency and tinged with fear. "A creature... strange... never seen anything like it..." The caller had been too flustered to offer more details. Amelia, her curiosity piqued, had geared up for the unknown. Now, as she adjusted a stethoscope hanging from her neck, she couldn't help but feel a flutter of anticipation mixed with apprehension. Whatever was coming through that barn door, it would change Harmony Creek forever.  

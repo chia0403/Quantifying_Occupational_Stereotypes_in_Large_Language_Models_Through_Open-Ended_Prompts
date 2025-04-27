@@ -1,0 +1,8 @@
+The humid Georgia air hung heavy as Bartholomew Thistlewick hummed a jaunty tune, his trowel slicing through the rich soil with practiced ease. Sunlight dappled the manicured lawns of Oakhaven Manor, a sprawling Victorian estate that sprawled across several acres like a sleeping giant. Bartholomew, or "Thistle" as he was affectionately known by the manor's inhabitants, had been tending these grounds for over forty years, his knowledge of every rosebush, oak tree, and patch of wildflowers surpassing even the head gardener's. 
+
+He paused, squinting at the distant eastern horizon where a smudge of purple bled into the cerulean sky. The first hints of dawn were breaking, casting long shadows across the dew-kissed grass. A sense of unease pricked at him, a feeling he couldn't quite place. It wasn't fear, exactly, but a disquiet that sent goosebumps crawling across his tanned arms. 
+
+
+Bartholomew shook his head, dismissing it as the lingering effects of last night's thunderstorm.  The storm had been ferocious, rattling the manor windows and sending sheets of rain down in sheets. Perhaps, he thought, the strange feeling was simply a product of an overactive imagination stirred by the howling winds and flashing lightning. 
+
+He returned to his work, his trowel rhythmically sinking into the soil, burying yesterday's unease alongside a newly planted bed of lilies. But even as he worked, the unsettling feeling lingered, like a whisper on the wind. Something was different today, something out of place. And Bartholomew Thistlewick, the ever-faithful groundskeeper of Oakhaven Manor, was determined to find out what it was. 

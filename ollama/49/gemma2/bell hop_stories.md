@@ -1,0 +1,6 @@
+The air in the Grand Fairmont Hotel hung heavy with the scent of lilies and desperation.  A single shaft of late afternoon sun pierced through the dusty lace curtains of Alistair Finch’s work station, illuminating a cloud of dust motes swirling around him. Alistair, his name tag crookedly pinned to his crisply pressed uniform, meticulously polished a brass tray while listening to the usual symphony of the hotel: hushed voices, clinking silverware, and the distant wail of a child missing their nap. 
+
+He wasn't sure what was more stifling - the heat radiating off the marble floors or the oppressive silence of the empty lobby. The summer rush had died down weeks ago, leaving behind a scattered handful of eccentric regulars and a staff weary of enforced smiles. Alistair longed for the days when the hallways buzzed with excited chatter and the air crackled with anticipation. Now, even the clinking of his polished tray seemed to echo through the vast emptiness.
+
+
+Alistair adjusted the collar of his uniform, its starched white fabric suddenly feeling like a prison. He wasn’t sure what he was waiting for, but something told him this quiet lull wouldn't last forever. The Grand Fairmont had a way of reminding everyone that life, even in its gilded cage, was never truly still.  

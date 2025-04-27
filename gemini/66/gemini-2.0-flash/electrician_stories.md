@@ -1,0 +1,11 @@
+## Story Opening:
+
+The smell of burnt coffee and dust hung thick in the air, a familiar perfume to Elias Vance, master electrician and proprietor of Vance Electrical Services. He hadn’t slept properly in two days, not since Mrs. Hathaway had called in a panic about a flickering chandelier that threatened to ignite her prized collection of porcelain dolls. Sleep was a luxury he rarely afforded himself, especially not when the lights were going out for someone in Havenwood. 
+
+He scrubbed a hand over his tired eyes, the grit of another long day clinging to his skin. The sun, already high in the summer sky, beat down on the dusty glass of his shop window, turning the faded lettering – "Vance Electrical Services: We'll Light Your Way" – a pale, almost ethereal gold. He took another swig of the lukewarm coffee, wincing at the bitter taste. Today's problem wasn't Mrs. Hathaway's delicate wiring, though. Today was the old Mill.
+
+## Setting:
+
+The town of Havenwood, nestled deep in the Appalachian Mountains, was a place where time moved slower than the creek that snaked through its heart. Generations had lived and died within its quiet borders, their stories woven into the very fabric of the weathered clapboard houses and the gnarled oak trees that lined Main Street. It was a place where everyone knew everyone else's business, where gossip traveled faster than a wildfire, and where the rhythm of life was dictated by the changing seasons.
+
+The old Mill, a hulking brick structure that stood on the outskirts of town, was a monument to a bygone era. Once the lifeblood of Havenwood, churning out timber for the booming railroad industry, it had fallen into disrepair decades ago, its machinery rusting and its windows boarded up. Now, it was a silent sentinel, a reminder of the town's lost prosperity and a playground for local teenagers brave enough to trespass on its crumbling grounds. The air around it was thick with the scent of damp wood, decay, and the lingering ghosts of a hundred years of industry. The hum of modern life, the cars on the nearby highway, the distant drone of a television, couldn't quite penetrate the Mill's heavy silence, leaving it steeped in an almost palpable sense of history and, some whispered, unease.

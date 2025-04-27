@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Ms. Amelia Brightwood’s head, casting a sickly yellow glow over the dusty textbooks and crumpled papers littering her desk. Outside, the late August sun beat down on the asphalt of Maplewood High's parking lot, turning it into a shimmering mirage. Inside, however, the air hung heavy with the oppressive silence of an empty classroom. It was the first day back after summer break, and Amelia felt the familiar pang of both anticipation and dread. Anticipation for the fresh start, the blank page that each new year represented. Dread for the endless stream of teenagers she'd be responsible for molding (or trying to).
+
+Amelia sighed, pushing a strand of auburn hair behind her ear. Her reflection in the dusty window pane stared back at her: tired eyes framed by wisps of grey, a weary smile playing on her lips. Twenty years as a high school English teacher had a way of etching lines onto your face, even if you were only thirty-five.  This year, she hoped, would be different. 
+
+

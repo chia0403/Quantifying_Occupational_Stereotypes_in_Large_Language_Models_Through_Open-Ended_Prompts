@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named Walter P. Murphy who had a unique idea to make money with an artificial jaw. He was right that people could see through dentures, but wrong in believing that they were not really there. The false teeth became part of the wearer's natural mouth, and they were not just any teeth; they were actual teeth, from real teeth, of course, but not really. They were the teeth of the first synthetic human body.
+
+The artificial molars were not the first human teeth. When the first artificial limbs came onto the market, people began to make replicas that resembled the artificial limbs themselves. Some replicas actually had a small piece of flesh around them to give them a slight resemblance to a real arm. However, those replicas were often much heavier than the real limbs and their human teeth, and they could cause injury to the hands of persons using them.
+
+The artificial teeth, in contrast, were soft, flexible and pliable. However, they had the downside of creating a constant pressure inside the mouth, thus making it possible to damage small bones in the mouth. While many people made replicas of artificial molars, the real teeth were always considered the most secure as they were the most closely preserved.
+
+For practical reasons, artificial human teeth only came to be used for food serving purposes. They were used on the serving plate of food because of the way that their food-holding surfaces were designed to hold

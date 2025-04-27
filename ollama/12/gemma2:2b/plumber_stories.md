@@ -1,0 +1,7 @@
+## A Drip in Paradise 
+
+**Setting:**  A tropical paradise on a remote island chain nestled between the azure expanse of the Pacific Ocean and the jagged peaks of volcanic mountains. Lush rainforests, sparkling waterfalls, and white-sand beaches dominate this idyllic setting, but beneath its sun-kissed facade lurks a creeping unease that only the whispers of the wind can carry.
+
+**Main Character:**  The name is **Barnaby “Barn” Jackson**, and he’s more comfortable with rusted pipe wrenches than palm trees. Barn, at 42 years old, carries the weary weight of a life spent working under pressure, both literally and figuratively. He's a master plumber with calloused hands and a voice roughened by years spent hauling heavy pipes across sprawling construction sites on the mainland, but now he finds himself in a place where the only real stress is getting enough fresh coconuts before the afternoon tide rolls in. 
+
+He’d traded his dusty work boots for flip-flops and his city slicker’s sharp dress shirt for something more practical - faded cargo shorts and a worn flannel shirt.  But even in paradise, Barn couldn't escape the echoes of his past: a broken marriage and a son he hadn’t seen in five years, who lived with his mother on the mainland. Paradise was supposed to be an escape from that burden, but it felt like a heavy weight, too. A tiny drip, relentless and mocking, began to echo down Barn's spine. 

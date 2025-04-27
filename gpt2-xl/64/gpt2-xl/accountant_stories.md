@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named Joe, and he made $100,000 a year. He thought he was living in paradise. He didn't have to pay taxes, he liked his life, he was sure of his love affairs. But now he has a tax bill of $150,000, and he will do anything to avoid it. He is not a sociopath. Joe isn't a narcissist—he's just a man who likes to take care of himself.
+
+And he is not alone. There are countless people on the receiving end of a bill for more than $150,000 a year. In fact, the IRS estimates that nearly half, a record 56 percent, of Americans have less that $1 million in tax liabilities. And they aren't sociopaths either.
+
+A survey released last year by Gallup and YouGov shows that 47 percent of Americans have no tax liability or low-income tax liability at all. That's a 14 percent increase from 2004. Americans may be able to afford their cars and their college educations, but they don't have the cash to pay their taxes.
+
+If you and I pay our taxes and our bills on time, we usually aren't on the receiving end of a gigantic tax bill either. Most Americans make their taxes work by paying bills on time and by being good budgeters. But millions of tax filers are making the mistakes that Joe made. They are overpaying their bills, over

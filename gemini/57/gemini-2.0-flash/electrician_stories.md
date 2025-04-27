@@ -1,0 +1,5 @@
+The biting wind whipped off the icy waters of the Puget Sound, stinging Amelia "Amy" Rodriguez's cheeks as she wrestled with the heavy generator cable. The November sky was a bruised purple, threatening snow, and the only light came from the flickering bulb hanging precariously above her head and the glare reflecting off the bobbing fishing boats in the harbor. 
+
+Amy, a practical woman with calloused hands and a permanent smudge of grease on her cheek, muttered a curse under her breath. "Damn thing's colder than a witch's tit." 
+
+She was on Pier 57, a rambling collection of weathered docks and seafood restaurants, all desperately trying to cling to the last vestiges of tourist season. The "Seattle Great Wheel," usually ablaze with a kaleidoscope of colors, sat dark and silent behind her, a skeletal silhouette against the impending storm. A power surge had knocked out the entire pier the previous night, leaving the restaurants scrambling and the few remaining attractions shuttered. Amy, owner and sole employee of "Rodriguez Electric," was their last hope for a decent weekend. And right now, she was losing the battle.

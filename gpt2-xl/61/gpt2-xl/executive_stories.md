@@ -1,0 +1,7 @@
+Once upon a time, there was a executive named Bill Cosby. He was the founder of the board game company that would become Zynga, and there's a line in his book where he's talking about the process of developing the first Zynga game and what a bad idea it was. He starts out by saying, "I made the executive team as bad as I could because I did not want us to be any better than we were and because we were trying to be really good at something in a very short period of time."
+
+It's a very interesting book. It's an incredibly honest examination of how this guy goes about creating what is today known as the largest social network in the world. But it also just raises these really interesting, existential questions: What's the point of life? What are you, Bill Cosby? How do you make the world work?
+
+He's sort of talking about this at the moment in his life, he's on trial facing more than 50 felony charges of child molestation. So he talks about this at great length. There's a little bit of him being his own public-service announcement about that, or at least trying to be his own public-service announcement.
+
+I came across this book a couple weeks ago, and it is a great example of that, from a guy who probably will die young, and why that was probably a good idea. We don't really know enough about what that might mean, but

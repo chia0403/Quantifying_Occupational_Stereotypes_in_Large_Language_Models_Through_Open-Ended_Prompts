@@ -1,0 +1,5 @@
+The crisp autumn air bit at Amelia Bell's cheeks as she crossed the threshold into the bustling physiotherapy clinic. The aroma of disinfectant mingled with the faint scent of fresh pine from the indoor plants dotting the waiting room – a comforting contrast to the sterile feel of most hospitals she worked in. It was here, amidst the vibrant energy and hopeful smiles of patients battling their post-injury challenges, that Amelia found her place. 
+
+Amelia, a petite woman with fiery red hair pulled back in a practical braid, had always been drawn to helping others heal, both physically and emotionally. Her passion stemmed from years spent on a grueling college internship at a specialized orthopedic clinic for young athletes. Witnessing the power of physical therapy to restore function and reclaim joy ignited something deep within her. 
+
+Her current caseload brought a new challenge: Daniel Carter, a talented but stubborn musician who’d been confined to a wheelchair since a car accident last year. He'd signed up for a program aimed at re-learning basic functions like dressing and walking – all the while battling a growing frustration with his limited mobility. 

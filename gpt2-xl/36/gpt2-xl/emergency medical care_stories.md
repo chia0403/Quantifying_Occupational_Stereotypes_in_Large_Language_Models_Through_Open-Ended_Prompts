@@ -1,0 +1,7 @@
+Once upon a time, there was a emergency medical care named ER. Today, you know it as "patient." We've added a whole lot to patient management, but we've not had time to update the name.
+
+This post is dedicated to a time in the past that was way different. A better name for this project! For my younger self, this was all about emergency services. I was in a situation that made emergency medical care the right move. Today, things are much different. The most important words in health care are "no" and "do not resuscitate" or "DO NOT RESUSCITATE." No, I don't want emergency services here.
+
+In fact, I really hate them. It's just a waste of time, energy & money. A patient's status changes constantly, sometimes within 10 seconds with a pulse of 30. When a patient dies, his or her families get involved, but it still takes hours. Plus, our health care system makes it too easy for doctors to avoid care simply because they have no insurance.
+
+And so, my idea is to build the most important part of the ER—the patient's family! This means making sure that the patient is taken care off, whether or not EMS has the resources for that. Then, the family gets involved with care & is involved with the patient's death. In short, the health care system gets what it really wants—the right patient at the right time

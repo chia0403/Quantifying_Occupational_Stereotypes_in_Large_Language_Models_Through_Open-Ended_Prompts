@@ -1,0 +1,5 @@
+The bell above Eleanor Beatrice Thistlewick's pharmacy door jingled with the familiar chime of late afternoon customers. The scent of lavender hand sanitizer mingled with old books and dusty wood polish – the comforting aroma that had always defined Thistlewick & Son Apothecary. Outside, the August sun beat down on the cobblestone streets of Little Bleakers, casting long shadows from the gaslight lamps lining the quaint high street.  
+
+Inside, Eleanor meticulously counted out pills behind the mahogany counter, her spectacles perched precariously on the bridge of her nose. She sighed, glancing at the faded floral wallpaper and the dusty bottles lined along the shelves - relics of a bygone era. The pharmacy had been in her family for generations, but lately, business had been slow, replaced by sterile chain stores offering quick fixes and impersonal service.  Eleanor, however, believed in the power of traditional remedies and the personal touch, even if it meant battling dwindling profits and encroaching modernity. 
+
+

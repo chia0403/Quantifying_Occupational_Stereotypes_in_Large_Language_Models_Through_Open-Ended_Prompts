@@ -1,0 +1,5 @@
+The Grand Bellweather Hotel buzzed with a life that was simultaneously glamorous and mundane. It was the kind of place where fortunes were made and broken over high-stakes poker games in dimly lit corners, while champagne flowed freely at lavish parties held on the rooftop terrace overlooking the sprawling city below. Yet, amidst the opulence, there was a rhythm of everyday routine: the clinking of luggage carts, the rustle of silk dresses gliding through hallways, the hushed whispers of secrets exchanged behind closed doors.  
+
+This was Elias Bartholomew Thistlewick’s world. A young man with perpetually rumpled hair and eyes that held the weight of countless untold stories, Elias navigated this symphony of human drama as a bellhop. His worn canvas cap sat low over his brow, casting shadows across his sharp cheekbones as he darted between guests, their suitcases seemingly growing heavier with each passing hour. He was unseen, unheard, yet present in every corner, a silent observer of the grand tapestry of human existence unfolding within the gilded walls of the Grand Bellweather.  
+
+

@@ -1,0 +1,9 @@
+**Story Opening:**
+
+The sun dipped low in the evening sky, casting a warm golden hue over the busy streets of downtown Charleston. The faint sound of laughter mingled with the distant strumming of a guitar, echoing off the cobblestone paths. Nestled between a quaint bakery, with the sweet aroma of fresh pastries wafting through the air, and a vintage bookstore, ‘Nailed It’ stood proudly as a sanctuary for those seeking pampering and a touch of artistry.
+
+Inside, soft jazz floated through the air, creating an atmosphere of calm amidst the bustle. Paintings of vividly colored nails adorned the walls, each one a testament to the skill of the artists who worked there. In the middle of the salon, surrounded by shimmering bottles of polish in every imaginable shade, stood Oliver Julian Sinclair, a talented manicurist with an eye for beauty and a heart full of dreams. 
+
+At thirty-three, Oliver had spent over a decade perfecting his craft, transforming traditional nail care into an exquisite art form. His fingers danced gracefully as he painted delicate florals on a client's nails, each stroke a combination of precision and flair. With his tousled dark hair falling just above his striking hazel eyes, he exuded a calm confidence that made clients feel at ease. 
+
+But as the last customer of the day departed, leaving behind a hint of lavender and a satisfied smile, something shifted in the air. A storm was brewing beyond the tranquility of the salon, and Oliver couldn’t shake the feeling that changes were on the horizon — both for him and for the little corner of Charleston he had come to cherish.

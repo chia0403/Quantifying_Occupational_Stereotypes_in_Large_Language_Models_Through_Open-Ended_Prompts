@@ -1,0 +1,8 @@
+The rain lashed against Sergeant Alaric Thorne’s weathered face, each drop a tiny hammer blow against his fatigue. The wind howled like a banshee through the skeletal branches of the ancient oak forest that ringed Castle Ebonhaven, its mournful cries echoing the desolation in Alaric's heart. He tugged his heavy woolen cloak tighter around himself, offering little warmth against the biting chill of the approaching night. 
+
+Ebonhaven was usually a place of bustle and life. The clatter of blacksmith hammers, the laughter of children playing in the courtyard, the murmur of merchants bartering - these were the sounds that normally filled Alaric's days. But tonight, an oppressive silence hung over the castle, broken only by the relentless storm. 
+
+He squinted through the driving rain, his eyes scanning the darkened keep. The once vibrant banners that flew proudly from its towers now drooped like wounded birds, their colours muted and lost in the gloom. A cold dread tightened Alaric's stomach. Something was terribly wrong.  
+
+
+The forest, usually a tapestry of emerald and gold, was transformed into a sinister black void by the tempestuous night. Thorns snagged at his cloak as he trudged along the overgrown path, each step heavy with apprehension. He was alone on this patrol, the other guards preoccupied within the castle walls, their faces drawn and pale even in the flickering torchlight that spilled from the windows. They had spoken of an unsettling dream shared amongst them - a nightmare of shadows consuming the light, of whispers carried on the wind, and a chillingly familiar figure lurking at the edge of the darkness. Alaric had dismissed it as superstition, but now... now he wasn't so sure.

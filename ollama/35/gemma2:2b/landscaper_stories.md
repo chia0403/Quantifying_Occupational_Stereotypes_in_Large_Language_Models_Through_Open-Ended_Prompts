@@ -1,0 +1,5 @@
+The air hung heavy with the scent of freshly cut grass and blooming jasmine as Elias "Eli" Carter surveyed his domain.  A worn canvas bag slung over his shoulder contained everything from fertilizer to pruning shears; tools of his trade, honed by years in the sun-drenched heart of New Haven's historic district.  The overgrown Victorian mansions lining Elmwood Avenue were his playground, each one a complex puzzle waiting to be solved with trowels and clippers. 
+
+Eli wasn't just a landscaper, not simply someone who tamed unruly weeds and pruned rosebushes for wealthy clients. He saw the souls of these grand old houses in the way they sighed in the breeze or the subtle shift in the shadows cast by ancient oak trees. He felt it in the delicate rustle of leaves on a sunny afternoon. 
+
+Today, however, was different. Today's canvas bag held not just the tools but also a small, hand-sewn pouch containing an inheritance – his late grandmother’s last will and testament, tucked away for years after her unexpected passing. The old woman had left Eli one very special secret: the key to unlocking the hidden garden at the back of Mrs. Hemmings' manor. 

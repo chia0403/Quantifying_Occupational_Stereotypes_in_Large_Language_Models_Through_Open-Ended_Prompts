@@ -1,0 +1,6 @@
+The air hung heavy with the scent of brine and rot as Elara Blackwood adjusted her breastplate, the worn leather chafing against her damp skin. The moon was a pale sliver in the bruised sky, casting long shadows that danced amongst the rusted hulks of abandoned ships lining the docks.  Seagulls shrieked their mournful calls, echoing through the deserted harbor of Saltwind. This was Elara's domain, this desolate stretch of coastline where the land met the sea in a perpetual battle against decay. It was a place where whispers of forgotten legends mingled with the cries of gulls and the creak of rigging. 
+
+Elara, her dark braid whipping around her shoulders with each restless shift, scanned the shadows. The city had gone quiet hours ago, its inhabitants huddled within their ramshackle homes, seeking refuge from the encroaching darkness and whatever terrors it might bring. She felt a familiar prickling at the back of her neck, a sixth sense honed by years of patrolling these lonely streets. Something wasn't right.  
+
+
+The wind picked up, whipping around Elara's boots as she tightened her grip on the hilt of her sword. A low groan echoed from the depths of the harbor, sending a shiver down her spine. It wasn't the sound of a ship settling against its moorings; it was something deeper, more primal. 

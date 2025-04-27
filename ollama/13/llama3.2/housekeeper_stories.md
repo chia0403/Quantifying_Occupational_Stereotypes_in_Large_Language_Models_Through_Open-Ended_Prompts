@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+As the first light of dawn crept through the grimy windows of Ravenswood Manor, housekeeper Emilia Winters stirred the embers of last night's fire in the stone hearth, coaxing it back to life with a gentle touch. The chill of the autumn morning seeped into her bones as she lit a lantern and set about beginning her daily routine, the soft creaks and groans of the old manor house's wooden floorboards echoing through the empty halls.
+
+Emilia Winters had worked at Ravenswood for nigh on ten years, ever since her family's farm was forced to abandon its ancestral home due to financial troubles. She took pride in keeping the manor spotless, despite its reputation for being cursed by the local villagers. As she made her way from room to room, dusting and polishing, Emilia couldn't shake the feeling that there was more to Ravenswood than met the eye - a sense of secrets lurking just beneath the surface, waiting to be uncovered.
+
+The air inside the manor seemed heavy with anticipation, as if something was about to stir, like a beast awakening from a deep slumber. Emilia shivered, despite the warmth of the growing day, and wondered what new mysteries this day would bring...

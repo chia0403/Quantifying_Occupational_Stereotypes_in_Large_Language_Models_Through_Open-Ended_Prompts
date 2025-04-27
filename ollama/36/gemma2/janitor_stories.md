@@ -1,0 +1,6 @@
+The flickering fluorescent lights hummed above Edgar Bartholomew Clementine’s head like a chorus of tired bees. He pushed his mop across the linoleum floor of the Grand Majestic Theatre, leaving behind a trail of damp shine that reflected the dusty stage lights hanging overhead. The air hung thick with the scent of stale popcorn and forgotten dreams – a potent aroma unique to this grand old dame, a theatre whose glory days had faded like the velvet curtains now collecting dust in their heavy folds. Edgar knew every creak of the floorboards, every chipped mosaic tile on the staircase, every loose thread hanging from the plush seats that once held rapt audiences. 
+
+He was the custodian, the unseen hand maintaining this silent world, ensuring it wouldn’t crumble into oblivion while waiting for its next act. Tonight, however, felt different. A strange energy crackled in the air, a tingling anticipation he couldn't quite place. Perhaps it was the full moon casting long shadows across the stage, or maybe, just maybe, the theatre itself was stirring from its slumber, ready to be awakened once more.  
+
+
+Edgar Bartholomew Clementine paused, his mop handle resting against a forgotten prop – a tattered pirate hat that seemed to wink at him in the dim light. He couldn't shake the feeling that something extraordinary was about to happen. 

@@ -1,0 +1,5 @@
+The morning mist clung to the valley like a damp shroud, the air thick with the promise of rain.  Ethan Blackwood, nickname "Big Eddy" to his friends, was wrestling with a stubborn patch of weeds in Mrs. Peabody's rose garden. He swore under his breath, heaving a fistful of dirt at a particularly resilient dandelion. 
+
+Mrs. Peabody’s house loomed large against the backdrop of towering redwoods, its quaint Victorian charm a stark contrast to the wild beauty of the forest surrounding it. Today was one of those days where even the sun seemed reluctant to pierce the veil of grey clouds.  Big Eddy hated these mornings - the endless repetition of weeding, trimming and pruning felt like an eternity when he could be out exploring the sprawling wilderness that lay just beyond the garden walls. 
+
+He squinted at the cloudless sky and sighed. The rain would come eventually. It always did. And yet, the yearning for something more, a bigger adventure than tending Mrs. Peabody’s roses, kept gnawing at him like an unwanted insect in his soul.  

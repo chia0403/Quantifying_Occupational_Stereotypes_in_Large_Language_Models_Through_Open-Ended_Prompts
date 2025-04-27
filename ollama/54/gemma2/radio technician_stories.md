@@ -1,0 +1,5 @@
+The air hung thick with humidity in New Orleans, clinging to Amelia "Amy" Dubois like a second skin as she crouched beneath the warped metal awning of the French Quarter Radio Shop. A chorus of jazz saxophones and chattering tourists wafted through the humid air, a familiar soundtrack to her life. The rhythmic tick-tock of a grandfather clock inside the shop punctuated the cacophony, a comforting metronome in the chaotic symphony of the city. 
+
+Amy ran a calloused thumb over the chipped paint of the vintage Zenith radio she was repairing. A steady stream of sweat trickled down her temple, mixing with the grime that had become a permanent fixture on her face from years spent tinkering with wires and vacuum tubes.  She could hear the insistent buzzing coming from within, a signal begging to be deciphered. Her brow furrowed in concentration as she traced the circuit board, searching for the source of the malfunction. This wasn't just any radio – it was a piece of history, a relic from the golden age of broadcasting that held the whispers of long-gone voices and forgotten melodies. And Amy wouldn't rest until she brought those whispers back to life.  
+
+

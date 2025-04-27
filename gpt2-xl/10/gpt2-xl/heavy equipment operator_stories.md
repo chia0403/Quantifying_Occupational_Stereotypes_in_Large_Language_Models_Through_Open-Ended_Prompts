@@ -1,0 +1,5 @@
+Once upon a time, there was a heavy equipment operator named Steve Jones and his wife Barbara, who live in the hills of South America. They've been farming and living off the land for many generations. Steve and Barbara recently lost 10 acres of their farm in a landslide and decided to go to church. While the Jones clan did not receive any type of financial help from the church, their donations have given the church a way to make sure the world has a place for everyone, even when you need it most. Steve was an inspiration to all the young men and women of the church, so he took his story with him and started a ministry in the valley.
+
+On Monday, Steve died at the age of 87. And like he had given so many others, Steve's legacy lives on in the hearts of his family, the missionaries of his church, and the farmers who make their living in the valleys of South America.
+
+For those who are interested in donating to the church, you can donate online at GoFundMe. To learn more about the family, you can check out the church's website at www.churchofthekingdom.org. Or go check out an interview the church conducted with Steve.

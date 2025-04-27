@@ -1,0 +1,5 @@
+The aroma of sawdust and lavender hung heavy in the air, mingling with the crisp scent of iron and fresh wool. This was the familiar fragrance that clung to Elara Thorne's apron like a loyal shadow. Her workshop, tucked away on a cobbled street hidden behind a sprawling apothecary, hummed with life - threads danced on nimble fingers as she meticulously stitched together a doublet for Lord Alderic, and her needle clicked against fabric in a hypnotic rhythm. 
+
+Elara, known throughout the city of Ebonhaven for her exquisite draping and deft tailoring, was a woman whose creations spoke more eloquently than words. Every stitch, every fold, whispered a story of tailored grace. But tonight, something felt different. A quiet tension crackled through the fabric of her life, a feeling that seemed to echo the storm brewing outside. The winds howled like banshees as lightning flashed across the night sky, illuminating the cobblestones with stark white streaks. Elara's eyes followed a stray bolt, its path leading directly towards the apothecary door. 
+
+

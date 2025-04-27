@@ -1,0 +1,9 @@
+## Story Opening:
+
+The clinking of glass vials was a familiar lullaby to Eleanor "Ellie" Davies. She’d heard it her entire life, growing up above Davies' Apothecary on Willow Creek Road. Now, at 34, she was the one orchestrating that percussive tune, carefully measuring out a compound mixture for Mrs. Higgins' persistent cough. Outside, the wind howled a mournful song, rattling the old windows of the pharmacy and whipping the snow into a frenzied dance across the deserted street.
+
+Ellie frowned, adjusting her glasses. The fluorescent light of the pharmacy buzzed overhead, a stark contrast to the cozy, almost antique, feel of the place. Her grandfather, old Silas, had insisted on keeping the original oak cabinets, their dark wood scarred with years of use, and the hand-painted signage above each section: “Liniments & Salves,” “Tinctures & Elixirs,” “Sundries & Notions.” It was a charm that resonated with the small, rural community of Havenwood, nestled deep within the Green Mountains of Vermont.
+
+But charm didn’t always pay the bills. And tonight, staring out at the blizzard raging outside, Ellie felt a familiar gnawing worry in her stomach. The big chain pharmacies were encroaching, promising convenience and discounts, and Havenwood was slowly shrinking, businesses boarding up their windows one by one. Ellie wasn't sure how much longer Davies' Apothecary could survive.
+
+She carefully poured the last drop of the expectorant into the bottle, capped it, and applied a handwritten label. As she did, the bell above the door jingled, a sharp, jarring sound that cut through the wind's wail. Ellie straightened, forcing a smile. Perhaps it was just old man Hemlock needing his nighttime cough syrup. Or maybe, just maybe, it was a sign that Havenwood wasn't ready to let its little apothecary fade away just yet.

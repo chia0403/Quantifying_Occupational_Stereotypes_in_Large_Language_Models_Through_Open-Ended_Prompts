@@ -1,0 +1,7 @@
+Title: Beneath the Blueprints
+
+In the heart of Morneau City, a sprawling metropolis where steel beams kissed the sky and concrete veins pulsed with life, lay a quaint drafting studio on the fifth floor of an aging brick building. The scent of fresh graphite and the faint hum of fluorescent lights surrounded it, creating an oasis of creativity amidst the city's chaotic rhythm. Here, among the framed blueprints and sketches pinned to the walls, Edwin Harrison Caldwell worked tirelessly, his brow often furrowed in concentration.
+
+It was an unseasonably warm autumn afternoon, sunlight pouring through the tall windows, casting a golden hue over the drafting tables cluttered with rolled-up papers and an array of technicolor pens. Edwin, a meticulous and passionate architectural drafter, poured his heart into every line he drew. Aged thirty-two, with tousled chestnut hair and a perpetual blush of ink smudges on his fingers, he often lost track of time, ensnared in the intricate details of his latest project—a sustainable community center meant to breathe new life into Morneau’s forgotten neighborhoods.
+
+Outside, the bustling sounds of the city lingered—a distant symphony of taxi horns and street vendors calling out their wares. But inside, a quiet focus enveloped Edwin as he adjusted his glasses and leaned closer to his drawing board, his pencil gliding across the paper like a dancer tracing a delicate choreography. Little did he know that on this day, amidst the mundane, a chance encounter would reshape not only his design but the very path of his life.

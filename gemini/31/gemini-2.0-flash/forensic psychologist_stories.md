@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting:
+
+**Story Opening:**
+
+The scent of formaldehyde and decay hung heavy in the air, a morbid perfume that Dr. Vivian Holloway had long grown accustomed to, but never quite learned to love. Tonight, however, it was sharper, more pungent, amplified by the oppressive humidity that had seeped into the bowels of the medical examiner's office.  Vivian adjusted the bridge of her glasses, peering down at the lifeless figure on the stainless steel table. The florescent lights above buzzed with a nervous energy that mirrored her own.  This wasn't just another case; it was a twisted, meticulously crafted puzzle, and the pieces, scattered like fragments of a shattered mirror, seemed to reflect a darkness that chilled her to the bone.  "Damn him," she muttered under her breath, the words aimed at the unseen architect of this macabre scene. "Damn him for knowing exactly how to get to me."
+
+**Setting:**
+
+The story begins in the medical examiner's office of the Metropolitan Police Department in Atlanta, Georgia. It's late July, and the city is sweltering. The office is a cavernous, utilitarian space, a stark contrast to the opulent, verdant cityscape outside.  The walls are a pale, institutional green, stained in places by years of chemical spills and the grim realities of death.  Stainless steel tables dominate the room, each equipped with drains and running water.  Cabinets line the walls, filled with scalpels, bone saws, and other tools of the trade. The air conditioning strains to keep up with the heat, emitting a low, rhythmic hum that seems to underscore the unsettling silence, broken only by the occasional drip of water or the rustle of paperwork. The overall impression is one of sterile detachment, a deliberate attempt to create a buffer between the living and the dead.

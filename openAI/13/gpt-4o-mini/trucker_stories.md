@@ -1,0 +1,7 @@
+The sun dipped below the horizon, painting the New Mexico desert in hues of orange and purple, as the rumble of a heavy-duty diesel engine pierced the quiet twilight. Seventy miles from the nearest town, where the stars began to flicker alive in the darkening sky, Marcus James McCall sat in the cab of his trusty Freightliner, listening to the low hum of the radio and the rhythmic thump of the tires against the asphalt. 
+
+Marcus was a seasoned long-haul trucker, a solitary figure navigating the vast stretches of the American landscape. With a weathered face creased by years of sun and wind, and a beard flecked with gray, he was as much a part of the highways as the asphalt they were paved with. The inside of his truck was his sanctuary—photos of loved ones taped to the dashboard and a collection of well-worn country music albums tucked in the glove compartment. 
+
+Tonight, he was hauling a load of fresh produce bound for the eastern markets. The cab smelled faintly of pine air fresheners and the remnants of a quick meal he'd eaten that afternoon. One hand on the wheel, he took a swig from the thermos of lukewarm coffee on the passenger seat, the caffeine giving him the jolt he needed to push through the last leg of his journey.
+
+As he sped along the deserted highway, pondering the miles ahead, a flicker of movement caught his eye—a dust cloud rising in the rearview mirror. He squinted into the twilight, his instincts sharpening as he prepared for whatever—or whoever—was closing in on him in the dim light.

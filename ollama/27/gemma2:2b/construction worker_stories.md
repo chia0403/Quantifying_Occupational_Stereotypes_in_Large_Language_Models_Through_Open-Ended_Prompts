@@ -1,0 +1,6 @@
+The sun beat down on Elias "Eli" Carter's neck like an angry blacksmith's hammer. Sweat stung his eyes as he surveyed the steel skeleton rising ten stories above the bustling city street. He was perched precariously high on one of the scaffolding platforms, a symphony of metal groaning and shifting beneath him.  The air hung heavy with the smell of sawdust and concrete dust, a familiar aroma that both comforted and unnerved him in equal measure. Eli's worn-down blue work shirt clung to his broad shoulders as he watched the construction crew, their faces etched with exhaustion but also a strange sense of pride, weld a steel beam into place. The city was breathing life into itself, brick by brick, girder by girder, and it all felt like something Eli had been waiting for since he was just a kid. 
+
+
+**Setting:** New Chicago, a sprawling metropolis built on the ashes of its industrial past. It's a city that thrives off both grit and ambition, where every building represents a new story waiting to be written.
+
+**Main Character:** Elias "Eli" Carter,  a man in his late 30s with a calloused hands and a heart as strong as the concrete he worked with.  He's got a quiet demeanor but carries a fire within that burns for something bigger than himself - the legacy of Chicago's skyline. 

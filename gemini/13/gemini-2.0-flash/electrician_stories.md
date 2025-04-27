@@ -1,0 +1,9 @@
+## Story Opening:
+
+The metallic tang of ozone still hung in the air, a thin, biting scent that clung to Eleanor "Ellie" Vance's nostrils even as she held her breath. Her ears rang, a dull hum overlaid with the frantic chirping of crickets. She wiped a smear of soot across her cheek, leaving a dirty streak on her already grime-covered face. Dammit. A surge had fried the ancient transformer, and now the entire Blackwood Research Facility was plunged into darkness. Not ideal, considering they were, supposedly, working on top-secret government projects. 
+
+Ellie flicked on her headlamp, the beam cutting a weak swathe through the oppressive gloom of the underground maintenance tunnel. "Okay, Ellie," she muttered to herself, her voice echoing off the damp concrete walls, "time to figure out how many decades worth of dodgy wiring you just inherited."
+
+## Setting:
+
+The Blackwood Research Facility was carved into the heart of the Appalachian Mountains, a labyrinthine complex buried deep beneath the earth. Originally a Cold War bunker, it had been repurposed over the years into a cutting-edge (or at least, supposedly cutting-edge) research institution. Think sterile white hallways intersecting with dusty, forgotten maintenance tunnels, humming servers juxtaposed with leaky pipes, and the overall atmosphere of a place where secrets were kept, and corners were consistently cut. Ellie's current location was one of those forgotten corners – a narrow, claustrophobic service tunnel winding beneath the main laboratory wing. The walls were lined with exposed pipes and bundles of frayed wires, a testament to the facility's haphazard evolution. Moisture dripped constantly from the ceiling, forming small puddles on the uneven floor, and the air was thick with the smell of damp earth and decaying metal.

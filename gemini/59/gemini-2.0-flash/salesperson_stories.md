@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The flickering fluorescent light in the storage room cast long, skeletal shadows across rows and rows of dusty boxes. Agatha Pruitt, feeling a tremor of unease that had nothing to do with the chill permeating the room, adjusted her scarf and tightened her grip on her tablet. She hated coming back here, even if it was technically part of the sales process. The smell of mothballs and forgotten dreams always clung to her like a persistent perfume. Tonight, though, it was more than just the smell. Tonight, there was a palpable sense of…wrongness.
+
+**Setting:**
+
+The story is set in the sprawling, dimly lit storage room of "Antiquity Emporium," a small, family-owned antique store in the heart of Asheville, North Carolina. The Emporium itself is housed in a creaky, Victorian-era building with a charmingly cluttered storefront. Think overflowing bookshelves, dusty porcelain dolls staring with vacant eyes, and the scent of beeswax polish perpetually hanging in the air. The storage room, however, is a stark contrast to the curated chaos of the shop floor. It's a labyrinth of cardboard boxes, shrouded furniture, and forgotten treasures, a place where the dust bunnies are the size of small dogs and the silence is almost deafening. The single bare bulb that illuminates the space casts harsh shadows, highlighting the decay and adding to the overall atmosphere of neglect and mystery.

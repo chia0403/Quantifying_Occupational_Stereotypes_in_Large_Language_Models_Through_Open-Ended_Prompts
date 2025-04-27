@@ -1,0 +1,9 @@
+Title: **Echoes in the Ether**
+
+In the bustling heart of a city that never seemed to sleep, the flickering neon lights painted the skyscrapers in hues of electric blue and vibrant magenta. The streets were alive with the sounds of chatter, car horns, and the distant thrum of a night club pulsing with bass. Above it all, nestled away on the tenth floor of a dilapidated brick building, was a small, cluttered radio repair shop – “Wave Catchers.” 
+
+Inside, the air was thick with the scent of solder and old circuitry, mingling with the faint aroma of coffee from a chipped mug sitting on the edge of a workbench. Tools hung on the walls like trophies, each one a testament to the countless gadgets that had been revived under the watchful eye of the shop’s owner. 
+
+Hunched over a tangle of wires and circuits, Marco Alexander Turner – a radio technician with a knack for both retro devices and the unexplained – focused intently on the task at hand. His wild curly hair bobbed slightly as he leaned in closer, the glow of a nearby lamp illuminating the concentration etched across his face. It was past midnight, but the third wave of caffeine coursing through his veins kept him alert. 
+
+After years of tinkering, Marco had become something of a local legend for his ability to breathe life into the most forgotten of radios, but tonight was different. As he fine-tuned an ancient model from the 1940s, its crackling voice suddenly broke through the static: snippets of ghostly conversations, snippets of something… familiar. It was just the beginning of what would soon unravel, an echo that would lead Marco deep into the shadows of the city’s hidden stories, drawing him into mysteries that danced just out of reach.

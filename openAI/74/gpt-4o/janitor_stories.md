@@ -1,0 +1,11 @@
+Title: **Echoes of Starlight**
+
+In the heart of the bustling metropolis known as New Alderton, where towering skyscrapers jostled for space with the neon-streaked heavens, there existed a quieter realm. Nestled amidst the chaotic brilliance of the city was the Solace Department Store, a relic from another era. Its grandiose façade, adorned with weathered stone lions and faded Art Deco embellishments, stood as a testament to a time when craftsmanship ruled supreme. It was here, amidst the echoing corridors and dimly lit corners, that Harold Tinsley found his sanctuary.
+
+For twenty-seven years, Harold had served as the night janitor of Solace, navigating its vast, labyrinthine passageways long after the throngs of shoppers had departed. Each evening, as the clock struck nine, the clamor of the day would give way to an enchanting stillness. It was then that Harold embarked on his nightly pilgrimage, mop in hand, accompanied by the gentle hum of fluorescent lights flickering to life.
+
+Harold Tinsley was a man carved by time—his once coal-black hair now threaded with silver, and his hands bearing the calluses of a life devoted to uncelebrated duties. Yet, within his sea-blue eyes resided a quiet wisdom, a lifetime of listening to the whispers of dust and echoes of silences. As he roved the marbled halls, his footsteps synchronized with the cadence of his thoughts, Harold would often pause to gaze through the stained-glass windows filtering the city lights into a myriad of colors.
+
+On nights when the stars aligned and the city subdued its own cacophony to a distant murmur, Harold became an observer of the world far beyond the grime and the gleam. From the rooftop, where he sometimes ventured during his breaks, he admired the dance of constellations reflected in the glass of rival skyscrapers. This was Harold's domain—a realm between forgotten yesterdays and unread tomorrows, where stories were preserved in layers of dust and dreams whispered from every corner.
+
+On this particular evening, however, as Harold swung his mop in rhythmic motions, he felt a peculiar change in the air—a subtle shift that prickled at the edge of his awareness. Unbeknownst to him, tonight would mark the beginning of a mystery long buried within the heart of Solace, a tale waiting to unfurl under the watchful eyes of Harold Tinsley, custodian of secrets.

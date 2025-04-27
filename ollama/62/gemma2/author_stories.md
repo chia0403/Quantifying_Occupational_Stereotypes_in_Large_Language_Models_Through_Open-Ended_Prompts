@@ -1,0 +1,4 @@
+The biting wind whipped around Amelia Hawthorne’s ankles as she stood on the cliffside path, her shawl clinging desperately to her shoulders. Below her, the grey expanse of the North Sea churned restlessly, mirroring the turmoil within her own soul.  Amelia, a once celebrated author, now found herself adrift, her latest novel languishing in the purgatory of rejection letters. Her seaside cottage, usually a haven of creativity, felt more like a prison of her own making. Every creak of the floorboards seemed to whisper doubts about her abilities, every gust of wind carrying away her last remnants of hope. 
+
+
+The setting sun cast long shadows across the rugged coastline, painting the sky in hues of bruised purple and fiery orange. A lone seabird wheeled overhead, its mournful cry echoing Amelia's own feelings of isolation. The air was thick with the scent of salt and impending rain, a fitting metaphor for the emotional storm raging within her.  

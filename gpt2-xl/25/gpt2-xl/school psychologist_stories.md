@@ -1,0 +1,7 @@
+Once upon a time, there was a school psychologist named Eddy, who did an extremely good job of explaining why women find it so hard to get any sex from their men, and how to combat that.
+
+He told them that "men's brains" had two parts. The female brain, which is always on alert for danger, has something called the "prefrontal cortex." In men, this isn't there (hence why they're less "men"). The only thing standing between a woman and a quick orgasm is the frontal cortex, which Eddy said women can "initiate, but men cannot." So the key to getting a woman off is to keep her focused on what he called her "prefrontal cortex' and her "emotional center." He also told them that the reason girls can take in just as many orgasms as boys is because they are programmed to respond to sexual cues from their parents: men, and not women. Women, according to Eddy, have to work harder to get off, and it's just as hard for her to get aroused, because sex, by nature, requires you to trust.
+
+He called her "the slutty, sexy wife who cums in her jeans."
+
+Nowadays, we're in a world that isn't very far removed from that. And if you don't believe my words — if you believe that women's sexuality is as malleable and fluid as men's — look

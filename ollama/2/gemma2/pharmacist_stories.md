@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Amelia Rose Thornton's head, casting a sterile glow over the neat rows of prescription bottles lining the shelves. The air hung thick with the scent of antiseptic and something vaguely floral, probably from the lavender hand sanitizer dispenser next to the counter. It was just past 8:00 pm on a Tuesday, a lull in the usual after-work rush that swept through Thornton's Pharmacy every evening. Amelia leaned against the countertop, her arms crossed, watching the clock tick by with the dull ache of boredom only a small-town pharmacist could understand.  
+
+The bell above the door chimed, startling Amelia from her thoughts. A tall figure in a worn leather jacket stepped into the warm light of the pharmacy. Rain dripped from his dark hair and the collar of his jacket, leaving a trail of water on the faded linoleum floor. He walked with a hesitant gait, his eyes scanning the empty aisles before settling on Amelia behind the counter. His face was obscured by shadow, but his hands were clasped tightly together, knuckles white against the worn leather of his gloves. 
+
+
+This was Elmwood, population 2,473, and Amelia knew everyone who walked through her door.  This man wasn't from around here. The question was, what brought him to Thornton's Pharmacy on a night like this? 

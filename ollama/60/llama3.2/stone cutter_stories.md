@@ -1,0 +1,9 @@
+As the first light of dawn crept over the sleepy town of Ashwood, where the misty River Wysteria wound its way through the rolling hills, Emrys ap Rhys stirred in his small cottage above the family stone quarry. The air was crisp with the scent of damp earth and the sound of birds stirring in the nearby woods.
+
+Emrys, a master stone cutter with calloused hands and eyes that had seen the secrets of the quarry's depths, rose from his narrow bed to begin another day of shaping the ancient stones into beautiful works of art. His fingers itched for the familiar feel of the rough-hewn blocks beneath his tools, as he set about preparing for the long day ahead.
+
+Outside, the sun was slowly rising over the hills, casting a warm glow over the quarry's walls and illuminating the intricate patterns of moss and lichen that clung to the weathered stone. The sound of Emrys' axe striking steel echoed through the stillness as he started his daily routine, preparing for the day's work that would take him deep into the quarry's depths in search of the perfect stone.
+
+Emrys had lived and worked in Ashwood all his life, just like his father and grandfather before him. The family stone quarry was a beloved institution in the town, with Emrys' craftsmanship highly sought after by the local builders and architects. As he made his way down to the quarry, he couldn't help but feel a sense of pride and tradition at being part of something that connected him to the very heart of Ashwood.
+
+Little did Emrys know, however, that this day would bring with it a surprise that would shake the foundations of his life forever.

@@ -1,0 +1,3 @@
+Once upon a time, there was a paralegal named Laura who came to love the world more than her own life. But then there came a new world, where even the world had become nothing to her. The world is full of things that do not care at all about her. They eat her friends and families. It's a brutal world, so it's not surprising how people become cruel.
+
+However, Laura has a secret. She is a paralegal, with a master's degree and an outstanding client record. But her secret is about to be revealed, and if she doesn't find a way to get help, she could be lost in the world of the wild animals.

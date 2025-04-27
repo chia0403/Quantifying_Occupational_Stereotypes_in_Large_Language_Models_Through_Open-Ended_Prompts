@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Dr. Walter Freeman. Freeman took the Hippocratic Oath and followed the Fourteen Points to the rescue of patients. This was the doctor who helped save those suffering with multiple personality disorder. For more than 50 years, Dr. Freeman was lauded a hero, and his life story would be his legacy. However, he went on to become a great evil… and his patients became the victims of his misdeed.
+
+Freeman was a man so obsessed with the theory of multiple personality disorders that he had a whole department devoted to them. Freeman also believed that his patients were completely separate personalities inside of their own heads, thus he put them into what he called "mood boards." There, the patients were able to "envision" their personalities and see how many were still inside. It was not until one of these patients died that Freeman realized something was wrong.
+
+The autopsy on the patient led Freeman to believe that there were different personality structures in the brain. The patient with one personality was the patient we are familiar with throughout the rest of the movie. However, the other personalities weren't different personalities. They were inside different patients completely separate from one another.
+
+In his quest for answers, Freeman created an elaborate set of test, which he would then use to "break" his patients down into specific personalities in order to study their behavior and identify the patterns or patterns in their personalities, which would then help Dr.

@@ -1,0 +1,6 @@
+The whirring of the pre-flight safety demonstration echoed through the cabin, punctuated by the occasional muffled cough from a passenger in row 23. Amelia "Amy" Rose adjusted her crisp blue uniform, smoothing down the ever-present wrinkles that seemed to magically appear with every turbulence bump. She could feel the familiar pre-flight jitters - a mix of nervous energy and anticipation - prickling beneath her skin. This wasn't just any flight; this was Flight 724, heading from bustling Los Angeles International Airport to the secluded island paradise of Bora Bora. A getaway for many, but for Amy, it was a chance to escape the monotony of her life in California and explore a world she only ever dreamt of.
+
+Bora Bora, with its turquoise lagoons shimmering beneath the volcanic peaks, was a vision she'd kept pinned to her bedroom wall since childhood. Now, as she glanced out the cockpit window at the cityscape shrinking below, the reality of that dream felt almost tangible.  
+
+
+The air inside the cabin was thick with anticipation, punctuated by the hum of anticipation and the clatter of trays being prepared for take-off. Amy took a deep breath, reminding herself to smile - it was her duty, after all, to make this journey as pleasant as possible for her passengers. Little did she know, the next few hours would be anything but ordinary. 

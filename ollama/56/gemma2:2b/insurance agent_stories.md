@@ -1,0 +1,6 @@
+The scent of stale coffee clung to the air in Mr. Bartholomew "Bart" Sterling's office, like an unwanted guest lingering after a party. The window, perpetually shrouded by grime despite the countless cleaning attempts by his overworked assistant, offered a view of a rain-washed city that had become as dull as the paint on his cubicle wall.  His gaze lingered on the crumpled letter he’d been avoiding all morning: it was another rejection for his latest insurance proposal, this one from Mrs. Patterson's quirky "Pigeon Trust" - an organization with more pigeons than people, according to Bart’s cynical intern, David. 
+
+Bartholomew Sterling was a man of logic and precise plans, which made his recent life situation… chaotic. He had always believed in order, in meticulous control, even in the seemingly insignificant chaos of a messy apartment or an unorganized filing cabinet. Yet,  life itself seemed to be pushing him off-kilter, like a rogue wave disrupting his carefully constructed ocean of stability. 
+
+
+**Setting:** Bart's office is in a run-down downtown building in Chicago. It's a space filled with more paperwork than sunshine. He works as an insurance agent, and the clients he deals with represent a wide range of peculiar circumstances - from pet owners who insured their goldfish to eccentric artists trying to protect their sculptures. 

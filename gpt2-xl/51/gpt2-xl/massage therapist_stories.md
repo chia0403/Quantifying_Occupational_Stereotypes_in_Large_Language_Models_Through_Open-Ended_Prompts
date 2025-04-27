@@ -1,0 +1,7 @@
+Once upon a time, there was a massage therapist named Jane, who was able to give me all kinds of things for free: the promise of more free things. One of them was, "You won't even know who was doing it."
+
+We're going to get that massage therapist back! As a treat, in celebration of our campaign ending on a high note, I get to use her name for the next project. I'm guessing the people on the fence over getting to know her will get to know her.
+
+Oh, and we're doing a free 3-day live stream conference. If you want to get a little preview, you can follow the hashtag #getwork. (Or you can listen to the live stream over at r/getwork, which I think is a better resource than this blog post can ever hope to be. This time we're not asking our readers for money, and we're doing things differently this time.)
+
+The first day is Friday, November 4th at 11AM PT and Saturday, November 5th at 11AM PT. It's $10 a day for 30 days. The money we raise will go to the project, but we're already over halfway to our fundraising goal so we won't be turning it down. The live stream will also help us get our video games up on Steam Greenlight, because we want to bring our products to a wider audience. (Just to add icing to the cake: if we get

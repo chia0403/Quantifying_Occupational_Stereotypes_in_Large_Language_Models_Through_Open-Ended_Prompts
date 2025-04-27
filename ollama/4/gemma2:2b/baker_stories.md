@@ -1,0 +1,3 @@
+The scent of rosemary and warm yeast hung thick in the air, mingling with the tang of sea salt from the nearby shore. Amelia Hawthorne's small bakery, "Three Hearts Flour," sat tucked between a vintage bookstore and a boisterous fish market on the quaint cobbled streets of Port Haven. Every morning, as the sun painted the sky in hues of blush pink and apricot, Amelia would greet her regulars with an infectious smile and offer them freshly baked croissants that smelled like promises of new beginnings.  
+
+But today was different. A chill wind whipped through the town square, sending a shiver down Amelia's spine despite the warmth of the oven behind her. The air thrummed with an unnerving silence; even the usual boisterous chatter from the market seemed to have vanished. 

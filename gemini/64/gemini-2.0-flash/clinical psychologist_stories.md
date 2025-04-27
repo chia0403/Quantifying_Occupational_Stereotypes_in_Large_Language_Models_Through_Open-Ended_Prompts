@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The insistent chirping of Bethany Eleanor Carter’s landline phone was the only sound louder than the blood pounding in her ears. She stared at the swirling condensation on her lukewarm mug of chamomile tea, willing the ringing to stop. It wouldn’t. Not anymore. Not when the phone was a lifeline – a thin, fraying thread connecting her to a fragile grip on reality. Letting it ring meant accepting the silence that followed, a silence that swallowed her whole and filled her with the echo of screams she couldn’t quite place, screams that clung to the edges of her mind like cobwebs. With a sigh that seemed to deflate her entirely, Bethany reached out and snatched the receiver, the plastic cold and slick against her palm. "Dr. Carter," she managed, her voice a husk, hoping against hope it wasn't him.
+
+**Setting:**
+
+Bethany Eleanor Carter’s world was contained within the walls of her Victorian-era home office in the sleepy coastal town of Port Blossom, Maine. The house, once a vibrant hub for her family, now felt cavernous and overwhelmingly silent. The office itself, however, was an attempt to maintain order in the face of inner chaos. Bookshelves overflowing with psychology textbooks and well-worn novels lined one wall, facing a plush, antique chaise lounge upholstered in a soothing shade of teal. A large, bay window offered a panoramic view of the turbulent Atlantic Ocean, a constant reminder of the unpredictable nature of the human psyche. On her desk, meticulously organized files sat beside a half-finished jigsaw puzzle depicting a tranquil Monet garden. The air, thick with the scent of lavender and old paper, was a carefully constructed shield against the storm raging within her. The comfort and familiarity of the room were a necessary facade, a space where she could, at least for an hour at a time, help others navigate their own personal tempests, even as her own threatened to consume her.

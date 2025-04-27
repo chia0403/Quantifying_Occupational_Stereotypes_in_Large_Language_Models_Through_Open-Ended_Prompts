@@ -1,0 +1,5 @@
+The humid Atlanta air clung to Amelia "Amy" Grace Hawthorne like a second skin as she stepped out of her beat-up Ford Focus.  Sweat prickled at the nape of her neck despite the fact that she'd already splashed on a healthy dose of antiperspirant. She adjusted the strap of her canvas tote bag, the one with the faded image of a martini glass and the inscription "Sip Happens." It held more than just her lunch - today was a big day for Amy. This sales pitch at Suncoast Properties, a luxury condo complex perched precariously on the edge of the city's skyline, could be her ticket out of her cramped apartment and into something... nicer.  
+
+The glass towers of Suncoast glittered under the relentless July sun, a shimmering mirage against the azure sky. Amy took a deep breath, trying to quell the flutter in her chest. This wasn’t just any sales pitch – it was for a penthouse suite with a panoramic view of the city, a balcony big enough for a yoga session, and amenities that would make a king jealous. It was a dream, both for her potential client and for Amy herself.  She had to nail this one. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named James Nachtwey. James was from Wisconsin, and after working on the campaign trail with George H.W. Bush, he was hired by Ronald Reagan's political team for a full-time job. He did not become a political photographer, however, until his retirement. Nachtwey became an international celebrity as he took pictures of people such as John F. Kennedy, Lyndon B. Johnson, Richard Nixon and Ronald Reagan. He worked for the New York Times for 16 years before they asked him to work out of their headquarters. During his time in the newsroom, Nachtwey met his wife, Jean, who he eventually divorced for "infidelity." They have been married 55 years. Now, in his third decade of professional photography, I spoke with Nachtwey at his home on a quiet suburban street in Minneapolis, as he prepared for his latest project: the cover of a major international photo magazine.
+
+MPR: What was it that first sparked your interest in photography?
+
+JN: The first camera I ever owned was a Bell & Howell. I had just finished graduate school, and had left to live at a different institution. I had my own apartment to myself. That was my first piece of film; it was the first time I shot. I did a series on my own, but I couldn't get an assignment for it.
+
+MPR: You shot a cover of

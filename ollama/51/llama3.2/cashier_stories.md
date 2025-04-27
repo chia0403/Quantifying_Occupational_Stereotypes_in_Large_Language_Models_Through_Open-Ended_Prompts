@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The fluorescent lights above the checkout counter cast an unforgiving glare on the worn Formica countertops of Samatha Elaine Thompson's workplace, Sam's Saver Supermarket. It was 4:45 PM on a sweltering summer afternoon in June, and the sun had just begun to set outside, casting long shadows across the deserted parking lot. Inside, the store was quiet, with only a handful of customers scattered about, mostly retirees and families grabbing last-minute groceries for dinner.
+
+Samatha Elaine Thompson, or Sam to her coworkers, stood behind the register, her eyes scanning the cash register's screen as she tallied up the day's earnings. At 22 years old, she had worked at Sam's Saver Supermarket since high school, and it was a job she knew well - from restocking shelves to handling disputes between customers. As the final transaction of the day came in, a young mother with two rambunctious children checked out, chattering away on her phone as she paid for her groceries. Sam exchanged a tired smile with her coworker, Rachel, who was ringing up a customer's purchases at the next register.
+
+Just as the mother finished paying and headed back to her car, the store manager's voice crackled over the intercom, announcing a sudden arrival of a prominent businessman who required special attention. The lights flickered for a moment before steadying, plunging Sam into an uneasy silence - it seemed that this ordinary day at work was about to take an unexpected turn.

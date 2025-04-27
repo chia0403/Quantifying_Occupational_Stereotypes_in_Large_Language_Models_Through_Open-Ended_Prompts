@@ -1,0 +1,6 @@
+The sun beat down on Elias "Eli" Blackwood's back like a blacksmith's hammer, each blow reverberating through his already aching muscles. Dust motes danced in the air, illuminated by the harsh glare reflecting off the steel girders of the half-built skyscraper piercing the morning sky. The cacophony of construction surrounded him – the screech of metal against metal, the rumble of concrete mixers, and the gruff shouts of foremen barking orders. 
+
+Elias wiped a bead of sweat from his brow, its salt mingling with the grime already caked on his face. He squinted through the haze, watching the foreman, Big Tony, gesture towards a pile of rebar protruding from a partially erected floor slab. "Blackwood, you and Ramirez get up there and secure that mess before someone trips and breaks their neck!"  Eli sighed, another day in paradise. 
+
+
+This was his world – steel and grit, sweat and toil, the constant hum of progress amidst the chaos. It wasn't glamorous, but it paid the bills and kept a roof over his head. Today, however, Eli felt a prickle of unease, a disquiet that had nothing to do with the heat or the demands of his job. He couldn't shake off the feeling that something was different, something about the way the morning light slanted across the construction site, something in the air itself… as if the city held its breath before an unspoken storm. 

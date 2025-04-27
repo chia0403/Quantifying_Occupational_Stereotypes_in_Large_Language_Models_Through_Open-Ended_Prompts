@@ -1,0 +1,7 @@
+Once upon a time, there was a dietician named Jane. Jane was a vegetarian – and if her name sounds familiar, it's probably because she authored The New vegetarian Word (see here on Amazon), an "encyclopedic" reference book that tells you all about the many, many delicious ways to eat meat-free or low-meat meals. (This is one reason why I love Jane – she's a voice on the other end of the radio, calling to mind recipes which make my life feel like a feast.)
+
+Anyway, Jane was a bit of an expert on diet. She had a small store at her gym in the West End. And she had a secret weapon: vegan hot cakes! "When I saw how vegan chefs cooked them, my blood started getting hot," she once said. "We are always going to be looking for the perfect replacement for traditional meat, with this way of eating you don't have to feel guilty about eating it…You can even use it to your advantage at the gym if you want to use the vegan products for your nutrition."
+
+And when she brought in her vegan hot cakes, the vegan hot cakes revolution was born!
+
+Now I've never bought a new dietician (although if I had an opportunity, I'd make an appointment to do so!). But what you guys can do here is try Vegan Hot Cakes yourself. They're so delicious, and so easy. And it's a wonderful introduction to vegan

@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named Julie E. Smith. Smith's job was to help homeless men, women and children in the inner city of the Detroit Metro area, but her job wasn't just to help people. She also had a unique job that would be impossible today: she actually cared for the elderly.
+
+"This was a very progressive time, the days when someone like me would not have been seen as respectable in public," says Smith, who has since transitioned from her role as an RN to being a social worker. "It was not so long ago that doctors cared more for sick children, rather than for elderly patients and we just couldn't understand how that happened."
+
+For decades, Smith worked alongside the local nonprofit hospital and then worked with a group of elderly women at the Detroit Free School, who took care of her patients and helped train and employ her. The following year, Smith was approached by a company that wanted to create and train nurse-practitioner teams for use in inner-city communities in the same way they had been serving elderly people in the Detroit Free School. She was asked to join the team, and she accepted.
+
+After nearly a year of work with the team, Smith was hired to run a health clinic in Detroit's Cass Corridor, which became known as "the Little Red Roof," because it was located along a historic red roof on a hillside just off Cass Avenue, the city's main thoroughfare,

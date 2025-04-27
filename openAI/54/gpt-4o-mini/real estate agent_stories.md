@@ -1,0 +1,11 @@
+**Title: The Open House**
+
+**Setting: Oakridge, a picturesque town in New England, sits nestled between rolling hills and dense woodlands. The vibrant autumn leaves paint the streets in shades of orange, gold, and crimson. Quaint colonial homes line the avenues, boasting white picket fences and well-manicured lawns. At the end of Maple Street, the historic Hawthorne Manor looms large—an imposing Victorian with intricate gables and a reputation for being haunted, it has long been the town’s most sought-after property.**
+
+**Story Opening:**
+
+As the sun dipped below the horizon, casting a warm golden light across Oakridge, Evelyn Claire Altman stood at the massive oak doors of Hawthorne Manor, her heart racing with a mixture of excitement and trepidation. The air was thick with the scent of damp earth and decaying leaves, a reminder of the changing season. Evelyn, a seasoned real estate agent known for her unyielding determination and sharp instincts, had spent the past two weeks preparing this historic home for its first open house since being put on the market. 
+
+She adjusted her crisp navy blazer and brushed a loose strand of chestnut hair behind her ear, glancing at the array of brochures and freshly baked pumpkin muffins she had set out on the antique table. To most, Hawthorne Manor was just another listing—a grand residence that promised lavish living—but to Evelyn, it felt like an intricate puzzle waiting to be solved. Rumors of whispers in the night and shadows in the corners had deterred many potential buyers, but she was undeterred; she sensed an opportunity amidst the eerie tales.
+
+As she rehearsed her pitch in her head, she couldn't shake the feeling that tonight would change everything. Because beneath the charming exterior and the haunted legacy, Hawthorne Manor held secrets that could weave not only a tale of real estate but also a story of her own hidden dreams. As the first curious visitors began to arrive, Evelyn took a deep breath and opened the doors wide, ready to welcome them into a world where history and the present danced together in the dimly lit hallways.

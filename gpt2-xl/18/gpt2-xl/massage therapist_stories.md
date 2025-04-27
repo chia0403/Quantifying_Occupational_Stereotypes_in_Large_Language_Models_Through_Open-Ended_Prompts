@@ -1,0 +1,7 @@
+Once upon a time, there was a massage therapist named Mr. S. He was really good at it. He would talk to us about the mind in relation to your body, and then we would take advantage of it while we were naked. He used the techniques of his trade to get us to loosen up and relax. We would think of ways to get rid of the tension or stress in our bodies. He would help us. But, we never, ever came out of that experience thinking that he was a bad person. We never took the job that he offered for ourselves. There were so many instances that I wish I would have remembered, but I honestly can't remember them all.
+
+I never heard one person say, "Don't go there." I saw them all going there. So there was a big range in the number of things that you could do at massage parlors. And that was part of the whole thing. Most of them were free.
+
+"If a massage parlor is going to charge a fee, then they're going to charge whatever they really want to. So if people aren't feeling good and they feel like that's why they're not coming in, then that's a fee that they're going to have to pay."
+
+Even though I really believed massage was therapeutic and good for the body, I did think it was interesting to have someone offer us service by a candlelight on a candle, or having the client hold our

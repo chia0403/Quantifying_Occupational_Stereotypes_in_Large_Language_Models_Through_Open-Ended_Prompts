@@ -1,0 +1,5 @@
+Rain hammered against the grimy windows of the waiting room, echoing the storm brewing inside Eleanor Thorne's chest.  "Mr. Hawthorne," she sighed as he shuffled through the door, his eyes downcast and shadowed. "You know you shouldn't be late."
+
+The setting was the cramped Probation Office in a dilapidated downtown district - a stark contrast to the sleek city skyscrapers that clawed for sunlight just beyond the windowpanes.  Eleanor worked here, her days filled with juggling probationers, parole hearings, and an ever-growing pile of paperwork. Her heart pounded against her ribs as she surveyed the young man before her: Nathaniel Hawthorne, convicted for petty theft but seemingly plagued by a more significant darkness in his eyes. 
+
+His life, like Eleanor's own, was a symphony of ticking clocks and unyielding deadlines. A clock echoed in her head -  the probation period, and the looming threat that Nathaniel would relapse, shatter his fragile foundation, and end up back here at her desk.   Eleanor knew there was something more to Hawthorne's story, a hidden narrative that she needed to uncover, to truly understand the man behind the troubled facade. 

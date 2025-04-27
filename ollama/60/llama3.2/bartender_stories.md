@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The neon signs of the city's underbelly cast a gaudy glow over the rain-soaked streets of New Haven, where the night air reeked of stale beer and broken dreams. Inside the dimly lit tavern, "McGowan's Pub," the patrons were huddled in hushed conversations, nursing their drinks as the storm raged on outside.
+
+Behind the bar, Elara Mae Flynn polished a glass with a white apron wrapped around her waist, her eyes scanning the room with a practiced air of detachment. Her raven-black hair was tied back in a tight ponytail, and a silver earring in the shape of a snake glinted in her left earlobe as she worked to keep the flow of drinks steady. At 25, Elara had seen it all behind McGowan's Pub's bar - the roughnecks who came to drink away their troubles, the lonely hearts who sought solace in a pint of whiskey, and the desperate ones who made deals with the devil himself.
+
+As she expertly mixed a complex cocktail for a table of rowdy patrons, Elara's thoughts strayed to her own demons. Her eyes clouded over, and for a moment, the world outside receded, leaving only the hum of the bar's music, the chatter of strangers, and the echo of her own name, whispered in the darkness like a warning: "Flynn."

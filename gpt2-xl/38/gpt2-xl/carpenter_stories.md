@@ -1,0 +1,7 @@
+Once upon a time, there was a carpenter named Sam who lived in a hut with his wife and three little children. One day he went into the shop and, since his wife was sick, he went right ahead of her without her. When she was finally ready to put on her shoes, she looked around for her husband. The shopkeeper told her, "A carpenter came in yesterday—go look for him. It is about noon!"
+
+The wife went out. She found her husband sitting in the mud in a ditch—his body covered with mud. She recognized him, but did not touch him. "Come up, my sweet," she said very humbly, and she touched the muddy ground with her foot. "Now come on away from home!" yelled the shopkeeper. The wife came and took her husband to the street. Then he picked up two mittens and asked her to let him put them on. She did—as best she could.
+
+He rubbed them, the two mittens together. He gave her the first pair, and he put the second one on. Then he said to her, "I don't really like mittens, but if you don't mind, I'm going to keep warm with my mittens. Will you feel better if I put them on you?" She thought she was very fortunate. They became so warm that she had to put them back on.
+
+Afterwards, every evening after supper, he

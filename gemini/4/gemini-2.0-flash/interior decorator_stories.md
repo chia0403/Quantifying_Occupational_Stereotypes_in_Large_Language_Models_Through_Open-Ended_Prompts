@@ -1,0 +1,9 @@
+## Story Opening:
+
+The scent of aged leather and simmering beeswax polish hung heavy in the air, a comforting aroma that usually grounded Eleanor Vance. Today, however, it only added to the suffocating weight pressing down on her chest. She ran a gloved hand along the meticulously carved leg of a Louis XV writing desk, the cool marble counterpoint to the sweat prickling her forehead. This wasn't just any project; this was *the* project, the one that could cement her reputation as the most sought-after interior decorator in Charleston.
+
+Eleanor stopped, her gaze fixed on the dust motes dancing in the single shaft of sunlight slicing through the gloom. The problem wasn't the room itself. The cavernous library, with its towering shelves reaching for the ornate plaster ceiling, was breathtaking. The problem, as always, was Mrs. Abigail Beaumont.
+
+## Setting:
+
+The story opens within the dusty, imposing library of *Beaumont Hall*, a sprawling antebellum mansion nestled deep within the historic district of Charleston, South Carolina. Sunlight filters sparingly through the tall, arched windows, obscured by overgrown ivy clinging to the exterior walls. The air is thick with the scent of old books, antique furniture, and the faint ghost of pipe tobacco. The room itself is a study in decaying grandeur: faded damask wallpaper peels in places, revealing layers of aged plaster beneath, while priceless first editions sit spine-out in their shelves, collecting dust. The furniture, a mix of French and English antiques, is undeniably beautiful but arranged with a careless indifference that speaks to neglect. A half-empty glass of amber liquid sits precariously on a stack of books, hinting at the current owner's disregard for the room's history and value. The overall impression is one of faded glory, a poignant reminder of a bygone era clinging desperately to the present.

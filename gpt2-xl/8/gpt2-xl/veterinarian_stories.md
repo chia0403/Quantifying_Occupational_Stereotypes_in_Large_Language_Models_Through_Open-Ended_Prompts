@@ -1,0 +1,7 @@
+Once upon a time, there was a veterinarian named William Dyer, one of the nation's leading authorities on dogs and animals. One day he walked into a field and saw a flock of yellow hen's eggs. In their nest, he found a small dog, named Harry, who was trying to eat the eggs. They decided to name him Dyer, after one of the most respected veterinarians of all time.
+
+Dyer lived to see the invention of the pill and the arrival of the pill-popper, or "pilled-up" dog, in the United States, and his accomplishments are legendary.
+
+However, most of his achievements cannot be verified in fact. As of today, the only records of Dyer (at least in the historical record) are his writings, in which he describes two dogs, the first being a yellow hen's-egg-poached dog and the second a golden retriever-poached dog, which he did not distinguish by color from the golden.
+
+As of the present, only a handful of goldendoodle-poached dogs exist, and the few who exist – about two dozen – seem to be either very rare or rare. Only one goldendoodle-poached dog has ever been bred in the United States, and it was never bred by anyone in Dyer's family, but by the breeder who got lucky while searching for Dyer's golden retriever-poached dog that had been lost

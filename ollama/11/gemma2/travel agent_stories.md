@@ -1,0 +1,7 @@
+The aroma of freshly ground cardamom and cinnamon clung to Amelia Beatrice Hawthorne like a second skin. It was the scent of her shop, "Wanderlust & Co.", nestled on a cobblestone street in Edinburgh's Old Town. 
+
+Sunlight streamed through the stained-glass windows, casting kaleidoscopic patterns across maps pinned to corkboards, brochures stacked in precarious towers, and miniature globes that spun lazily on their stands. Amelia, with her unruly auburn curls perpetually escaping her braid and eyes that sparkled like the turquoise seas she dreamed of, was meticulously crafting a bespoke itinerary for a client who yearned for adventure in the Himalayas. 
+
+Her fingers traced the lines of a topographic map, her brow furrowed in concentration as she plotted trekking routes and nestled cozy teahouse stops amongst snow-capped peaks. Outside, the city hummed with life - bagpipes wailed from a nearby pub, tourists jostled on the narrow pavements, and the rhythmic clang of blacksmiths hammering resonated through the ancient stone buildings. 
+
+But for Amelia, her world was contained within the four walls of her shop, a haven where dreams took flight and wanderlust found its wings. She wasn't just selling vacations; she was weaving narratives, crafting experiences that would stay with her clients long after their adventures ended.  And today, she felt a familiar thrill - the anticipation of sending someone off on a journey that promised to change them forever. 

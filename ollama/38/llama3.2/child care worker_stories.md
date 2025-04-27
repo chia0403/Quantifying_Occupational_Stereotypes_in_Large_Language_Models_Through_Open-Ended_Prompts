@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun had just begun to set over the sleepy town of Willow Creek, casting a warm orange glow over the small park where Emily Anne Wilson was finishing up her shift as a child care worker at Greenhaven Preschool. Emily Anne, affectionately known as "E.A." by the children and staff alike, had spent the past four hours watching over six rambunctious toddlers as they played with blocks, painted pictures, and sang silly songs on the playground.
+
+As she packed up her things - a worn copy of Goodnight Moon clutched tightly in her hand, a stack of soiled diaper wipes piled high in the trash can - Emily Anne couldn't shake the feeling that something was off. The children had been unusually quiet all day, and when one of them had started to cry during snack time, E.A. had quickly ushered the group back inside for a hushed and serious discussion about sharing.
+
+It wasn't until she locked up the classroom and headed out into the crisp evening air that Emily Anne realized what was bothering her - a strange phone call from an unknown number, just as she was leaving work. The voice on the other end had been muffled and distorted, but one phrase had stuck in her mind: "Meet me at the old oak tree at midnight. Come alone."

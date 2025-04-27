@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named Bob Woodward who was following the White House, and his name always became synonymous with things being leaked. And now we have Donald Trump who is the kind of figure he once thought was just about all there was to a Republican politician, and he is the sort of figure he should never have been. And I think that's his own fault because he was thinking like a Republican lobbyist.
+
+Gillespie's book comes out this year. What do you want to see him do now?
+
+As a private citizen, he should do his best to make himself a public figure. And the best thing he could do would be to do it like Paul Ryan has done, and come on very aggressively. The fact that Paul Ryan has not taken off the gloves at all—you could say that's because he really doesn't want to, or because his brain has been shattered. But it is the worst part of the Trump presidency for a lot of people. For Paul Ryan to continue to wait until some kind of scandal erupts before he decides to do something suggests that he's kind of trying to be all things to all people. And I believe Bob Woodward has a similar situation with the White House. He should, I suppose, have to run an ad, "Don't be a D.C. lobbyist."
+
+Get Vanity Fair's Cocktail Hour Our essential brief on culture, the news, and more. And it's on the

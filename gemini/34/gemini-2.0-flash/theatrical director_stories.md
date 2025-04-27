@@ -1,0 +1,11 @@
+## Story Opening:
+
+The stench of stale gin and desperation hung heavier than the velvet drapes in the grand, yet decaying, auditorium of the Britannia Theatre. Bartholomew “Bart” Finch-Hatton, the theatre’s artistic director, pinched the bridge of his nose, trying to ward off the impending headache. He hadn't slept properly in days, fueled by lukewarm coffee and a gnawing anxiety that threatened to unravel him entirely. The premiere of "The Duchess's Demise," his most ambitious project to date, was only three weeks away, and so far, it resembled a spectacular train wreck more than a triumphant return for the Britannia.
+
+He slumped deeper into one of the theatre’s threadbare orchestra seats, the crimson velvet rough against his tweed jacket. The stage, currently swathed in shadow, seemed to mock him with its potential. Just a week ago, it had pulsed with life during rehearsals; now, it felt like a vast, empty tomb, waiting to swallow his dreams whole. Where was the promised magic? Where was the audience he desperately needed to fill these seats?
+
+He took a long, shaky breath, the dust motes dancing in the faint light filtering through a grimy stained-glass window of Shakespeare’s likeness. “Right, Bart, get a grip,” he muttered to himself, his voice echoing in the cavernous space. “Three weeks. That’s still enough time to salvage this disaster. Just need a miracle, a star turn, or perhaps… a generous dose of creative arson.” He didn't smile. He was far too tired for humour.
+
+## Setting:
+
+The Britannia Theatre, located in the struggling docklands district of Liverpool, England. Once a jewel of the city's theatrical scene during the Victorian era, it had fallen into disrepair and neglect over the decades. Its ornate facade, though grand, was peeling and stained with years of rain and grime. The interior was a faded echo of its former glory, with cracked plasterwork, peeling wallpaper, and moth-eaten velvet seating. The dressing rooms were cramped and damp, and the backstage area was a chaotic maze of props, costumes, and forgotten dreams. Despite its dilapidated state, the theatre retained a certain charm, a palpable sense of history that clung to the air like the lingering scent of greasepaint and old memories. It was a theatre clinging to life, much like Bartholomew Finch-Hatton himself.

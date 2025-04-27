@@ -1,0 +1,6 @@
+The scent of linseed oil and turpentine hung heavy in the air, thick enough to taste. Amelia Clementine Thistlewood, or Amy as she preferred, squinted at her canvas, her brow furrowed in concentration. Sunlight streamed through the skylight of her attic studio, illuminating dust motes dancing in the golden beam. Outside, London thrummed with the cacophony of the city – horse-drawn carriages rattling over cobblestones, hawkers calling their wares, children's laughter echoing down narrow streets. But here, cocooned in her haven of paint and canvas, Amy was a world away, lost in the swirling colors on her palette and the quiet hum of creation. 
+
+Her latest piece, a portrait of Mrs. Hathaway, the kindly landlady of the building across the street, was proving to be more challenging than she’d anticipated. Capturing Mrs. Hathaway's warmth and gentle wisdom felt like trying to bottle sunlight – elusive yet essential to her essence. Amy sighed, dipping her brush into a pool of cerulean blue, determined to find the right shade that would bring Mrs. Hathaway's eyes alive on the canvas. 
+
+
+The year was 1889, a time of burgeoning modernity and artistic revolution. But for Amy, trapped in the confines of her attic studio, the world outside felt as distant as the stars. Her only companions were her paints, brushes, and the ghosts of masterpieces past.  

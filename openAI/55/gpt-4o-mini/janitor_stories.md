@@ -1,0 +1,9 @@
+**Title: Whispers of the Forgotten**
+
+The rain drummed softly against the windows of the nearly deserted Westside Community Center, a rhythmic patter that echoed through the dimly lit hallways. Beneath the flickering fluorescent lights, the once-vibrant walls displayed faded murals of laughter and joy, quickly succumbing to dust and neglect. 
+
+In the corner of the main activity room, a figure knelt on the polished wooden floor, his hands busy with the old, battered mop that seemed to have seen better days. Manuel Everett, known as Manny to those few who passed through with fleeting acknowledgment, was a silent sentinel of this aging building, a keeper of its stories and remnants of a lively past. 
+
+At fifty-two, with salt-and-pepper hair and a well-worn pair of coveralls that bore the scars of his labor, Manny had grown accustomed to the solitude that draped over the center like an old, tattered blanket. Shadows bounced off corners, and the lingering scent of cleaning products mixed with the dampness in the air, reminding him of his daily routine—sweeping away memories while muttering a quiet symphony of unchained thoughts.
+
+Today, however, felt different. A chill hung in the air, an undercurrent of something unnameable that tickled at the back of Manny’s mind. As he wrung out his mop, he couldn’t shake the feeling that the building was holding its breath, waiting to give voice to secrets long buried within its walls. Little did he know that his duties would soon shift from mundane janitorial tasks to uncovering the heart of a mystery that had been hidden in plain sight for years.

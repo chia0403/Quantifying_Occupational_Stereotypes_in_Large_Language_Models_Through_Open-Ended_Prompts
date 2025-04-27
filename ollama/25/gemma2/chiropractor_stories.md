@@ -1,0 +1,6 @@
+Rain lashed against the windowpanes of "Align & Thrive," blurring the neon sign outside into an erratic glow. Inside, Dr. Amelia Juniper sighed, rubbing her temples with the heel of her hand. Another busy Wednesday evening in downtown Portland, where the air thrummed with both the energy of a bustling city and the aches and pains of its inhabitants.  Amelia adjusted her glasses, their frames perpetually slipping down her nose despite the constant battle against gravity. The scent of lavender oil and eucalyptus hung heavy in the air, a comforting aroma that couldn't quite mask the underlying tension buzzing through the waiting room. 
+
+
+A young woman with fiery red hair and shoulders hunched forward as if carrying the weight of the world shuffled past Amelia's desk, her face etched with worry. A man in a well-worn suit tapped his foot impatiently, while an elderly gentleman sat serenely, eyes closed and breathing deeply, seemingly oblivious to the storm raging outside and the anxieties swirling within. 
+  
+Amelia took a deep breath, steeling herself for another night of easing pain and mending bodies.  A chiropractor wasn't just a healer; they were a confidante, a therapist, sometimes even a miracle worker. Tonight, she was ready to be all three. 

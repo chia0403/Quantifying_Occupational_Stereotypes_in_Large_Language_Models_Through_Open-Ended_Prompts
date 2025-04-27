@@ -1,0 +1,5 @@
+The fluorescent lights buzzed overhead, casting a sickly yellow pallor over Beatrice "Bea" Juniper's tired face. She leaned against the chipped Formica counter, absently drumming her fingers on a plastic price tag display. The air hung heavy with the scent of stale coffee and cheap perfume, a familiar blend that permeated every corner of "The Corner Market." 
+
+Outside, the early autumn rain lashed against the grimy windows, blurring the world into a watercolor wash. Inside, the store was sparsely populated – an elderly woman meticulously examining cans of tomatoes, a teenager slumped over a magazine rack, and a man in a rumpled suit pacing by the checkout line like a caged animal. 
+
+Bea sighed. Another slow Wednesday night in The Corner Market. She longed for something, anything, to break the monotony.  A change in the weather? A power outage? Maybe even a visit from that friendly, if slightly eccentric, taxidermist who lived down the street and occasionally brought in his "clients" for Bea to admire (though she preferred to just admire from afar). But no, just the same tired routine – scanning groceries, bagging purchases, and wishing for something more. 

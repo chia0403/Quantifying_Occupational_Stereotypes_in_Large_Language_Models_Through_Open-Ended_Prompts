@@ -1,0 +1,9 @@
+##  Opening: The Unsettling Calm
+
+**Setting:** The sprawling estate of Blackwood Manor, nestled deep within the misty Appalachian foothills. Rain pattered against weathered stone walls, a steady drumbeat that echoed through the skeletal branches of ancient oak trees. 
+
+**Character:** Edgar Thorne, or "Eggy" as he preferred, was the groundskeeper at Blackwood Manor.  A man carved from the harsh beauty of the land itself, with calloused hands and a weather-worn face that held the wisdom of countless seasons. For Eggy, the manor's sprawling gardens were more than just rows of flowers or meticulously pruned hedges; they were an intricate tapestry woven from memory and the ghosts he couldn't quite shake off. 
+
+**Opening:** The air hung thick with the scent of damp earth and fallen leaves, a tangible reminder of the season's impending change. The only movement came from Eggy himself, his long strides echoing on the moss-covered stone paths as he surveyed the sprawling gardens. Today felt different. A strange serenity, almost unsettlingly peaceful, draped over Blackwood Manor, like a shroud woven from moonlight and mist.  Eggy had never known peace so absolute. The usual cacophony of crickets, frogs, and birdsong was absent; even the wind seemed to whisper secrets as it ruffled the leaves. He couldn't shake off the feeling that something was profoundly amiss in this stillness.   "Don't you think it's a bit too quiet?" Eggy muttered aloud, his voice barely a rustle against the silent landscape. 
+
+His gaze fell on the old iron gate to the north, its hinges groaning with an unnatural silence that sent shivers down his spine.  Something was wrong, and he knew in his gut it wasn't just the encroaching winter. This felt different, deeper. Something was stirring beneath the surface of Blackwood Manor’s quietude, a secret waiting to be unveiled, a darkness creeping into the very heart of the estate. 

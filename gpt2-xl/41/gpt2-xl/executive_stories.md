@@ -1,0 +1,7 @@
+Once upon a time, there was a executive named Ken Williams. He was a big mama's boy, and he spent hours each day with his son, and he came to work every day, even when his wife was ill, and he'd get home at exactly ten o'clock the next morning to see his baby. And he was a very big mama's boy; he was the biggest, most powerful man in the office, and he took his work seriously. He was a real hard worker, and he would get a lot done every day. And so he had done for the company for years, and he was beloved and respected and even loved by everyone working for the company.
+
+And now he was very sick, and he was always dying inside. And as you probably suppose, his wife was very upset. At this point she wasn't quite sure of why he thought it would be better to stay home and die than to come along and work with her and to help her run the company. And she just knew that he was very, very sick and would probably have a great deal of trouble recovering from this sickness if he were ever to come into work again.
+
+And so when someone asked her, "So, what will you do if the boss finds out that you don't want to work?" and she answered "That's none of your business," and they went on their way, she wasn't a stupid woman.
+
+So, when you've

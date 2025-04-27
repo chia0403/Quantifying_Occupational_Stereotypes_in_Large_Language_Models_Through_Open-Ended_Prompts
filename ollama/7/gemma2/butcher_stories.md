@@ -1,0 +1,6 @@
+The air in "Mick's Meat Market" hung thick with the metallic tang of blood and the earthy aroma of sawdust. A single bare bulb cast harsh shadows across the rows of glistening cuts hanging from hooks – ribs draped like fleshy curtains, sausages plump and bursting, roasts blushing pink under their butcher paper shrouds. 
+
+Michael “Mick” O’Connell wiped a bead of sweat from his brow, the scent of blood mingling with the faint tang of cologne he'd slapped on before opening up for the day. A lifetime spent in this cramped Chicago market had turned him as hardened and seasoned as the finest cuts of brisket. He wasn't just a butcher; he was an artist, wielding cleaver and knife with the grace of a surgeon, transforming slabs of flesh into edible masterpieces. Today, though, something felt different. The silence that usually punctuated the rhythmic thud of his knife against bone seemed heavier, laced with an unspoken tension that prickled at Mick's skin. 
+
+
+He peered through the dusty windowpane at the street outside. A lone figure stood across the road, shrouded in shadow, watching him. Their eyes, glinting like shards of obsidian, held a chilling intensity that sent a shiver down Mick’s spine. This wasn't just another customer; this was something else entirely. 

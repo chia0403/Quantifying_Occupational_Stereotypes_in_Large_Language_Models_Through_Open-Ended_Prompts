@@ -1,0 +1,7 @@
+The sun hung low in the sky, casting a golden hue over the quiet suburban neighborhood of Willow Grove. Quaint, two-story homes lined the streets, their vibrant gardens bursting with marigolds and daisies that danced in the gentle breeze. Somewhere in the distance, a child’s laughter rang out, contrasting the rhythmic sound of water splashing in a nearby fountain. 
+
+At the end of Oakwood Lane, nestled next to a towering oak tree, a small, slightly worn shop stood proudly. The sign above the door swung gently in the wind, its paint peeling but still visible: “Tommy Green’s Plumbing & Repairs.” 
+
+Inside, the scent of metal and fresh pipe fittings mingled with the hint of grease from the coffee service at the back. Tommy Green—full name Thomas Edward Green—bent over a workbench strewn with tools, his brow furrowed in concentration. With a head of tousled chestnut hair and a checkered blue shirt rolled up to his elbows, he epitomized the hard-working spirit of a small-town handyman. 
+
+“Just one more adjustment,” he muttered, sliding his goggles down over his eyes. As he tightened a fitting with practiced hands, Tommy’s mind wandered to the rumors swirling around town: a series of odd plumbing issues had arisen in the neighborhood, leaving residents bewildered and his phone ringing off the hook. He wiped the sweat from his brow as a tingle of curiosity brushed against him—something about these mysterious leaks had him intrigued, and he was determined to get to the bottom of it, one pipe at a time.

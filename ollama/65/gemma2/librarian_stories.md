@@ -1,0 +1,5 @@
+The scent of aging paper and leather hung heavy in the air, a familiar comfort to Amelia Beatrice Hawthorne as she adjusted her spectacles and surveyed the hushed stacks of the Blackwood Manor Library. Sunlight streamed through arched windows, illuminating dust motes dancing in the stillness. It was a Tuesday afternoon, prime time for quiet contemplation amongst the manor's resident scholars and the occasional curious visitor drawn to its antique charm. 
+
+Amelia, with her silvering hair pulled back in a neat bun and cardigan perpetually adorned with stray cat hairs, felt most at peace amidst these towering shelves, each volume whispering secrets of forgotten worlds. Yet today, the library held an unfamiliar tension, a buzzing undercurrent that vibrated beneath the usual peaceful hum. A single crimson letter, addressed to her in spidery handwriting, lay upon her desk, stark against the worn oak.  It was unsigned, sealed with wax bearing an emblem Amelia couldn't quite place. Her heart thumped against her ribs – a feeling she hadn't experienced since those long-ago days when mystery novels filled her dreams, not reality. 
+
+

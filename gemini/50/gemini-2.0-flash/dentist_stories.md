@@ -1,0 +1,11 @@
+## Opening:
+
+The high-pitched whine of the ultrasonic scaler was a lullaby to Dr. Eleanor Vance. Usually. Today, it felt more like a frantic mosquito trapped inside her skull. A bead of sweat trickled down her temple, threatening to mingle with the strands of fiery red hair escaping her carefully pinned-up bun. She leaned closer, squinting into the cavernous maw of Mr. Henderson, a retired accountant whose dedication to Werther's Originals had single-handedly kept her practice afloat for the past five years.
+
+“Almost done here, Mr. Henderson,” she chirped, her voice a practiced blend of professionalism and reassurance. “Just a little plaque buildup near the molars…”
+
+Her gloved hand trembled, just a fraction, as she navigated the small, vibrating instrument around a particularly stubborn patch. She hated the trembling. It made her feel unprofessional, less in control. Lately, everything felt like it was slipping through her fingers.
+
+## Setting:
+
+Eleanor’s practice, “Vance Dental Excellence,” was nestled in the heart of Havenwood, a small, picturesque town clinging to the edge of the Blue Ridge Mountains. The building itself was a lovingly restored Victorian house, painted a cheerful, albeit slightly faded, shade of robin’s egg blue. Inside, the waiting room boasted an eclectic mix of antique furniture, strategically placed to mask the wear and tear of countless fidgeting patients. Fresh hydrangeas, plucked from Eleanor’s own garden, sat in a crystal vase on the coffee table, lending a touch of homely charm to the sterile environment. Beyond the waiting room lay the treatment rooms: three pristine, brightly lit spaces equipped with state-of-the-art dental equipment that Eleanor had poured her heart and savings into acquiring. Sunlight streamed through the large windows, offering patients a calming view of the lush, green hills that surrounded Havenwood. Usually, the serenity of the setting helped soothe frayed nerves, both theirs and hers. But today, even the breathtaking panorama felt like a silent, judging audience, witnessing Eleanor's growing unease. The air, usually filled with the comforting scent of antiseptic and minty mouthwash, seemed thick with unspoken anxieties.

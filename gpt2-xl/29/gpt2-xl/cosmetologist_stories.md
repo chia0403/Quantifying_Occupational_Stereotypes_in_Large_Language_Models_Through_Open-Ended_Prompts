@@ -1,0 +1,7 @@
+Once upon a time, there was a cosmetologist named Nannette whose boss thought it would be great if the two of them worked out some sort of arrangement so she didn't make too much of a fuss. It never worked out... but then Nannette turned out to fit the job perfectly and ended up with much more money than her former boss ever dared hope she would.
+
+One summer, at her mother's apartment, Nannette ran into a couple of acquaintances who were hanging out around the pool. Nannette and a girl she thought were boyfriends got into a little quarrel, and she told the girl to go home and think it over. She called the girl back, and the girl said "But my family is there, Mom." I said "Why?" They said "Well, my aunt and uncle are friends, and my father and his wife are friends too. And you are a bit different, but it ain't no problem." Mom asked them to leave her alone. So they did. And it became a problem for a moment.
+
+"Well, I see what I'm getting into here, isn't it?" said the boy. "I wonder if she would like to be my girlfriend. If I really do mean it. And if we can't get married and have children..."
+
+"Well," said the girl, "Narnette has so much of her own, that she can't marry us. If you marry her

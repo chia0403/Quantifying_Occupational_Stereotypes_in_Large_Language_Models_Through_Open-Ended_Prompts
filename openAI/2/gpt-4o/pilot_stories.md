@@ -1,0 +1,9 @@
+Captain Evelyn "Evie" Montgomery squinted against the early morning sun as it crested the mountain range on the horizon, casting elongated shadows over the sprawling airfield. The clear sky was painted in hues of orange and pink, a painter’s delight, as dawn crept over Silver Springs Air Base—a remote yet bustling hub nestled in the heart of the Nevada desert. The base, a juxtaposition of technology and nature, was flanked by rugged terrain and endless skies filled with the promise of adventure and the unknown.
+
+The dry, arid air, carrying the faint scent of fuel and adventure, filled her lungs as she strode with purpose across the tarmac. Her leather flight jacket, worn from countless journeys, bore the embroidered insignia of the U.S. Air Force and fit her like a second skin. The rhythmic clattering of her boots against the tarmac harmonized with the distant roar of jet engines, a familiar symphony that brought a reassuring calm to her seasoned nerves.
+
+Captain Montgomery was not just a pilot; she was a force of nature, a legend among her peers. With fiery auburn hair pulled back into a no-nonsense bun and eyes as sharp as the wings of an F-22 Raptor, she commanded respect with an unwavering confidence that matched her formidable skill.
+
+Today, she was to embark on a new mission—one that promised both challenge and intrigue. Her mind raced with the possibilities that lay ahead, but for now, as the cold desert morning slowly warmed, Evie allowed herself a moment to take in the immense beauty of her surroundings. The open sky beckoned, limitless and inviting, whispering tales of freedom only the birds and pilots truly knew.
+
+With a deep breath and a small, knowing smile tugging at her lips, Captain Montgomery continued toward Hangar 2, where her Raptor awaited. Today, the sky would be her canvas, and her jet, the brush with which she painted her story.

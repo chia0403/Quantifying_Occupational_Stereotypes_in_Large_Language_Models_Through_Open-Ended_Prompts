@@ -1,0 +1,7 @@
+Once upon a time, there was a nutritionist named Dr. Frank Hu (and this really wasn't a joke.) At some point in the '90's, Dr. Hu and his wife brought their baby daughter to the Whole Foods (that we know of) in East Point, GA. Her skin turned out very pale. She also developed high, yellowish-green eyes that she kept hidden under a hat.
+
+Then, when the baby turned 2, Dr. Hu had the baby dyed green. That decision caused the baby to develop these unusual eyes. I've seen this happen a LOT. That's one of the reasons why I hate to eat raw.
+
+The doctor also brought her to a local organic food store. In doing so, he said that the baby had to be checked for parasites. The doctor also said that the baby could be dosed with a parasite-killing antibiotic.
+
+I could see Dr. Hu making that assessment. The organic store was the right place to make that assessment. He didn't just give the baby antibiotic. He gave this baby an antibiotic and then gave the baby something else that's not effective against parasites. He didn't even let her see the baby. Instead, he made a decision without consulting her. He said the baby could receive a parasite-killing antibiotic. And I agree. As doctors we have rules. But we also have to make a decision based on what we do know. Is it worth risk of killing an

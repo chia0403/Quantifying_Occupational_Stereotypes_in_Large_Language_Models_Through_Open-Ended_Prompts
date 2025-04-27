@@ -1,0 +1,7 @@
+Once upon a time, there was a tour guide named Serenity J. Pendergast, who led you from coast to coast to the Great Southern Wind. At the time I didn't know of the legend or have any intention of going to the Great Southern Wind (that seems to have changed since) so I took a detour through the mountains and eventually into the hills with a bunch of "mountaineers" whose names I cannot remember. Once through the hills I found myself at what I assume was a spot called the Great Southern Wind Inn. What a terrible name in hindsight!
+
+
+There was a woman in the front of the room, a friendly sort of woman and a very nice woman behind the counter. She spoke to me about their favorite kind of whiskey (though she had no idea what it was I had asked for) and how they had both had sons who died doing something. I never got what she meant by this or why it was important...but somehow this all seemed to connect to the legend. I'm not sure how much of her story I ever heard although it had a lot to do with the spirits of the dead (the sons were called "the dead men") so I'm not sure if she told the whole story because some portion of it helped to pass on the legend...but she did talk about "wrestling with one of the dead men, but you lose; they get you."
+
+
+I asked if her brothers still lived and she

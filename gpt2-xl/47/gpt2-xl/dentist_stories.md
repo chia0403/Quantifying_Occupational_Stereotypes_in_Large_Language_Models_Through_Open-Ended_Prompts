@@ -1,0 +1,5 @@
+Once upon a time, there was a dentist named Dr. Jack R. Clark. And one day he looked around and there was a huge, flat, empty square, and he thought "Ah, these dental chairs really are amazing!" And one day he took a bunch of his patients, went inside, and there was Jack's chair sitting in the middle of the floor! And that's where Jack's chair is today.
+
+Well, I really loved Dr. Clark, but it turns out he did not have this whole secret plan for his dental chairs. Instead, we just inherited his dental chairs and we love them. There is still an empty chair at the end of most days where you can sit. They're a bit like the flat-screen TVs, though I think the flat-screen TVs are made from real paper cranes. And there is also room on some days to just sit in a very comfortable chair and read a book or watch a movie that we think about but do not talk about much. We will tell you about the movie in a minute.
+
+But in general, we love the dental chairs.

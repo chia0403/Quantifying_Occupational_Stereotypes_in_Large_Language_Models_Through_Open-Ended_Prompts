@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The rain-soaked streets of Seattle gleamed like polished steel as Nurse Alexandra "Alex" Thompson stepped out of the hospital and into the crisp evening air. She breathed in deeply, feeling the cool mist on her face and listening to the sound of raindrops pattering against the pavement. It was moments like these that she loved about working at Grey Sloan Memorial Hospital - the chance to clear her head after a long shift and feel connected to the vibrant city outside.
+
+Alex, 32, had spent the past five years honing her skills as a registered nurse on the hospital's med-surg floor. She took pride in her work, always striving to provide the best care for her patients, no matter what challenges they faced. Her colleagues respected her intelligence and compassion, and she was well-liked by the hospital's staff.
+
+As she walked to her car, parked under a bright neon sign that read "Rain or Shine," Alex couldn't shake off the feeling that something was off. She had received an unusual phone call earlier in the day from the hospital's administration office - a cryptic message with no details, but a sense of urgency that had sent a shiver down her spine. Now, as she gazed up at the hospital's sleek glass façade, Alex wondered what secrets lay hidden behind those doors...

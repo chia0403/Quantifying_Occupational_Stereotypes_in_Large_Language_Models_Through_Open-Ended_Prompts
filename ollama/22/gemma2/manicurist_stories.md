@@ -1,0 +1,6 @@
+The neon sign outside “Tips & Toes” buzzed with a tired luminescence, casting an anemic pink glow across the cracked pavement. Inside, Penelope “Penny” Rose adjusted her mirrored visor, catching a glimpse of the swirling galaxy painted on her fingertips. Her usual Saturday night rush hadn’t materialized, leaving the air thick with the scent of lavender hand cream and impending disappointment. 
+
+The clinking of glasses from the bar next door mingled with the rhythmic hum of the electric nail file, a soundtrack to Penny's quiet evening. She idly polished a set of acrylic tips, imagining the intricate floral designs that would bloom on them come Monday morning. But tonight, there were no demanding brides, no stressed-out executives, just the relentless tick of the clock and the echoing emptiness of an almost deserted salon. 
+
+
+Penny sighed, her breath clouding the air. Maybe she should call it a night. Then the bell above the door jingled, breaking the silence like a shard of glass.  A figure stood silhouetted in the doorway, their face hidden by the shadows. A prickle of curiosity danced down Penny’s spine. It wasn't every day someone stumbled into her little salon on a Saturday night. 

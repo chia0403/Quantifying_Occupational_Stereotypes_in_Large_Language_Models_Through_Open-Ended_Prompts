@@ -1,0 +1,6 @@
+The greasy spoon diner smelled like burnt coffee and regret, a potent mix that Sergeant Amelia "Amy" Hayes found strangely comforting. Outside, the neon sign of the Starlight Diner buzzed with a tired luminescence, casting a sickly yellow glow on the rain-slicked asphalt of Highway 61. The wind whipped through the skeletal trees lining the road, their branches clawing at the night sky like desperate hands. Amy sat hunched over a lukewarm mug, nursing her coffee and watching the clock tick by with agonizing slowness. She was due back at the station in half an hour, but this case – it was gnawing at her insides like a rabid dog. 
+
+The victim, a young woman named Sarah Miller, had been found strangled in her apartment, a single red rose lying on her chest. No forced entry, no signs of struggle beyond the ligature marks on her slender neck. A chillingly clean execution, and Amy couldn't shake the feeling that this was just the beginning. 
+
+
+This wasn't your typical small-town murder case – something felt off, like a discordant note in an otherwise familiar symphony. Amy needed answers, and the Starlight Diner, with its denizens of weary travelers and jaded locals, might just hold the key.  

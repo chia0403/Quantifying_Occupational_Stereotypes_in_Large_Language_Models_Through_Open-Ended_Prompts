@@ -1,0 +1,7 @@
+Once upon a time, there was a paralegal named Laura (a la Law & Order); a lawyer with a bad habit of making up her own story, (a la CSI) so that, with time, her boss and boss-friends, (a la The Facts of Life), would believe that Laura was still the same "professional" person. She also had "friends" (a la Friends) who did the actual work (a la ER).
+
+I've already outlined why that's unlikely — but for those of you who never watched ER, if you didn't have to be that far away, then you too could believe that a "professional" business owner would be as "professional" as a high-minded "lawyer" lawyer.
+
+Laura's story also illustrates one of many things I've noticed over the years in the legal community: The more time passes, the more things change.
+
+Back in those glory days before the "reform" movement, the "professional" lawyer still had a lot of power over him/her/them. They could literally do whatever they liked, and it wouldn't really matter if it was against the rules or not, they wouldn't be stopped. But now, we're on the other side of that. It might be technically within the law, but now the line is blurred. I guess when the law started, that only referred to people who were in the "public" eye; now, everybody is

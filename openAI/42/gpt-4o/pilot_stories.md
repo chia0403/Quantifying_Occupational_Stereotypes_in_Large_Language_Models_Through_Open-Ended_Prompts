@@ -1,0 +1,9 @@
+In the dim light of dawn, as the first rays of sunlight crept over the jagged peaks of the Sierra Madre, Captain Amelia "Ami" Finnegan stood on the tarmac at Santa Fe Aerodrome, sipping her coffee and surveying the scene before her. The air was crisp with the tang of wet earth and wild sage, a gentle breeze ruffling the hem of her weathered leather flight jacket. Scattered clouds glowed softly in hues of pink and orange, painting a serene backdrop for the solitary runway stretching out like a promise of adventure.
+
+The airfield was a modest affair, nestled in a hollow between mountains that loomed like silent sentinels. To one side, a modest hangar stood guard—its corrugated metal walls weathered by time and the elements—housing the jewel of Ami's fleet, a vintage Cessna 180 Skywagon christened "The Silver Lark." Decades old yet meticulously maintained, the aircraft gleamed softly in the embryonic light, its propeller a still blur of potential energy.
+
+Ami glanced at the clipboard in her hand, absently tracing the familiar corporate logo at the top of the flight log—Finnegan Aviation, a small but spirited outfit she had carved from the sandstone and sky with equal parts grit and determination. Her father’s dream, enshrined in the bones of every plane she flew, had become her own lodestar, guiding her journey through the azure corridors of sky.
+
+Today promised routine—a supply drop to remote mining outposts perched high above the world, clinging to the mountains like barnacles. But as Ami well knew, the sky was a realm of infinite variables, where even the most predictable missions could spiral into the unexpected. With one last look at the sky, where the day was burgeoning into boldness, she drained her cup and turned towards The Silver Lark. The engine purred to life, a trusted companion in the solitude of the air.
+
+The Sierra called—it always did—and Captain Amelia Finnegan was born to answer.

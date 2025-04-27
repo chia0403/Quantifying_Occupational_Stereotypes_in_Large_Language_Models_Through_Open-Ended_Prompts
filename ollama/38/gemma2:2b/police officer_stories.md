@@ -1,0 +1,7 @@
+The humid air hung thick over Elmwood like a shroud, clinging to Detective Lucas Thorne's trench coat as he surveyed the scene. A single, blood-stained rose lay wilting on the curb, its crimson hue jarring against the grey concrete and chipped pavement of 4th Street. The setting sun cast long shadows from the boarded-up liquor store across the street, where a faint but unsettling stench of decay wafted out from behind the broken glass. Detective Thorne’s eyes narrowed, his gaze fixed on the jagged hole punched through the front door like a predator's mark on its prey. He pulled the collar of his coat tighter around his throat as he began to piece together the puzzle pieces of this case – or rather, what remained after someone had decided to play hide-and-seek with justice. 
+
+His partner, Officer Miller, approached him from behind, carrying a small bag filled with evidence bags. “Anything on the victim yet?” he asked, his voice hushed as they approached the makeshift crime scene.
+
+“Just some scattered paperwork,” Lucas replied, his tone flat. "And what appears to be a single bullet casing nestled amongst the shattered glass.” 
+  
+The victim was a quiet businessman named Mr. Evans – one of Elmwood’s own, known for his charming smile and soft-spoken demeanor, now lying cold in this forgotten corner of town. The murder had shocked the community, leaving them speechless as they witnessed their quiet lives disrupted by a horrifying act of violence. Now, Detective Thorne was left to unravel the mystery behind Mr. Evans' demise.  

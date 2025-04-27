@@ -1,0 +1,5 @@
+The scent of stale ink and dust was as familiar to Amelia Thornton as her own heartbeat. She stood by the massive, mahogany ledger that spanned most of the wall in her office, its leather cover cracked like sun-baked earth. The air hung thick with the silent pressure of countless transactions whispered over centuries. In her world, time had a rhythm different from the frantic click of clocks and the ever-beeping alarms of modern life – it flowed measuredly through stacks of invoices, the rustle of old records, and the slow dance of ledger entries.  
+
+Amelia was a bookkeeper in a small, forgotten town nestled within the foothills of the Appalachians. The world outside her window was one she barely knew: bustling highways, flashing screens, and people who spoke in a language faster than the rustling leaves in autumn. Here, Amelia’s life was measured by the rise and fall of a local farmer's crop yields and the ebb and flow of money changing hands within its quiet community. 
+
+The town was as old as the weathered timbers of her office and as silent as an abandoned graveyard – that was until the storm hit.  

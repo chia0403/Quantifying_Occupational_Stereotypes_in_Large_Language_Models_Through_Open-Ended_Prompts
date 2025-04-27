@@ -1,0 +1,11 @@
+Okay, here's a story opening and setting for a story featuring a chiropractor named Dr. Eleanor "Ellie" Ramirez:
+
+**Setting:** The small, perpetually overcast town of Havenwood, nestled in the foothills of the Appalachian Mountains in North Carolina. Havenwood’s main street boasts a hardware store seemingly untouched since the 1950s, a diner famous for its grease-laden burgers, and several antique shops overflowing with forgotten treasures and the dust of generations. Outside of town, winding roads lead to ramshackle farms, dense forests, and whispers of old mountain magic.
+
+**Story Opening:**
+
+The rhythmic thump-thump-thump of the rain against the tin roof of Havenwood Chiropractic echoed the uneasy beat in Dr. Eleanor "Ellie" Ramirez’s chest. It was a Tuesday afternoon, usually a lull between the morning’s rush of stiff necks and the evening’s influx of weekend warriors, but the silence felt heavy, expectant. Ellie, perched on a worn, leather stool in her examination room, stared out at the perpetually grey sky. The Havenwood weather matched her mood; a low, simmering dread that had been building since Mrs. Gable, the town's self-proclaimed oracle and purveyor of hand-knit sweaters, had shuffled in earlier that morning.
+
+"Your bones are out of alignment, Ellie," Mrs. Gable had rasped, her milky eyes wide and unfocused, "not just your spine, child, but your…spirit." She’d then proceeded to blame a raven’s ill omen and the unusually early bloom of the mountain laurel for Ellie's perceived spiritual discombobulation, before promptly pulling out her Medicare card and complaining about her sciatica.
+
+Ellie, normally able to dismiss Mrs. Gable’s pronouncements with a chuckle and a gentle adjustment, found the old woman’s words clinging to her like the damp mountain air. Lately, Havenwood itself felt…different. The woods seemed darker, the shadows deeper. The whispers of old mountain lore, usually just quaint stories to tell the tourists, were starting to sound…real. And that unsettling feeling, that thump-thump-thump in her chest, refused to be adjusted away. The bell above the clinic door chimed, breaking Ellie's reverie, and she braced herself. Who, or what, would Havenwood send her way next?

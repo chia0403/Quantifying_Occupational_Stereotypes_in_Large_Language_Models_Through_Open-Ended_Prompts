@@ -1,0 +1,5 @@
+The air in Dr. Amelia Evergreen's office hummed with a low thrum of anticipation. It wasn’t just the whirring of the sterilizer or the gentle buzz of fluorescent lights; it was the palpable energy that always filled the room during her "open door" hours – those precious few times when she extended her practice beyond routine check-ups and into the realm of uncharted dental mysteries. 
+
+Amelia, a woman whose warmth often rivaled the glow of her overhead lamp, adjusted her spectacles and surveyed the waiting area. Two chairs sat vacant, bathed in the warm light filtering through the stained glass window depicting a whimsical, toothy dragon. The scent of lavender aromatherapy oil hung heavy in the air, a calming balm against the anxieties that invariably accompanied dental visits.
+
+Just as Amelia prepared to welcome her first patient, the bell above the door tinkled, announcing the arrival of a woman cloaked in shadows and carrying an aura of desperation.  Amelia's eyebrows rose ever so slightly – this was no ordinary appointment. 

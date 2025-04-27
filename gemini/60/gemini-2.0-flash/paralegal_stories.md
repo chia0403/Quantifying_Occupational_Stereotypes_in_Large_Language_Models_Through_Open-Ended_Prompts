@@ -1,0 +1,5 @@
+The stale scent of instant coffee and impending doom hung thick in the air of the office. Outside, the pre-dawn drizzle smeared the already blurred city lights, reflecting in the countless rain-slicked rooftops visible from the firm's eleventh-floor windows. Inside, it was a different kind of gloom, one of overflowing inboxes, looming deadlines, and the barely-repressed anxiety that permeated every fiber of Harper & Stern.
+
+This particular pocket of misery was the litigation department, and in its dimly lit corner resided our protagonist.
+
+**Eleanor Rose Beaumont**, a paralegal with an uncanny ability to decipher legalese and a penchant for rescuing wilting office plants, stared bleary-eyed at her computer screen. The glow highlighted the dark circles under her eyes and the unruly strand of auburn hair that perpetually escaped her otherwise neat bun. She was knee-deep in the deposition transcripts for the Peterson vs. GlobalTech case, a messy intellectual property dispute that had been dragging on for months, threatening to swallow her whole. Eleanor felt a pang of sympathy for the wilting fern on her desk, it clearly understood the feeling.

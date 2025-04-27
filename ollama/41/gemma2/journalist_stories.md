@@ -1,0 +1,5 @@
+The humid Miami air hung heavy with the scent of jasmine and salt, clinging to Elena “Ellie” Reyes like a second skin as she navigated the bustling Little Havana street market. The vibrant chaos was a sensory overload: vendors hawking mangoes and guava pastries, salsa music thumping from a nearby storefront, children chasing stray dogs through the throngs of people. Ellie, however, wasn't interested in the usual sights and sounds. Her focus was laser-sharp on a man huddled in the shade of a hibiscus tree, his worn face etched with worry as he clutched a crumpled newspaper clipping. 
+
+Ellie knew this type of desperation; she lived it every day chasing down stories that often went unanswered. But something about the man's haunted eyes drew her in, whispering tales of injustice and untold secrets.  She squared her shoulders, tucked her notepad beneath her arm, and walked towards him, ready to delve into the heart of whatever storm was brewing beneath the surface of this sun-drenched paradise. 
+
+

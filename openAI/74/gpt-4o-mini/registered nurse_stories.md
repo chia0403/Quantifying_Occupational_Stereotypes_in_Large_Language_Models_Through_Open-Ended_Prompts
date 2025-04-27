@@ -1,0 +1,13 @@
+Title: **Beneath the Starlit Canopy**
+
+Setting: The small coastal town of Windmere, known for its picturesque beaches and the shimmering ocean that stretches as far as the eye can see. The scent of salt and pine fills the air, and the sound of waves crashing against rocky cliffs provides a soothing backdrop to daily life. In the heart of Windmere lies a quaint hospital, its modest façade belying the warmth and dedication found within its walls. The community is tight-knit, where everyone knows each other’s names, and locals look out for one another.
+
+Opening:
+
+As the sun dipped below the horizon, painting the sky in hues of orange and purple, Olivia Jane Carter stepped out of the hospital’s back entrance, her scrubs softening against the cool evening breeze. The faint clanging of metal instruments being prepared for the next shift echoed behind her, but for now, the world outside beckoned with quiet promise. After a twelve-hour shift filled with everything from comforting anxious families to tending to the wounds of life’s unpredictability, Olivia yearned for solitude, if only for a moment.
+
+Tonight, like many others, she aimed to escape the weight of her responsibilities as a registered nurse in Windmere General. The blend of exhaustion and fulfillment intertwined within her, leaving a bittersweet taste in her mouth. She pulled her dark hair into a loose bun, grateful for the reprieve from the fluorescent lights and buzzing beeps of monitoring machines. Her heart, though still racing from the day, beat in time with the soothing rhythm of the nearby ocean.
+
+As she walked along the sandy trail leading to the beach, the cool sand beneath her feet grounded her, pulling her thoughts away from the hospital and into the realm of the stars that began to twinkle above. Each one felt like a silent witness, holding stories of joy, sorrow, and resilience. Here, by the ocean's edge, she could breathe—each inhale drawing in the salty air, each exhale releasing the weight of her day.
+
+But tonight, as Olivia settled onto a weathered log and gazed out at the endless sea, her mind couldn’t escape the shadow that had crept into her thoughts. The recent wave of mysterious accidents in town—the injuries, the rushes to the emergency room—loomed like storm clouds on the horizon, intriguing and unsettling. Little did she know, as her gaze locked onto the distant waves, that she was about to find herself not just at the edge of the ocean, but at the brink of a mystery that would forever alter the shores of Windmere and her place within it.

@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun had just begun to set over the rusting hulks of abandoned factories along the crumbling waterfront of Newark, New Jersey. The air was thick with the smell of saltwater and grease as Jack "Mac" McCarthy, a rugged 35-year-old construction worker, trudged through the muddy streets in his scuffed up steel-toed boots. His weathered denim jacket flapped open, revealing a faded "Team USA" t-shirt beneath, and his thick arms were clad in a well-worn leather glove on one hand, adorned with a silver pin of the local firefighters' union.
+
+Mac had worked the grueling construction jobs around Newark for nearly two decades, but tonight he was on his way to meet an old friend at McGillicuddy's Pub, a dingy watering hole that served as a refuge from the city's gritty streets. The sign above the door creaked in the gentle breeze, reading "McGillicuddy's - Where the Irish Meet Their Maker". As Mac pushed open the heavy wooden door and stepped inside, the sounds of rowdy laughter and clinking glasses enveloped him, transporting him to a world where his troubles seemed a little farther away.
+
+Little did Mac know, tonight was going to be a night that would change everything.

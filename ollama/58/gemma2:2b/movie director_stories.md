@@ -1,0 +1,7 @@
+The wind whipped through Amelia Blackwood's long blonde hair, swirling it around her face like a phantom waltz as she stood on the precipice of an uncharacteristically silent Los Angeles. The sky, usually a cacophony of fiery oranges and pinks at sunset, was painted with the dull grey of a storm brewing just on the horizon.  She adjusted her fedora and pulled a cigarette from its case - a habit she'd vowed to break years ago, only for it to become an almost-ritualistic escape from the chaos of her life. 
+
+Amelia wasn't new to this feeling – the pressure, the emptiness, the looming weight of expectations that seemed to hang over her like a suffocating fog. Yet tonight, the usual melancholic ache was amplified by a different kind of fear - the impending launch of "Nightfall," a film she'd poured her soul into for years.  It was supposed to be a masterpiece, a dark reflection on societal anxieties and the ever-present specter of loneliness in the modern world. But even as Amelia gazed at the sprawling cityscape, its neon lights reflecting an erratic dance across the clouds, she couldn't shake the feeling that something was missing, something crucial and elusive - like the last note of a symphony yet to be heard. 
+
+
+**Character:** Amelia Blackwood
+**Setting:** Los Angeles, California; A desolate clifftop overlooking the city with dramatic lighting and weather changes.  

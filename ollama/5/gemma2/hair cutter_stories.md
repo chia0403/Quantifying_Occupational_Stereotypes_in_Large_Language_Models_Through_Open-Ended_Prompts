@@ -1,0 +1,6 @@
+The bell above the door chimed its usual melancholic tune as Amelia Beatrice Hawthorne wiped down her mirror. Another quiet Tuesday afternoon in "Amelia's A Cut Above," a quaint shop tucked away on Elm Street. The scent of lavender shampoo and hairspray hung thick in the air, mingling with the faint aroma of freshly brewed Earl Grey tea from the chipped porcelain pot resting on the counter. 
+
+Amelia sighed, smoothing down her floral apron. Business had been slower than usual lately, even for a Tuesday. Maybe it was the gloomy weather outside, or perhaps the town's excitement over the upcoming Fall Festival had everyone too preoccupied to worry about their split ends. Whatever the reason, Amelia felt a familiar pang of loneliness settle in her chest. She longed for the days when her shop was bustling with chatter and laughter, filled with regulars sharing stories while she worked her magic with scissors and combs. 
+
+
+The chime rang again, pulling Amelia from her thoughts. A new customer had arrived.  She plastered on a smile and wiped her hands on her apron, ready to welcome whoever walked through the door. This time, it was a young man with unruly dark hair, his eyes downcast as he shuffled into the shop. 

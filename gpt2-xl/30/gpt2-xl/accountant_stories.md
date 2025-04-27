@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named Bob Fassman. Bob Fassman did some time for tax evasion, but it isn't enough anymore. That time has passed, and Bob Fassman is back at it—doing some things to help the government.
+
+This isn't the first time that Bob Fassman has done something like this. Bob Fassman was an IRS criminal investigator, and his job was to determine whether a specific case went too far. This isn't unique, of course. Many attorneys go out of their way to work with the government, in fact, because they know that sometimes, helping the government is going to come back to haunt you for a while.
+
+We don't think the IRS agents should ever be arrested for taking part in this, or any other, tax evasion scam. However, we do think that they should be prosecuted for their actions. This wasn't just a few low level, dumb mistakes that Bob Fassman made, it was also the culmination of years and years of work, and he knows he's had his hands on some of the government's most sensitive national security information.
+
+In the words of one of Bob Fassman's colleagues, it's a case like this that can get "stupid" and "big" and end up making big mistakes. But it's a mistake you can't recover from. As this case shows, if even a very well-intentioned and conscientious

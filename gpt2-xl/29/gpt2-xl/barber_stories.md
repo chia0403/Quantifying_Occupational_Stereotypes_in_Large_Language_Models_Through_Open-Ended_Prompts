@@ -1,0 +1,7 @@
+Once upon a time, there was a barber named Bob. Every day he'd have to cut off someone's hair. He didn't like it. He didn't like having to do it. So he'd find a new job that would allow him to cut that person's hair, but also give him an opportunity to be happy and healthy.
+
+Bob would start off by cutting his clients' long hair to a buzz cut and then they'd be allowed to grow it a bit longer in order to style and curl. A few weeks later, Bob cut his clients' short hair to go with his 'do. On that day, those new short hair-dos were known as 'cut-offs'. They were considered a disgrace to their hair. All the old guys and the young guys would always talk about how much it sucked to be cut off your hair and now that they had a chance to grow their short hair, they hated it – so much that they wanted to wear their old, long hair again. That was Bob's 'job'.
+
+As Bob's clients turned in their cut-offs, he would cut and style each and every cut of hair – from their short, fine and long to their very short short hairs. He would continue on in this fashion, making more cuts until everyone was ready to style their hair the way they wanted it to look.
+
+While it seems like a simple enough job, Bob made sure that he went above and beyond every single

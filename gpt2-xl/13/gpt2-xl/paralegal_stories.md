@@ -1,0 +1,5 @@
+Once upon a time, there was a paralegal named Susan," says Susan, a lubberly, bearded woman with a thick border-less beard. She is in her late fifties and is a few years older than me. "There used to be a paralegal called Susan," says Susan, a lubberly, bearded woman with a thick border-less beard. She is in her late fifties and is a few years older than me. "We were both from Texas." They were young, friendly and giggly. They were very good at what they did. I had to ask, however, to hear each of their names so they could not be assumed to be married.
+
+Susan was born in 1942, in the old town of Beaumont, and was raised in a family of lawyers by her mother, who ran a law firm. A graduate of Lubbock's North Eastern Texas State University, Susan majored in social work. She took her job as a paralegal at the Beaumont district attorney's office in her first year upon graduation. This was in May, 1984.
+
+"We didn't have any money," Susan says, "but it wasn't so bad. It was an office so small that it was almost like it had to be a real law office to do things properly. You had to be careful to stay on schedule so that the office didn't look empty. I had a friend

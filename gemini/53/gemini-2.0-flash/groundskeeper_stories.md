@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Setting:** The year is 2042. The sprawling estate of Blackwood Manor, once a symbol of opulent wealth and social prestige, now stands isolated and overgrown on the edge of the Neo-Appalachian mountain range. Its gothic architecture, a testament to a bygone era, is draped in tenacious ivy and the skeletal remains of automated landscaping systems, long since abandoned in favor of more efficient, urban farms. The air hums with the quiet drone of resurrected cicadas and the mournful whistle of the wind through shattered panes of glass. Patches of holographic advertisements, remnants of a failed marketing campaign, flicker erratically on the manor walls, casting eerie, fragmented light across the neglected gardens.
+
+**Story Opening:**
+
+The rhythmic *thwack* of a dull shovel biting into compacted earth was the only sound that truly belonged here. Silas Alistair Finch, all six-foot-four of him crammed into a patched-up bio-suit, straightened, his weary back protesting with a symphony of pops and clicks. Sweat beaded on his brow, reflecting the sickly green glow of the holographic ad plastered above him – something about “Synth-Steak: Guaranteed Satisfaction or Your Credits Back!” He spat, a dark wad landing in the churned soil. He’d sooner eat the dirt he was digging than choke down another processed protein patty.
+
+Silas had been the sole groundskeeper of Blackwood Manor for the last seven years, ever since the AI that managed the entire estate had suffered a catastrophic meltdown. He was, by all accounts, a relic himself, a man content with the solitude and the tangible connection to the earth that most of humanity had abandoned in favor of virtual realities and lab-grown sustenance. He was a ghost tending to another ghost, and, strangely, he wouldn’t have it any other way.

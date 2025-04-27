@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The dimly lit wings of the historic Blackwood Theatre stood like sentinels, their ornate plasterwork and faded grandeur bearing witness to countless performances that had come and gone over the years. Amidst this eerie quiet, artistic director Emilia Sofia LaRosa stirred the embers of creativity within herself as she stepped into her office, a cramped but elegant space with walls lined with dusty shelves and framed photographs of long-defunct productions.
+
+As she poured herself a cup of lukewarm coffee from the thermos on her desk, Emilia's gaze wandered to the worn velvet curtain that partially obscured the entrance, its folds fluttering softly in the faint breeze that wafted through the theatre's ductwork. Tonight was opening night for her latest production – a bold, avant-garde adaptation of Tennessee Williams' A Streetcar Named Desire, set against the backdrop of 1950s New Orleans jazz. The cast had spent weeks rehearsing and perfecting their roles, but Emilia knew that tonight would be different. This time, she felt it in her bones: something was off.
+
+Little did she know, this feeling was only the beginning of a journey that would test her artistic vision, push her to the limits of her creative control, and force her to confront the dark secrets that had haunted the Blackwood Theatre for decades...

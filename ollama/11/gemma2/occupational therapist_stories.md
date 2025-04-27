@@ -1,0 +1,6 @@
+The scent of lavender hand sanitizer mingled with the sterile tang of antiseptic hung heavy in the air. Elara Bellweather adjusted her spectacles, peering down at the tangled mess of limbs splayed across the therapy table.  A young boy, no older than eight, named Finn, whined softly, his brow furrowed in concentration as he struggled to grasp a brightly coloured puzzle piece. He'd been hesitant to participate this morning, clutching his mother's hand and refusing to let go. Elara understood – navigating a world that suddenly felt unfamiliar after a debilitating accident could be terrifying for anyone, especially a child.
+
+Elara worked at The Willow Tree Rehabilitation Centre, nestled on the outskirts of sleepy Oakhaven, a town where time seemed to move at a gentler pace than in the bustling city just an hour away. Surrounded by towering oak trees that whispered secrets in the wind, and with sunlight filtering through stained glass windows, the centre exuded a sense of calm that was desperately needed for those navigating their path back to normalcy. 
+
+
+Today, however, Elara sensed a storm brewing beneath Finn's quiet frustration. She knew pushing him too hard wouldn't help. He needed a different approach – something playful, engaging, and most importantly, reassuring.  

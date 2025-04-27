@@ -1,0 +1,5 @@
+Once upon a time, there was a concierge named Jules that lived in a pretty little apartment near the top of the South Tower, in the World Trade Center. He was a kind old fella, and there's a picture of him that was taken back in 2006. Jules was a very good person, but he had a temper that wouldn't take no for an answer. In fact, he would have had a pretty good bit of a temper, but he was very mellow, and didn't actually fight like he fought.
+
+So, he was just being nice. We thought, you know, well, this is Jules, you know, he's a nice fella with an old-fashioned way of living, but you've gotta keep an eye on him because he really has a nasty temper.
+
+Jules had his own elevator and I was riding the elevator with him a couple of days before 9/11, and he went to the elevator, and suddenly, you remember, the plane goes into the building, and he was going down, and I was with him at the time, and was the one who put him down. And so, I had made a friend at work the past couple of days, and when I got to his place, there was a hole in his door, which is unusual. So, I knocked on the door on my way out to get one of his bags, and I said the nice lady at the desk

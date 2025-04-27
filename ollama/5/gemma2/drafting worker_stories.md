@@ -1,0 +1,6 @@
+The acrid scent of sweat, graphite, and cheap coffee hung thick in the air of the drafting room. Lines, both straight and serpentine, danced across parchment sheets illuminated by the flickering gaslight. Amelia Beatrice Hawthorne, her brow furrowed in concentration, carefully etched another line onto a blueprint of a colossal steam engine, her steel-tipped compass whispering against the paper. 
+
+The year is 1893. The workshop buzzed with the rhythmic clang of hammers and the rasp of metal on metal, punctuated by shouts from foremen and the occasional burst of laughter. Outside, the city of London throbbed with a life Amelia rarely experienced. Her world existed within these four walls, confined to the intricate language of blueprints and the constant struggle for precision. 
+
+
+Amelia felt a pang of longing as she glanced at the clock, its hands creeping closer to quitting time. The street outside, teeming with people, beckoned with promises of warmth, laughter, and perhaps even a stolen kiss from Mr. Davies, the baker's son who winked at her every morning. But for now, Amelia’s world was confined to the delicate lines she drew and the steam engine that threatened to consume her attention entirely. 

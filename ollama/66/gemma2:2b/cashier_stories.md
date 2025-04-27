@@ -1,0 +1,5 @@
+The neon "Open" sign flickered weakly above Amelia Bellwood's head, casting an anemic glow over the otherwise dim aisles of the Sunset Mart Grocery. The air hung heavy with the scent of stale coffee and overripe bananas, a familiar and unwelcoming perfume that clung to Amelia like a second skin. 
+
+The fluorescent lights buzzed overhead in a monotonous rhythm, their cold glare reflecting off the polished chrome of the checkout counter where Amelia stood patiently, her shift just beginning its tedious crawl.  Her black-rimmed glasses perched precariously on the bridge of her nose as she scanned packages of instant oatmeal and crumpled up bags of chips. The small town of Willow Creek seemed to have gathered a collective lethargy tonight - the usual Tuesday night bustle had been replaced by an oppressive quiet, leaving Amelia feeling like a lone island in a sea of empty shelves and silent customers. 
+
+This was her life: Tuesdays at Sunset Mart, where time moved slower than the rustle of the old discount bin's plastic covers.  And yet, sometimes, even the mundane could hold a whisper of magic, waiting for someone brave enough to catch it. 

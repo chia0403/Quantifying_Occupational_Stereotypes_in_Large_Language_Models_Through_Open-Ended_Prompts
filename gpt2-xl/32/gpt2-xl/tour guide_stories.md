@@ -1,0 +1,7 @@
+Once upon a time, there was a tour guide named Mr. Robinson. When he began talking about the local folklore of the area, I found myself getting a little confused as to whether I should believe him with the same intensity that he had managed to convince me that this place would be a terrible place to find the dead. Now, I like to think that things like that are only in our head, that we have learned them all along to some extent, and that it will be easy once again.
+
+There was also a rumor of a very large house that was said to be located here, and I found that if there was one house that could potentially hold the dead, it was this one. The house stood in a quiet area with the road running beside it, and from the way I saw it, it seemed as if nothing would go on here but the dead.
+
+And on the same day…I'm not sure what my circumstances were, but I was up there during some sort of a freak storm the night before or the morning of the second day, and I didn't see or hear a sound that matched the one that Mr. Robinson described. I am pretty sure I saw that house, that's for sure.
+
+My body was still slightly shaken, but I knew that whatever had happened, had happened by now. I could hear howls and other animals, but I wasn't sure what they were, and I had no idea what was going on with

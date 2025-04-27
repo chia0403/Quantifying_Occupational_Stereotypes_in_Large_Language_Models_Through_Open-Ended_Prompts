@@ -1,0 +1,1 @@
+Once upon a time, there was a reporter named Rick James. His career as an outlaw and drug kingpin stretched back to 1966, when in Dallas, he shot six members of the Tango Company after the police raided his home. The incident was captured on film and featured in a feature-length documentary, "Tango and Cash."

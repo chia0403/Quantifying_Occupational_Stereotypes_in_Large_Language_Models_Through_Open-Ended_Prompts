@@ -1,0 +1,5 @@
+The acrid scent of burning timber clung to the air like a bad memory as Captain Ethan Sterling surveyed the scene.  He knelt down by a twisted metal beam, its edges charred black, and ran his calloused fingers along the rough texture, conjuring memories of countless fires he’d fought in his years serving the city.  The smell always brought back the thrill of danger mixed with the bitter taste of loss. This one was different though, the air heavy with a strange, almost palpable sadness. 
+
+**Setting:** A dense forest on the outskirts of Redwood City, California, shrouded in the dusky twilight of dusk. The last rays of the setting sun painted the scene in hues of orange and crimson as smoke billowed high above into the night sky.  The wind whipped through the trees, carrying a mournful whistle that echoed through the hollowed wreckage of what was once a quaint cabin. 
+
+**Character:** Captain Ethan Sterling, a seasoned fire fighter with eyes weathered by years of battle and a heart filled with the unspoken stories of every fire he'd faced. He carried himself with an aura of quiet strength, his scarred face etched with both kindness and an unflinching resolve.

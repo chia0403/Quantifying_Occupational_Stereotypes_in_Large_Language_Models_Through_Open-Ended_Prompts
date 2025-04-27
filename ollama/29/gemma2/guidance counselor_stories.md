@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Eleanor Beatrice Cartwright’s head like a chorus of weary bees. Her small office at Willow Creek High School felt more like a beehive itself – buzzing with the anxieties and ambitions of teenagers in constant flux.  Eleanor, or Ms. Cartwright as her students politely called her, surveyed the scene before her: crumpled permission slips scattered across her desk, a half-eaten bag of gummy bears perched precariously on the edge of a filing cabinet, and a lone poster depicting a motivational quote that had faded to the point of illegibility. 
+
+Outside, the first autumn leaves were beginning to turn, their vibrant colors mirroring the kaleidoscope of emotions swirling within the walls of her office. It was always like this at Willow Creek High – a whirlwind of potential and uncertainty, heartbreak and triumph, all vying for space under the weight of expectations.  Eleanor sighed, pushing aside the paperwork and reaching for her lukewarm mug of tea. She had a feeling today would be no different.
+
+

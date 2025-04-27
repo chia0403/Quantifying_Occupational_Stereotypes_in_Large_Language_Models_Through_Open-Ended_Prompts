@@ -1,0 +1,5 @@
+The humid Louisiana air hung heavy as thick as molasses, clinging to Bartholomew "Bart" Beaumont like a second skin.  Sweat trickled down his temple, mixing with grime from a morning spent wrestling with exposed wiring in Mrs. Dubois' attic. The old woman swore the humming had started after her prized rooster, Cluck Norris, vanished without a trace. Bart, a pragmatic man of circuits and transformers, attributed it to faulty insulation, but he couldn't help but feel a prickle of unease as the incessant drone filled his ears. 
+
+He descended the creaky attic stairs, leaving behind Mrs. Dubois' anxious questions about Cluck Norris and the strange lights flickering in her garden shed.  As Bart stepped out onto the porch, the late afternoon sun cast long shadows across the moss-covered lawn, painting the familiar tableau of her ramshackle farmhouse in an unsettling glow. The air thrummed with a palpable tension, like a taut string about to snap. He felt it in his bones – something was off in Bayou Lacassine.  
+
+

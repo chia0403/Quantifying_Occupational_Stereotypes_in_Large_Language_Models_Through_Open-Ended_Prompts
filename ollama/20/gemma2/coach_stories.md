@@ -1,0 +1,6 @@
+The air hung thick with humidity, clinging to Coach Amelia 'Amy' Harper like a second skin as she surveyed the field. The late afternoon sun beat down on the cracked asphalt, turning it into a shimmering mirage under the sweltering July sky. Sweat beaded on Amy's forehead, tracing paths through the dirt smudged across her cheek from yesterday's game. This was more than just another summer practice; this was the first day of tryouts for the Eagles, and Amy felt the weight of expectations pressing down on her shoulders like a physical burden.  The Eaglettes had been a powerhouse in their division for years, but last season had ended in a crushing defeat, leaving a bitter taste in everyone's mouths. This year, Amy was determined to rebuild, to ignite that fire in these girls and guide them back to glory.   
+
+
+She glanced at the roster pinned to the weathered chain-link fence: names like Maya Garcia, Sarah Jones, and Emily Chen stared back at her, each one representing a potential star waiting to be unleashed. 
+  
+Taking a deep breath, Amy raised her hands above her head, silencing the excited chatter that had erupted among the girls assembled on the field.  "Alright ladies," she began, her voice raspy from the heat and anticipation, "Let's get started." The whistle blew, and a new season, one filled with hope and the promise of victory, began.   

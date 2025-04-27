@@ -1,0 +1,11 @@
+## Story Opening & Setting:
+
+**Story Opening:**
+
+The scent of eucalyptus and desperation hung heavy in the air of Dr. Amelia Grace Peterson's office. It was a Tuesday, traditionally the busiest day, but even she, hardened to the ebb and flow of bodily complaints, felt a prickle of unease. Mr. Henderson, bless his heart, had just finished describing, in excruciating detail, how his pinched nerve felt like a thousand tiny ants tap-dancing the Macarena on his lumbar vertebrae. Amelia, suppressing a sigh, forced a smile and reached for her gloves. "Alright, Mr. Henderson," she said, her voice soothing, "let's see if we can quiet those dancing ants, shall we?" But as her fingers palpated the knotted muscles of his lower back, her gaze kept drifting towards the waiting room, specifically to the shadowy figure perched on the edge of a worn leather chair, a fedora pulled low over his eyes. He hadn't booked an appointment. He hadn't even spoken. He simply sat, radiating an energy that felt less like acute back pain and more like impending doom.
+
+**Setting:**
+
+The setting is the small, unassuming office of Amelia Grace Peterson, D.C., located on the second floor of a creaky brick building in the historic district of Harmony Creek, Iowa. Harmony Creek is a town steeped in small-town charm, complete with a town square gazebo and a thriving local farmers market. However, beneath the idyllic facade lies a history as tangled and overgrown as the ivy that creeps up the building's walls.
+
+Amelia's office is a haven of calm in this otherwise bustling (by Harmony Creek standards) part of town. The walls are painted a calming shade of sage green, adorned with anatomical charts and framed diplomas. A soft, instrumental version of The Beatles plays perpetually on a small sound system. The aroma of essential oils mixes with the faint, clinical scent of rubbing alcohol, creating a unique and slightly offbeat atmosphere. A worn chiropractic table, its surface softened by years of use, dominates the main treatment room. The waiting room, though small, is carefully curated with comfortable chairs, a stack of well-thumbed magazines, and a small fish tank filled with perpetually bored-looking goldfish. Despite the meticulous decor, the building itself betrays its age with uneven floorboards, a drafty window, and the occasional unexplained creak.

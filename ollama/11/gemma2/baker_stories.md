@@ -1,0 +1,5 @@
+The aroma of warm bread and simmering cinnamon hung thick in the air, clinging to Eleanor Thistlewick's apron like a second skin. Outside, the wind howled down cobblestone alleys, rattling the windows of her bakery, "The Whispering Hearth," on a particularly dreary Tuesday morning in Fairhaven. The seaside town was known for its charming chaos – fishermen arguing over catches, children chasing seagulls, and tourists wandering with bewildered smiles – but today even the usual bustle seemed muted by the storm brewing both outside and within Eleanor's heart. 
+
+Her hands, normally nimble and sure as they kneaded dough, felt clumsy and hesitant as she stared into the empty oven.  A flyer announcing "The Great Fairhaven Bake Off" was tacked to the worn wooden counter, its bold lettering a mocking reminder of her anxieties. This year, Eleanor had sworn she wouldn't compete. Last year's defeat at the hands of young, arrogant baker Jasper Hawthorne still stung like fresh yeast. But now, with whispers of a prestigious baking scholarship on the line,  she found herself torn between her fear and the embers of ambition flickering within her soul. 
+
+

@@ -1,0 +1,9 @@
+Title: Shadows in the Rain
+
+The streets of New Orleans were slick with rain, reflecting the kaleidoscope of neon lights from the bars and jazz clubs that lined Bourbon Street. It was one of those typical nights when the atmosphere buzzed with the energy of tourists and locals alike, laughter mixing with the distant strains of a trumpet. Yet, above the revelry, in a dimly lit office on the second floor of a crumbling brick building, the air was thick with cigarette smoke and contemplation.
+
+At her wooden desk, cluttered with case files and a half-empty bottle of bourbon, sat Eloise Margaret Hawthorne—private detective. Her dark curls hung loosely around her shoulders, and the flickering light cast shadows on her sharp features and discerning green eyes. She was a woman well-acquainted with the underbelly of the city, having spent years navigating its secrets and lies. Tonight, she was restless, as if the storm outside mirrored the turmoil brewing in her thoughts.
+
+Eloise sighed, tapping her fingers against the grain of the desk, each thud echoing like a distant drumbeat, a reminder of the chaos lurking just beyond her window. Two weeks had passed since she’d taken on an unusual case involving a missing jazz musician, and now the rain seemed to wash away her patience. She flicked a glance at the clock—it was nearly midnight, and the midnight hour always brought with it the whispers of the past.
+
+With a quick pull of her jacket collar against the chill, she decided it was time to head into the heart of the storm, where the lost souls of the city often found refuge in music and drink, but where every note also hid a note of danger. The streets beckoned, and beneath the layers of mystery and rhythm, Eloise felt certain there lay answers waiting to be uncovered.

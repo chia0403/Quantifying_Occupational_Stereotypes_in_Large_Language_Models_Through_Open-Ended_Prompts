@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named Bill Gates Jr. And, before you ask, he is of course no longer an accountant as we can attest from this video.
+
+What happens when a corporation like Microsoft changes what it calls its "corporatism," if that's what one might call it? Why should the citizens of a country allow a business to become a nation itself and act as if it is a nation? Where does the sovereignty for a country end and the sovereignty of a corporation begin? Should a country be bound by the law of the land or the law of a corporation? Should a man be bound only by the laws of a corporation or a man by the laws of the land?
+
+As it is explained by those who have the right and power to decide the future of this country, corporations are under no greater obligation than any other human being to support the society in which they operate. These are not individuals with an "inherent rights," but are instead entities that are being "given" a status through the government. As such, they have the right to dictate how they should be governed, which means that the public loses its right to make laws for the individual and a certain set of people must be allowed to determine our society for us.
+
+However, how, exactly, can we know who decides what to say is good? How can we know who will be determining our society? The answer, we were assured by these people, is that

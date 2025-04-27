@@ -1,0 +1,6 @@
+The air hung thick with the scent of stale coffee and desperation.  Sunlight struggled to penetrate the grimy windows of "The Last Reel," a dilapidated former cinema turned into a makeshift production studio.  Dust motes danced in the slivers of light, illuminating chipped paint and cobwebs that draped like ghostly curtains over the aging equipment.
+
+Elias Thorne adjusted his thick-rimmed glasses, frowning at the scene before him. His once vibrant blue eyes, now dulled with exhaustion, scanned the chaotic set – a mishmash of cardboard boxes pretending to be skyscrapers, flickering fluorescent lights offering an anemic imitation of sunset. This was his third attempt at making this film, "Neon Labyrinth," and it felt like every hurdle he’d overcome just brought him face-to-face with a new mountain. He ran a hand through his hair, already graying prematurely from the stress. 
+
+
+Elias Thorne, renowned for directing critically acclaimed indie films in his early career, was now struggling to keep his head above water. His last few projects had been flops, leaving him scraping by on meager funds and dwindling hope.  "Neon Labyrinth," a cyberpunk thriller that he'd poured his heart and soul into, was his last shot at redemption – or possibly, the final nail in his coffin. 

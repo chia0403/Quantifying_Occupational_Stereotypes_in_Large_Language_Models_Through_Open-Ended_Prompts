@@ -1,0 +1,5 @@
+The neon sign outside flickered with tired defiance, casting an oily rainbow across the rain-slicked pavement.  It read "Rosie's Roost" in chipped, faded letters, barely visible against the gloom of the late October evening. Inside, warmth radiated from the worn wood bar and the brass spittoon glinted under the dim overhead lights. Smoke hung heavy in the air, a tapestry woven with the scent of stale beer and cheap perfume. This was Amelia Rose "Rosie" Thornton's domain, her sanctuary carved out of the grit and grime of downtown New Haven.  
+
+She wiped down a sticky glass, the rhythmic swish-swish of the rag a familiar counterpoint to the low murmur of conversation and the clinking of glasses. Rosie, with her short salt-and-pepper hair, sharp blue eyes that missed nothing, and the perpetual smudge of ink on her fingertips from years of keeping meticulous ledgers, was a fixture in this dimly lit haven for lost souls and weary wanderers. Tonight, she braced herself for another night of spilled secrets, unshed tears, and the comforting routine of pouring solace one drink at a time. 
+
+

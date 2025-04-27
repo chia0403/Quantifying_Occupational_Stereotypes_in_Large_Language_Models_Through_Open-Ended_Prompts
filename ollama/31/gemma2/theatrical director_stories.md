@@ -1,0 +1,6 @@
+The air hung thick with the scent of dust and aged velvet, a familiar perfume to Rosalind "Roz" Beatrice Blackwood, Artistic Director of the Grand Majestic Theatre.  Sunlight slanted through grimy skylights, illuminating swirling motes in the cavernous rehearsal hall. A single bare bulb cast a harsh spotlight on the dusty stage floor, where Roz paced like a caged lioness, her impatience simmering just below the surface. 
+
+"This isn't working!" she barked, her voice echoing off the high walls. The chorus line, clad in ill-fitting Renaissance garb, looked at each other with sheepish smiles. "The scene is supposed to be about yearning, about unfulfilled desire!  Not… well, not this." Roz gestured vaguely at their stilted movements and overly enthusiastic twirling.
+
+
+This was the Grand Majestic's first production in five years - a revival of Shakespeare’s *As You Like It* aimed at breathing new life into the beloved theatre, and Roz was determined it wouldn't be a flop.  The weight of the theatre's legacy, its past glories, and the hopes of a city starved for culture pressed down on her like a physical burden. But amidst the chaos and anxieties, Roz held onto a flicker of hope, fueled by the talent she knew simmered beneath the surface of this ragtag group of actors.  

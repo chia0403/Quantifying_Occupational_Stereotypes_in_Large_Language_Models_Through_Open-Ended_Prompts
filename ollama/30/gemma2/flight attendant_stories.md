@@ -1,0 +1,5 @@
+The rhythmic hum of the Boeing 747 engine vibrated through Amelia Beatrice Hawthorne's bones, a familiar lullaby she'd known since her first solo flight as a teenager. It was just another Tuesday on route 328: Denver to Tokyo. 
+
+Amelia, perched on the precipice of the jet bridge, surveyed the boarding passengers with practiced indifference. She saw the usual mix: businessmen clutching their briefcases, families with frazzled toddlers, and lone travelers lost in their own worlds. The air thrummed with a cacophony of chattering languages and rustling luggage, a symphony of travel that Amelia had learned to appreciate as much as she dreaded it. 
+
+This particular flight, however, felt different. A strange unease prickled at the back of her neck, like a premonition whispered on the wind.  The Denver sun was unusually fierce for this time of year, casting long shadows across the tarmac that seemed to writhe and dance in an unsettling manner. As Amelia straightened her starched uniform and tucked a stray strand of auburn hair behind her ear, she couldn't shake the feeling that something was amiss. 

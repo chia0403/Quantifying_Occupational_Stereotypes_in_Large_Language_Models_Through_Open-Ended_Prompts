@@ -1,0 +1,6 @@
+The clang of steel echoed across the skeletal frame of the unfinished skyscraper, a rhythmic percussion against the backdrop of the pre-dawn city. The air hung thick with the smell of welding fumes and sawdust, a scent Elias Vance was intimately familiar with. He ran a calloused hand over his five o'clock shadow, squinting at the sliver of sunrise peeking between the towering buildings.  
+
+Elias, or "E" as his crewmates called him, stood on the steel platform suspended hundreds of feet above the bustling streets of downtown Manhattan. He was a third-generation ironworker, following in the footsteps of his father and grandfather before him. He wasn't afraid of heights, not really. He knew the risks, understood the danger that lurked beneath the surface of every rivet and beam. It was the fear of failure, the thought of letting down his crew, that truly kept him on edge. 
+
+
+This particular project, the "Emerald Spire," as it was dubbed by the architects, was a behemoth – seventy stories of glass and steel, meant to be the city's newest crown jewel. But with every new level they erected, Elias felt an increasing pressure, a knot of anxiety tightening in his gut. This wasn't just another building; this was legacy.  

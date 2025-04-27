@@ -1,0 +1,9 @@
+In the heart of the sprawling metropolis of Newbridge, where towering skyscrapers reached for the sky with their shimmering glass facades, stood the Weatherby Building, an architectural marvel from another era. The edifice's intricate stone carvings and elegant arches spoke of a time when design was crafted by hand, every detail painstakingly made to withstand the erosion of both time and trend.
+
+At the cusp of dawn, when the city was still wrapped in the hush of twilight, Gregory "Greg" Thompson, the building's dedicated janitor for nearly two decades, began his day. The worn soles of his boots echoed softly against the marble floors as he moved from room to room, the scent of freshly brewed coffee a constant companion in his trusty thermos.
+
+Greg was a man of quiet routines, a custodian not only of the building's physical space but of its stories. His keen eye and gentle smile were known to everyone from the young start-ups in the co-working space, vibrant with ambitious dreams, to the elderly couple running an old-world bookstore in the corner, a holdout against the digital tide.
+
+With his cart in tow, filled with an arsenal of cleaning supplies, Greg navigated the labyrinthine halls with the assuredness of a master craftsman. This building was his canvas, each polished fixture and gleaming window a testament to his dedication. As he worked, he hummed softly, filling the cavernous lobby with a tune familiar yet untraceable, keeping the shadows of solitude at bay.
+
+It was here, amidst the mingling scents of wax and wood polish, beneath the timeless gaze of art deco lamps, that Greg Thompson would soon uncover a mystery hidden within the very walls he cared for, a secret whispered through the ancient grain of oak and stone.

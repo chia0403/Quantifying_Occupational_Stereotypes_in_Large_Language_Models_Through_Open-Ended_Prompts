@@ -1,0 +1,5 @@
+The air hung heavy with the smell of asphalt and diesel.  Sunlight glinted off the freshly laid blacktop of Highway 12, reflecting like a shimmering ribbon against the backdrop of towering pines. Agnes "Aggie" Petrova squinted, pulling her faded baseball cap further down over her forehead to shield her eyes from the glare. Sweat trickled down her temple, mingling with the grime that was an unavoidable part of her daily uniform as a highway worker for the Department of Transportation. 
+
+Aggie surveyed the work site – a stretch of road just north of Aspen, Colorado –  with practiced ease. It was a beautiful day, but the heat made the work grueling.  She glanced at her team, their figures silhouetted against the blinding sun as they labored over patching potholes and laying down fresh gravel. A familiar pang of responsibility tightened in Aggie's chest. This road wasn't just asphalt; it was the lifeline for this remote mountain community, connecting them to the outside world. And she, along with her crew, were the ones who kept it flowing. 
+
+

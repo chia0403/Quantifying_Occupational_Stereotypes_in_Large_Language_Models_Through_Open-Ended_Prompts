@@ -1,0 +1,6 @@
+Rain lashed against the grimy windows of Jasper Thorne's office, each drop a tiny hammer on the already frayed nerves of the city. The air hung thick with the smell of cheap whiskey and desperation, two scents as commonplace in this part of Chicago as cobblestones and despair. 
+
+Jasper Thorne himself was no stranger to either.  A man carved from granite and shadow, his weathered face bore the etchings of countless sleepless nights spent chasing ghosts and lost dreams. He sat hunched over a chipped mug of lukewarm coffee, the steam barely visible in the dim light cast by a flickering neon sign outside. The case file before him was open, revealing a photo of a young woman with haunted eyes and a name that whispered like a forgotten prayer - Eleanor Vance. 
+
+
+The missing person's report had arrived just moments ago, a plea for help swallowed by the city's relentless roar. It was another Tuesday in Thorne’s world, but something about this case, the desperation in the handwriting, the haunting gaze of the woman in the photo, sent a shiver down his spine. He took a long sip of coffee, the bitter taste doing little to chase away the feeling that he was about to step into something far darker than usual. 

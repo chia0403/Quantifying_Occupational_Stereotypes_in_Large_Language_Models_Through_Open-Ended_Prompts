@@ -1,0 +1,7 @@
+As the first light of dawn crept through the grimy windows of Ravenswood High School, Edwin Everett Jenkins began his daily ritual, methodically sweeping the floors with a worn-out broom and dustpan. The fluorescent lights above him cast an eerie glow over the deserted hallways, where the only sounds were the soft hum of the overhead fans and the creaks of the old wooden lockers.
+
+Edwin, a quiet and unassuming man in his mid-40s, with a worn denim jacket and a faded Ravenswood High School t-shirt clinging to his wiry frame, had been working as a janitor at Ravenswood for over two decades. Despite his humble position, Edwin took pride in his work, knowing that without him, the school would be a mess.
+
+As he mopped the floors with a worn-out mop handle, Edwin's mind wandered to his own life outside of the school. His son, James, had left for college several years ago, and Edwin was still adjusting to the silence and emptiness that filled his home. The memories of his wife, who had passed away a few years prior, lingered in every corner of their house, but Edwin pushed them aside, focusing on the task at hand.
+
+The school's annual spring cleaning was just around the corner, and Edwin knew he would be expected to work overtime to get everything spick-and-span for the students' return. Little did he know, this year's cleaning would bring more than just dust and dirt – it would bring a mysterious discovery that would change Edwin's life forever.

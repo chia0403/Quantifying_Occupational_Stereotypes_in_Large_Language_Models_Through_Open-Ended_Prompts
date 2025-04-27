@@ -1,0 +1,6 @@
+Rain lashed against the windows of Dr. Eleanor Vance’s office, blurring the city lights into an Impressionist painting of yellows and oranges.  The wind howled like a banshee, rattling the old building's bones and sending shivers down Eleanor's spine. It was the kind of night that seeped into your soul, heavy with unspoken anxieties and simmering unease. 
+
+Eleanor sighed, her breath fogging the glass momentarily before melting back into the storm outside. Another late evening at the practice, another round of navigating the labyrinthine corridors of the human psyche.  Tonight's patient, a young woman named Sarah, had left Eleanor unsettled. Her terror was palpable, raw and unfiltered, yet she refused to articulate its source. 
+
+
+Her words, when they came, were fragmented whispers about shadows lurking in corners and a voice that called her name from the darkness. A voice that seemed to know her deepest secrets, her most guarded fears.  Eleanor leaned back in her chair, tucking a stray strand of hair behind her ear. Sarah's case felt different, like a puzzle with missing pieces, each shard hinting at something sinister lurking beneath the surface. The storm outside mirrored the tempest brewing within Eleanor’s own mind; she had to unravel this mystery, for Sarah’s sake and perhaps, for her own sanity. 

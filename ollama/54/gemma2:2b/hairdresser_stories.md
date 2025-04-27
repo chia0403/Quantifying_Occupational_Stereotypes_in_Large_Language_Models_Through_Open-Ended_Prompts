@@ -1,0 +1,5 @@
+The steam from Evelyn's curling iron danced in the humid air as she worked her magic on Mrs. Patterson's unruly mane. The salon was ablaze with the golden glow of afternoon sun streaming through the windows, illuminating dust motes swirling in the light.  Mrs. Patterson, a woman who lived in a constant state of organized chaos, looked vaguely like a wilted sunflower, desperately needing to be tamed. Evelyn sighed; Mrs. Patterson was one of the more challenging clients.  
+
+**Setting:** The Salon "The Polished Comb" is tucked away on a side street in a quiet corner of Oakhaven, a town where time moved at its own pace and gossip flowed freely from window panes. It's filled with the usual aroma of hairspray and lavender hand cream - the smell of success and comfort.  
+
+**Character:** Evelyn Thorne, 28, owner of The Polished Comb, was known for her fierce loyalty to her clients but equally feared for her razor-sharp wit. Beneath a cascade of auburn curls and a mischievous glint in her emerald eyes lay an artist with scissors and brush, capable of transforming the most uninspired look into something breathtaking.  

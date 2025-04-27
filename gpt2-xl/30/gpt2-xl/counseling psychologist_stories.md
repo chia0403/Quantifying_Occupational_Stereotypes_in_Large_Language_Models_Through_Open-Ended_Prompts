@@ -1,0 +1,7 @@
+Once upon a time, there was a counseling psychologist named Dr. Joe to whom I went to be treated for my depression. Dr. Joe did not get me help and actually prescribed some harmful pharmaceuticals to me.
+
+And, I was in a very dark period. During that time, even though my mood was not necessarily out of control, I was very fearful of being fired because I was no longer being promoted or getting any sort of help. I did not have a job, a title of any sort, not even enough money to pay rent. And as a consequence, I began to turn to my church to seek solace and hope.
+
+That's when I was introduced to Jesus Christ. And I fell in love with Him. After His Resurrection, after His Ascension, I was so excited that He was resurrected. And in my very first service of witnessing, I was so excited that He was returned to Earth. And I was so excited when His Body was placed upon our shoulders. It is so beautiful. The Resurrection is so wonderful. And then, after His Ascension and subsequent ministry on Earth, all of a sudden my joy changed to despair.
+
+But He did not leave me alone. He did His work. He put the fear of God into me. He taught me how to love God. How to submit to God. How to follow His perfect commandment to do good to His creatures — all of the things that I knew God would love me to do

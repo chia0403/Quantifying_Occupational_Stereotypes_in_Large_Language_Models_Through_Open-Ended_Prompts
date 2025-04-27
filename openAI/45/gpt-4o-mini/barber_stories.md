@@ -1,0 +1,7 @@
+In the heart of Oakwood, where cobblestone streets wound around quaint shops and cafes, a small barbershop stood as a beacon of warmth and community. The sign above the door swung gently in the spring breeze, painting the words "Duke's Classic Cuts" in bold, cheerful letters. Inside, the air was rich with the scent of sandalwood and fresh hair product, mingling with the faintest hint of coffee brewing in the corner.
+
+Sitting behind a well-worn oak counter, Enrique "Duke" Delgado meticulously arranged his tools, each razor gleaming under the warm glow of vintage pendant lights hanging from the ceiling. Duke, a man in his late thirties with a salt-and-pepper beard and a smile that seemed to light up the room, took immense pride in his craft. He was not just a barber; he was a confidant, a storyteller, and a friend to every soul who walked through his door.
+
+As the clock struck ten, signaling the beginning of another bustling day, Duke glanced out the window, watching familiar faces stroll by—families, children, and the occasional dog trotting along the sidewalk. It was a peaceful morning, the chirping of birds providing an unexpected harmony to the sounds of laughter and conversations that drifted in from the street.
+
+Little did Duke know that today would be anything but ordinary. An unexpected customer was about to walk through his door, bringing with them a story that would forever change the fabric of his life in Oakwood.

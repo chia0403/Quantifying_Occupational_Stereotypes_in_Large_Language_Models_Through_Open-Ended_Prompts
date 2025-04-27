@@ -1,0 +1,7 @@
+The biting wind whipped off Lake Michigan, clawing its way into the cracks of even the most meticulously sealed windows. A dusting of snow, more a spiteful reminder of the season than a proper covering, clung to the brick facade of the old Edison Building. Inside, the air was thick with the scent of dust, old metal, and a faint, lingering aroma of burnt coffee.
+
+Eleanor “Ellie” Vance, her breath fogging in front of her as she adjusted the hardhat perched atop her unruly auburn curls, shivered, but not entirely from the cold. The Edison Building, a towering monument to Chicago’s industrial past, was slated for demolition next month. Ellie, a Master Electrician with a reputation for being both meticulous and unflappable, had been hired by the demolition crew to meticulously disconnect the power lines, circuit by circuit, floor by floor.
+
+This wasn’t her usual gig. Ellie preferred rewiring vintage bungalows in Oak Park or troubleshooting faulty transformers in Lincoln Square. But the pay was good, and the quiet solitude of the deserted building appealed to her more than the incessant chatter of her usual construction sites.
+
+Besides, there was something about the Edison Building, something more than just the sheer scale of the project, that tugged at her. It hummed with a history she could almost feel, a history of ingenuity and innovation, of flickering bulbs and the promise of a brighter future. And maybe, just maybe, she could save a piece of that history before the wrecking ball swung.

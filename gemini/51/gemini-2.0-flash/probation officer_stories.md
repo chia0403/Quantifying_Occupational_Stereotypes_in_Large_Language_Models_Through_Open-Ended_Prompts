@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting:
+
+**Setting:** The late afternoon sun, already dipping low behind the squat, brick courthouse, cast long shadows across the cracked asphalt of the parking lot in Hammond, Indiana. The air, thick with the humidity of a Lake Michigan summer, smelled faintly of exhaust fumes and the sweet, sickly scent of the nearby steel mills.
+
+**Opening:**
+
+Margaret Eleanor Davies, probation officer for the 14th District Court, slammed the trunk of her beat-up Ford Focus with more force than necessary. The sound echoed in the almost empty parking lot, drawing a fleeting glance from the security guard smoking a cigarette by the courthouse entrance. She ignored him.  Another day, another mountain of paperwork, and another gutful of despair.  Closing the trunk wasn't about securing the file she'd just retrieved – it was about containing the pressure building behind her ribs, a pressure she'd come to recognize as the slow, insidious creep of burnout.  The file, thick with faded ink and clipped news articles, belonged to one Jeremy Poole, and its contents promised yet another sleepless night. He was due for his final check-in next week and Margaret Eleanor Davies had the distinct, unsettling feeling that Jeremy Poole was about to disappear. Not just from her caseload, but from the face of the earth. And she had a sneaking suspicion she knew exactly where he was planning on going.

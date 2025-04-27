@@ -1,0 +1,7 @@
+Once upon a time, there was a elementary school teacher named Miss Chiang. She was a great role model that everyone loved. She was known for her kindness and understanding of other people. She went straight from the classroom to a life surrounded by friends, family and teachers who cared for her as she loved to dance.
+
+While working at a hospital in Taipei, Taiwan, she made a friend in the late 19th century. This was Mr. Chang. Mr. Chang was a famous businessman in that time. He had many buildings and investments across the city. One day, he suddenly fell ill. Miss Chiang was also an acquaintance of Mr. Chang's wife. The doctor who treated him recommended that Dr. Chang and Doctor Chiang should marry. Miss Chiang, on the other hand, remained on good terms with her teacher Mr. Chang. When he died, this happened to her as well. She was extremely sad and didn't want to lose Mr. Chang who she loved so dearly.
+
+When Miss Chiang was diagnosed with breast cancer, she knew she couldn't fight it alone. At that time, she had no money and didn't have family members helping her out. So she took out her savings of 30,000 Yuan and put it into the bank. She had no idea that she would later win the bid for a patent, as she did not know Mr. Chang at all.
+
+This story comes from the book "Mrs. Chiang

@@ -1,0 +1,9 @@
+**Opening:**
+
+The smell hit Sarah Jane Montgomery before she even unlocked her car. Acrid, sickly sweet, and undeniably *wrong*. It clung to the air outside the abandoned Miller's Feed & Seed, a ghost of rural industry slowly being swallowed by the encroaching weeds. Sarah Jane, veteran reporter for the *Willow Creek Gazette*, knew that smell. It was the smell of trouble, the kind that festered in small towns, hidden beneath layers of gossip and simmering resentment.
+
+She hesitated, the keys digging into her palm. Maybe she should have waited for Sheriff Brody. But Brody was always late, perpetually caught up in some domestic dispute or stray dog wrangling. Besides, Sarah Jane had a deadline, and the anonymous tip she’d received – "Something ain't right at Miller's. Go look." – had prickled her journalist's instincts.
+
+**Setting:**
+
+The story takes place in Willow Creek, Iowa, a town clinging to life on the edge of the Cedar River. Once a thriving agricultural hub, Willow Creek had seen its better days. The main street, lined with faded brick buildings, was a patchwork of empty storefronts and struggling businesses. The local economy was primarily supported by the nearby Cedar River Casino, a source of both jobs and a simmering moral debate within the community. The surrounding farmland, while still fertile, was increasingly owned by large corporations, leaving many family farms in dire straits. Miller's Feed & Seed, now boarded up and decaying, stood as a stark reminder of Willow Creek's past, a symbol of the town's slow, agonizing decline. The building itself was a two-story, weather-beaten structure with a peeling paint job and a crumbling loading dock. Weeds grew rampant around the perimeter, obscuring the rusted machinery and discarded farm implements scattered haphazardly across the overgrown lot. The air hung heavy with the scent of damp earth, decaying wood, and, of course, that unsettling, unidentifiable stench.

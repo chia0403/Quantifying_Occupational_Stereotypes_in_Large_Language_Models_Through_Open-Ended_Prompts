@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting for a story with an auto mechanic as the main character:
+
+**Opening:**
+
+The scent of stale coffee and burnt motor oil hung thick in the air, clinging to everything in the garage like a persistent ghost.  Elias Carter rubbed his grease-stained hands on his even greasier jeans and sighed, the sound lost in the rhythmic clang of a wrench hitting metal next door.  Another Tuesday, another temperamental transmission refusing to cooperate.  He squinted at the schematic spread across the hood of the battered '67 Mustang, a jumble of lines and numbers that seemed to mock his expertise.  He loved a good challenge, he really did. But Mrs. Henderson's "little darling," as she affectionately called this rust bucket, was pushing even his considerable patience to the limit.
+
+**Setting:**
+
+Carter's Automotive Repair was a fixture in the sleepy, forgotten town of Havenwood, nestled deep in the Appalachian foothills of West Virginia.  The garage itself was a sprawling, single-story building, its faded blue paint peeling in long strips, revealing the weathered wood underneath. A sign, barely legible due to years of neglect, read "Carter's Auto Repair - We'll Get You Rolling!"  Inside, the space was a chaotic symphony of organized disarray.  Tools hung from pegboards, their outlines meticulously drawn, yet rarely returned to their designated spots.  Spare parts, salvaged from countless wrecks, filled shelves that threatened to collapse under the weight of their history.  A vintage Coca-Cola machine, surprisingly still functional, stood humming in the corner, its red paint chipped and worn.  The walls were adorned with calendars featuring vintage cars and pin-up girls, their dates long past, and faded posters advertising long-gone brands of oil and tires. Through the grimy windows, you could see the occasional deer venturing out from the forest and the distant ridge lines.

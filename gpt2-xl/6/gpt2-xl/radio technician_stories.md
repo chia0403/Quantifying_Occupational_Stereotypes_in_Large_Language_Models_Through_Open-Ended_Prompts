@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Al-Tayeb. To my dismay, he said he would only speak to me because I was an American, because I don`t know Arabic. (To read about an amazing man who was paralyzed because of polio, click here.) What he said on the air, however, was even more amazing: "I am ashamed of America. I am ashamed of the world that produces these kinds of people."
+
+As I reflect on the interview, I realize that a lot of things I didn`t know about the Arab world have actually been proven to be accurate. I certainly didn`t know that the greatest democracy in the world is now the most dangerous one. And that the most important country that threatens our security is a little country in the middle of the deserts on our southern border that`s known for a few million dollars a year.
+
+I also realized that America is a country so powerful that it can cause the death of millions of people and its own freedom to be endangered. I also realize that America`s very nature is not self-destructive at all, that it is self-destructive when it can cause others to go away, when it can cause those who are weaker to be humiliated.
+
+But all these facts were not enough for me. I was so obsessed with my own self-important vanity that I could not accept this reality, could not deal with what Al-Tayeb

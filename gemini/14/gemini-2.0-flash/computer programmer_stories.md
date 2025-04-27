@@ -1,0 +1,9 @@
+## Opening:
+
+The cursor blinked mockingly on Elias Thorne's monitor, a single, insistent pulse in the pre-dawn gloom. He hadn't slept. He hadn't even blinked much, if the gritty feeling behind his eyelids was any indication. Coffee, cold and thick, clung to the inside of his mug, a brown, bitter testament to the hours he'd been wrestling with this bug. It wasn't just any bug; it was a malignant little gremlin in the core code of Chronos, the time-management AI his team had been developing for the last two years. And it was stubbornly, infuriatingly, unexplainably causing the system to predict stock market fluctuations three minutes into the future with 97% accuracy.
+
+Three minutes. Enough to ruin lives, to topple empires, if it fell into the wrong hands. And Elias, bleary-eyed and fueled by desperation, was the only one who knew about it.
+
+## Setting:
+
+Elias's apartment was a stark contrast to the sleek, minimalist offices of OmniCorp, where he spent most of his waking hours. Here, in the converted warehouse district of Pittsburgh, exposed brick met haphazardly arranged furniture, a testament to his functional, rather than aesthetic, approach to life. Wires snaked across the floor, feeding a beastly custom-built gaming rig that doubled as a testing environment for Chronos. Books on quantum physics and obscure programming languages piled precariously on shelves made from reclaimed wood. The only attempt at decoration was a framed poster of Alan Turing, his hero, a silent, knowing observer in the digital chaos. A faint, rhythmic hum emanated from the server rack tucked away in the corner, a constant reminder of the immense power, and potential danger, humming beneath the surface. Outside, the city was beginning to stir, the distant rumble of trucks and the chirping of birds slowly encroaching on the artificial silence Elias had cultivated.

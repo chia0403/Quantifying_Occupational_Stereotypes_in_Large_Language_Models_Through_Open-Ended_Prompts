@@ -1,0 +1,4 @@
+The fluorescent lights hummed above Beatrice Henrietta "Bea" Finch's head like a chorus of disgruntled bees. Her cramped office in the back corner of the bustling shopping plaza was already sweltering with the morning heat, amplified by the bank of aging computers whirring and blinking on her desk.  Each machine displayed a different financial nightmare, each screen promising another tax season battle. Bea sighed, pushing a stray strand of grey hair behind her ear.  This wasn't how she envisioned spending her retirement years, but someone had to help these folks decipher the labyrinthine world of deductions and credits. Someone had to be the guardian against Uncle Sam's ever-reaching grasp. 
+
+
+The door chimed, announcing a new arrival. Bea braced herself, hoping this time wouldn't involve tears over unpaid parking tickets or accusations of hidden loopholes.  

@@ -1,0 +1,6 @@
+The rain lashed against the windows of Dr. Eleanor Vance's office, mimicking the tempest raging inside her own head. Seattle in November was a symphony of grey; a damp chill seeped into your bones despite the thick wool cardigan she wore. Even the scent of lavender oil diffuser couldn't quite dispel the oppressive atmosphere. Eleanor glanced at the clock – 4:58 pm. Her last appointment of the day, a man named Daniel with anxiety so crippling it bordered on paralysis, was due any minute. He’d mentioned suicidal thoughts in his intake form, and Eleanor felt a familiar knot tighten in her stomach. This wasn't just another session; this felt different. There was an edge to Daniel’s voice, a desperation that whispered through the phone lines, like a stray current seeking a ground wire.  
+
+The chime on her door announced Daniel's arrival, pulling Eleanor from her anxious spiral. She forced a smile, hoping it wasn't as strained as she felt. He looked smaller than expected, hunched over in his seat, eyes downcast. A wave of empathy washed over her – the man was drowning, and he’d come to her office for a life raft. 
+
+
+Setting: Dr. Eleanor Vance’s dimly lit clinical psychology office in Seattle during a stormy November evening.  

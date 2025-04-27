@@ -1,0 +1,5 @@
+The morning light streamed in through the skylights, painting Agnes Featherstone’s fourth-grade classroom in hues of orange and gold.  A faint, sweet smell of cinnamon clung to the air, courtesy of Mrs. Henderson's freshly baked cookies. It was her opening ritual—a gentle act of warmth that Agnes replicated each day, even when she felt as though her heart would break under the weight of a thousand tiny disappointments. 
+
+Agnes Featherstone, with her wild auburn curls perpetually escaping from their bun and her tired, but kind eyes, had devoted the past decade to molding young minds into vibrant little constellations.  She taught them about shapes, colors, letters, and most importantly, kindness—even when it meant navigating the volatile seas of pre-pubescent emotions. 
+
+But this morning, something felt different. A gnawing unease settled in her stomach like a persistent shadow. It wasn't just the usual cacophony of squabbling children or the sight of crayons smeared across their pristine white shirts.  It was an undercurrent of tension, a palpable dread that hummed beneath the cheerful facade of the classroom. 

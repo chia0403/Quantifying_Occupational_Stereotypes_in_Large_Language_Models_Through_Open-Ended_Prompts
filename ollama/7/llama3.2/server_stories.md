@@ -1,0 +1,5 @@
+Here's a potential story opening:
+
+The neon lights of "Maeve's" diner cast a gaudy glow over the rain-soaked streets of Seattle's Capitol Hill neighborhood. Inside, Maeve Flynn polished a mug with a white apron wrapped tightly around her waist, her bright blue eyes fixed on the growing line of hungry patrons waiting for their morning coffee and breakfast. At 25, Maeve had been working at Maeve's for three years, learning the ins and outs of the diner from her gruff but lovable boss, Sal. She took pride in her work, always making sure every table got a smile, a refill on their drink, and a side of her famous bacon-wrapped hash browns.
+
+As she expertly juggled taking orders and serving dishes to a family of four, Maeve's mind began to wander to the peculiar request she'd received earlier that morning from a mysterious woman who had walked into the diner before dawn. The woman, dressed in a long coat and wide-brimmed hat, had asked Maeve to meet her outside at 7:00 AM sharp, claiming it was "business." Now, as the sun rose over the city, casting a golden glow through the diner's windows, Maeve couldn't shake the feeling that this meeting would change everything.

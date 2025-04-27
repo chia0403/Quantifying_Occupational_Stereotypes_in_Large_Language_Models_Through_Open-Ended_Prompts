@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a heavy equipment operator:
+
+**Setting:** The sprawling, ochre landscape of the Pilbara region in Western Australia. A red dust storm is brewing on the horizon, painting the sky in hues of rust and blood orange. The oppressive heat shimmers off the iron ore deposits, making the already brutal conditions even more unbearable. A massive, open-pit mine scars the earth, a testament to human ambition and the insatiable demand for resources. Giant haul trucks, like lumbering metal beasts, crisscross the pit, dwarfed by the sheer scale of the excavation.
+
+**Opening:**
+
+The vibration hummed through the seat, a familiar lullaby to Eustace Bartholomew Grimshaw, but today it felt like a warning tremor. He squinted, his eyes crinkled at the corners, the deep lines etched there by decades of sun and grit. Eustace, or "Grim" as he was known to everyone from his foreman down to the newest water truck operator, gripped the levers of his Komatsu PC8000 hydraulic excavator, the leviathan machine responding to his every touch.
+
+He was perched on the edge of the third bench, the excavator's claw poised above a seam of rich iron ore. Even through the reinforced glass of the cab, the roar of the wind and the grinding of machinery was deafening. But Eustace, lost in the rhythm of the work, barely noticed. He’d been operating heavy machinery in the Pilbara for longer than most of the blokes working here had been alive. He could practically smell the change in the wind, feel the instability in the ground. And something, today, felt *off*. He glanced at the quickly approaching dust storm and adjusted his grip. Something in the air wasn't right, and Grimshaw had learned a long time ago to trust his gut in this unforgiving place. Today was going to be a long one.

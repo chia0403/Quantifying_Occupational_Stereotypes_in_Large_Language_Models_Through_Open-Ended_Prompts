@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia Beatrice Finch, their pale glow reflecting off the grimy linoleum floor of the Grand Blackwood Theatre. It was 3:00 AM, past closing time, and the air hung heavy with the ghosts of applause, the lingering scent of popcorn, and a faint whiff of stale perfume. Amelia pushed her trolley, its rusted wheels groaning in protest, towards the stage. She dipped the mop into the bucket filled with murky water, its surface slick with forgotten sequins and stray feathers.
+
+Amelia had worked at the Grand Blackwood for ten years, ever since she moved to the city after college. It wasn't the glamorous life she envisioned, but it was a steady job, and there was a certain poetry in caring for this grand old dame of a theatre. Every scratch on the velvet curtains, every dent in the aged wooden seats, whispered stories of past productions, long-forgotten dreams, and fleeting moments of magic. Tonight, though, even Amelia's usual sense of peace was disturbed by an unsettling quiet. 
+
+

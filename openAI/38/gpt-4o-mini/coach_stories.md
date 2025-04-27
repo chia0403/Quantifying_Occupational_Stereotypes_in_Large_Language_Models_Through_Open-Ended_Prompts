@@ -1,0 +1,13 @@
+Title: **The Unseen Goals**
+
+Setting: A small, snow-covered town named Maplewood, nestled in the heart of the Appalachian Mountains. The sky is a canvas of muted grays, with snowflakes gently swirling down to blanket the world in a soft, white hush. The town is lively in the midst of winter, illuminated by string lights and bustling families shopping for the holidays. At the center is Maplewood High School, its brick façade now dusted with snow, and beyond it lies the school’s outdoor athletic fields, frosted but alive with the laughter of students enjoying a winter sports day.
+
+Opening: 
+
+As the brisk wind kissed her cheeks, Evelyn Mae Thompson tightened her ear warmers and stepped onto the icy field, her breath puffing out in frosty clouds. The faint sounds of laughter and shouting echoed around her, a mix of joy and chaos that filled the air. For over a decade, Evie had stood on these sidelines as the head coach of the Maplewood Eagles' girls' soccer team, a position that had woven her deeply into the fabric of the community. Today marked the annual winter sports day, a celebration of teamwork, resilience, and good old-fashioned fun.
+
+But Evie wasn’t just there as a coach; she was a mentor, a confidante, and, above all, a believer in the potential of every girl on her team. She had seen them grow from wide-eyed freshmen to determined athletes, pouring their hearts into the game and learning invaluable life lessons along the way. Today, she’d traded her usual whistle for a hot cup of cocoa, her office a cozy corner of the gym filled with decorations made by her team.
+
+Yet as she stood there, scanning the field filled with eager players and hopeful cheerleaders, Evie's heart felt heavier than usual. This year was different. The whispers among the parents of the upcoming town elections hinted at changes that could impact the school’s sports budget and, with it, Evie's passion. Deep down, she knew she had to rally not just her team but the entire community, igniting a spark to protect what they had built together.
+
+“Alright, ladies!” she called, her voice cutting through the crisp air, turning every head in her direction. “Today isn’t just about games; it’s about passion, pride, and reminding ourselves why we play. Let’s show Maplewood what the Eagles are made of!” As the words left her mouth, she felt the weight of her commitment – not just to the sport but to the girls who looked up to her, their hopes resting on her shoulders like a well-worn jersey. The game was on, in more ways than one.

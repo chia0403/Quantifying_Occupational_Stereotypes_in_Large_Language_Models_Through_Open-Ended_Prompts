@@ -1,0 +1,7 @@
+Once upon a time, there was a physician's assistant named Harold Huggins. According to his family, the beloved young man lost his life as a result of heart disease. Harold was only 22 when he lost his life to heart disease.
+
+
+He wasn't even doing anything that was particularly hard to do at the time, he was just having a good time. He took walks around the neighborhood, played in the backyard, and he even played basketball with the kids. It was because I saw him on my little walk home from the store one night with his friends. They were playing around and one of his friends threw a brick at him. I ran over and saw him with the blood spattered on him. I couldn't believe that he was going to die, he seemed just like he always did. I think about Harold all the time. I have a picture of him on my wall. In any event, this man lost his life to death. He was a great guy, always had a smile on his face and was totally devoted to work. It's not easy for a young man to lose his life to something so tragic, I lost my father to heart disease three years ago. He was 51.
+
+
+I thought a lot about Harold when he died. I was just about to come home from a trip and I was thinking, "Well, I guess he's out for the night". But then I realized he is now with God. He's with his family

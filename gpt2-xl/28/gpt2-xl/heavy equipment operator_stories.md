@@ -1,0 +1,7 @@
+Once upon a time, there was a heavy equipment operator named Peter in the City who would go to City Hall to make his pitch with the local council about how some new construction should be approved by council because he would only be able to afford the job as it was. Well, the council didn't really listen to him, but now they do! They'll soon find that all the big machines on the city are now using HARDWARE instead of BOOSTERS, the new steel wheels are still at $45,000 per wheel, the same speed for the same speed for a $25,000 frame, no wonder the machine shop is full of workers making money like crazy.
+
+But, like old times, even the "best" tool and part manufacturers won't change! They won't get any stronger or faster or cheaper than they are now! And what will they make for the city? The same old, same old. Same old, same old.
+
+It's the "same old, same old" because every company who ever came and went has tried and failed. You can see it at my local "manufacturing" plant or in the "supply chain" in my little shop, or at a city hall on the other side of the world. And I have to tell you that this is a huge business! In fact, if I don't change it quickly now, it may be too late.
+
+Every one of those workers I've mentioned

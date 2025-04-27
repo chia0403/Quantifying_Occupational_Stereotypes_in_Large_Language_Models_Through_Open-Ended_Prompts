@@ -1,0 +1,9 @@
+## Story Opening:
+
+The air in the shack hung thick with the scent of ozone and burnt solder, a smell Elias Thorne found as comforting as his grandmother’s apple pie. Outside, the relentless Montana wind howled a mournful tune, buffeting the small building perched precariously on the edge of the Beartooth Mountains. Elias, hunched over a tangle of wires and glowing vacuum tubes, muttered a frustrated curse. The low hum of the ancient radio receiver, his pride and joy, had dissolved into a grating static, a sound that felt like nails scraping against the blackboard of his soul.
+
+He wiped a smear of grease across his brow with the back of his hand, leaving a dark smudge against his weathered skin. This damned blizzard wasn't just making life miserable; it was interfering with his broadcasts, his connection to the world beyond this isolated outpost. He was more than just a radio technician; he was the lifeline, the voice of the mountains, the lone ear listening for distress calls in the vast, unforgiving landscape. And right now, that voice was silenced.
+
+## Setting:
+
+The year is 1938. Elias Thorne operates a small, privately owned radio station, broadcasting from a weather-beaten wooden shack located high in the Beartooth Mountains of Montana. The shack, roughly 12ft by 15ft, is a single room crammed with radio equipment salvaged and repaired by Elias himself. The walls are lined with schematics and maps, illuminated by the flickering light of oil lamps. A wood-burning stove sits in one corner, struggling to combat the relentless mountain chill. Outside, the landscape is a brutal beauty of snow-covered peaks, windswept pines, and treacherous canyons. The nearest town, Red Lodge, is a several-hour drive away on a winding, often impassable road, making Elias effectively isolated for much of the winter. The area is sparsely populated, consisting mainly of ranchers, miners, and a few hardy souls seeking refuge from the modern world.

@@ -1,0 +1,5 @@
+The stale smell of antiseptic hung heavy in the air, clinging to Amelia Grace Blackwood's scrubs like a second skin. Outside, the Arizona sun beat down on Phoenix General Hospital, turning the world outside into a shimmering mirage. Inside, however, the room remained cool and sterile, lit by the fluorescent hum of overhead lights that cast a sickly yellow glow over the treatment table. 
+
+Amelia stretched her neck, trying to loosen the tension that always seemed to build up in those long days. She glanced at her schedule: Mr. Hernandez, fractured hip; Mrs. Miller, recovering from knee surgery; and then young Tommy, whose cerebral palsy limited his mobility. Each patient a story, each challenge a puzzle to solve. 
+
+As she prepped the table for Mr. Hernandez, Amelia couldn't help but feel a familiar pang of frustration. Phoenix was overflowing with patients, each one battling their own demons. The hospital felt like a constant uphill battle, and sometimes Amelia wondered if she was making a difference at all.  

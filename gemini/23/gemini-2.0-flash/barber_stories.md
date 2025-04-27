@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The scent of bay rum and stale dreams hung thick in the air of "Shear Delights," Thomas Ashton's barbershop. Outside, the Tuesday drizzle hammered against the frosted glass, blurring the already dismal cityscape. Thomas sighed, running a worn chamois over the gleam of his vintage straight razor. 8:17 AM. Mr. Henderson was due at 8:30, a man whose receding hairline was a personal affront to Thomas’s artistic sensibilities. He’d hoped for a late cancellation, a reprieve from the weekly battle against Henderson's stubborn cowlick, but knowing his luck, the man would arrive precisely on time, armed with complaints about inflation and the youth of today.
+
+**Setting:**
+
+"Shear Delights" occupied a ground-floor space in a faded brick building on the less-than-glamorous end of Bleecker Street. The decor was a deliberate attempt to evoke a bygone era: dark wood paneling, salvaged from a demolished speakeasy; mismatched, velvet-upholstered chairs; and a rotary phone that Thomas refused to replace. Framed prints of vintage shaving advertisements adorned the walls, their colours muted by years of cigarette smoke (from previous owners, of course. Thomas was adamantly anti-smoking in his establishment). The back room, visible through a beaded curtain, was cluttered with boxes of hair tonics, antique combs, and a half-finished taxidermy project Thomas had abandoned two years ago after a particularly frustrating pigeon. While some might call it "shabby chic," others, like his landlord, Mrs. Rodriguez, preferred the term "dangerously dilapidated."

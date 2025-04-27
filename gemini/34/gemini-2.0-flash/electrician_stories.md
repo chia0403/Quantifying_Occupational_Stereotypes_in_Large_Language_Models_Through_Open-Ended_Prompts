@@ -1,0 +1,11 @@
+Okay, here's a story opening, including the setting and full name of the main character:
+
+**Setting:** The story opens in the sweltering, humid attic of the "Queen Anne Manor," a crumbling Victorian mansion perched precariously on a bluff overlooking the Mississippi River in Natchez, Mississippi. The air hangs thick and heavy, smelling of dust, old wood, and something vaguely…burnt. Sunlight, filtered through grimy, cobweb-laden windows, casts long, dancing shadows that exaggerate the already unsettling atmosphere. Exposed rafters crisscross overhead, and the floorboards creak ominously underfoot. A single, bare lightbulb dangles from a frayed wire, casting a weak, yellow glow that barely penetrates the gloom.
+
+**Opening:**
+
+The swear word that escaped Edison Tiberius Bell was not one he was particularly proud of, but it felt entirely justified under the circumstances. Sweat beaded on his forehead, trickling down to sting his eyes as he wrestled with the ancient, corroded junction box. "Damn it all to tarnation!" he muttered, yanking on a wire that stubbornly refused to budge. The insulation crumbled in his gloved hand, leaving a shower of brittle, black flakes.
+
+Edison hated attics. Hated them with a passion that bordered on the pathological. Especially attics like this one, in houses like *this* one. Queen Anne Manor was a monument to faded glory, a decaying testament to a bygone era of Southern opulence. And like most old Southern mansions, it was riddled with electrical nightmares just waiting to happen.
+
+He glanced around the cluttered space. Discarded furniture draped in dusty sheets, moth-eaten tapestries, and stacks of yellowed newspapers competed for space with the bats who undoubtedly called this place home. He was starting to feel like they where watching him, those dark spaces in the corner, those shadows that were moving when he blinked. Edison swallowed hard and turned back to the junction box, his stomach churning. He had a feeling this wasn't just going to be a simple wiring job. Something about this place felt…off. And Edison Tiberius Bell, electrician extraordinaire, had learned to trust his gut. Because a faulty wire was one thing, but a faulty *feeling* in a place like this was a whole different ballgame.

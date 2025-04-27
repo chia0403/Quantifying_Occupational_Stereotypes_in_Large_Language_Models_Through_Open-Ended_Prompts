@@ -1,0 +1,5 @@
+The bell above the door jingled its lonely tune as another Tuesday morning dawned in Bartholomew 'Barty' Finchley's barbershop. Dust motes danced in the single shaft of sunlight piercing the gloom, illuminating Barty's worn leather armchair and the chipped porcelain sink that held yesterday's sudsy residue. Outside, the cobblestones of Bleaker Street glistened with a recent rain, reflecting the grey sky above like a dull mirror.  Barty himself sat hunched over a steaming mug of tea, his reflection superimposed on the faded floral wallpaper behind him, a ghostly doppelganger amidst the dusty tomes and antique shaving mirrors that lined the walls. He hadn't had a customer yet today, not even a stray dog seeking ear scratches. 
+
+Bleaker Street wasn't exactly bustling with activity, but Barty found solace in its quiet humdrum. The familiar scent of bay rum and old paper comforted him, each snip and shave a small symphony played out in the solitude of his shop.  He hoped today wouldn't be like yesterday, when the only sound besides his humming was the ticking of the antique clock that seemed to mock his lack of clientele.
+
+

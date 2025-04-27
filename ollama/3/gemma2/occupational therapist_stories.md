@@ -1,0 +1,6 @@
+The scent of antiseptic and damp linen clung to Amelia Rose Hawthorne like a second skin. She inhaled it deeply, finding a strange comfort in its sterile familiarity. Her worn stethoscope lay across her chest, its familiar weight grounding her as she entered Room 304. Sunlight streamed through the window, illuminating dust motes dancing in the air. A single potted fern stood on the bedside table, its fronds drooping slightly – a reflection of its occupant's current state.
+
+Amelia straightened her scrubs, her hand instinctively smoothing down the wrinkles etched into their fabric by countless hours spent bending over patients, lifting them, guiding their movements. Room 304 held Mr. Henry Davis, a stoic man in his late seventies who had suffered a debilitating stroke just two weeks prior. He lay still on the bed, eyes closed, his body encased in bandages and tubes, a fragile vessel struggling against the tide of recovery. Amelia knew that this room, with its faded floral wallpaper and worn carpet, held not only Mr. Davis's physical ailment but also a story – a story of resilience, struggle, and perhaps, ultimately, hope. 
+
+
+She smiled softly.  It was her job to help him write the next chapter. 

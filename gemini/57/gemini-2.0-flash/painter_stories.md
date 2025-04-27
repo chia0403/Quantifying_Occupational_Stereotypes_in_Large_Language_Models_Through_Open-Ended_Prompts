@@ -1,0 +1,7 @@
+The biting January wind whipped off the East River, stinging Amelia Beatrice Bellweather's cheeks as she wrestled her easel into place. She swore under her breath, a sound that was swallowed by the bleating of a distant ferry. Another year, another pilgrimage to Brooklyn Bridge Park.
+
+Amelia, wrapped in a bulky, paint-splattered parka that had seen better decades, adjusted her woolen cap, pulling it tighter around her ears. The sky above the Manhattan skyline was a bruised purple, fading into a grim, metallic gray that threatened snow. Perfect.
+
+This was Amelia's place of penance, her studio away from her studio, the spot where she wrestled with the ghosts of unfinished masterpieces and the demons of self-doubt that clung to her like the city smog. She came here, to the edge of the island, to feel the immensity of the bridge towering over her, a silent judge and a constant source of grudging inspiration.
+
+Today, she intended to capture the bridge bathed in the melancholy light of pre-snow dusk. But the wind, the cold, and the nagging voice in the back of her head whispering about her dwindling gallery prospects all conspired to make the task seem impossible. Still, Amelia Beatrice Bellweather, armed with her paints, her canvas, and a lifetime of stubborn determination, prepared to fight. She knew, deep down, that the city, in all its gritty, glorious beauty, was worth the battle.

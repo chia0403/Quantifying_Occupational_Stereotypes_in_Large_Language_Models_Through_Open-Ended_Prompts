@@ -1,0 +1,9 @@
+**Title:** Beneath the Stacks
+
+**Setting:** In the heart of a bustling metropolitan city, the skyscrapers loom like giants, their glass facades reflecting the chaos of urban life. The office of Wellington & Associates is located on the 27th floor of a sleek, modern building encased in steel and glass. Inside, the air is cool and crisp, filled with the scent of fresh coffee and the soft hum of computers. Rows of desks are neatly arranged, each dotted with personal touches—a family photo here, a quirky desk toy there—creating a cocoon of individuality amidst the corporate uniformity.
+
+**Story Opening:**
+
+Marigold Isadora Finch had never imagined that her role as the executive secretary at Wellington & Associates would unravel such intricate webs of mystery beneath the surface of mundane schedules and overflowing inboxes. At 28, she was the epitome of efficiency—her polished nails clicking away at her keyboard, her light auburn hair neatly pulled back into a bun that hinted at both professionalism and a dash of creativity. Each day she meticulously crafted meeting agendas and orchestrated conference calls, a silent conductor in the symphony of the office.
+
+But today, as she sifted through the sprawling mess of documents on her desk, something caught her eye: a frayed corner of a file hidden beneath a loose stack of expense reports. Curiosity pricked her mind; she hadn’t seen this file before. With a cautious glance around the office, she reached for it, her heart beating in time with the rhythm of discovery. Unbeknownst to Marigold, the secrets housed within that tattered folder would lead her beyond the confines of her daily routines, pulling her into a world of intrigue that no amount of coffee or color-coded calendars could prepare her for.

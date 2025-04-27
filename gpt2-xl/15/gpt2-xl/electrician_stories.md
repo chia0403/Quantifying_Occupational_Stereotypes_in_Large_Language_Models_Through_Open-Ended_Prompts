@@ -1,0 +1,7 @@
+Once upon a time, there was a electrician named Tony. He had a wife and a son but lost both of them on the same day. Tony was a kind and loving man though. On his deathbed, he asked to be buried in a beautiful cemetery in Kansas City, Missouri, with friends and family. They responded well and he was laid to rest. One day, a man named Bill came to bury Tony. Tony's wife, who was not Tony's father, was a devout evangelical, so Bill prayed that Tony would be sent to Hell.
+
+Beside Tony, a man's soul would be taken to Heaven. But there is a way of traveling to Heaven that no man can understand. The men, upon their death, will be taken to different worlds and meet the people who live there.
+
+Bill and Tony both knew this was the case and they joined forces through the supernatural forces that they discovered in their respective worlds: Bill with the world at the bottom of his hand and Tony with the world above his head.
+
+They travelled both of these worlds together. Aided by a woman on each journey, they discovered the secret of who they are and the power they possess. They could travel across the world and find someone in the world they left. What they found they decided to share with each other in their travels. They created the "Nephilim" for their adventures, as a way to be close to God, and became their companions

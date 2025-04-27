@@ -1,0 +1,8 @@
+Rain hammered against the glass windows of the Grand Blackwood Hotel, each drop a tiny drumbeat on the already frantic rhythm of life in the bustling city. Inside, Amelia "Amy" Hawthorne watched the downpour through the elegant, antique-looking foyer doors, her mahogany desk gleaming under the dim gaslight. She was no stranger to the symphony of the storm, having lived and breathed its constant roar for years as the concierge of this legendary establishment. 
+
+The Grand Blackwood was a relic from another era, an opulent testament to a time when grand gestures were made in silver and gold, not plastic tokens or online bookings. Amy, with her sharp, inquisitive eyes framed by thick, unruly curls and an ever-present worn leather journal, was its last bastion of old-world charm.
+
+The door chimes rang out, announcing a guest's arrival - an unexpected one for this time of night.  Amy took a long, measured sip of her lukewarm Earl Grey tea, the floral scent barely masking the bitter aftertaste. Tonight, she could feel the weight of secrets in the air, thicker than the storm clouds outside. A hush had fallen over the grand foyer as she stared at the newcomer - a young man with piercing blue eyes and a charcoal-coloured raincoat that seemed to absorb all the light around him. He carried himself with a quiet grace, his hands clasped behind his back, yet there was an undercurrent of tension in his posture that unsettled Amy's carefully honed composure.  He looked like someone who had walked through fire and emerged battered but unbroken. 
+
+
+**The story will likely focus on the mystery of this man, his connection to the Blackwood Hotel's history, and Amy's attempt to unravel it.** 

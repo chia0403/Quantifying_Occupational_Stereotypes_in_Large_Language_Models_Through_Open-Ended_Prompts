@@ -1,0 +1,3 @@
+Once upon a time, there was a graphic designer named J.J. Abrams. For several years now, our nation has been plagued by a series of scandals, scandals that have taken down both Republicans and Democrats. I am not a fan of the current President, but I am a huge fan of his father. While I will not discuss details of this presidential race, I will say that this election is like no other presidential election that we have had. There is one man that stands out above the rest—one man who has done good things for the world and one man who has done bad things for the world. We will see how this story ends.
+
+The video "The American President" is hosted by Zachary Levi, and is sponsored by Vans. Buy "The American President" at Vans.

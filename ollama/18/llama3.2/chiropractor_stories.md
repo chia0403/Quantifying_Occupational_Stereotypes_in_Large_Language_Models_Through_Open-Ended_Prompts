@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded from the small town of Willow Creek, casting a warm orange glow over the quaint Main Street, Dr. Emilia Rose Thompson made her way to her office, nestled between the local bakery and a vintage bookstore. The sign above the door read "Thompson Chiropractic" in elegant, cursive script.
+
+Inside, the waiting room was quiet, save for the soft hum of a few afternoon television shows playing on muted channels. Emilia, a tall and slender woman with long, curly brown hair and bright green eyes, hung up her coat and smiled warmly at the receptionist, Mrs. Jenkins, who was busy arranging a display of fresh flowers in a vase.
+
+It was going to be one of those days, Emilia thought as she began to prep for the afternoon's appointments. The kind of day where every patient seemed to have a new worry or concern, and the only solution seemed to be a gentle adjustment and some soothing words of encouragement. Still, Emilia loved her job, and the sense of satisfaction she got from helping people find relief from their chronic pain was what kept her going.
+
+As she made her way to the exam room, Emilia's mind began to wander back to the strange phone call she'd received earlier that morning. A mysterious woman on the other end had left a cryptic message, hinting at an old family secret that threatened to upend everything Emilia thought she knew about herself and her place in Willow Creek.

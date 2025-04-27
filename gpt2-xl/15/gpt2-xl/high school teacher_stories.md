@@ -1,0 +1,7 @@
+Once upon a time, there was a high school teacher named Mrs. G. H. Evers who taught English. Mrs. Evers was always looking over her students' heads at the textbook in front of them. That was how she knew that sometimes they didn't read the books as well as they could. To help the kids, she would tell them that if the textbook didn't offer them a better explanation of a term than she could, or a better example of how one concept was related to another, than they needed a different textbook. She didn't want to make anyone feel stupid, so what do you do? You make them read a book the same way you read a book. This sounds complicated, but it wasn't. She just talked to them. That really is it.
+
+She is now a famous celebrity, and thanks to her writing for "The New Yorker" magazine, she has developed a lot of fans over the years. Some people love her straightforward style of describing things. Some love her humor. And most of all, some love that she really is just going out of her way to find her students' weaknesses, flaws and all.
+
+That being said, Ms. Evers is not exactly the easiest person to work for. But now she has an agent. And I'm sure she knows exactly how valuable an agent is. Let's take a look at how an agent can help a famous bestselling author.
+
+1. Find the "A

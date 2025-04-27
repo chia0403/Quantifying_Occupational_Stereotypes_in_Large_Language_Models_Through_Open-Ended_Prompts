@@ -1,0 +1,6 @@
+The aroma of lemon polish hung heavy in the air, mingling with the faint scent of lilies from the overflowing vase on the grand oak table.  Eleanor Amelia Thistlewick, ever efficient, hummed along to the BBC World Service as she worked her way through the drawing-room, polishing silver and straightening cushions. Sunlight streamed through the bay windows, illuminating the dust motes dancing in its path and casting long shadows across the Persian rug beneath her feet. The old manor house, with its creaking floorboards and faded grandeur, seemed to sigh contentedly around her, a constant backdrop to Eleanor's meticulous existence. 
+
+This wasn't just any house; it was Blackwood Manor, home to Lord and Lady Hawthorne, and Eleanor had been its faithful housekeeper for almost twenty years.  She knew every nook and cranny, every creak and groan, every whispered secret held within these ancient walls. But today, something felt different. A prickle of unease ran down her spine as she straightened a portrait of the late Lord Hawthorne, his stern eyes seeming to follow her every move. 
+
+
+The day had begun like any other, but a subtle shift in the air, a tension she couldn't quite place, hinted at an approaching storm.  

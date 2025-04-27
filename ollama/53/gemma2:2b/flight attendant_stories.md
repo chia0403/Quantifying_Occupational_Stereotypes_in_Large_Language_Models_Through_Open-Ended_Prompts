@@ -1,0 +1,5 @@
+Rain lashed against the cabin windows, mimicking the storm brewing inside Amelia "Amy" Everly's chest. Below, the runway glittered under the pale glow of the moon as if beckoning a desperate escape. A thousand miles away from her quiet life in Colorado, Amy found herself stuck on this dilapidated plane bound for Reykjavik. The air was thick with the cloying scent of stale coffee and tension. 
+
+It had been her dream to become a flight attendant at Transatlantic Airlines -  a chance to travel the world while connecting hearts across continents. Now, she felt more like an instrument of fate than a weaver of dreams. The only people who seemed happy on board were the elderly couple whispering in their corner seat. Every time they smiled, every wink at each other, Amy’s heart tightened with a pang that reminded her of the empty space beside her. 
+
+“Amy Everly, Flight Attendant,” a voice announced, its harsh tone echoing through the cabin.  "We're preparing for our descent into Reykjavik." The words were met by an unsettling silence. As the plane began to dip, Amy glanced out the window – the vast, dark ocean spread before her like a silent, unforgiving expanse. 

@@ -1,0 +1,5 @@
+The neon glow from the "Open 24 Hours" sign cast a sickly green pallor across Amelia Beatrice Finch's face as she hunched over her laptop. Coffee, cold and bitter, sat forgotten on the desk beside her, its steam long since dissipated into the stale air of her cramped studio apartment. Outside, the city hummed with the restless energy of late-night revelers, a stark contrast to the silence that hung heavy within Amelia's creative haven. 
+
+It was past two in the morning, and she was locked in a battle with a particularly stubborn layout for a client – a local bakery known for its "Death by Chocolate" cake (a deliciously ironic name considering Amelia's current state). The deadline loomed like a hungry monster, demanding to be fed her full creative output. 
+
+Amelia sighed, rubbing the sleep from her eyes. Her apartment, with its mismatched furniture scavenged from thrift stores and walls plastered with inspiration boards overflowing with textures and colors, felt more like a prison cell than a sanctuary. But this was the price she paid for chasing her dream: to be a graphic designer who could turn ordinary into extraordinary, one pixel at a time. 

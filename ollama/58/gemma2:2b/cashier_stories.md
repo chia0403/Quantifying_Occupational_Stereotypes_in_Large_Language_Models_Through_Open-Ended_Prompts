@@ -1,0 +1,5 @@
+The rain lashed against the diner's windows, blurring the neon "Open" sign above the entrance into streaks of crimson and turquoise.  Inside, 21-year-old Evelyn Parker shivered under her worn apron. It was almost like stepping through an old photo album – faded linoleum floors, chipped Formica counters, a jukebox humming out a mournful blues ballad. Even the greasy spoon on the corner felt too familiar after years of working at "The Cozy Corner." 
+
+Evelyn's hands were slick with the condensation that dripped from the coffee cups as she counted down the final few dollars in the till. She glanced up briefly at Mrs. Henderson, her usually cheerful boss, who sat hunched behind the counter, a tired sigh escaping her lips like an escaped steam train. "Any luck this week, Evelyn?" she asked, her voice barely above a whisper. 
+
+Evelyn's answer was a shrug – another Friday night and another sea of worn faces filling up the diner booths.  Outside, the rain kept falling, mirroring the constant drizzle of dreams that seemed to have run dry in her own life lately. The "Open" sign blinked once more, signaling another night on this familiar stage - her stage. 

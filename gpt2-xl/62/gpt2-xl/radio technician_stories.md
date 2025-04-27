@@ -1,0 +1,7 @@
+Once upon a time, there was a radio technician named Michael. Michael would find a radio and a record player and record albums on it. Sometimes, he'd hear songs on their playlists and pick his favorite songs. One day Michael came across a new song that he loved and, after hearing it, was inspired to write new songs and new albums. This new album was called "Sister, Sister," and the songs on the album were all inspired by stories from his childhood. The songs he recorded with friends, however, were never included in his songbook.
+
+One day while driving to work on Michael's favorite highway, he was thrown off the road and into a cornfield, where he found himself entangled in tangled vines, and he was stuck in it for hours until an entire pod turtle came to his rescue. Soon, he heard laughter in the distance and discovered that the turtle was eating vegetables while Michael played with it, and the turtle would later give Michael a gift of vegetables when Michael showed it kindness.
+
+In the radio station, Michael was called "Mickey Mouse." "Mickey," for whatever reason, became an iconic icon to a generation of kids, but he was also known for being a pretty mean radio station DJ. They also called him "Davy Crockett," after a famous Civil War soldier from Alabama.
+
+Davy Crockett is an explorer who is generally seen at the forefront of the Confederacy. When he was young, he

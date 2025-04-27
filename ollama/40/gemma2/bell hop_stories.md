@@ -1,0 +1,5 @@
+The air in the lobby of the Grand Astor Hotel hung thick with the scent of lilies and stale cigar smoke.  A faint jazz melody drifted from the hidden speakeasy downstairs, mingling with the clinking of teacups and the hushed conversations of wealthy patrons. Bartholomew "Barty" Quillfeather, a scrawny young man with perpetually messy brown hair and eyes that seemed to absorb everything around him, weaved through the elegant crowd with practiced ease. A worn bellhop uniform clung to his lean frame, the brass buttons catching the dim light filtering through the ornate chandeliers.  
+
+Barty had seen it all in his four years at the Grand Astor: clandestine meetings, whispered romances, extravagant parties that spilled into the early morning hours, and the occasional scandal that rocked the gilded cage of high society. But tonight felt different. A prickling sensation crawled up his spine, a sense that something was about to shift, like the air before a storm.  He couldn't explain it, but Barty knew this night would be unlike any other. 
+
+

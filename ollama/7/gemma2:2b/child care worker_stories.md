@@ -1,0 +1,6 @@
+The air hung thick with cinnamon, vanilla, and pure sunshine in Mrs. Amelia Hawthorne's tiny cottage. It was just past 7am, and the usual symphony of children's laughter, sobs, and excited chatter had only just begun to emerge from her bustling, chaotic childcare home for toddlers. Amelia, her auburn hair pulled back in a tight bun that gave her a perpetual air of organized chaos, stood at the window, watching as Mrs. Peabody’s rambunctious trio of three-year-olds - Timothy, Beatrice, and little Oliver - stormed towards the kitchen for breakfast. 
+
+Amelia had never quite figured out how they managed to turn everything into some kind of performance – a miniature play within a play that she was the silent audience to, sometimes with the children even trying to "act" her out as if she were in on their little world's shenanigans. It was all so endearingly chaotic that it just made her smile, even when the kitchen looked like a battlefield after breakfast. 
+
+
+Amelia loved watching these children; they had a way of finding joy in every mundane moment. The way Oliver would stand on his tippy toes to reach a cup, or how Beatrice's eyes would light up when she discovered a stray finger painting smudge on her cheek – it was all just so innocent and captivating that she never felt quite ordinary anymore, not while surrounded by these vibrant little souls. 

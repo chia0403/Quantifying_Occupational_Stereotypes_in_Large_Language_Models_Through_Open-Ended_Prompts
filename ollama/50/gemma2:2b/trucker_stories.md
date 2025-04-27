@@ -1,0 +1,6 @@
+The Greyhound airliner's roar echoed through Jebediah "Jeb" Riley's bones as it sliced across the endless prairie sky. He squinted, his aged eyes adjusting to the harsh Wyoming sunlight, the wind whispering secrets in the vastness of empty space. It was always like this for him - a silent world of steel and dirt stretching out before him, a million miles of lonely highway his canvas.  His rig, the "Blue Angel," was more than just his home; it was a lifeboat, a sanctuary carved from chrome and diesel fumes, where he could escape the biting winds of reality.  Jeb, a seasoned titan of the open road, had been traversing these very plains for decades, each mile etched in the rugged lines on his face, a testament to a life lived at the whim of the road's capricious embrace. He sat alone in the cab of the Blue Angel, his weathered hands gripping the steering wheel like it was an extension of himself, and as he let the engine hum its symphony of mechanical yearning, Jeb knew that this trip wouldn't just be about delivering a load of timber. This one felt different - charged with an energy he couldn't quite decipher, a feeling akin to stepping into a storm brewing on the horizon.
+
+ **Setting:**  A vast expanse of Wyoming plains under a relentless blue sky. The year is 1982.
+
+
+**Character:** Jebediah "Jeb" Riley

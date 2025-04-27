@@ -1,0 +1,7 @@
+As the last wisps of sunlight faded beyond the horizon, casting a warm orange glow over the small coastal town of Ravenswood-by-the-Sea, Ember Rose Blackwood made her way along the rugged shoreline, the salty sea air filling her lungs. The sound of seagulls filled the air as she walked, their cries punctuating the silence like a chorus of mournful friends.
+
+Ember, a soft-spoken yet fiercely determined animal caretaker, had spent countless hours tending to the creatures that called Ravenswood home. From the curious seals that basked in the sun on the rocky shores to the majestic sea eagles that soared overhead, Ember knew each one by name and face. Her passion for the natural world was matched only by her love for the animals that inhabited it.
+
+As she walked along the beach, Ember's eyes scanned the sand for any sign of distress or disarray, her trained ear picking up on the faint sounds of scurrying creatures in the dunes. The air was thick with the scent of salt and seaweed, and the distant hum of the lighthouse stood sentinel over the sleepy town, its beam slicing through the gathering darkness.
+
+It was a peaceful evening, the kind that made Ember feel like she'd stumbled upon a hidden treasure. But as she rounded a bend in the shoreline, her gaze landed on something that would change everything – a tangled mess of rope and twine, half-buried in the sand, with a small piece of paper caught in its midst.

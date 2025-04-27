@@ -1,0 +1,11 @@
+**Title: The Forgotten Blueprints**
+
+**Setting: Oakridge, a small coastal town known for its quaint streets lined with Victorian-era homes and a breathtaking view of the ocean. The air is thick with salt and nostalgia, and the conversations of townsfolk echo through the narrow alleys. At the edge of town, an old lighthouse stands sentinel against the crashing waves, its white paint peeling but still striking against the azure sky. The lighthouse has long been a focal point of local lore, drawing visitors and inspiring artists and dreamers alike.**
+
+**Character: Eleanor Margaret Hawthorne**
+
+Eleanor Margaret Hawthorne stood on the weathered wooden dock, her shoes echoing on the slats as she inhaled the briny sea air. At thirty-eight, she was a rising figure in the field of architecture, known for blending modern designs with the rich history of her surroundings. Today, she was grappling with a challenge unlike any other—a commission to restore the old lighthouse, a project that stirred conflicting emotions within her.
+
+Years ago, she would sit in the shadow of the lighthouse, sketchbook in hand, dreaming of the day she would leave Oakridge to conquer the architecture world. But there was something about this particular structure; it felt like a piece of her past was trapped within its crumbling walls, just waiting for a chance to shine again. The townsfolk whispered about the lighthouse's secrets—stories of ships lost to the stormy coast and a keeper who had vanished one fateful night. Eleanor sensed there was more than just brick and mortar here; there was a heartbeat she could almost hear if she listened closely enough.
+
+As the sun dipped below the horizon, casting golden rays over the surface of the waves, she opened her portfolio to a page filled with delicate sketches. The lines danced with potential, and the ink was still fresh with her ideas. But despite her passion, she felt a pull towards the past, an urge to understand the forgotten ghost of the lighthouse before she could breathe life back into it. Staring out at the horizon, Eleanor knew that this project would require more than just her architectural skills—it would demand a dive into history, both the structure’s and her own.

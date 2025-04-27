@@ -1,0 +1,5 @@
+The air in the old Carnegie Library hung thick with dust motes dancing in the filtered sunlight. Amelia Thistlewick, her fingers stained purple from ink stains, carefully straightened the spines of the towering shelves filled to bursting with forgotten stories. Every book was a time capsule; each page a whispered secret waiting to be unlocked. 
+
+Amelia’s usually tidy office at the back of the library held the weight of a thousand untold tales.  A worn armchair, its cushions faded and poofy like forgotten dreams, leaned against the wall where she poured over crumbling ledgers and dusty maps. The only movement within the otherwise still haven was the slow tick-tock of an old grandfather clock in the corner – a silent observer to Amelia’s quiet pursuit.
+
+Tonight, though, something stirred beneath the layers of silence and order. A new arrival at the library: a thin, leather-bound journal with no name on it but a faint inscription etched on its cover: "The Keeper's Quill."  Amelia couldn't shake the feeling that this was more than just another addition to the library’s vast collection of forgotten lore. 

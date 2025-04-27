@@ -1,0 +1,7 @@
+## Story Opening:
+
+The salt-laced wind whipped strands of Amelia Beatrice Finch's auburn hair across her face, stinging her cheeks a rosy pink. She squinted against the glare reflecting off the churning grey waters of the North Sea, pulling her thick, knitted scarf tighter. A guttural squawk echoed from overhead, followed by a flurry of feathers, as a particularly belligerent herring gull swooped down, its beady eyes fixed on the bucket of mackerel scraps clutched in Amelia's gloved hand. "Alright, Barnaby, hold your horses!" she chuckled, tossing a fish high into the air. The gull, predictably, caught it mid-flight with a satisfied screech.
+
+## Setting:
+
+Amelia worked at the **Northumberland Seabird Sanctuary and Rehabilitation Centre**, perched precariously on a craggy outcrop overlooking the desolate but breathtaking Northumberland coastline. The Centre, built partially into the cliff face, was a collection of wind-battered wooden buildings and makeshift enclosures. There was the main hospital, a cramped but well-equipped space smelling perpetually of antiseptic and fish; the aviary, a large, wire-mesh structure teeming with recovering gulls, puffins, and guillemots; and a series of outdoor pools, used for rehabilitating injured seals and occasionally, the odd wayward dolphin. Beyond the Centre, the landscape was a tapestry of windswept heather, jagged rocks, and the ever-present, moody sea. The air was thick with the scent of salt, seaweed, and the distinctive, potent aroma of seabird guano.

@@ -1,0 +1,7 @@
+Once upon a time, there was a fire fighter named "Dry" Mike Sutter and his wife, who just happened to be the owners of the San Antonio Fire Department, and it started out as some sort of prank, but the whole sizzling s*** kept going and there was no end to it. So Dry and his wife had this idea to make their fire station into a brothel, and they did. It was like a really nice little family-friendly, adult-friendly, brothel. Everybody came in dressed up in beautiful sweaters and hats and costumes, people got dressed up, there was the whole family thing going on. It was awesome—my friend Nick and I were pretty much the only ones who didn't go.
+
+I was just really, really into being a fireman, and just being the firefighter at this big family-oriented, adult-oriented brothel in Austin, and that all ended pretty quickly—this whole family-oriented brothel started doing cocaine every Monday night, there was a biker gang in front of the brothel. I didn't want to get involved in that shit.
+
+So that wasn't something you ever thought would become a reality?
+
+It was so fast and crazy and crazy-fast and crazy-sparkly and amazing—I got to put on this really nice fire helmet that we had. I was on the Fire Department of Austin for a long time and spent a lot of time putting

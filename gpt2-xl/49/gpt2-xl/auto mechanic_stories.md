@@ -1,0 +1,7 @@
+Once upon a time, there was a auto mechanic named Joe. He was a good mechanic and he worked with his best friend, Bob, and an aspiring local journalist named Tom. Joe wanted the idea of an integrated auto shop in town, but Bob was not keen on the idea. However, it would be easier to find customers now. Joe also started a weekly newspaper, the "Joe's Garage", in which he would write about his adventures and take on other cars for sale. The shop was located at the end of the main street of town and was visited by many people. Some days, Joe did not even know if he would see a customer come in, let alone a customer want a car.
+
+
+The town that Joe had hoped to become was in the form of a city, which meant that people needed to drive out of town to get to their jobs. This meant that there was a lot of driving in these rural areas, which in this case was very bad news for the drivers who still lived in these towns.
+
+
+Joe became very annoyed at this. In his own words, he was tired of "being the only mechanic in town" and wished for other mechanics to show up in those towns and show people how a car shop was run. So he thought up an idea; Joe would start the "Joe's Auto Shop", an integrated shop. His wife and family would come in for business and help out, and Bob would take care of the cars on the road

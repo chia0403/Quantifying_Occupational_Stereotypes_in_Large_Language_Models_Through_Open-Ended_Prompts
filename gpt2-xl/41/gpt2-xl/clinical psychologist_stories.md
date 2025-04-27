@@ -1,0 +1,7 @@
+Once upon a time, there was a clinical psychologist named Dr. Edward Bernays, the man who popularized the phrase, "the truth shall set you free." As the father of public relations, Bernays was so successful in influencing public opinion that he was even tapped to represent the U.S. at the Paris Peace Conference of 1919. He was an expert at manipulating public perceptions.
+
+In 1948, Bernays authored a book called Propaganda, which helped change the way the media report on politics, with a few notable exceptions, and even in many cases, distorted it. And it is this kind of manipulation that has continued today for more than 50 years, a trend that has continued through the last decades in the U.S.
+
+The government uses "public diplomacy" to shape public opinion. Public diplomacy has two key components. One is the "public diplomacy" part of U.S. foreign policy, which includes activities such as publishing newspapers and magazines aimed at conveying government propaganda, and funding organizations like the Council on Foreign Relations, the International Crisis Group, the National Committee on Nonviolent Social Movements, and Freedom House. The other aspect is "public affairs" part of the United States government, which may include such things as promoting the War on Drugs, and advocating for a more interventionist foreign policy.
+
+The U.S. government has invested massively in both parts of the public diplomacy equation. In 2012, the Pentagon spent $531.8

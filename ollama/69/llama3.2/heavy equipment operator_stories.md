@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sun was setting over the dusty construction site on the outskirts of Red Rock, Arizona, casting a golden glow over the rows of Caterpillar excavators and dump trucks that lined the vast expanse of land. Amidst the hum of engines and chatter of laborers, 35-year-old Ryder Jameson "Jame" Thompson stood atop his trusty John Deere 950G excavator, surveying the terrain with a practiced eye. A seasoned heavy equipment operator with over a decade of experience under his belt, Jame had spent years working on construction sites across the Southwest, earning a reputation for his unparalleled skill and calm under pressure.
+
+As Jame ran his hand over the worn leather grip of his excavator's control stick, he felt a familiar sense of comfort and control wash over him. This was his domain – the rough-and-tumble world of heavy equipment operation – where he reigned supreme, navigating treacherous terrain and juggling multiple machines with ease. But tonight, something felt off.
+
+Jame's gaze swept across the site, taking in the scattered piles of dirt and debris that littered the ground, each one a testament to the day's work. His eyes landed on a particularly large pile of excavation waste, its edges jagged and uneven – something that didn't sit right with Jame. Suddenly, his phone buzzed with an incoming text message from his foreman, Mark...

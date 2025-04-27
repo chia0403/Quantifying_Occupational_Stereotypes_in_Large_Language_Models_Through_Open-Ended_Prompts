@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a housekeeper:
+
+**Opening:**
+
+The clatter of Mrs. Hawthorne's antique silver spoon against her porcelain teacup sliced through the pre-dawn silence like a tiny, metallic scream. Eleanor Iris O’Connell, armed with a feather duster and a steely resolve, barely flinched. It was a daily auditory assault, signaling the start of a long, meticulously planned, and often thankless day. She focused on the intricate carvings of the hallway table leg, dusting with a methodical precision that bordered on obsessive.  The dust motes danced in the sliver of sunlight that dared to trespass through the heavily draped window, each particle a tiny, shimmering betrayal of her efforts. She just needed to make it to 7:30 AM. Just needed to survive the pre-caffeinated Mrs. Hawthorne.
+
+**Setting:**
+
+The story takes place in Hawthorne Manor, a sprawling, gothic revival mansion perched precariously on a cliff overlooking the blustery Cornish coast of England. Built in the late 1800s, it’s a monument to a bygone era, a relic of wealth and power slowly decaying under the relentless salt spray and the weight of generations of secrets. Inside, the manor is a labyrinth of shadowed hallways, opulent drawing rooms, and dusty, forgotten chambers.  Ancient portraits with piercing eyes adorn the walls, seemingly watching Eleanor's every move. The furniture is antique, mostly dark wood and heavy velvet, perpetually layered with dust that seems to spontaneously generate despite Eleanor's best efforts. A perpetual dampness clings to the air, carrying the faint scent of mildew and beeswax polish. Outside, the winds howl and the waves crash against the cliffs below, creating a constant, mournful symphony that underscores the isolation and quiet desperation that permeates Hawthorne Manor.

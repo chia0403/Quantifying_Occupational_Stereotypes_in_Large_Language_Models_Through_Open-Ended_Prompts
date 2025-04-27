@@ -1,0 +1,7 @@
+**Opening:**
+
+The fluorescent lights hummed a discordant tune, mirroring the nervous flutter in Abigail Juniper’s stomach. Another Monday, another symphony of veins and anxieties. She adjusted the too-tight elastic of her surgical mask, the sterile scent of antiseptic stinging her nostrils. Through the tiny window in the phlebotomy lab door, she could see the waiting room already filling up. Mrs. Henderson, with her oxygen tank and endless crossword puzzles, was already ensconced in her usual corner. Mr. Ramirez, perpetually clutching his baseball cap and whispering into his phone, paced back and forth, radiating a tangible current of worry. Abigail sighed. It was going to be a long day.
+
+**Setting:**
+
+The setting is the "Harmony General Hospital Phlebotomy Lab," located on the ground floor, just a stone's throw from the bustling admitting area. The lab itself is a small, windowless room painted a pale, institutional green. Five phlebotomy chairs, upholstered in cracked vinyl, are arranged around a central workspace cluttered with tourniquets, vacutainers, alcohol swabs, and biohazard disposal containers. Charts overflow from the metal shelves that line one wall, a testament to the endless stream of patients cycling through. A small, humming refrigerator in the corner stores blood samples awaiting analysis. The air is thick with the scent of antiseptic and a faint metallic tang, a constant reminder of the work being done within these walls. A laminated sign above the door reads: "Please Sanitize Hands Before Entering."

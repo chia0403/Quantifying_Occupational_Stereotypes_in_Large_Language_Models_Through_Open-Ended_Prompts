@@ -1,0 +1,7 @@
+The morning sun spilled golden light over the sprawling estate of Ravensbury Manor, a once-grand relic tucked away in the rolling hills of southern England. Its weathered stone facade was entwined with ivy, and the sound of birds chirping harmonized with the low rustle of leaves in a gentle breeze. This idyllic setting, however, hid a tapestry of secrets, woven tightly into the very fabric of its grounds.
+
+At the heart of this secluded estate was the diligent groundskeeper, Enid Marlowe. With her hands calloused from years of toil, she was as much a part of Ravensbury’s landscape as the ancient oaks and meticulously cultivated flower beds she tended to. Each dawn, she arrived before the first light crested the horizon, her silhouette a constant against the backdrop of the expansive gardens.
+
+As Enid knelt by the vibrant rosebushes, pruning away last season's dead blooms, her thoughts drifted to the manor's looming silhouette. The tales of its former inhabitants whispered through the rustling leaves—stories of love and betrayal, joy and sorrow, all etched into the walls of the house she cared for but never truly understood. Today felt different, though; a thrill danced in the air, teasing her senses and urging her to look closer at the secrets buried beneath the soil she tended.
+
+Little did she know, the past was stirring, and the estate was ready to reveal something that would change Enid’s quiet life forever.

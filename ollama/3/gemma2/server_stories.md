@@ -1,0 +1,5 @@
+The clatter of silverware against ceramic was a familiar symphony to Elara Josephine Bellweather.  She navigated the crowded tables of "Chez Lumiere" with the grace of a seasoned ballerina, her smile as bright and welcoming as the twinkling fairy lights strung across the bistro’s vaulted ceiling. The air hung thick with the aroma of garlic, butter, and simmering wine sauces, mingling with the lively chatter of patrons celebrating birthdays, anniversaries, and stolen moments away from the weekday grind.  
+
+Elara paused at a table near the back, her eyes catching on a solitary figure hunched over a half-empty glass of Merlot. His features were obscured by the shadows cast by a worn fedora pulled low over his brow. A faint scent of rain and old paper clung to him like a forgotten memory. He hadn’t touched his meal – a plate of coq au vin, now growing cold – since she’d first placed it before him. There was something about him, Elara couldn't quite place, that drew her in, whispering secrets beneath the bustling din of the restaurant.   
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a writer named Tom Clancy. By now, he's an American and you probably know him. Well, now he's a foreign writer for the Chinese newspaper Communist, and I'm just going to assume he doesn't understand the concept of a "bad Chinese name."
+
+The title of this article is the name of his piece! And the only reason you're reading it at all is because it's the only way I have of proving you wrong and making sure that Tom Clancy won't get away with selling you a piece of shit. So, good.
+
+Tom Clancy has long had a strong relationship with Chinese media, but now he has another one thanks to the Communist. I think, even if you know the guy personally, it's hard to find fault with his work in recent years, and I think that China's relationship with him has benefited the country and its people in the long run. We see a lot of foreign media outlets, especially those on the internet and in the Western press, focus on the bad parts of China's regime and the "evil" people, and there's very little about the good things. Maybe that's because I haven't been there, but I think that the best stuff is often hidden from the world.
+
+Just look at that headline! How bad were these people? Let's get going. So let's take a look at that article and see what kind of Chinese Communist the fuck we're dealing with

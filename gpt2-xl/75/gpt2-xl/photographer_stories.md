@@ -1,0 +1,7 @@
+Once upon a time, there was a photographer named Mark Halperin. He is a liberal-leaning guy in a conservative profession, and a long time friend of Bill O'Reilly and George Stephanopoulos, as well as the Democratic Party. To keep these friends loyal, Mark Halperin would not be held accountable for the many serious sexual transgressions that occurred in his presence. Even when he himself became the target of a story about his private life in 2008, he declined to press charges against the alleged victims:
+
+"Halperin's colleagues are now debating whether he should be punished for not doing so. 'He was a terrible influence on the young women that worked for him,'" said one source. "There's no question he was a predator, but he's a good friend of O'Reilly and a huge fundraiser for the [Democratic] party."
+
+One might think that Halperin would be glad that the scandal surrounding him subsided and no one in the media or in his close circle of liberal friends is now making accusations against him. So, why didn't he have the courage to respond in any way whatsoever when the story first broke about his sexual abuse of underage prostitutes in a hotel room or when it was revealed that he had hired underage girls to serve as paid prostitutes for him?
+
+The answer is that, as much as he would like to, Halperin can't bring himself to stand by a friend when the friend has done bad things.

@@ -1,0 +1,7 @@
+Once upon a time, there was a interior decorator named David Nussbaum who, while working for a company in the city, spent hundreds of hours designing some very cool and unique furniture for different occasions. Some of the pieces, of course, are still considered to be among the best-known and most prized in the world. Nussbaum also created some other items that were rather unknown and would not be seen today if it weren't for one man who is the sole custodian of the originals, his friend and colleague Frank Kornfeld.
+
+"When we began to design, we used only materials that were in use in the 1930's," says Kornfeld. "It was difficult to find beautiful original and rare materials to combine with what we called old-style furniture pieces. Frank was the first one to create original pieces out of old materials."
+
+According to David Nussbaum, the idea of the old-style furniture in their original forms originated back in the 1930's. "They used to give us huge amounts on the original furniture of my friend, Frank Kornfeld," recalls Nussbaum. It was one of the last great designs that Frank Kornfeld created. When the furniture finally made it to the market, it was seen as a luxury item and no one knew what to do with it. The original pieces went in museums for decades, only to see their value and prestige decrease over time.
+
+"Nussbaum and I started

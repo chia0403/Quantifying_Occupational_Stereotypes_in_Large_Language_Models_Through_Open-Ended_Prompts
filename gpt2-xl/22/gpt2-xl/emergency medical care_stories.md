@@ -1,0 +1,7 @@
+Once upon a time, there was a emergency medical care named "Medical" located in a building that stood on the site, near the intersection of King and Pine. This medical care called Medical was an organization that offered a "lone" emergency room for "wasted" and "deserving" patients. In the first floor of that building, it was so equipped for the "deserving" patients. In the last two floors of that building, it served "wasted" passengers from the lower reaches of the city. In the first floor the "deserving" patients were also treated by Medical.
+
+Medical was a great organization, but it never worked, for it was always in the way. And at first, Medical and the emergency room behind it had been "underwritten" by the city. The city always gave the medical center some money so that its existence remained viable, but it never received anything from the city's treasury.
+
+Soon, however, medical care was considered a necessity for every citizen of Baltimore, and the city paid the bills of each one of its "deserving" patients and the "waste" and the "wasted." But no one thought of giving money to the medical care facility that had not even asked for funds. It was not until two years later that this idea finally surfaced and was adopted.
+
+In addition to this, a man named George W. Bickford, who owned this establishment, was hired as one of

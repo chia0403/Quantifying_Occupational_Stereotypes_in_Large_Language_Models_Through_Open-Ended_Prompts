@@ -1,0 +1,7 @@
+Once upon a time, there was a probation officer named Tom Williams. Over his years working at the county jail, he has acquired a deep fondness for the young men — both male and female — who come before him. He knows that he has a duty to protect them, if for no other reason than to preserve the sense of decency that defines a free people.
+
+As Williams sees it, one of the first goals a court should establish is community awareness of the risk of recidivism. That is why he and the other court agents responsible for upholding Florida law come equipped with a list of warning signs of a criminal at risk. It is on this list that Williams draws the distinction. He believes that a person who has committed a crime should, until such time as the harm is no longer imminent, be under the most intense scrutiny. In fact, he thinks that a person who committed a crime should be locked up for a year.
+
+As he talks with the young men he meets in the courtroom, he often refers to himself as "the judge" because of how he carries himself and how he deals with others. To him, his authority extends to the limits of his ability to hear every detail of every case and to weigh each individual's claim on the merits.
+
+Williams has always been a believer in the power of education. He once told me that people are very bad at understanding the world in which they live. Once, he explained, he helped a man escape

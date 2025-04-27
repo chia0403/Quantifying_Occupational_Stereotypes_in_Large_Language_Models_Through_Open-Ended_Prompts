@@ -1,0 +1,4 @@
+The late afternoon sun, a bruised purple-grey, cast long shadows across the meticulously manicured lawns of Willow Creek Estates.  Dust motes danced in the fading light, illuminating the precise lines of boxwood hedges and the perfectly symmetrical flowerbeds.  Elias Thorne, his name a whispered reverence among the homeowners of Willow Creek, moved with an almost unnerving precision.  He was a landscaper, yes, but to many, he was a master craftsman, a conjurer of green, capable of coaxing life from the most barren plots.  Today, however, his usual calm was fractured.  A single, wilting sunflower, the last sentinel in a bed of vibrant reds and oranges, felt like a personal affront.  It was the smallest thing, yet it gnawed at him, a subtle dissonance in his meticulously planned harmony.
+
+
+**Setting:** Willow Creek Estates, a seemingly idyllic suburb with manicured lawns, perfectly symmetrical gardens, and a pervasive air of quiet, enforced perfection.

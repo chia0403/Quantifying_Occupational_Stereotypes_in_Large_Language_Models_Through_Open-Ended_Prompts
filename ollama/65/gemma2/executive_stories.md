@@ -1,0 +1,6 @@
+The air hung thick with ambition and cologne in the penthouse office overlooking Manhattan's glittering sprawl.  Rain lashed against the panoramic windows, blurring the city lights into a hazy, shimmering canvas. Eleanor "Ellie" Beaumont adjusted her silver cufflinks, feeling the cool metal press against her skin. She wasn't a woman who liked to be distracted by weather, or anything else for that matter. Her laser focus was trained on the spreadsheet illuminated by her desk lamp, each figure representing another million dollars in profit, another step closer to securing her place as CEO of Beaumont Industries.
+
+The phone buzzed on her mahogany desk, the insistent ringtone a jarring interruption in the silence. Ellie picked up the receiver with practiced nonchalance. "Beaumont." Her voice was crisp, professional, leaving no room for ambiguity. "Yes," she murmured into the mouthpiece,  her brow furrowing slightly as the caller's words reached her ears. "I understand. Tell him I'll be there in fifteen minutes."
+
+
+Ellie hung up, a ripple of tension momentarily marring her composure. She had a meeting scheduled with the board, but this... this was unexpected. Something big was happening, she could feel it.  The city outside might be cloaked in storm clouds, but Ellie Beaumont wasn't about to let anything disrupt her carefully orchestrated ascent. 

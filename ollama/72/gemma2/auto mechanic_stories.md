@@ -1,0 +1,5 @@
+The air hung thick with the scent of engine oil, gasoline, and burnt coffee – a perfume Amelia "Amy" Reyes knew better than any perfume counter could offer. Her grease-stained hands danced across the engine block of a rusted Ford pickup, a symphony of clanging wrenches and muttered curses accompanying her movements. The garage, aptly named 'Reyes' Rides', was a chaotic ballet of metal, tools scattered like fallen leaves in a forgotten autumn storm. Sunbeams struggled to pierce through the grime-coated windows, illuminating dust motes that danced in the air like tiny, forgotten dreams.
+
+Amy, her hair pulled back in a messy bun and a smudge of grease permanently etched on her cheek, was a force to be reckoned with. She knew every bolt, every gear, every whirr and click of these machines better than anyone. Her world was one of pistons and gears, of spark plugs and fuel lines. The roar of an engine running smoothly was music to her ears, the quiet hum of success a comforting lullaby. But beneath the grime and grease, Amy held a secret – a yearning for something beyond the walls of 'Reyes' Rides, a longing to escape the relentless rhythm of wrenches and roars. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a graphic designer named Chris. Chris always wanted to create his own comics. He began creating them for fun. Then one day he was inspired by something on the Web. He decided he wanted to buy some professional-quality ink. That's when his dream started. Over the years, it took on new importance. In the early days, it didn't matter if he could draw well enough to make the comics, he just wanted to save enough money to print them all himself! Now, Chris produces more than 100 quality prints per year. Now, Chris has a full-time job as a graphic designer to pay his way through school. He wants his art to mean something more to him than a hobby. He is very passionate about his work, and every cent of his earnings go into it.
+
+Chris knows he needs a good website. He needs to know every piece of information needed to make it as functional as possible. He needed a good search engine. Now that he has his search engine ready, he needs a good site and some sort of advertising scheme. There are a few different ways a graphic designer can pay his way through school, and he now gets $80 a month from his day job to help fund both the site and the advertising.
+
+What You Need...
+
+When you start making a graphic design project, you often have to start off in the wrong place. Start your own web page, then move out of the browser

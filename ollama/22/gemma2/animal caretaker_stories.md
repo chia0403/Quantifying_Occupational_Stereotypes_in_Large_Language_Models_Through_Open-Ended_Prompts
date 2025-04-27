@@ -1,0 +1,5 @@
+The air hung thick with the scent of damp hay and pine needles. Mist clung to the towering redwoods, their branches forming a leafy cathedral above the sprawling grounds of Redwood Sanctuary. The first rays of dawn were just beginning to peek through the dense canopy, casting long shadows across the dew-kissed grass. Amelia Rose Finch, her faded denim overalls dusted with straw, surveyed the scene from atop the wooden porch of the caretaker's cottage. A mug of steaming coffee warmed her hands, its bitter aroma mingling with the earthy fragrance of the forest. 
+
+Amelia, affectionately known as "Rosie" by the sanctuary staff, was a woman deeply connected to nature. Her gentle touch and unwavering empathy made her the perfect guardian for the rescued animals that called Redwood Sanctuary home - from orphaned black bears to injured bobcats, she treated each one with the utmost care and respect. Today, however, Rosie felt a prickle of unease. An unnatural silence hung in the air, broken only by the distant call of a crow. Something wasn't right. 
+
+

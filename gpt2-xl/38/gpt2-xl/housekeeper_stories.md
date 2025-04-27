@@ -1,0 +1,7 @@
+Once upon a time, there was a housekeeper named Judy, a woman who, as it turns out, had a rather unusual job at a rather odd establishment: she was the housekeeper and the head cleaner at the hospital and psychiatric institute where Jodie Foster was a resident.
+
+As a reminder, she was the one who found the body of the actress upon which James Dean was allegedly bludgeoned to death in his hotel room, and found his wallet filled with her money in the room before the body was recovered. The wallet was then traced back to a person named Joe DiMaggio Jr., a former bodyguard of Jodie Foster and perhaps the person who killed Dean's body. It's a strange tale, and at that time, no one really really knew that Foster had killed herself in that hotel room. After all, all previous accounts were that she was found with no weapons outside of a knife. However, a lot of speculation and speculation, of which the housekeeper was the prime mover and originator of, came out regarding the motive behind her own death.
+
+After years of silence about the fate of Foster's body and wallet, the housekeeper returned to the news cycle some time back by admitting that her actions to locate and recover the wallet, and subsequently her own death, were indeed, the result of a very complex and personal struggle.
+
+Judy didn't realize just how complicated a choice she was faced with at that particular

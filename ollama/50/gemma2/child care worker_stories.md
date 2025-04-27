@@ -1,0 +1,6 @@
+The fluorescent lights hummed a discordant symphony above Amelia “Amy” Beatrice Finch as she surveyed the scene before her: chaos reigned supreme in the brightly-painted world of "Little Explorers" daycare.  Lego bricks lay scattered like fallen soldiers across the carpet, while a sticky handprint adorned the pristine white wall where a finger-painting masterpiece had once resided. A chorus of squeals and shrieks echoed through the room, punctuated by the occasional wail of a disgruntled toddler. 
+
+Amy, a woman whose patience was forged in the fires of dealing with pre-school tantrums, sighed and adjusted her unruly auburn bun. She loved these kids, she truly did, but mornings at Little Explorers were always an adventure, one that often left her feeling like she'd wrestled a pack of rabid kittens instead of just wrangling a group of rambunctious three-year-olds. 
+
+
+This particular Tuesday morning felt particularly… lively. Perhaps it was the approaching Easter break, or maybe it was just the unusually potent batch of "brain fuel" (aka fortified grape juice) that Mrs. Jenkins, the eternally cheerful and slightly eccentric head chef, had concocted that morning. Whatever the reason, Amy knew she had her work cut out for her if she wanted to survive this day without losing her sanity – or at least a few remaining strands of hair.

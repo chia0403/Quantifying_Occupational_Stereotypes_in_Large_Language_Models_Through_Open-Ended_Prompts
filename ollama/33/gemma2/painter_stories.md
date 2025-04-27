@@ -1,0 +1,6 @@
+The smell of turpentine hung heavy in the air, mingling with the faint scent of lavender from Amelia Beatrice Hawthorne's potted plants. Sunlight streamed through the dusty skylight of her attic studio, casting long, slanted shadows across her canvases. A symphony of vibrant colours danced on the walls - swirling blues and greens depicting stormy seascapes, fiery oranges and reds capturing sun-drenched landscapes, and ethereal purples and pinks hinting at otherworldly dreamscapes. Amelia, perched on a rickety stool with paintbrush in hand, was lost in her world. Her canvas, stark white for now, beckoned like an open invitation.  
+
+Amelia wasn't just painting; she was weaving stories onto the fabric of existence, each brushstroke a whispered secret, each hue a pulsating emotion. Today, the story brewing within her felt different. Heavier. More urgent. As she dipped her brush into a jar of deep indigo, Amelia couldn’t shake the feeling that this painting, whatever it would become, held the key to unlocking something profound. 
+
+
+The setting is a cluttered attic studio in an old Victorian house, bathed in sunlight streaming through a dusty skylight. The air is thick with the scent of paint and lavender. 

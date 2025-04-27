@@ -1,0 +1,7 @@
+Once upon a time, there was a butcher named Kahl-Zar-Eb. He was the bane of all who followed the Nine. He was one of the best, but in the hands of a novice, his power was unruly and unstable. His knife was sharp for a good reason and the sound of his steel on flesh was almost as intimidating. His meat tasted like leather or ash. Some called him the Butcher, but he was only ever a nomad.
+
+One day he came into a city to work. A town in a desert that had very little in the way of supplies or people, he had no need of a warm bed to rest or a steady meal to be full. He was thirsty and needed something to drink. But as he walked through the city, some people he came across began to be wary of him, saying he was not like them. He realized he was correct.
+
+These people were not of the Nine and they had no idea where their food came from. They were the People of the Wild.
+
+When Kahl-Zar-Eb entered the village, the villagers were scared and ready for him to go home. But he didn't see them afraid, his presence alone stirred those who slept. He went into a tavern and ordered a glass of wine. The bartender, who was a stranger, started talking about the strange foreigner who had come to town. Even the bartender's dogs seemed more friendly to the

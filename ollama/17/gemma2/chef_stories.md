@@ -1,0 +1,5 @@
+The air hung thick with the scent of garlic, thyme, and simmering tomatoes, a symphony familiar to Eloise Beaumont’s nose. She stood amidst the organized chaos of her kitchen, the heart of "Le Petit Cochon," a cozy bistro nestled in the cobbled streets of Lyon, France. Sunlight streamed through the tall, arched windows, illuminating the worn wooden counters and copper pots that gleamed like polished jewels. Outside, the vibrant morning market was buzzing with life, vendors hawking their wares and laughter mingling with the clatter of trolleys. 
+
+Eloise, her toque perched jauntily atop her head, surveyed the scene with a practiced eye. She loved this time of day, the quiet before the storm, when the restaurant buzzed with pre-dinner energy, but hadn't yet descended into the organized frenzy that came with service. Today, however, the familiar comfort was tinged with an undercurrent of anxiety. A renowned food critic, Monsieur Dubois, had promised to grace Le Petit Cochon with his presence for dinner, and Eloise felt a pressure building in her chest like rising dough. 
+
+

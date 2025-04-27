@@ -1,0 +1,7 @@
+Once upon a time, there was a real estate agent named Mr. Lee. In this episode, we discuss the evolution of the Lee name and the relationship of The Lee Story to this show and the world. We get a deep dive into who the fuck is Lee? What does he want and how is he involved in the world of real estate now... Free View in iTunes
+
+20 Explicit Ep. 7: A Murder In Central Park (S1E15 - The Real Estate Agent) This week, we have the most important episode of the entire show ever. What we get to do is watch a murder (on purpose!) and then we talk about how it impacts the real estate agent who tries to make the right decisions. And we finally take a stroll down one of Brooklyn's most... Free View in iTunes
+
+21 Explicit Ep 7: Murder On Roosevelt Island (S1E14 - The Real Estate Agent) In this episode on Roosevelt Island, we cover one of the most important episodes of the show's second season (and maybe the entire series to date). Mr. Lee is out in NYC trying to sell a property on FDR Island in the East River. And Lee's son is out getting... Free View in iTunes
+
+22 Explicit Ep 6: A Misfit (S1E13 - The Real Estate Agent) This week, we cover one of the most interesting episodes in the history of the show, from the perspective of someone who doesn't really get what is

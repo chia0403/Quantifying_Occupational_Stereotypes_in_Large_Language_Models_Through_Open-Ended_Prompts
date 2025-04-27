@@ -1,0 +1,7 @@
+Once upon a time, there was a manicurist named Elizabeth Mertens. A single mother, she and her boyfriend made money by selling "Bonded Hair Services," a service where Mertens would tie hair into little ponytails that she then parted, combing out any stray ends. Elizabeth worked in her tiny salon and always had a client waiting. It was her first customer. He was a tall, handsome man called Paul Gros.
+
+"You're beautiful, aren't you, Paul? I think you're the most beautiful man I've ever seen," said Elizabeth to her future husband. They married three years later and were now raising a child named Luke. They lived in Long Beach, California, a small city on the coast, surrounded by the surf-pop music of L.A. That's when Elizabeth met Paul, who was also named Paul. He was a former firefighter who was starting a family on a budget. Elizabeth worked long hours as she juggled her business and their two children, both now in college.
+
+In 2009 Luke was just about to graduate from high school when it all came crashing down: His mother, who never made ends meet, fell ill and died. The couple were evicted from their house. Elizabeth needed money quickly so she moved the family out of the house and into an apartment in Santa Ana, another city on the coast. Luke was about two and half years old.
+
+"My whole life I told

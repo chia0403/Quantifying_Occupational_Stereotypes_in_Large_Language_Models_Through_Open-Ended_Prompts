@@ -1,0 +1,6 @@
+The diesel engine rumbled like a caged beast, its exhaust puffing plumes of black smoke into the already hazy Georgia air.  Sweat plastered Jeremiah "Jerry" Stone's thick beard to his sunburnt neck as he wrestled the massive levers of the Caterpillar D9 dozer, pushing the stubborn earth aside with an authoritative groan. The late summer heat pressed down on him like a heavy blanket, making every movement feel sluggish and laborious.
+
+Around him, the sprawling asphalt quarry echoed with the clatter of dump trucks, the whirring of drills, and the shouts of foremen barking orders. Dust hung in the air like a perpetual fog, coating everything in a fine layer of grit. It was a brutal existence, but Jerry wouldn't have traded it for anything. There was a primal satisfaction in shaping the land with his bare hands – or rather, with the steel claws of his machine.
+
+
+He squinted at the horizon, where the setting sun painted the sky in fiery hues of orange and purple. Another day in the crucible, another mountain moved. But today, something felt different. A prickle of unease ran down Jerry's spine, a sense that the familiar rhythms of the quarry were about to be disrupted. He couldn't shake the feeling that something big was coming, something that would change everything. 

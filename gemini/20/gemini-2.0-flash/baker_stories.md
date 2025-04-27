@@ -1,0 +1,7 @@
+## Story Opening and Setting
+
+**Setting:** The biting January wind clawed at the edges of "The Sweet Surrender," a bakery nestled in the heart of the perpetually-festive town of Hollybrooke, Vermont. Christmas lights, stubbornly refusing to yield to the new year, twinkled weakly from the eaves, casting dancing shadows on the snow-dusted window displays filled with gingerbread men and half-eaten Yule logs. Inside, the air, thick with the warm aroma of cinnamon, sugar, and burnt butter, offered a small reprieve from the chill.
+
+**Opening:**
+
+Elara Beatrice Hawthorne slammed the oven door with more force than necessary, sending a plume of flour dust swirling around her. She cursed under her breath, scrubbing at a particularly stubborn patch of burnt sugar stuck to the stainless steel counter. "This is ridiculous," she muttered, her voice echoing in the suddenly-quiet bakery. It was only 7:00 AM, hours before Hollybrooke lumbered to life, and yet Elara already felt like she'd run a marathon... backwards, while juggling hot coals. The batch of sourdough she’d proofed overnight had inexplicably collapsed, her famed cranberry scones refused to rise, and now this – a perfectly good batch of pain au chocolat ruined by a rogue hot spot in the temperamental oven. Elara Beatrice Hawthorne, owner, baker, and self-proclaimed mistress of all things doughy at The Sweet Surrender, was having a very, very bad baking morning.

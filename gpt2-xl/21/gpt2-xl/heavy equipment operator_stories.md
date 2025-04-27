@@ -1,0 +1,7 @@
+Once upon a time, there was a heavy equipment operator named Mr. Anderson.
+
+But Mr. Anderson's job was not a happy one. When he needed to move a large flatbed truck, to move materials to or from a warehouse, he had to use a ladder and the crane. However, because he had little experience with the rigging at all, his lifting operation could only lift a maximum of 2,600 pounds, meaning he could not lift even a small part of the large truck under his own power.
+
+When the problem was brought up to his manager in the management department, the manager said it was an expensive fix. Mr. Anderson could not afford it and did not have the skills to fix it, so his bosses did not change the standard work schedule. After a while, his work became so slow that his supervisor complained that he was not getting the pay that he deserved. So Mr. Anderson, who could not afford the higher wages of a truck driver, lost his job.
+
+He went to court to get back his position, but was not able to. In 1993, he was on the verge of bankruptcy, and he was ordered to pay $3,000 plus legal fees to his former employer to get some of the back pay he was owed. He tried to explain that he could not afford to pay the fees, but the court ordered him anyway. On September 17, 1993, the jury found him in the wrong, and awarded him $1

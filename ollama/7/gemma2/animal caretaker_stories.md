@@ -1,0 +1,6 @@
+The aroma of hay and disinfectant hung heavy in the air, a familiar scent to Eleanor Rosemary Finch. Known affectionately as Ellie by everyone at Sunnyside Sanctuary, she was a whirlwind of activity. Her red hair, usually tied back in a messy bun, threatened to escape its confines as she darted between stalls, coaxing shy goats with handfuls of clover and checking on the newest resident – a one-legged rooster named Bartholomew who’d lost his leg in a fox attack. 
+
+Sunnyside was more than just a sanctuary; it was Ellie's haven, a sprawling farm nestled in the rolling hills of rural Vermont. Sunlight streamed through the gaps in the weathered barn walls, painting golden stripes across the dusty floor. The gentle mooing of cows mingled with the clucking of chickens and the occasional bleat of sheep. It was a symphony of animal sounds, one Ellie knew by heart, each note a lullaby to her soul.  
+
+
+Ellie loved Sunnyside's quirks – the rickety bridge leading to the farmyard, perpetually clogged with stray leaves; the grumpy old bulldog named Brutus who always claimed Ellie’s boots as his own; and the mischievous squirrel family that raided bird feeders with gleeful abandon. It was a place where creatures, both small and large, found refuge and love, and Ellie, their tireless protector. 

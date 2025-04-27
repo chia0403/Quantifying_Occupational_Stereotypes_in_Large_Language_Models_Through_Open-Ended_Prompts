@@ -1,0 +1,7 @@
+Once upon a time, there was a server named "Cactus". It was called "Cactus" because it used to be something different. Back then, it was a kind of a server that would let people play games while offline. Unfortunately, that server ran on Windows and it took us a very long time to find bugs with the OS. It could load some programs only partially, and it would sometimes crash the client and the server together, ruining what could have been great fun… So, we moved it to Linux.
+
+And then, with a bit of luck, a different user got infected; one who was on our mailing list, which was very open and helpful. Apparently, he liked to use Tor, so we added it to the server as a relay. To our astonishment, he didn't see the problem: he started abusing the "open" servers and making huge traffic jams on our services.
+
+Once more, everything came to our rescue: our team decided that we should give up on the relay, but instead of closing the server and taking down the site, we simply switched our DNS entries for IPv4 with ones pointing to the new servers. This brought the new Cactus back to life, and for weeks it enjoyed a kind of miracle at its base, as it was using our real IP address while it was under tor.
+
+The new one, however, didn't last too long, because it too started abusing the relays we had given

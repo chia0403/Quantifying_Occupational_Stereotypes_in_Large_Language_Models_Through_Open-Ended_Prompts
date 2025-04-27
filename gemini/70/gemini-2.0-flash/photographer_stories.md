@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Story Opening:**
+
+The salt spray stung Eleanor Vance's face, a familiar discomfort that did little to dampen the thrill humming through her veins. She adjusted the heavy Nikon, the cold metal a comforting weight against her cheek. The sun, a molten orange orb sinking towards the horizon, painted the sky in fiery strokes that mirrored the churn of the Atlantic below. Another perfect day for the whales. She'd seen a mother and calf pair earlier, breaching just off the starboard side, their massive forms a breathtaking contrast to the delicate, dancing waves. Now, with the light softening, she was hoping for another glimpse, another chance to capture the raw, untamed beauty of these gentle giants. A deep breath, a silent prayer to the sea gods, and she raised the camera, focusing on the distant spray – a whisper of a promise in the vast emptiness.
+
+**Setting:**
+
+The story is set in the small, windswept coastal town of **Gloucester, Massachusetts**, known for its rich maritime history and the enduring presence of the North Atlantic Right Whale population. Eleanor operates her photography business from a converted fishing shack, perched precariously on the edge of the harbor. The shack, painted a weathered shade of turquoise, serves as her living space, studio, and gallery. It’s filled with the scent of salt air, the constant creak of the wooden frame, and the ghosts of generations of fishermen who once called these waters home. Her primary workspace, however, is aboard the "Sea Serpent," a small, but sturdy, research vessel chartered by the New England Aquarium. She spends her days at sea, documenting the lives of the endangered whales for research and conservation efforts. The landscape is characterized by rugged coastlines, dramatic cliffs, and the ever-present, powerful influence of the Atlantic Ocean.

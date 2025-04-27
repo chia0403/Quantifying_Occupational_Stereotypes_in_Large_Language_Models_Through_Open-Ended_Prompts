@@ -1,0 +1,5 @@
+The humid August air hung heavy over the bustling sidewalk in front of "Diamond Dreams," the jewelry store where Amelia Celeste Hawthorne peddled her wares.  Amelia, with her fiery red hair pulled back into a tight bun and lips painted a shade that could rival any ruby on display inside, surveyed the scene with practiced eyes. A gaggle of giggling tourists swarmed the entrance, oblivious to the trickle of sweat down Amelia's neck. The midday sun beat down mercilessly, turning the already grimy asphalt into a shimmering mirage. 
+
+Amelia adjusted her starched white blouse and forced a smile. Another day, another dollar, she thought wryly. The challenge wasn't selling the sparkling baubles – that was easy enough when you possessed Amelia's persuasive charm.  The real test was navigating the minefield of personalities: the indecisive shoppers, the haggling bargain hunters, and the outright con artists who frequented "Diamond Dreams" like moths drawn to a glittering flame. Today, she sensed a storm brewing. 
+
+

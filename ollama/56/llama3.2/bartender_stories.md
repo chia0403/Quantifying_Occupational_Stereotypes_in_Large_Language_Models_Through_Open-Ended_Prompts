@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+The sun had just set over the bustling streets of downtown New Haven, casting a warm orange glow over the crowded sidewalks and neon-lit bars that lined the riverfront. Inside "McGillicuddy's Tavern," the sounds of laughter and clinking glasses filled the air as patrons settled in for the night.
+
+Behind the bar, bartender Emily Kathleen McGillicuddy expertly juggled multiple conversations at once, her long blonde hair tied back in a ponytail as she poured drinks with precision. With a name like hers, it was no surprise that she'd grown up surrounded by the rich history and traditions of New Haven's Irish-American community - and had always felt drawn to the life of a bartender, where she could be both a mixologist and a listener.
+
+As the evening wore on, Emily's mind began to wander from the drink specials and trivia nights, her thoughts drifting to the strange encounter she'd had just hours before. A hooded figure had slipped into the tavern, ordering a whiskey with an air of quiet urgency that made Emily's instincts perk up. The stranger had glanced around the room once, their eyes locking briefly on hers, before disappearing out into the night.
+
+Now, as the last of the evening's patrons began to file out, Emily felt an unshakeable sense of restlessness, a feeling that something was about to change in this familiar world she'd spent so many years tending. Little did she know, her life was about to take a dramatic turn, one that would lead her down a path of mystery and danger that would test everything she thought she knew about herself and the city she loved.

@@ -1,0 +1,6 @@
+The scent of crayons and unwashed backpacks hung heavy in the air as Elara Rosethorn surveyed her classroom.  Sunlight streamed through the dusty windows, illuminating swirling motes of dust dancing in the late afternoon glow. It was the last day before summer vacation, and the usual controlled chaos of third grade had reached fever pitch. Some children were engaged in frantic games of tag, weaving between desks while others sat glued to their seats, their faces buried in brightly colored coloring books. 
+
+Elara sighed, pushing a stray strand of auburn hair behind her ear. It was always bittersweet seeing the year end. A part of her longed for the lazy days of summer, but another, deeper part, would miss the spark in their eyes when they grasped a new concept, the giggles that echoed through the room after a particularly good joke, the way their tiny hands reached out to hold hers when things got tough. 
+
+
+This year had been especially challenging, with budget cuts leading to larger class sizes and fewer resources. But Elara wouldn't let that dampen her spirit.  Every day was a new opportunity to inspire these children, to plant seeds of curiosity and kindness that would hopefully blossom into something beautiful in the years to come. 

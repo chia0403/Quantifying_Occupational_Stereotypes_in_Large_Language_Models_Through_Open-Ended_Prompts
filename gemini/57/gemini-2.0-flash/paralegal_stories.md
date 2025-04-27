@@ -1,0 +1,5 @@
+## Story Opening:
+
+The stack of manila folders threatened to topple, a leaning Tower of Pisa built on the foundations of depositions, interrogatories, and Dr. Feinberg's meticulously detailed, yet utterly illegible, medical notes.  Elias Thorne, Esq. would have a coronary if one of them so much as grazed the floor, let alone exploded in a confetti shower of legal paperwork.  Eleanor Maeve Davies, paralegal extraordinaire, knew this with a certainty that bypassed reason and nestled deep in the pit of her stomach.
+
+She balanced the precariously perched stack with a practiced hand, her other hand fumbling for her perpetually lukewarm coffee. The office, bathed in the pale, anemic light of a late November afternoon, seemed to hum with a nervous energy, mirroring her own. The hum wasn't just the fluorescent lights; it was the collective anxiety emanating from every lawyer, secretary, and intern crammed into Thorne & Bailey, Attorneys at Law.  Today was the day before the final arguments in the contentious, high-profile case of Miller v. GlobalCorp, and the air was thick enough to choke on.

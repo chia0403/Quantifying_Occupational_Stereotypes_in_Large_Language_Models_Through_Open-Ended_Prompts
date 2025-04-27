@@ -1,0 +1,7 @@
+Once upon a time, there was a systems analyst named Steve Jobs. He dreamed big and never got there, but there are times when you can point a long, hard finger and make a mark. Jobs had a point about the value of the iPad, at least on paper.
+
+The iPad was supposed to be the solution to the tablet problem. Jobs' idea was simple: Make a larger 10.1-inch screen, give up physical keyboard, and sell it to us for $499 and give the money back to Apple. It would be cheap. It would be elegant. Apple would control the product, the process, the retail outlet sales and marketing. Anyone could take away the iPad for research, but in return, Apple would make sure that it's never again sold for less than $500.
+
+With the help of a huge marketing plan and huge investments in R&D and the iPad's own marketing and distribution channels, the iPad became the most successful piece of technology Apple ever built. Apple sold an estimated 7 million of them in its first five months. At $499, it's not hard to understand why you have a hard time finding one these days.
+
+When the iPad came out and everyone saw that tiny rectangular slate sticking out of a pocket — the iPhone and the iPod were two of it's biggest competitors — Apple's stock price dropped. Some speculated that the iPad caused Apple to give up on its future earnings growth and shrink its market capitalization. I

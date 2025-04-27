@@ -1,0 +1,7 @@
+The dust hung thick in the air, a perpetual haze that coated everything in the small village of Atherstone. Sunlight struggled to penetrate the particulate blanket, casting long, grey shadows even at midday. The air tasted gritty, a mixture of pulverized limestone and sweat. This was the world Elias Thorne knew, the world he had always known, and the world he would likely die in.
+
+Elias Thorne stood knee-deep in chipped fragments of marble, his muscular arms rippling with each precise swing of his hammer. He wasn't a giant, but years of working the stone had forged a formidable physique. His brow, perpetually furrowed against the glare and the constant mental calculations required for his craft, was dusted with the pale powder.
+
+Before him lay a block of the purest white marble, recently hauled from the nearby quarries. It was a promising piece, almost luminous in the oppressive gloom. Elias had been commissioned to carve a Madonna and Child for the new chapel being built on the outskirts of Atherstone, a project that had breathed a tentative hope into the otherwise stagnant lives of its inhabitants.
+
+But Elias felt no such hope. Only the familiar, aching pull in his shoulders, the burning in his lungs, and the silent hum of the stone calling to him, urging him to release the form hidden within. He raised his hammer again, and the sharp *crack* echoed across the quarry, a constant rhythm in the life of Elias Thorne, the stone cutter of Atherstone.

@@ -1,0 +1,4 @@
+The scent of bay rum and talcum powder hung thick in the air, mingling with the faint hum of clippers and the rhythmic snip-snip of shears. Outside, a summer storm brewed, casting angry flashes of lightning across the faded red brick façade of "Antonio's Barbershop". Inside, the world was bathed in warm, amber light, emanating from the hanging Edison bulbs strung above the worn, wooden chairs lined up against the wall. Antonio “Toni” Rossi, a man whose hands moved with the practiced grace of a surgeon and whose smile held the warmth of a thousand suns, meticulously combed through a young boy’s unruly hair. 
+
+
+The bell above the door chimed as a figure stepped in, shaking the rain from his trench coat. The storm had swept away the last traces of sunshine, leaving the shop shrouded in an even deeper twilight. Toni looked up, his smile widening as he recognized the newcomer -  Mr. Bartholomew, his most distinguished client and, for some reason, a magnet for trouble. 

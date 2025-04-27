@@ -1,0 +1,7 @@
+The rain hammered against the corrugated iron roof of Dr. Eleanor Vance's office, mimicking the frantic thrumming in her ears. Outside, the wind howled, its mournful cry echoing the growing chaos within.  Eleanor, with her neatly tied bun and crisp white coat, sat hunched over a battered filing cabinet, the worn edges of her decades-long practice etched into the grooves of her aged desk. 
+
+The air was thick with the scent of old books and vanilla – an unwelcome juxtaposition for the sharp tang of anxiety that clung to her like fog.  Tonight, she wasn't just treating patients; tonight, she was facing a storm unlike any other.  Her patient, Mr. Finchley, had been brought in after another explosive argument with his wife. This time, he hadn't called it an "argument" at all. He'd spoken of "a reckoning," a word that sent shivers down Eleanor's spine.
+
+Mr. Finchley's case was unlike anything she'd seen before: a man grappling with an inner darkness she couldn't quite name, a darkness he seemed to be actively embracing in his violent outbursts.  Tonight, the storm felt personal, as if it were about to break and unleash something dark within Eleanor herself. 
+
+Eleanor closed her eyes, a flicker of unease rippling through her normally calm demeanor. This was no longer just another case. It had crossed some invisible line, the boundary between therapist and patient, blurring into a chilling echo of her own inner demons. The storm outside was merely the prelude to something far more complex, far more terrifying.  

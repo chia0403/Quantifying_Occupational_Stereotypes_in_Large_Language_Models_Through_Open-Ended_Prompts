@@ -1,0 +1,5 @@
+The air hung thick with the scent of salt and rain in St. Ives, Cornwall. It was the kind of day that seeped into your bones, leaving you chilled even beneath several layers of wool. Amelia Brighton, notebook clutched tightly in one hand and collar pulled high against the relentless drizzle, stared out at the churning grey sea. The waves crashed against the harbour wall with a ferocity that mirrored the turmoil brewing inside her.  
+
+Amelia was on assignment for the London Times, sent to cover the small town's annual fishing festival, an event usually brimming with lively merriment and freshly caught cod. But this year, a pall of unease hung over St. Ives. The harbour master, found dead in his office just days before the festival, had become another casualty in a string of unexplained disappearances that plagued the Cornish coast.  
+
+Amelia, ever the relentless reporter, felt an icy thrill course through her. She was determined to uncover the truth behind these unsettling events, even if it meant wading into the murky depths of secrets hidden beneath the quaint facade of this charming seaside town.   

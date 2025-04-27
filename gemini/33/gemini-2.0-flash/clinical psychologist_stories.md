@@ -1,0 +1,11 @@
+**Story Opening:**
+
+The first scream was a low, guttural sob that snaked its way under Dr. Eleanor Vance’s office door like a persistent draft. She knew, even before the second, higher-pitched wail pierced the relative calm of her afternoon, that Mrs. Gable was having a difficult session. Eleanor pinched the bridge of her nose, trying to ward off the nascent headache blooming behind her eyes. Six hours into her Thursday schedule, and the emotional weight of her patients was beginning to feel less like a professional burden and more like a lead apron. She took a slow, deliberate breath, the scent of lavender from the aromatherapy diffuser a small comfort.
+
+**Setting:**
+
+Dr. Eleanor Vance’s office was a carefully curated haven on the third floor of a renovated Victorian house in the heart of Beacon Hill, Boston. The building, painted a discreet shade of dove grey, housed several other therapists and psychiatrists, creating a small, specialized community. Eleanor’s personal space was designed to be both calming and subtly engaging. Soft lighting from strategically placed lamps warmed the room, highlighting the original hardwood floors and the intricate plasterwork on the high ceilings. A plush, cream-colored sofa and two armchairs, upholstered in a muted floral pattern, offered comfortable seating arrangements. A large, antique Persian rug, its colors faded with age, anchored the space.
+
+On one wall, a built-in bookcase overflowed with titles on psychology, philosophy, and literature. Interspersed among the books were carefully chosen objects: a smooth, grey river stone, a small, bronze sculpture of a meditating Buddha, and framed photographs of Eleanor’s travels – the sun-drenched coast of Italy, the snow-capped peaks of the Swiss Alps.
+
+Her desk, a solid oak piece inherited from her grandfather, sat near a large window overlooking a small, private courtyard. A meticulously organized array of pens, notebooks, and a sleek laptop sat on its surface. Despite the carefully arranged aesthetic, there was an undeniable sense of lived-in comfort, a testament to the countless hours Eleanor had spent within those walls, listening, guiding, and trying to help her patients navigate the complexities of their minds.

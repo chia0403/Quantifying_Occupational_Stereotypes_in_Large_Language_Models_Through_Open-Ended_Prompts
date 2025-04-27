@@ -1,0 +1,7 @@
+The humid Louisiana air hung thick and heavy, a tangible presence that stuck to Amelia "Amy" Dubois' skin like a second, less-forgiving layer. She hated the summers here, the oppressive heat that seemed to seep into everything, even the dark recesses of her camera bag. But she loved the light. That golden, saturated light that painted everything in a hazy, dreamlike quality, a light that whispered stories of bayous and secrets.
+
+Amy perched precariously on the crumbling brick of the old plantation house, the "Magnolia Belle," as it was ironically called. The magnolias were long gone, choked out by creeping vines and neglect. The house itself was a skeleton of its former glory, its white paint peeling like sunburnt skin, its windows empty sockets staring out at the overgrown grounds. It was the perfect subject.
+
+Amy Dubois, professional photographer and passionate documenter of decaying beauty, adjusted the focus on her vintage Rolleiflex. She framed the shot carefully, balancing the crumbling facade with the riot of green that threatened to swallow it whole. The air smelled of damp earth, mildew, and something else… something vaguely sweet and unsettling, like overripe fruit.
+
+She clicked the shutter. One less forgotten story, captured and preserved. Hopefully. This place felt different, heavier than the other derelict estates she’d photographed. It felt like it held its breath, waiting. Waiting for her.

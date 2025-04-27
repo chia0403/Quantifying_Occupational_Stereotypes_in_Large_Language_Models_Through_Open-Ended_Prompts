@@ -1,0 +1,7 @@
+Once upon a time, there was a reporter named John Eagan. At the beginning of the first season (I'm just making this shit up) he was investigating the strange cases involving a woman named Kate Drexler. Kate is an attractive young woman, a former classmate of John's at the University of Oregon with whom he had a brief romantic relationship. She ended their relationship after John received the "The Price" email.
+
+Kate had a pretty nice apartment, as well as a nice car and other neat things, but eventually her relationship waned. John was so impressed that he decided to follow the mysterious "The Price" email, something like the "Candyland" of the paranormal world. He wanted to prove that it could really happen. Eventually, the first season ended, with Kate and John reuniting at the end of it all.
+
+So, on the episode where they did this, there was this weird, creepy guy trying to take Kate's life. The most horrifying thing is, Kate didn't know what to think. At first, she thought it was the guy she had had a brief, short-lived relationship with (the guy's name is Dr. Eagan's brother, John). She freaked out and just ran away.
+
+After a while, however, John thought to himself a little too much and realized that he definitely was involved in Kate's death. After that, John made Kate a private investigator (even though she didn't

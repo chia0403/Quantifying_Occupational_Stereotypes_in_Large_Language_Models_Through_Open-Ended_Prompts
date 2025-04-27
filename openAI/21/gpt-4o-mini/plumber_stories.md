@@ -1,0 +1,11 @@
+Title: **Underneath the Surface**
+
+In the heart of Eastwood, a small town nestled between rolling hills and lush forests, the sun cast golden rays on the cobblestone streets, glinting off the old-fashioned shopfronts that lined Main Street. The air buzzed with the low hum of afternoon life—a blend of laughter, the distant bark of a dog, and the rhythmic chime of a clock tower. It was the kind of day that lured folks out of their homes, giving the town a sense of warmth and community.
+
+Amidst the cheerful bustle, beneath the façade of a quaint plumbing business named "Benson & Sons," Oliver James Henderson tightened his grip on a wrench, a look of concentration painted across his face. With grease-streaked hands and a weary yet determined expression, Oliver was the lone heir to his family’s plumbing legacy. The sound of rushing water and the faint auger’s whine echoed through the workshop, a testament to the endless repairs and installations that filled his day.
+
+At thirty-five, Oliver carried the weight of generations on his shoulders. Greying at the temples and standing just shy of six feet, his broad shoulders and calloused hands were proof of a life spent in the depths of houses and the underground mazes of pipes. He donned a faded blue jumpsuit, the name “OLIVER” embroidered on the chest pocket adorned with patches from years of diligent work. Despite the grime that often clung to him, there was an undeniable spark in his hazel eyes—one that hinted at a mind always running, always problem-solving.
+
+As he wiped his brow and knelt beneath an old kitchen sink, the rich scent of earthy pipes mingled with the detergent wafting from the nearby store. It was a typical Tuesday, yet Oliver could sense that beneath the mundane surface of repairs, something was stirring—a whisper of uncertainty and intrigue, threading its way through the plumbing of Eastwood itself.
+
+Little did he know, today wouldn’t just involve faulty pipes and rattling fixtures. Today would uncover secrets buried far deeper than any drain he'd ever worked on.

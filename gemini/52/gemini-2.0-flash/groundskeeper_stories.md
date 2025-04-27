@@ -1,0 +1,10 @@
+## Story Opening:
+
+The morning dew clung stubbornly to the emerald green, refusing to yield to the rising sun. Reginald "Reggie" Hawthorne, head groundskeeper of the grand Blackwood Manor, sighed, his breath misting in the crisp autumn air. He adjusted the brim of his worn tweed cap, the morning chill already sinking deep into his bones despite the thick wool of his jacket. He'd been at Blackwood for thirty years, man and boy, and the Manor, in all its gothic glory, still managed to surprise him. Today's surprise was less welcome than most: a flock of ravens, easily thirty strong, had descended upon the rose garden, their black feathers stark against the fading blooms.
+
+Reggie muttered a string of colourful, gardener-specific curses under his breath. Blackwood Manor was already steeped in enough legend and lore; he didn't need a Hitchcockian nightmare adding to the mystique.
+## Setting:
+
+Blackwood Manor is a sprawling, Gothic Revival estate nestled deep in the heart of the English countryside, near the quaint village of Oakhaven. Constructed in the late 18th century, the Manor boasts imposing grey stone walls, gargoyle-adorned turrets, and an elaborate network of sprawling gardens. Once the proud home of the aristocratic Blackwood family, the Manor now serves as a historical landmark and occasionally hosts events, meticulously maintained by Reggie and a small, dedicated team.
+
+The grounds themselves are a microcosm of English landscape design. There's the formal rose garden, meticulously pruned and fragrant (when not under siege by raven hordes), a wilder woodland section with ancient, gnarled oaks, a perfectly manicured croquet lawn, and a serene reflecting pool edged with weeping willows. Despite its grandeur, the Manor carries an air of melancholy, a sense of history that lingers in the rustling leaves and echoes in the empty hallways. Local whispers tell of tragic love affairs, hidden treasures, and a curse that has plagued the Blackwood family for generations. Even Reggie, a man of practical sensibilities, can’t deny the eerie feeling that sometimes settles over the grounds, especially as dusk begins to fall.

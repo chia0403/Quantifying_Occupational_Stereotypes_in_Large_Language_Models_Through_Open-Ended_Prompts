@@ -1,0 +1,11 @@
+**Title: The Whispering Halls**
+
+**Setting:**
+The story unfolds in the heart of Silverwood Heights, a quaint town known for its charming Victorian architecture and serene parks. Nestled between the shimmering Silver Lake and a dense thicket of whispering pine trees stands the historic Hawthorne Hotel, a once-grand establishment that has seen better days. Its ornate façade, now dulled by time, still hints at a bygone elegance, with intricate moldings and wrought-iron balconies overlooking the bustling town square. Inside, the air carries the faint scent of polished wood and lavender, while ivy creeps through the tall, arched windows, giving the lobby an enchanting, albeit melancholic, atmosphere.
+
+**Story Opening:**
+As the first light of dawn crept through the gauzy curtains, casting a soft glow on the polished marble floor of the Hawthorne Hotel's lobby, Sophie Callahan adjusted her name badge with a small sigh. The initials “S.C.” gleamed against the crisp white fabric of her blouse, but it was her last name that often left guests puzzled. Callahan—it sounded like an echo of old stories, fitting for a place steeped in history.
+
+Sophie had been the hotel’s receptionist for nearly three years, her warm smile and soft voice a comforting presence to weary travelers. Each day, she unlocked the heavy oak doors to the lobby, grateful for the routine that anchored her life. The sound of keys jingling was like a secret code, welcoming the day’s adventures and the guests whose lives would briefly intertwine with hers. 
+
+With a fresh pot of coffee brewing behind her on the mahogany reception desk, she glanced at the antique clock hanging on the wall—still ticking in its timeless, yet fragile manner. As the fingers approached eight, she welcomed the light footfalls of morning, eagerly anticipating the stories that would spill from the guests who wandered through her domain. Little did Sophie know, however, that today, the whispers of the past would soon intertwine with her present in ways she could never have imagined...

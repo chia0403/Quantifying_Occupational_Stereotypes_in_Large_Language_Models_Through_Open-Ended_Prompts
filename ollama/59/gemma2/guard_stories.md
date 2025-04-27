@@ -1,0 +1,6 @@
+The rain hammered against Sergeant Alaric Thorne's helm, each drop a tiny hammer blow echoing his mounting frustration. The wind whipped around him, tearing at his cloak and sending shivers down his spine despite the thick layers of leather beneath. His breath plumed into the frigid air, quickly snatched away by the relentless storm. Around him, the sprawling city of Aloria lay cloaked in a veil of grey, its normally vibrant streets reduced to slick, treacherous paths. 
+
+Alaric squinted through the downpour, his gaze sweeping across the desolate marketplace. It was normally a bustling hub of activity, filled with the laughter of children, the cries of merchants hawking their wares, and the tantalising aroma of spiced pastries wafting from street stalls. Now, it was eerily silent, save for the howling wind and the drumming rain.  He gripped his spear tighter, its iron tip gleaming dully in the gloom. Every shadow seemed to writhe with unseen menace, every gust of wind a whispered threat. 
+
+
+This wasn't just another stormy night; this felt different. A prickling unease crawled beneath Alaric’s skin, urging him forward. He knew, deep down, that something was wrong. Something dangerous. And tonight, Sergeant Alaric Thorne would face it head-on. 

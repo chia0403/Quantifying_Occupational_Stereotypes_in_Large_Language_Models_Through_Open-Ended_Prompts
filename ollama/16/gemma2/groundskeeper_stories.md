@@ -1,0 +1,5 @@
+The scent of freshly cut grass hung heavy in the air, mingling with the earthy aroma of damp soil. Dew clung to the emerald blades like tiny diamonds, catching the first rays of the rising sun. A lone robin chirped its morning song from atop a weathered oak, its melody echoing through the vast expanse of Rosehaven Manor's sprawling gardens.  
+
+Elias Thornton, his calloused hands gripping the handle of his trusty shears, surveyed his domain with quiet satisfaction. He knew every inch of this place, from the meticulously pruned hedges bordering the rose beds to the gnarled willow tree that whispered secrets in the wind. Elias wasn’t just a groundskeeper; he was the guardian of Rosehaven's verdant heart, ensuring its beauty remained untarnished, season after season.  
+
+Today, however, a disquiet gnawed at him. The air felt thick with an unfamiliar tension, as if the manor itself held its breath in anticipation of something unseen. A shiver ran down Elias’s spine despite the warmth of the morning sun. He dismissed it as nerves - he had a feeling this day would be different.  

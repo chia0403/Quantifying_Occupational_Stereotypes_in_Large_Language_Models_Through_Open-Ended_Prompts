@@ -1,0 +1,7 @@
+Rain lashed against the ornate brass door handle of room 314, each drop exploding in a miniature geyser of water on the worn stone floor. Inside, nestled in his oversized coat, Theodore "Ted" Sterling slumped on a velvet-covered footstool, nursing a lukewarm coffee. A tired sigh escaped him as he watched the steady rhythm of the storm against the single pane of glass. The Grand Majestic Hotel was more than just a building; it was an iron fist grasping for forgotten grandeur, its ornate facade masking the harsh reality of decay and neglect. Outside, the world was blurring under the curtain of rain, but inside, Theodore found himself submerged in a sea of memories, each one tinged with a bittersweet longing.
+
+He adjusted his worn fedora, feeling the weight of his father's old leather satchel against his side. A relic from a bygone era, it held more than just luggage - it held the ghost of dreams deferred and the whispers of promises never kept. Ted was the last of a line – a bellhop in the twilight years of a once-mighty dynasty.  But for him, despite the storm outside, the hotel was a fortress of comfort, its familiar scent of mahogany polish and stale cigarettes grounding him amidst the swirling chaos of his own thoughts. 
+
+
+**Setting:** The Grand Majestic Hotel, Chicago - a grand but decaying hotel on the cusp of losing its former glory.
+**Character:** Theodore "Ted" Sterling, a bellhop with a troubled past and a longing for something more.  

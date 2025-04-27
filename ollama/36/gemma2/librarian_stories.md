@@ -1,0 +1,6 @@
+The air in the Blackwood Public Library hung thick with the scent of aged paper and brewing rain. Dust motes danced in the shafts of sunlight filtering through the stained-glass windows, illuminating forgotten nooks and towering shelves laden with countless stories. Eleanor Beatrice Willowbrook, head librarian and self-proclaimed guardian of knowledge, meticulously straightened a display of newly arrived biographies on local historical figures.  
+
+Eleanor loved this sanctuary, its quiet murmur a comforting balm to the chaos swirling outside the glass doors. The rain was relentless today, drumming a steady rhythm against the ancient brick walls, mimicking the anxious beat of Eleanor's own heart. It had been a particularly trying week, with an infestation of bookworms threatening her beloved collection and a disgruntled patron demanding access to classified government documents (a request Eleanor had politely but firmly denied). 
+
+
+But now, amidst the familiar comfort of her domain, a new urgency pulsed within her. A single envelope, addressed in elegant cursive and bearing no return address, lay on her desk, its presence as out of place as a neon sign amongst dusty tomes.  This was not a delivery for the usual book club or a forgotten overdue notice. This felt different, charged with an unspoken weight that pulled at Eleanor like a whispered secret. 

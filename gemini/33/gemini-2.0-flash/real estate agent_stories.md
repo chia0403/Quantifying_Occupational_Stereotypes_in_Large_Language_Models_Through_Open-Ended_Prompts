@@ -1,0 +1,9 @@
+## Story Opening:
+
+The stale smell of potpourri hung heavy in the air, a desperate attempt to mask the damp and decay clinging to 14 Willow Creek Drive. Eleanor Vance grimaced, adjusting the silk scarf around her neck. This house was a challenge, even for her. Eleanor, a woman who’d once sold a condemned building as an "urban fixer-upper," was having trouble finding the "charm" in this particular listing. The paint peeled in long, brittle strips like sunburnt skin, revealing layers of faded wallpaper beneath. Cobwebs draped from the ceiling like ghostly tapestries, and the floorboards groaned a mournful tune with every step she took.
+
+Eleanor Vance, real estate agent extraordinaire for prestigious "Crestview Properties," adjusted the strap of her designer handbag and forced a smile. "Opportunity," she murmured to herself, the word a mantra against the rising tide of negativity. "This is an opportunity." 
+
+**Setting:**
+
+The story opens in the dilapidated Victorian house at 14 Willow Creek Drive in the sleepy, almost forgotten town of Havenwood, Connecticut. Havenwood was once a thriving mill town, but the industry dried up decades ago, leaving behind a skeleton of abandoned factories and a population struggling to hold onto a fading past. 14 Willow Creek, a once grand family home, reflected this decline perfectly. It was a three-story structure, complete with a wraparound porch now rotting under a thick layer of moss. The overgrown yard was a jungle of weeds and neglected shrubbery, obscuring the house from the quiet, tree-lined street. The house sat perched on a slight rise, overlooking a sliver of the still, murky Havenwood River, which added to the unsettling atmosphere. The date is a crisp autumn afternoon in late October, the air thick with the scent of dying leaves and the promise of a long, cold winter. The grey skies and bare branches only amplified the house's gloomy presence.

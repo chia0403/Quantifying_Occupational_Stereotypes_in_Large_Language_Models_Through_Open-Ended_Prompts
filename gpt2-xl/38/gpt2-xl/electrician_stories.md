@@ -1,0 +1,7 @@
+Once upon a time, there was a electrician named William A. Gibson who was obsessed with technology from the earliest days of the Internet up to the dawn of the iPhone and later the iPad. It seemed Gibson would never stop inventing, and the last time it was reported he had sold his company to a Japanese company he told the Wall Street Journal:
+
+"I've got one idea after another. The next thing I'll be inventing is teleportation," Gibson said in an interview at a San Francisco bookstore. "Why have I not got a patent on that yet? But it's out there."
+
+Gibson sold off his technology company Wozniak Associates in 2006 and is now spending more time at home writing poetry. He's never fully come out of his shell like another computer genius of the era, Douglas Adams, and his online poems are as funny as they are brilliant. His most recent work is the story of a man who has a car accident and has to wake up in an alley so his girlfriend can be with another man. He goes through some of the major stages of morning-after-a-nightmare-but-still-you-wake-up-everyday-right drama: waking up at home; running into the house; the door being kicked in and his girlfriend and other man outside.
+
+The narrator realizes he's not alone and starts to hallucinate, and he's able to see all his friends as people he can identify

@@ -1,0 +1,6 @@
+The flickering neon sign outside cast its pale glow on a sea of rain-slicked streets.  Rain hammered down, each drop exploding in a miniature burst of light against the cobblestones below. The air hung thick and heavy with the scent of stale beer, cigarette smoke, and something else – a hint of metallic tang that made Elara's stomach churn. 
+Elara, her name etched into the worn mahogany bar top like an old tattoo, swirled the amber liquid in her hand. It was just another night at The Rusty Mug, where dreams were drowned before they even began to rise.  She glanced around: a man with sunken cheeks and eyes full of regret hunched over his whiskey, a young woman with fiery red hair nervously drumming her fingers on the counter, and a gangly teenager whose eyes darted between a flickering television screen and the empty glass in front of him. 
+
+This was Elara's stage, the grimy, dimly lit corner where forgotten stories unfolded, sometimes whispered with a quiet hope, other times choked out by regret.  Tonight, though, there was something different, an undercurrent of electricity humming beneath the surface. The air crackled with unspoken tension, the kind that only came with secrets waiting to be unveiled, and Elara knew she wouldn't just serve their drinks tonight; she would help them drown them all in a sea of forgotten moments. 
+
+

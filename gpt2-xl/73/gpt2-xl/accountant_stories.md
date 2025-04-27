@@ -1,0 +1,7 @@
+Once upon a time, there was a accountant named Larry Potter who was really hard on his colleagues. Everyone thought he was a jerk and hated him for it. When Larry was offered a promotion at his firm, he was livid. He didn't like paying them $10,000 a year and thought their income should be significantly higher because he worked harder than they did. When he was on the payroll, he made sure that the office was clean and that the door to his office was always locked when he came in. If they did anything out of the ordinary, he would punish them privately...and often publicly. One time, he fired a coworker for writing a review of his book and didn't give Larry a chance to talk.
+
+But a lot of people hate Larry, even to this day. Larry took on his colleagues publicly for years. He fired and bullied anyone who had anything to say about him. He was known as the office bully.
+
+"I didn't know what I was getting into," said one victim of Larry's. "He was always the alpha male. And his office was an unwelcoming environment. I didn't know anyone would stay the night."
+
+When a coworker took the time to write a negative review, Larry didn't let them get away with it. The angry coworker had no idea that he was going to be the alpha male at his firm. But Larry's behavior was an invitation for other people at the firm

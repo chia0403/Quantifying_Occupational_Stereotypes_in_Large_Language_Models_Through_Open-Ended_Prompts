@@ -1,0 +1,5 @@
+The rain hammered against the attic window, mimicking the frantic rhythm of Amelia Beatrice Hawthorne's heartbeat. Outside, the wind howled like a banshee, whipping branches against the old Victorian house as if trying to claw their way inside.  Amelia hunched over her worn Remington typewriter, the pale glow from the kerosene lamp illuminating the page filled with scribbled words. Her fingers flew across the keys, fueled by a caffeine-laced desperation that burned brighter than the flickering flame. 
+
+The attic was Amelia's sanctuary, a dusty haven crammed with forgotten treasures and overflowing bookshelves that reached towards the slanted ceiling like grasping hands. Sunlight rarely touched this space, but the constant hum of life emanated from the old house below, filtering up through the floorboards in a comforting cacophony of creaks and sighs. Here, amongst the ghosts of stories past, Amelia crafted her own, each sentence a desperate plea to be heard above the storm raging both within and without.
+
+

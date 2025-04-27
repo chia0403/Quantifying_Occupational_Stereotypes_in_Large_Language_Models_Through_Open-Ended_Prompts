@@ -1,0 +1,8 @@
+The air hung thick with the scent of disinfectant and fear.  Rain lashed against the windows of Mercy Hospital's emergency room, mimicking the frantic rhythm of Amelia's heart. She was 30 years old, but her hands were callused, weathered by years spent tending to life’s most vulnerable moments. Her name tag read 'Amelia Stone,’ an identifier that felt heavier than usual tonight.  The hospital lights flickered in sync with a patient’s slow and uneven breathing, a jarring counterpoint to the gentle hum of the machines around her. 
+
+Her eyes were bloodshot, fueled by adrenaline and exhaustion. This was their third double-shift this week, the city's chaos never quite allowing for respite. The weight of responsibility felt crushing, each patient’s story a silent plea echoing through the sterile corridors.  The man in front of her, Mr. Garcia, wasn't just another number on a chart; he was a retired tailor with an infectious laugh and eyes that held stories of hardship and love. Now, his face contorted in pain, every labored breath like a whisper of fading light. 
+
+Tonight felt different. The storm outside mirrored the turmoil within her own spirit. Amelia knew she couldn't give up. Not yet. Not for Mr. Garcia, not for anyone caught in this ever-spinning hurricane of life and loss.  This was her call to action, an urgent responsibility woven into the fabric of who she was: a guardian angel on call in the storm. 
+
+
+**Setting:** Mercy Hospital, a large urban hospital located in a bustling city known for its diverse population and intricate network of emergency services. The setting is both familiar and threatening, reflecting the constant chaos of life itself.  

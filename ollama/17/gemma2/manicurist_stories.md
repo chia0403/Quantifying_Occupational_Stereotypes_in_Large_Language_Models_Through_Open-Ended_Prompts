@@ -1,0 +1,7 @@
+The air hung thick with the scent of acetone and nail polish – cherry blossom for Mrs. Petrov’s chipped pinkies, lavender for young Emily’s first attempt at French tips, sandalwood for Mr. Henderson’s weekly “manly” touch-up.  It was a symphony of scents only Elara Beatrice Beaumont understood, each perfume a whisper of the life lived beneath its surface. 
+
+Elara dipped her brush into a shimmering gold polish, the metallic flake catching the fluorescent lights that hummed overhead. The small shop, nestled on a cobblestone side street in Edinburgh’s Old Town, was bathed in the warm glow of late afternoon sun filtering through dusty windows. Outside, the rumble of tourist buses and chatter of locals blended with the melodic strumming from a nearby busker. But inside "Painted Dreams", time slowed to the rhythm of Elara's brushstrokes, a sanctuary of hushed whispers and gentle clicks of cuticle nippers. 
+
+Elara glanced at the clock – five o’clock sharp. The last appointment was due any minute. A shiver ran down her spine, a prickle of anticipation mixed with unease. This one was different. Her new client, a man who booked under an assumed name and requested anonymity, had arrived just before the shop closed yesterday, his hand trembling slightly as he handed over a crumpled ten-pound note. He’d spoken in hushed tones, eyes darting around nervously, requesting a single, simple detail: "Make it invisible." 
+
+

@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+The rain-soaked streets of Edinburgh gleamed like polished onyx as Aurora "Rory" Wynter stepped out of her small flat, the misty veil of the morning rising off the Union Buildings like a damp shroud. A single, flickering streetlamp cast an eerie glow over the deserted alleys, casting long shadows behind the rows of ancient tenements that seemed to lean in on the city like sentinels. Inside, Rory's apartment was warm and cozy, a refuge from the chill of the Scottish morning, but outside, the darkness seemed to press in, like the weight of history itself.
+
+Rory, an editor at the prestigious Edinburgh Review, was already running late for her first meeting of the day, a contentious review of a new novel by up-and-coming author, Alistair McTavish. As she hurried down the stairs, her boots splashing in the puddles, her mind was already turning over the words on the manuscript - which had sparked a heated debate among her colleagues about its literary merit.
+
+The Edinburgh Review had always been known for its rigorous standards and incisive critiques, but lately, Rory had begun to feel the pressure of expectation weighing down on her. The paper's owner, the enigmatic and reclusive Henry Fraser, seemed increasingly demanding, pushing his editors to cut corners and sacrifice their own artistic vision in pursuit of a more commercial success.
+
+As she emerged into the brightening morning light, Rory felt a shiver run down her spine - not just from the cold, but from the sense that something was about to shift beneath the city's staid surface. Little did she know, the words on McTavish's manuscript were only the beginning of a storm that would shake the Review - and her own life - to its foundations.

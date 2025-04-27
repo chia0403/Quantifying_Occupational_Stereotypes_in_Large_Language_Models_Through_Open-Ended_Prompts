@@ -1,0 +1,6 @@
+The sun beat down on Elijah "Hammer" Hartigan's neck like a blacksmith's anvil. Sweat stung his eyes as he adjusted the mirrored visor of his helmet, squinting at the construction site before him. Dust devils danced in the heat waves rising from the cracked earth, swirling around the skeletal remains of what would soon be the largest shopping mall in the state. Hammer, a mountain of a man with arms thick as tree trunks and hands calloused like old leather, sat perched in his yellow behemoth – a Caterpillar 349 excavator nicknamed "The Crusher."
+
+The air vibrated with the symphony of construction: the guttural roar of engines, the rhythmic clang of steel on steel, the incessant screech of grinding gravel.  But Hammer was deaf to it all. His focus was laser-sharp, trained on the mammoth pile of dirt in front of him. He needed to create a perfectly level foundation for the new wing, and any deviation would be a nightmare to fix later. 
+
+
+This wasn't just another job site for Hammer. This project was personal. It was his chance to prove himself, to finally climb out from the shadow of his father, a legendary heavy equipment operator who’d passed away three years ago.  The weight of his legacy pressed down on him, a constant reminder of the high bar he needed to clear. 

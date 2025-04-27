@@ -1,0 +1,6 @@
+The air hung thick with the scent of jasmine and old wood polish as  Eloise Beatrice Beaumont surveyed the living room. It was a disaster, though a charming one – cluttered with mismatched furniture from different eras, draped in floral curtains that had seen better days, and adorned with knick-knacks collected on haphazard travels. Eloise, however, saw not chaos, but potential. A phoenix waiting to rise from the ashes of tired decor.  
+
+She stood in the heart of a rambling Victorian house nestled amidst the rolling hills of Sussex, England. Sunlight streamed through dusty windows, illuminating cobwebs that shimmered like delicate silver threads. Outside, the garden bustled with bees and butterflies, their hum a counterpoint to the creak of floorboards beneath Eloise's feet. 
+
+
+This wasn't just any house; it was The Willow Cottage, rumored to be haunted by the ghost of a former owner, a flamboyant art collector named Alistair Hawthorne. Eloise had scoffed at such tales, but as she stepped into the shadowy hall, a chill ran down her spine and goosebumps erupted on her arms. She chalked it up to the age of the building, attributing the prickle of unease to damp air and creaking timbers. Still,  Eloise couldn't help but feel that The Willow Cottage held secrets waiting to be unearthed, both in its dusty corners and beneath its vibrant facade. 

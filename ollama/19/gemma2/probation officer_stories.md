@@ -1,0 +1,6 @@
+The humid Georgia air clung to Amelia "Amy" Grace Hawthorne like a second skin as she navigated the worn gravel path towards the dilapidated porch. The peeling paint on the ramshackle farmhouse practically screamed "abandoned," and the rusted swing set in the overgrown yard creaked mournfully in the breeze.  This wasn't exactly the charming Southern setting Amy had envisioned when she started her job as a probation officer three years ago. 
+
+She adjusted the strap of her worn messenger bag, clutching her notepad tighter. Inside, nestled between case files and sticky notes, was a fresh cup of lukewarm coffee - a necessity on days like this when the Georgia sun seemed determined to melt asphalt and skin alike. Today's visit wasn't particularly high-priority, just a routine check-in with Daniel "Danny" Reed, a young man convicted of petty theft. Still, Amy couldn't shake the feeling that something about this assignment was different. 
+
+
+Maybe it was the unnerving silence emanating from the house. Or perhaps it was the way the shadows seemed to stretch longer than they should in the late afternoon sun, casting an eerie pallor over the overgrown yard. Whatever it was, a prickle of unease ran down Amy's spine as she reached the creaking porch and knocked tentatively on the warped wood door. 

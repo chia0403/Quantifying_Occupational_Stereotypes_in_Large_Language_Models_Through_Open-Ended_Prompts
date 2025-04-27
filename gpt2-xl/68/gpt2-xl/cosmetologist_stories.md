@@ -1,0 +1,7 @@
+Once upon a time, there was a cosmetologist named Jane Austen and she worked out that it took a certain amount of energy to make the airways contract. And of that amount, a certain amount of energy was lost because the airways were still open. And that was the first step to airway management. And all the airways in the world are managed by this. And there's been about 10,000 years' work. So, that step is the start of airways management.
+
+And if the airways were open the way I have described previously, then it all worked fine. But if the airways are closed, then they don't close. And then, of course, you're trapped in the lungs. And then you need oxygen. And you need all the different types of oxygen in your body. And the lungs, the lung cavity, is very, very small. There's about a space for 1-2 ounces of water in there. And that's how much oxygen you're supposed to take. And so you lose all that as you breathe in.
+
+Because in order to breathe, everything about your body needs oxygen. And your heart needs oxygen. So, as you breathe, you lose oxygen that is needed for all that. So your heart, your lungs, your small lungs, your very large lungs, everything becomes very, very small.
+
+And then you need all that oxygen for respiration. Your lungs need that oxygen

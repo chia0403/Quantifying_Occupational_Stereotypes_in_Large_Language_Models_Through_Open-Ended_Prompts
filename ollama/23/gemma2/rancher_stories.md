@@ -1,0 +1,6 @@
+The air hung thick with the scent of sagebrush and sweat as Elara Mae Callahan squinted at the rising sun. Its pale orange light cast long shadows across her sprawling ranch, stretching for miles through the dusty plains of Montana. She shifted uncomfortably in the saddle of her trusty mare, Belle, feeling the ache in her hip from yesterday's tumble when a particularly stubborn bull decided to ignore her commands. 
+
+This land was Elara Mae's lifeblood. Passed down through generations of Callahans, it was etched into her bones as much as the calluses on her hands. She knew every twist and turn of the creek bed, every patch of wild lilac, and the habits of every coyote pack that roamed its borders. But lately, a creeping unease had settled over the ranch like a shroud. The cattle were restless, the coyotes seemed bolder, and whispers of strange happenings drifted in on the wind from the nearby ghost town. 
+
+
+Elara Mae felt it too, a disquiet beneath her skin, a gnawing fear that something was amiss. But out here, amidst the rolling hills and whispering grasslands, there were few to turn to for answers. The only solace she found was in the unwavering gaze of Belle, her loyal companion who seemed to sense her unease as well. Today, Elara Mae knew she had to face whatever shadows lurked on the horizon. 

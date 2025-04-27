@@ -1,0 +1,9 @@
+Title: **Wanderlust & Whispers**
+
+Setting: The bustling city of New Orleans, alive with the sounds of jazz and the scent of gumbo wafting through the air. The sun dips low in the sky, casting a warm, golden hue over the French Quarter. Historic iron balconies cast elongated shadows on the cobblestone streets, and street performers showcase their talents under the twinkling string lights that crisscross overhead. The vibrant atmosphere hums with excitement, enticing the wandering souls seeking adventure.
+
+Opening: 
+
+In a quaint office tucked away on Chartres Street, nestled between a creole bakery and a pottery shop, Vivienne Elise Landry sat silhouetted against a backdrop of vintage travel posters. Each poster told a tale of far-off places, from the lush landscapes of the Amalfi Coast to the vivid markets of Marrakech. Vivienne, a travel agent with a twinkle of wanderlust in her hazel eyes, spent her days curating dream vacations for clients who eagerly sought a glimpse of the world beyond New Orleans’ vibrant embrace. 
+
+With the soft sound of jazz drifting in through the open window, she scribbled notes on a crisp piece of parchment—a custom itinerary for a couple embarking on their honeymoon in the Maldives. But today was different; possibly more exciting than any other day she had spent planning expeditions and getaways. A mysterious email had arrived that morning, its sender unknown, leaving Vivienne with a tantalizing question: was it a chance to explore a secret destination, or had she stumbled upon something far more intriguing—a hidden piece of her own past? The prospect of adventure whispered sweetly at the corners of her mind, and she felt the steady pulse of possibility quicken beneath her fingertips as she hovered over the keyboard.

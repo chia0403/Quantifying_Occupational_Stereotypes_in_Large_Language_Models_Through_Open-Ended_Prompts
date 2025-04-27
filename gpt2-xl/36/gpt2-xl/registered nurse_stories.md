@@ -1,0 +1,7 @@
+Once upon a time, there was a registered nurse named Jane, but she was not Jane anymore — she became a nurse's aide. One day, a stranger approached her, asked to talk to her and gave her a name: "Beverly."
+
+Beverly was born a boy.
+
+What happens when a gay man is asked by a stranger a question like, "So, how's the sex?" What happens when he's forced to reveal his life story when being interviewed by a reporter? What happens when he's a registered nurse and forced to refer to her as "Beverly" instead of "Jane"? What happens when he's asked to "say something nice about" someone? The answer is this: He gets fired. His career as an abortion doctor is over.
+
+How do you expect a gay person to deal with this, especially when there are no protections for people from this kind of workplace discrimination? How did my son react when he was sent on a mission where there was still a high chance that he'd be discriminated against based on his sexuality? He was devastated. He felt like he was no longer worth his employer's time, so he resigned. I was not there to comfort him, I was there to comfort him alone. But when I was around him, there were times when he could be a tough guy but he was a really good person, and when I was around him, he helped out at charity events with a smile and

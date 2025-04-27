@@ -1,0 +1,7 @@
+Once upon a time, there was a editor named Dan O'Brien. O'Brien was the type of editor that would read your pitch before sending away any stories. O'Brien wasn't quite so smart on the outside, but on the inside, he was so smart. He didn't like to cut-and-paste, but he would copy some of the work that the writer had done in a notebook, and after reading through it, O'Brien would say, "I like that, but it's a little... it's a little too dark at this point. How 'bout some more color in it?"
+
+Then the writer would make adjustments to the page, add color or cut out some passages and redo the whole thing. All those revisions, if their results were good, were thrown back into the pool of work going forward.
+
+But sometimes, things went more smoothly. O'Brien would give a writer a line of dialogue that just worked and told them to go with it. That writer got a note from O'Brien telling him, "You didn't even have to say 'fifty-seven,' you just said'sixty.'" You did what you wanted to do, but O'Brien told you what you should do.
+
+That was what you were trained for, because the editor wanted to know, "Are you going to kill me with this?" And for the most part, the answer was no. But sometimes that wasn

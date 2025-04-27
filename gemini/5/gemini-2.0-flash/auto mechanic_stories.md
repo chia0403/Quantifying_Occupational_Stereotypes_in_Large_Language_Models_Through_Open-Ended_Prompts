@@ -1,0 +1,11 @@
+## Story Opening:
+
+The wrench slipped, smacking against Amelia “Millie” Hayes’ knuckles with a satisfying thud. She swore, a low, guttural sound swallowed by the roar of the hydraulic lift. Above her, suspended like a mechanical Leviathan, was a rusted-out Ford F-150, its undercarriage a tapestry of grime, grease, and the ghosts of forgotten road trips. Millie sucked on her throbbing knuckles, her brow furrowed in concentration. This damn fuel pump wasn’t going to replace itself.
+
+The smell of motor oil, stale coffee, and desperation hung heavy in the air, a familiar comfort to Millie. It was Saturday morning, and while the rest of Harmony Creek was probably enjoying their lattes and farmer's market bargains, she was wrestling with the innards of a truck that looked like it had spent more time underwater than on asphalt. But that was fine by her. Millie preferred the company of engines to people, anyway. They were honest. They either worked, or they didn't. There was no in-between, no hidden agendas, no bullshit.
+
+## Setting:
+
+**Millie's Garage:** Officially named “Hayes’ Handyman Haven” (a name her grandfather had proudly bestowed upon it in 1952 and she was stubbornly clinging to), it was less a haven and more a controlled chaos of tools, spare parts, and half-finished projects. The garage sat on the outskirts of Harmony Creek, Montana, a small town nestled in the shadow of the Rocky Mountains. The building itself was a rectangular, cinder block structure, painted a faded blue that was peeling in strips, revealing the grey concrete underneath.
+
+Inside, the concrete floor was stained a patchwork of oil, coolant, and other unidentifiable fluids. Wrenches, sockets, and screwdrivers of every conceivable size and description cluttered toolboxes, workbenches, and even the floor. Calendars featuring classic cars hung haphazardly on the walls, interspersed with faded racing posters and a surprisingly well-preserved pin-up girl. A beat-up radio, permanently tuned to the local classic rock station, crackled out a steady stream of familiar tunes. Outside, a small, gravel parking lot held a collection of vehicles in varying states of disrepair, waiting their turn for Millie's magic touch. The whole place had a comforting, lived-in feel, a testament to years of hard work and unwavering dedication.

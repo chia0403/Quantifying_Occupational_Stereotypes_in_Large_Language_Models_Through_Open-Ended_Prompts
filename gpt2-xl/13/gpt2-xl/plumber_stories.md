@@ -1,0 +1,7 @@
+Once upon a time, there was a plumber named Joe. When you worked for Joe in the plumbing business, Joe was the best. He'd work all day long, with no vacations, and he'd come home with the best pay you'd ever seen. Sometimes when we went to the mall, Joe took us to McDonald's.
+
+We'd both be smiling, eating our Big Macs from the McDonald's menu, but all day long Joe would be sitting at his desk. He just thought he should take a break for a moment. It's like a little man sitting down in the middle of the day. Joe gets up and takes a quick break all day long. Sometimes he'd be talking on the phone at his desk. Joe would say, "You think you need to talk to me about this." Then he'd hang up. We'd both be sitting there in amazement. Then he'd come over. "Hey, what happened?" He's got a little frown on his face. Joe, a plumber, would tell me.
+
+All day long Joe would sit by himself and work. And at night Joe would be at his home watching TV all day long. He'd sit in his living room and play video games with his family. But when he was watching TV, he wasn't playing video games. Joe would play a couple dozen games back at home.
+
+At night Joe would sit with his family, and they'd have a good time

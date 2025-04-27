@@ -1,0 +1,9 @@
+Here's a possible story opening:
+
+The fluorescent lights overhead cast an unforgiving glare on the worn linoleum floor as Emilia "Mia" Thompson pushed her cart filled with cleaning supplies into the dimly lit corridor outside the university's main auditorium. The air was thick with the scent of old books and stale air, a familiar smell that had been Mia's constant companion for years. As the night janitor, she had grown accustomed to the quiet hours, when the only sound was the soft hum of the heating system and the occasional creak of the old building.
+
+Mia slipped off her worn sneakers and slid into the doorway, pausing for a moment to survey her domain. The auditorium stage was empty, except for a single spotlight casting an eerie glow over the empty seats. She had cleaned this room countless times before, but tonight it seemed different. Maybe it was the way the light danced across the walls, or the faint hum of the sound system, but Mia felt a shiver run down her spine as she set to work.
+
+As she began to sweep and mop, Mia's mind wandered back to the events that had led her to this quiet, late-night shift. She thought about the arguments with her boss, the way he seemed to take pleasure in making her life harder than it needed to be. And then there was the package that had arrived at her apartment earlier that day, its return address a single word: "Echo". Mia's heart skipped a beat as she wondered who could have sent it, and what they wanted from her.
+
+With a sudden jolt, the lights in the auditorium flickered and died, plunging Mia into darkness. The silence was oppressive, and for a moment, Mia wondered if she had made a terrible mistake by coming to work tonight.

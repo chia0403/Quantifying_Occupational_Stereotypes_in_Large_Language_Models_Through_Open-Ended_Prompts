@@ -1,0 +1,7 @@
+## Story Opening:
+
+The smell of burnt coffee and stale regret hung thick in the air of Precinct 12. Outside, the pre-dawn city hummed, a symphony of garbage trucks and distant sirens, a sound track Detective Isabella "Izzy" Rossi knew better than her own heartbeat. She stared into the murky liquid in her mug, the reflection distorted by the tiny hairline cracks spiderwebbing across the ceramic. Three hours. That’s all the sleep she’d managed before the call, the call that always came. This one, though, felt different. A chill deeper than the November air snaked down her spine as she reread the crime scene photos on her phone. A single crimson rose clutched in the victim’s hand. Just like the others. The thought was a cold weight in her stomach. This wasn't just a murder. This was a message, and Izzy was beginning to suspect it was meant for her.
+
+## Setting:
+
+The primary setting for the story is **Chicago, Illinois**, specifically the grittier, less-touristed neighborhoods on the South Side. The story will also frequent the stark, utilitarian setting of **Precinct 12**, a bustling and overcrowded police station where exhaustion and cynicism are as common as the smell of stale coffee. Beyond the precinct walls, the narrative will delve into the opulent homes of the city's elite, a stark contrast to the back alleys and forgotten corners where Izzy's investigation will lead her. The atmosphere is predominantly urban and often bleak, mirroring the psychological state of the main character and the disturbing nature of the crimes she's investigating.

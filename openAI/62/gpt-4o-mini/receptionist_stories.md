@@ -1,0 +1,7 @@
+The early morning sun spilled through the tall glass windows of the Evergreen Heights Medical Center, casting a warm glow over the polished marble floors. The waiting room, a blend of soft blues and greens, was designed to calm the nerves of those who entered, its plush chairs neatly arranged in clusters that encouraged quiet conversation or solitary reflection. 
+
+At the reception desk, a bustling hub of activity, sat Beatrice Lynn Harper, her flaxen hair pulled back in a neat bun, eyes bright and alert behind stylish glasses. With a headset securely in place and a bright smile that seemed to wash over the room, she was the heartbeat of Evergreen Heights, welcoming patients and their families with a warmth that had become synonymous with her name.
+
+Despite the steady hum of voices and the occasional sound of a distant cough echoing down the corridor, Beatrice found solace in the rhythm of her duties. She answered phones with a practiced ease, scheduled appointments with meticulous attention, and chatted with regulars like they were old friends. Yet beneath her composed exterior, there was an unshakeable sense of anticipation, as if something hidden was about to unfold within the sterile walls of the hospital. 
+
+With a quick glance at the clock hanging above her, Beatrice felt the unease ripple through her, a sensation amplified by the flicker of overhead lights that seemed to pulse in sync with the anxious thrumming of her heart. Little did she know, today would be anything but ordinary.

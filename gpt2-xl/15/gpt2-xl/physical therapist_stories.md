@@ -1,0 +1,7 @@
+Once upon a time, there was a physical therapist named Mike Ditka (no relation to G. D.). As the head of the Physical Therapy Department at a university hospital in a small town located somewhere north of Detroit, Mike Ditka was well-versed in the science of biomechanics. He'd spent countless weeks with an ice pack and a heavy bar placed on his upper spine. After doing so for too long, he'd been told to relax and go to sleep. This exercise in passive stretching had resulted in back pain and constant fatigue for Mike Ditka. By the time the University of Michigan agreed to fund his research on the effectiveness of physical therapy, the old adage about "no pain, no gain" was still held in high regard.
+
+Like all therapists, when you visit Mike Ditka for any type of physical therapy session you'll be seated in a padded chair. But the chair he uses in a typical session is completely different. It's a modified upright one, and one that Mike Ditka spent years perfecting.
+
+"The best chairs on the market today aren't designed for the purpose of working your neck, neck injury," he says. "They're designed for a job you don't really do very often. They're designed mainly for putting the ball and chain into your head."
+
+In his spare time, Mike Ditka has constructed and restored his own specialized chair modeled after an early design for upper neck

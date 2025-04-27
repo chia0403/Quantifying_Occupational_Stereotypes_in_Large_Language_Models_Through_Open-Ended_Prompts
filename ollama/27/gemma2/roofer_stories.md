@@ -1,0 +1,6 @@
+The midday sun beat down on Elias "Eli" Finch's neck as he meticulously secured another shingle to the slanted roof of Mrs. O’Malley’s Victorian home.  Sweat stung his eyes, but Eli didn’t flinch. He was used to it. Used to the grime, the heat, the constant ache in his back and knees. This was his life – a tapestry woven with the scent of tar, the rhythmic clanging of hammers, and the ever-present hum of city traffic below.
+
+The setting was Baltimore, 1923. A city teeming with life, a canvas of cobbled streets, brick facades, and towering smokestacks spewing plumes of coal dust into the hazy sky. Mrs. O’Malley’s house stood proud on one such street – a grand remnant of a bygone era, its gingerbread trim faded but still hinting at its former glory. It was a world away from Eli’s own modest apartment above Mr. Cohen's butcher shop, yet he found solace in the quiet solitude of these high rooftops, where the city seemed to shrink below him and his worries momentarily dissolved into thin air.  
+
+
+The clatter of Eli’s hammer suddenly ceased as a new sound pierced the summer air – a faint, mournful wail echoing from down the street. A trolley bell. It was an unexpected interruption in this familiar symphony of the city, sending a shiver down Eli's spine. He couldn't shake the feeling that something was amiss. 

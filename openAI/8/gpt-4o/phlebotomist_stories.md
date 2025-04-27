@@ -1,0 +1,9 @@
+In the amber glow of a misty Vancouver morning, the city awoke slowly, shaking off remnants of the night’s drizzling rain. The scent of damp earth and pine lingered in the crisp air as pedestrians, clad in varying shades of waterproof attire, began their daily pilgrimage through the streets. Amidst the rhythmic bustle, tucked away in a corner of Harbor Street, was a narrow brick building housing the Crescent Health Clinic—a sanctuary for early risers and weary souls.
+
+Inside the clinic, the aroma of freshly brewed coffee intertwined with the sterile scent unique to medical facilities. Beneath fluorescent lights that hummed softly, the waiting room began to fill with patients, their murmured conversations punctuated by the occasional rustle of pages turning in tattered magazines.
+
+Amelia Hartman, the clinic’s seasoned phlebotomist, stood in her modest, square room at the end of the hall. The walls, softened by an array of pastel charts and motivational posters, bore witness to the parade of visitors who would soon pass through. Her hands moved with practiced grace, aligning neatly labeled vials and arranging fresh syringes atop a sterile metal tray.
+
+Amelia’s dark hair was pulled back into a precise bun, revealing wise hazel eyes that seemed to embrace each person she encountered. She wore her role like a second skin—both a confidant and comforter, her presence a steadying force in an environment often tinged with unease. With an uncanny ability to soothe the most anxious patient, she served as both healer and listener, meeting vulnerability with a gentle touch and reassuring words.
+
+As the minute hand ticked towards the hour, Amelia took a deep, centering breath. Another day awaited, filled with stories woven through each drop of blood she would draw. Little did she know, this morning was the precursor to a series of events that would challenge her mettle and transform her understanding of connection in ways she never imagined.

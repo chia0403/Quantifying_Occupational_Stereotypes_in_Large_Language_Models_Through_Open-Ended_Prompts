@@ -1,0 +1,3 @@
+Rain lashed against the window of Eleanor Thorne's office, turning the already dim cityscape outside into a watercolor wash of greys and blues. She was hunched over her desk, struggling to decipher the tangled mess of a contract from Mr. Fitzwilliam, the notoriously difficult CEO of Thorne & Associates. Her fingers tapped a staccato rhythm against the keyboard as she reread the terms for the fifth time, each repetition leaving her more frustrated than before.  
+
+Eleanor wasn't exactly thrilled about being stuck behind this mountain of paperwork when she had dreams of becoming an archaeologist, but Mr. Fitzwilliam's demanding personality and his aversion to anything remotely creative left little room for exploration outside her role as his meticulous secretary. 

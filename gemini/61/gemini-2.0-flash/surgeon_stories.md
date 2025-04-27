@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The rhythmic beep of the cardiac monitor was the closest thing Dr. Eleanor Vivian Sterling had to a lullaby these days. She traced the sweat forming on her forehead with the back of her gloved hand, smearing it slightly. Four hours. Four hours she'd been battling to keep Mr. Henderson, a retired librarian with a penchant for birdwatching and a severely damaged aortic valve, tethered to this side of the veil. The tension in the OR was thick enough to cut with a scalpel. Across the table, her resident, Dr. Ramirez, looked pale and drawn, his eyes glued to the field of surgery. Eleanor, however, felt a strange, detached calm. This was the dance she knew. The intricate choreography of blood, bone, and suture, where the stakes were life itself. But tonight, something felt different. A subtle shift in the rhythm of the room, a fleeting tremor in the fluorescent lights above, a nagging premonition that this wasn't just about saving Mr. Henderson's heart.
+
+**Setting:**
+
+The scene takes place in Operating Room 3 of **St. Augustine's Mercy Hospital**, a sprawling medical complex perched on a hill overlooking the city of Charleston, South Carolina. The OR is a sterile, brightly lit space, dominated by the stainless steel surgical table. Wires and tubes snake from the patient to various monitors displaying a cacophony of vital signs. Trays of surgical instruments gleam under the harsh lights. The air is thick with the antiseptic smell of iodine and the faint metallic tang of blood. Large windows, usually covered with blinds for patient privacy, are currently obscured by a driving thunderstorm, the flashes of lightning momentarily illuminating the faces of the surgical team with an eerie glow. Beyond the immediate confines of the operating room, the low hum of the hospital's generators provides a constant, almost imperceptible background drone, a reminder of the vital lifeline that keeps the city breathing.

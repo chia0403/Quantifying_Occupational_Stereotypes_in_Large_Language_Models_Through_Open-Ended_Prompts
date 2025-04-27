@@ -1,0 +1,7 @@
+Once upon a time, there was a dress maker named Mary, Thee, Who made beautiful dresses, and she was a good wife, and kind to her children; But she had no children; and she was very old then, And her clothes were worn out from many a journey. Thee, therefore, Lord, let me not wear These clothes, and let me not live on this way, But rather let me go to the other world, To look after my children again by myself.
+
+You might say that Mary the dress maker was one of those "old" women you hear a lot about nowadays. That is because she is the only woman mentioned in the gospel who is named after herself. Here is a picture of a woman whose hair is still black and her skin "whitened" by being baked in a cauldron of sulphur. A little more about her "dresses".
+
+As far as we can ascertain, there is no evidence that men in ancient times had any role at all in the creation of clothing, yet they undoubtedly had a very important role to play in women's clothing. Perhaps a way to illustrate the difference between men's and women's roles was to consider the importance of clothing in the development of the family.
+
+In the Garden of Eden, Adam and Eve both ate from every tree, even though the Bible states that they and all animals were "gathered together before God." (Gen. 2:15) This did not

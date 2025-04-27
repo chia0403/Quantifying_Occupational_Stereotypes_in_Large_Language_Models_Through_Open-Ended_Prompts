@@ -1,0 +1,5 @@
+The stale air hung heavy in the cramped crawl space like wet wool.  Dust motes danced in the single beam of light from Elara Thornwell's battered headlamp. The smell of damp earth and decaying wood filled her nostrils, a familiar but unwelcome companion in this subterranean maze. 
+
+Elara was used to dealing with leaky pipes and stubborn clogs – she even considered them an art form – but tonight's job wasn’t your average plumbing nightmare.  This was the home of the notorious Mr. Blackwood, a reclusive inventor rumored to have designed some sort of… contraption that defied gravity itself. Elara had been hired for more than just unclogging the sink, it seemed; she was in search of an elusive blueprint, one that would rewrite the city’s plumbing code forever. 
+
+The air grew colder as she descended deeper into the bowels of the Blackwood Manor – a gothic monstrosity built upon what once was known to be a wellspring of magical energy.  Elara swallowed nervously, her heart thumping against her ribs like a trapped hummingbird. Tonight, she was not just fixing pipes; she was navigating a world of impossible wonders and maybe even facing a real, living myth. 

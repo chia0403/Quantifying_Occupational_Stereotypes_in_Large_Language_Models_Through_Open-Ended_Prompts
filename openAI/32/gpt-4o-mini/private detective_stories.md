@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The rain fell in relentless sheets, casting a silvery veil over the neon-lit streets of Riverside City. Puddles formed like little mirrors on the asphalt, reflecting the blurs of passing headlights and the distant glow of flickering signs. In a dimly lit office on the second floor of a run-down brick building, the smell of damp paper and old coffee permeated the air. The walls were lined with photographs, newspaper clippings, and a scatter of case files strewn haphazardly across the desk.
+
+At the center of this chaotic sanctuary sat Elara Jane Prescott, a private detective known for her sharp mind and sharper instincts. With her tousled dark hair pulled back into a messy bun and an ever-present leather jacket, Elara had a knack for fitting into places people often overlooked. Her hazel eyes, keen and penetrating, scanned a new file that had just landed on her desk—an invitation to untangle another mystery shrouded in shadows.
+
+The city had a pulse that thrummed beneath the surface, a rhythm of secrets and lies just waiting for a pair of capable hands to uncover them. And as Elara settled in for a long night of investigation, she felt that familiar thrill—a feeling that hinted a puzzle was waiting to be pieced together, spilling into the world like rain on the streets below.

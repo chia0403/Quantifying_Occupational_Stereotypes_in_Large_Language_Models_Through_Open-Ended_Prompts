@@ -1,0 +1,6 @@
+The humid Georgia air hung heavy over Benny “Grease Monkey” Jackson’s junkyard, thick with the scent of oil, gasoline, and desperation. Rusty hulks of cars stood in varying stages of decay, their skeletons gleaming under the midday sun like forgotten promises. A chorus of cicadas buzzed through the heat, a soundtrack to Benny's solitary life. He was hunched over a beat-up '67 Chevy Impala, its engine sputtering more than running.  Benny’s calloused fingers danced across the worn engine block, tracing the path of the problem like an old map. 
+
+He knew every inch of these machines, their quirks and groans as familiar to him as his own reflection in the dusty shop window. Benny “Grease Monkey” Jackson was more than just a mechanic; he was a whisperer of metal, coaxing life back into forgotten engines with grit, sweat, and a stubborn refusal to let anything die without a fight. 
+
+
+This particular Impala, however, presented a challenge even for his seasoned skills. This wasn't just about a clogged carburetor or a faulty spark plug. There was something deeper at play, a hidden whisper in the engine's hum that spoke of secrets buried beneath years of grime and neglect. Benny squinted at the rusted chassis, feeling a familiar pull – the irresistible lure of a mystery waiting to be untangled. 

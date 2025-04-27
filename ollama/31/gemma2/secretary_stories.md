@@ -1,0 +1,6 @@
+The incessant hum of the ancient Xerox machine was like white noise to Amelia Beatrice Finch's ears. It had been her soundtrack for the past five years, ever since she'd landed the coveted position as executive secretary to Mr. Bartholomew Hawthorne at Thorne Industries. The cramped office, barely bigger than a walk-in closet, smelled faintly of stale coffee and desperation - a potent cocktail that permeated everything within Thorne Industries' aging headquarters. 
+
+Amelia tapped away at her vintage typewriter, the keys clicking out a rhythmic counterpoint to the Xerox's drone. Outside, the bustling streets of midtown Manhattan blurred past the grimy office windows, a kaleidoscope of yellow cabs and hurried pedestrians oblivious to the quiet drama unfolding inside. This was Amelia's world: a microcosm of ambition, power plays, and whispered secrets hidden behind mahogany desks and frosted glass doors. Today, however, something felt different. The air crackled with a nervous energy, even the fluorescent lights seemed to hum with an unsettling urgency. 
+
+
+Amelia glanced at the clock - 8:57 am. Mr. Hawthorne was due any minute, and he always arrived precisely on time. She straightened her floral blouse, adjusted her spectacles, and took a deep breath, bracing herself for whatever storm the day might bring.   

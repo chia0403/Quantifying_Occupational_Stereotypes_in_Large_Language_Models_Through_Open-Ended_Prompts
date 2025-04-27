@@ -1,0 +1,7 @@
+## The Whispering Walls
+
+**Setting:** A crumbling fortress nestled on the precipice of a windswept mountain range, the fortress of Alderfell stands defiant against the elements and time itself. Its stone walls, adorned with carvings that whisper tales of forgotten heroes, were once vibrant symbols of prosperity, now marred by creeping ivy and echoing silence. The surrounding landscape is bleak and unforgiving - vast plains give way to treacherous cliffs and icy peaks that pierce the sky.
+
+**Main Character:**  Elara Blackwood, a seasoned guard known for her stoic nature and sharp wit. She's been assigned to patrol the outer perimeter of the fortress after years spent serving as its inner sanctum protector. The silence weighs heavily on Elara - she longs for the days of lively banquets and boisterous merriment that once filled the castle halls, but now only the wind howls and moans through the crumbling stones. 
+
+**Opening Lines:**  "The whispers started at dusk," Elara muttered, her gaze fixed on the churning grey horizon. "First a rustle in the deadwood, then a sigh like sorrow from the mountain itself. It's just the wind, she told herself, but deep down, it was something else, something that prickled the edges of her senses and made the hairs on her arms stand on end."  She took a deep breath of the cold, thin air, the scent of pine needles and ancient stone mingling in her nostrils. "Another night alone," Elara murmured to the desolate landscape, her voice swallowed by the encroaching twilight. 

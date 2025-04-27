@@ -1,0 +1,13 @@
+**Title: Whispers in the Static**
+
+**Setting:** A small, coastal town named Port Haven, nestled between rugged cliffs and a tumultuous sea. The town is known for its historic lighthouse, which has stood watch for over a century, and its crumbling radio tower that juts out at the edge of the cliffside, a remnant of a forgotten era. The air is thick with salt and nostalgia, as the salty breeze carries the echoes of old sea shanties and the distant roar of waves crashing against the rocks. Gazebos and weathered benches line the waterfront, where fishermen mend their nets and children chase seagulls.
+
+**Main Character:** Elias Montgomery, a dedicated radio technician in his late thirties, whose tousled sandy hair and well-worn work boots reveal years spent tinkering with every kind of electromagnetic device imaginable. His hands bear the marks of countless hours spent adjusting circuits and coaxial cables, and his weathered face tells stories of late nights spent listening to fading signals while gazing out at the churning sea. Elias runs a small repair shop near the lighthouse, a cramped space cluttered with old radios, tangled wires, and the remnants of a world that once depended on the crackling voices that came through the airwaves.
+
+---
+
+**Opening:**
+
+Elias Montgomery adjusted the dial on an old shortwave receiver, the device crackling to life with the ghostly remnants of music long forgotten. The rhythmic static filled the cramped confines of his workshop, mingling with the faint scent of salt air that wafted in through the open window. Outside, the sky stretched out like a canvas brushed with hues of orange and purple as the sun dipped below the horizon. The light danced across the churning waves, casting glittering reflections that flickered like the memories that haunted him.
+
+In Port Haven, evenings had a peculiar way of inviting secrets to the surface, and Elias was often the solitary witness to their murmurings. Once the town buzzed with the voices of fishermen and sailors, but now it seemed infused with an unsettling solitude. Glancing at the radio, he could almost hear the whispers of lost transmissions beckoning him forward. Little did he know that tonight would unravel a thread that connected him to the past in ways he could hardly imagine—an unexpected signal would crackle through the ether, summoning him to the mysteries ensconced in the static.

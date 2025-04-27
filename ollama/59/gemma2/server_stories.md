@@ -1,0 +1,6 @@
+The clatter of plates, the rhythmic thrum of the espresso machine, and the murmur of conversation swirled around Amelia Josephine Finch like a familiar storm.  Amelia, or "Amy" as most regulars called her, expertly weaved through tables laden with half-eaten breakfast stacks and steaming cups of coffee at The Corner Perk.  
+
+Sunlight streamed through the large front windows, painting the worn wooden floorboards in stripes of gold. Outside, the morning bustle of Maplewood was just beginning to stir – a chorus of car horns and distant laughter blending with the chirping of sparrows nesting in the ancient oak tree outside. Inside, The Corner Perk held its own microcosm: couples sharing whispered secrets over mugs of tea, students hunched over laptops fueled by caffeine, and old men debating the merits of yesterday's newspaper like seasoned generals strategizing a war. 
+
+
+It was a Tuesday morning, just another day in Amy’s well-worn routine.  But this one would be different. A shiver ran down her spine, a feeling she couldn't quite place. Something about the way the light glinted off the worn silver teapot on tray number three...a sense of anticipation mixed with unease that hung heavy in the air like the scent of freshly brewed coffee beans. 

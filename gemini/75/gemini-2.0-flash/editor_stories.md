@@ -1,0 +1,11 @@
+## Story Opening:
+
+The crimson stain on page 47 was definitely new. Eleanor Ainsworth, Editor-in-Chief of "The Crimson Quill," a literary magazine dedicated to showcasing the dark and macabre, leaned closer, her reading glasses perched precariously on the bridge of her nose. It wasn’t a coffee stain, she knew that much. Eleanor prided herself on her meticulous coffee habits. No, this was something thicker, darker, something that had dried with a disturbing gloss. It almost looked... like blood.
+
+She inhaled sharply, the scent of aged paper and printer's ink doing little to calm the sudden flutter in her chest. Usually, finding something unusual in a submission would pique her interest, fuel her editorial curiosity. Today, however, it sent a chill down her spine. It wasn't just the stain itself, but the manuscript it marred - a piece titled "The Bleeding Heart of Harrowgate Asylum," a chillingly detailed (and anonymously submitted) story about a series of gruesome, unsolved disappearances within the asylum's decaying walls.
+
+Eleanor picked up the manuscript, her fingertips gingerly avoiding the offensive stain. A sense of unease, heavy and suffocating, settled over her. This wasn't just bad writing, this felt... ominous. Perhaps a little too real.
+
+## Setting:
+
+The offices of "The Crimson Quill" occupied the top floor of a dilapidated brownstone in the heart of Boston's Beacon Hill. Sunlight, weak and watery even on a clear day, struggled to penetrate the perpetually dusty windows. Inside, the space was a chaotic symphony of overflowing bookshelves, teetering stacks of manuscripts, and half-empty mugs adorned with slogans like "Read or Die!" and "Gothic Grammar Goddess." The air hung thick with the scent of old books, stale coffee, and the faintest hint of mothballs. Eleanor's desk, a sprawling mahogany behemoth, was the epicenter of this organized chaos, a battlefield littered with red pens, half-read novels, and enough sticky notes to wallpaper a small apartment. The walls were adorned with framed covers of past issues, each showcasing a chilling illustration or a disturbingly elegant typeface, testaments to the magazine's commitment to the unsettling and the strange. Despite the disorder, the office held a peculiar charm, a comforting embrace of the macabre that suited Eleanor and her team perfectly... until now.

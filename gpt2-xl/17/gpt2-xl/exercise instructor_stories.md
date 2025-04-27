@@ -1,0 +1,7 @@
+Once upon a time, there was a exercise instructor named Ben Simmons, who also happens to be a forward. He was one of the best defenders in the country before coming to LSU and that should have never made him an afterthought. No big surprise that he fell to the last few picks in the 2014 NBA draft, as his game isn't going to evolve all that much, but the rest of the draft wasn't about projecting future players. It was about the fact that Simmons is a talented guy who has some flaws that a lot of fans might find objectionable.
+
+The thing is, those flaws will improve with time. Simmons is a skilled and athletic defender who has shown improvement from year to year, but the big picture isn't something that will change without a major overhaul in his game. That's why he's still a work in progress and someone you'll hear coaches on TV and in person criticize from time to time.
+
+Now, Simmons is a skilled defender, but his work in that area will never be a guarantee of his success. That's why some have said that players with his physical talents can be better defenders if they start to put the work in.
+
+What do you actually mean when you say that a player can't improve with only one season of basketball in a league? The only way a player can improve is if he plays with confidence, a strong work ethic, and an overall competitive fire. These skills are all natural to the player, and they don

@@ -1,0 +1,9 @@
+Here's a potential story opening and setting:
+
+The fluorescent lights above the hospital's nurse station hummed in unison as Emily Joy Wilson, a seasoned phlebotomist with seven years of experience, stood at her workstation, sipping on a lukewarm cup of coffee. She had been working the 7pm-3am shift for what felt like an eternity, and the monotony of it all was starting to take its toll. As she surveyed the long list of patients waiting for their blood draws, Emily's mind began to wander to the upcoming weekend, when she would finally have a chance to leave the sterile confines of the hospital behind.
+
+The hospital's emergency room had been experiencing an unusual surge in patient admissions over the past few weeks, and Emily suspected it was more than just a coincidence. The ER was usually a chaotic, high-stress environment, but lately, it seemed like something was off. She couldn't quite put her finger on it, but she had a feeling that this was going to be a long night.
+
+As Emily scanned the list of patients again, her gaze fell on one name in particular: Dr. Sophia Patel, a renowned oncologist who was scheduled for a routine blood draw at 10pm. Emily had worked with Dr. Patel before, and while their interactions were always professional, she couldn't help but feel a sense of unease whenever the doctor came to her station. There was something about Dr. Patel's calm, collected demeanor that made Emily want to be on high alert, ready for anything.
+
+With a deep breath, Emily steeled herself for the long night ahead and began to prep her equipment, ready to face whatever challenges the ER might throw her way. Little did she know, this would be just the beginning of a very strange and unpredictable shift.

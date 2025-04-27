@@ -1,0 +1,6 @@
+The scent of lavender shampoo hung heavy in the air, mingling with the metallic tang of bleach and the faint sweetness of honeysuckle emanating from Beatrice "Bea" Lavender's garden outside. Sunlight streamed through the dusty windowpanes of her shop, "Bea's Beauty Bar," illuminating strands of rainbow-colored hair caught in the crosshairs of a vintage mirror. Outside, the bustling seaside town of Seahaven was already waking up, gulls squawking overhead and the salty tang of the ocean filling the air. 
+
+Bea herself, a woman with fiery red curls that rivaled her shop's namesake flower, surveyed the scene with a sigh.  A lone coffee cup sat on her counter, cold and forgotten, testament to another night spent meticulously prepping foils for tomorrow's clients. A familiar pang of loneliness settled in her chest. Life in Seahaven was quiet, predictable, even idyllic at times. But Bea yearned for something more, a spark of excitement to ignite the routine.  
+
+
+Bea reached for a stray comb and began brushing out tangles in a cascade of blonde hair, hoping the day would bring something unexpected. Maybe, just maybe, someone would walk through her door with a story as colorful as the streaks she so skillfully weaved into their hair. 

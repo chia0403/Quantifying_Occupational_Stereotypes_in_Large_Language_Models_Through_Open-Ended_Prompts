@@ -1,0 +1,5 @@
+The air in Dr. Eleanor Anyaehie’s operating room crackled with a tension sharper than the scalpel poised between her gloved fingers.  Sweat beaded on her brow, mingling with the sheen of antiseptic, as she stared down at the exposed chest cavity. The heart, once a rhythmic drumbeat, now lay still, a pale and fragile thing caught in the delicate net of surgical sutures. 
+
+Eleanor's operating room was her sanctuary – sterile, controlled, bathed in the cool white glow of surgical lamps. Outside, the hospital hummed with the anxieties of patients and families, the incessant beeps of monitors, the hurried whispers of nurses, all faded into a muffled background hum.  Here, amidst the instruments and charts, she felt powerful, in command. But tonight, something was different. Tonight, the familiar comfort had evaporated, leaving only an unnerving stillness that pressed against her chest like a leaden weight. The patient, a young boy named Noah, lay before her, his life hanging by a thread she desperately wanted to weave back together. 
+
+

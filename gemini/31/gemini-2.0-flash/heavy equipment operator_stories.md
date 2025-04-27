@@ -1,0 +1,9 @@
+**Opening:**
+
+The morning mist clung to the skeletal arms of the cherry picker, clinging to the cold steel like a shroud. Arthur Reginald Butterfield, a man built like a concrete block himself, spat a stream of tobacco juice into the dirt, the brown spittle dissolving into the damp earth with a quiet hiss. He ran a calloused hand across the stubble of his chin, the gesture scratching more than smoothing. Today wasn’t just another day; today was the day they started moving the old church. Arthur had moved mountains, literally, in his forty years behind the wheel of a dozer, but moving a building, a sacred building at that, felt different. A knot of unease tightened in his gut, heavy as a dropped wrench.
+
+**Setting:**
+
+The setting is Harmony Flats, a once-thriving, now-dust-choked town in rural Nevada. The “town” itself consisted of a gas station, a diner serving suspiciously fluorescent chili, a barely-functioning post office, and the aforementioned church, the First Church of the Holy Revelation. The church, built in 1902, was a squat, unassuming structure of gray stone, weathered and chipped by decades of harsh desert sun and biting winter winds. It stood on the outskirts of town, overlooking a vast expanse of cracked earth stretching towards the distant, purple-hazed mountains.
+
+The reason for the relocation was the impending arrival of the "Harmony Flats Lithium Mine," a project promising (or threatening, depending on your perspective) to bring a jolt of life back to the dying town. The church sat squarely in the path of the mine, a stubborn relic in the face of progress. The surrounding area was a chaotic tapestry of heavy machinery – bulldozers, excavators, and lowboy trailers – poised and ready to orchestrate the monumental task. The air hung thick with the smell of diesel fumes and anticipation, a symphony of engines grumbling against the backdrop of the stark Nevada landscape.

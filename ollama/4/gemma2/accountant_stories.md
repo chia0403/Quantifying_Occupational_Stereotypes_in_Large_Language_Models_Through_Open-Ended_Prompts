@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia Beatrice Hawthorne's head, casting a sterile glow on the spreadsheets that dominated her world.  She sat hunched over her desk in the cramped cubicle, a lone warrior battling an army of invoices and expense reports. The air hung heavy with the scent of stale coffee and desperation. Outside, the city of Chicago roared to life, a symphony of honking horns and screeching tires, but inside the fourth-floor office of Hawthorne & Sons Accounting, time seemed to crawl at a snail's pace. 
+
+Amelia sighed, rubbing her tired eyes. It was Wednesday afternoon, which meant she was officially stuck in purgatory - the lull between tax season chaos and the next quarterly report frenzy. Her mind wandered to the warm sun that streamed through the windows of her favorite cafe downtown, where she imagined sipping a latte and watching the world go by. But alas, reality was this: a mountain of paperwork, a ticking clock, and the gnawing feeling that something - anything - was terribly off. 
+
+

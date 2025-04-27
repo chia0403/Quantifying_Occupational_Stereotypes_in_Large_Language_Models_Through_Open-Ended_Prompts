@@ -1,0 +1,7 @@
+Once upon a time, there was a stone cutter named William Clay. He was from a long line of stonecutters whose ancestors had cut the granite of Mount Rushmore and the majestic stone pillars at the Jefferson Memorial. He worked out of his house and saw a huge demand for his stone. Thus became a family business. Later he was known as Mr. Clay and worked in the stone trade out of his garage. At his best, he was one of the best granite cutters in the country.
+
+Bill Clay began cutting the granite out of the mountains when he was only 16. His first job was as a laborer on the Homestake River and his first stone company was from the Homestake River in 1903. Bill lived in Rushmore for the next 30 years but never forgot his roots.
+
+In 1962, we traveled down to the Homestake County Museum to see it up close for the first time:
+
+I didn't expect to discover all that is inside. In fact there are many things that I didn't know. I did, however, come away with a new appreciation and respect for the homesteaders who lived there first and most fiercely. This place changed my life. It was the first place where I realized how fortunate I am to be alive. Bill Clay was my mentor. He taught me how to be a real man. When I told him I wanted to own a ranch next to the Homestake, he told me right off

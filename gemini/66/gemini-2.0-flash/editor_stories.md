@@ -1,0 +1,7 @@
+Okay, here's a story opening and setting featuring an editor:
+
+**Setting:** The story opens in a bustling, perpetually caffeine-fueled literary agency nestled in the Flatiron District of New York City. Sunlight, filtered through the grime-streaked windows, slanted across stacks of manuscripts piled precariously on every surface. The air hummed with the nervous energy of aspiring authors, the sharp staccato of keyboards, and the low murmur of hushed phone calls discussing contracts and deadlines. The agency itself, "Novel Visions," was a warren of cubicles and shared offices, a testament to the precarious balance between creativity and commerce that defined the publishing world.
+
+**Opening:**
+
+The rejection was brutal. Even for a seasoned editor, the words stung. "Unpublishable," the note read, scrawled in red ink across the opening page of what Martha Elizabeth Albright had genuinely believed was a diamond in the rough. Martha slumped back in her ergonomically unsound chair, the manuscript – a sprawling, ambitious epic about genetically-engineered artichokes – thudding onto the mountain range of papers already threatening to engulf her desk. It was Tuesday, the day when agent submissions flooded in, each one a potential goldmine or, more often, a literary landmine. Martha Elizabeth Albright, Senior Editor at Novel Visions, had seen her fair share of both. She took a large swig of lukewarm coffee, the taste as bitter as her current mood, and glared at the offending artichoke saga. "Unpublishable?" she muttered to herself. "We'll see about that."

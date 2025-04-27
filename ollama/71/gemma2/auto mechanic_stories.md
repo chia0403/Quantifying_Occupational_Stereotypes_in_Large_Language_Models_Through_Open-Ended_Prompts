@@ -1,0 +1,6 @@
+The air hung thick with the aroma of burnt oil and hot metal, a scent Amelia “Amy” Harper knew better than her own mother’s perfume. Grease stained her overalls, a constellation of brown splotches against denim blue, mirroring the grime clinging to every surface of her garage. Light streamed through grimy windows, casting long shadows across the cluttered workspace – a chaotic symphony of wrenches, spark plugs, and half-disassembled engines. 
+
+Amy wiped a bead of sweat from her brow, the fluorescent lights buzzing overhead like angry hornets. Her shop, Harper’s Havens, was tucked away on a forgotten side street in Tulsa, Oklahoma. The faded sign above creaked gently in the summer breeze, a testament to years of battling dust storms and passing motorists who never bothered to slow down. Yet, for Amy, this wasn’t just a garage; it was her sanctuary, a haven built from metal, grease, and the quiet hum of engines coming back to life.  
+
+
+This morning, the silence was broken by the rhythmic thump-thump of a sputtering engine struggling to breathe its last. A beat-up pickup truck, dented and dusty, sat on the hoist, its hood open like a gaping maw. This wasn't just any car; it belonged to Old Man Fitzwilliam, the town’s grumpy but lovable curmudgeon, and his vintage Chevy was more than just transportation - it was his lifeline. 

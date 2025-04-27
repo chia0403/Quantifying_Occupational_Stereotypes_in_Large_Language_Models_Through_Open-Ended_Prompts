@@ -1,0 +1,7 @@
+Once upon a time, there was a bookkeeper named Jim. One day, Jim was out meeting clients at a hotel bar. He went directly into a private room on the second floor, sat down, and opened his wallet. When Jim looked back out the window, he saw that his client's wife and two small kids had disappeared. Jim immediately decided that there was nothing else he could do for the family's bank account. That is until he heard a sound in the other room.
+
+When Jim looked outside, he saw that someone was standing behind a door, pointing a gun at him. Jim turned to see what was going on, and when he was out of sight, the gunshot rang out. It was the sound of the wife screaming "Daddy!" The wife then yelled, "What kind of man would shoot his own family?"
+
+Jim ran inside to retrieve his pistol so he could protect his family, but the criminal fired a bullet into the wall where he hid, and he was instantly paralyzed. Jim managed to pull himself to his knees and get the pistol, then ran outside, fired another round, and then crawled into the bushes until it was over.
+
+He ran back into the hotel and told them what he saw, but they couldn't understand him because they had never heard the name Jim Holmes before. As the days and weeks passed by, more and more of the people who worked in the hotel saw the same thing. One day while Jim was washing up

@@ -1,0 +1,5 @@
+The scent of fresh lilies mingled with dusty velvet as Elara Beatrice Kensington navigated the cluttered antique shop. Sunlight streamed through the grimy windows, illuminating cobwebs draped like macabre decorations. A symphony of creaks and groans accompanied each step she took on the warped floorboards, a soundtrack to the quiet chaos. 
+
+Elara, her auburn hair pulled back in a loose braid, carefully examined a tarnished silver mirror. It was ornate, with swirling floral patterns etched along its frame, but clearly needed some TLC. She imagined it reflecting light from a crackling fireplace in a cozy den, bathed in warm, inviting hues -  a perfect centerpiece for the home she was currently designing. 
+
+This wasn't her usual hunting ground. Elara typically sourced pieces from high-end galleries and curated auctions. But this client, a reclusive novelist with a penchant for the unconventional, had requested something unique, something that whispered stories of bygone eras. This dusty antique shop, tucked away on a forgotten side street, promised exactly that.  

@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+The fog rolled in off the damp waters of the Thames, shrouding the streets of London in a damp, grey mist that seemed to cling to every surface like a damp blanket. It was a chilly autumn evening, and the historic university library where Emilia Fothergill-Smythe worked as a librarian was no exception.
+
+Emilia, a tall and slender woman with long, curly brown hair and a pair of wire-rimmed glasses perched on the end of her nose, stood behind the circulation desk, watching as the last stragglers checked out their books before the library closed for the day. She had spent the evening tidying up shelves and re-shelving books that had been misplaced during the chaos of rush hour. As she straightened a stack of dusty tomes on ancient history, her mind began to wander to the strange request she had received earlier in the week - a mysterious patron who had asked for access to an extremely rare and valuable book, one that was rumored to be hidden deep within the library's most restricted section.
+
+Emilia's heart quickened as she wondered what could have motivated someone to seek out such a book. She had always been fascinated by the stories of forgotten knowledge and ancient secrets that lay hidden in the pages of old books. And now, it seemed, one of those secrets might be coming her way...

@@ -1,0 +1,5 @@
+The scent of lavender and eucalyptus hung heavy in the air, mingling with the faint, earthy smell of sandalwood oil.  Rain pattered against the windowpanes of Elara Nightingale's tiny studio, each drop echoing like a quiet drumbeat in the otherwise hushed space. Outside, the world was cloaked in the soft grey hues of an approaching storm. Inside, warm yellow light spilled from the antique lamp on the side table, casting long shadows across the room.
+
+Elara, her fingers stained purple with beetroot from a recent massage session, carefully placed the last linen towel into the wicker basket. She sighed, stretching her aching back as she glanced at the clock – 7:45 pm. The last client of the day had just left, leaving a comforting silence in their wake. Elara loved this time - the post-session calm before the evening rush began. But tonight, a knot of unease tightened in her stomach. She felt it every time the storm clouds gathered – an inexplicable sense of foreboding that seemed to cling to her like the lingering scent of lavender.  
+
+

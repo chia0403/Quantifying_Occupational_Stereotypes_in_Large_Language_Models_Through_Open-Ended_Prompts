@@ -1,0 +1,7 @@
+On the northeastern edge of Ivy Hollow, where the mist from Lake Everleaf mingled with the morning sunlight, lay the sprawling estate of the Wilbrights. It was renowned not just for its grandeur but for the garden that whispered tales of old, tended to by the meticulous hands of Camilla Rosewood.
+
+Camilla, a dedicated landscaper with an eye for detail and a heart tuned to the whispers of nature, began her mornings before the world fully awoke. Today was no different. She stood at the edge of the estate’s gardens, where the sculpted hedges melded seamlessly into the wild, untamed forest beyond. The air was crisp, carrying with it the earthy scent of dew-kissed soil and freshly blossomed lilies.
+
+As the sun began its slow ascent, painting the sky in hues of orange and pink, Camilla felt a sense of calm and purpose. This was her sanctuary, a place where her creativity could flourish. Each section of the garden was a canvas, and she, the artist, weaving life into every corner with a practiced touch. The Wilbright garden was notorious for its intricate design, a blend of structured elegance and natural whimsy, a testament to her talent and vision.
+
+Here, amidst the bird songs that heralded the dawn, Camilla found solace. Her past lay many miles away, the memories of bustling city streets and a life devoid of green shadows and soft earth receding into obscurity. Ivy Hollow was her redemption, a chance to breathe life back into roots long buried beneath the concrete jungle she'd left behind.

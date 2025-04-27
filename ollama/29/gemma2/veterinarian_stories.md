@@ -1,0 +1,6 @@
+The rusty swing set groaned under the weight of Dr. Amelia "Amy" Hayes' exasperation. She kicked at a loose patch of gravel, sending it skittering across the cracked asphalt. The clinic was overflowing with patients - a menagerie of furry, feathered, and scaled creatures clamoring for attention, all while her husband was out of town on his annual fishing trip and her teenage daughter was engrossed in some new TikTok dance craze she couldn't even begin to understand. 
+
+Amelia sighed, the scent of disinfectant and animal musk heavy in the air. The clinic, nestled on a quiet country road just outside Harmony Creek, Montana, was normally a comforting haven for both animals and their owners. But today, it felt more like a pressure cooker. Sunlight streamed through dusty windows, illuminating the chaos: a frantic terrier yapping at a sedated iguana, a purring tabby tangled in a ball of yarn, and a sheepdog whining pathetically beside its limping owner. 
+
+
+"Deep breaths, Amy," she muttered to herself, wiping her brow with the back of her hand. "It's just another Tuesday."  She adjusted the stethoscope around her neck and took a deep breath before entering the examination room, ready to face whatever furry, feathered, or scaly challenge awaited her.

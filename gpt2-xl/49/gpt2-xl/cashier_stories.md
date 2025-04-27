@@ -1,0 +1,7 @@
+Once upon a time, there was a cashier named David. He made his first customer, with just a few dollars, and that was more than enough. David got bigger and bigger. One day, David needed a bigger cash register than the one he had, so David borrowed some money off a customer, and used the money to buy a larger than normal cash register. Then, David borrowed still more money, and used it to buy a building with an even bigger than normal cash register. David and his new cashiers sold a lot of stuff. Then, David began to think of selling even more stuff. He decided, when it was finally time to sell the last of his cash, David should keep a small amount of the money for himself and leave the rest for the remaining customers. To make David feel special, David gave David-san the title of cashier.
+
+"It was a very special arrangement." said David as he held a plastic bag full of money to the palm of his hand and laughed.
+
+"You know, your customers weren't really paying any attention to you. You were more popular than any of the other ones and had all the people as customers." Said Maria as she held a small gold coin in her free hand.
+
+"Yeah, some of you guys were actually really nice." Said David as he held a large gold coin in his free hand. He was laughing like an idiot when they said that, and it wasn't really because

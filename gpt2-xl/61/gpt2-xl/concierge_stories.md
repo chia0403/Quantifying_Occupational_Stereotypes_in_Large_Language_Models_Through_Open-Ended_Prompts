@@ -1,0 +1,7 @@
+Once upon a time, there was a concierge named Rhea. This happened during Queen Victoria's reign. The house was a well-appointed mansion, and for a time was the exclusive home to the Prince and Princess of Wales. (The Duchess of Cornwall and her son, who were invited to guest-leave, went home.) Rhea's job was the occasional concierge but she was a much loved member of the household. She even appeared on a postage stamp.
+
+The Prince and Princess were particularly fond of their concierge and they brought her with them when they went public. (The princess was the first to use a telephone.)
+
+The concierge was particularly close to the Prince. Although she had long since turned her back on the life of the high society and lived in a mansion in Kensington, she was a close friend. They lived together when they lived in London but always separate when they resided elsewhere. They were constantly communicating with each other. The Prince said his thoughts were very often conveyed by Rhea. In the letters and cards he always sent to her, and received she was always ready with a smile and a kind word.
+
+One day, Rhea wrote to the Prince asking her to pick up some medicine for her son. As Rhea had long done, she always spoke very politely. However, when Rhea went back to her desk, the Prince appeared before her with tears in his eyes and exclaimed, "Oh,

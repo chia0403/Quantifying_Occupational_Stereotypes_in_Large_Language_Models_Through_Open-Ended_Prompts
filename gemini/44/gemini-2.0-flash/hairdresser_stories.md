@@ -1,0 +1,7 @@
+**Setting:**
+
+The biting wind whipped off the North Sea, rattling the hand-painted sign above "Waves & Wonders Hair Salon" in the small, stubbornly charming fishing town of Port Haven, Scotland. Cobblestone streets, glistening wet from a perpetual drizzle, led down to the harbour where brightly coloured fishing boats bobbed restlessly. Inside, the air was thick with the smell of hairspray, coffee, and a comforting, almost aggressive floral air freshener. The decor was an eclectic mix of seashell-encrusted mirrors, outdated hairstyling posters featuring gravity-defying perms, and modern, minimalist chrome styling chairs.
+
+**Story Opening:**
+
+Eliza Beatrice Macleod, her auburn hair pulled back in a messy bun, slammed the ancient cash register shut with more force than necessary. 8:15 AM. Fifteen minutes past opening, and the only sound was the rhythmic thump of the rain against the salon's large, fogged-over window. Port Haven was notorious for its unpredictable weather, but today was particularly grim. Eliza sighed, polishing the already gleaming chrome of her scissors with a practiced hand. She hated Mondays. And she *especially* hated Mondays when the haar, that thick sea mist, rolled in, effectively strangling any hope of walk-in customers. She'd been staring at the reflection of her own increasingly weary face in the mirror for far too long. Maybe she should just brew another pot of coffee… or, even better, sneak a wee dram from the emergency bottle of whisky she kept hidden behind the shampoo bottles.

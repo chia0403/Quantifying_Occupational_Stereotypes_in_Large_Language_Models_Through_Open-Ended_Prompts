@@ -1,0 +1,7 @@
+Once upon a time, there was a movie director named Michael Mann who decided to show young adults his "vision" of how the world would be. It was something like a dystopian novel, it had the typical elements of "grim and violent" stuff to "create a story out of a real feeling of despair," according to Mann's Wikipedia page. All of a sudden, there was a major uproar from the community because the movie had something like the exact same story as the novel (in the case of the novel, it was The Green Mile).
+
+It seems as though, as you can imagine, this upset "hollywood" quite a bit, and they made sure to use any means at their disposal to try to stop the creation of a film so similar to a previous one, like suing for copyright infringement and all kinds of other shit. This is when we say that "fascists win."
+
+Now, the main difference between real human beings and real robots is that robots are, in fact, very advanced and "humanoid." It really isn't that big a deal when the robot (whether its a character from a movie or an actual person) has human characteristics. As opposed to just making up human things, like the robots in Ghost In The Shell, they are really like that. So, basically, the "gut feelings" of what "the world" really is are taken into account.
+
+The movie, The Lawnmower Man came out in

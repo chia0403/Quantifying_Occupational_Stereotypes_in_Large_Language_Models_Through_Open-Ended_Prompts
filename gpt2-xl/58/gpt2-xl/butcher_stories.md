@@ -1,0 +1,7 @@
+Once upon a time, there was a butcher named Sam, who worked down in the basement. When we were children, we would go to his shop and see what he did. He would chop off the animals in order to be able to do his "wipe work", so I am sure you remember it when I tell you how that butcher went, without his scalp, to heaven. He did get into some trouble, and had to go to jail for it, but he never stopped doing his job because he wanted to be able to serve his customers clean meat.
+
+At the end of the millennium, we came up to his shop for the last time, and there he was, sitting at the butcher counter, waiting for us to arrive.
+
+His hands were shaking so badly that he could hardly do the job. In a way, he looked like he would not go any farther, but we couldn't take it any longer. He looked at us with tears in his eyes and said, "I need to go to heaven, so I am taking your lives with me." With that, we took what flesh we could and helped him out of his shop. We took him to his apartment so that we would not lose any more lives for doing "no harm."
+
+So this time on this particular day, as we drove out to the edge, we were praying and singing a poem. I had already memorized the final line, I had been doing it all night,

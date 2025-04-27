@@ -1,0 +1,7 @@
+The static crackled through Elias Thorne's headphones, a familiar white noise that hummed against his skull. He wasn't sure what was worse: the incessant buzz or the silence that fell between bursts, pregnant with expectation and the gnawing fear of something breaking. It was always like this in the dead zones – pockets of radio silence that swallowed your calls whole, leaving only a chilling echo in their wake.
+
+Elias adjusted the antenna on his makeshift receiver, its cobbled-together parts held together by duct tape and sheer willpower. He was perched precariously on a rusted water tower overlooking Rustwater, a sprawling metropolis choked with smog and decay. The once-proud city, now a patchwork of crumbling skyscrapers and scavenged junk, sprawled beneath him like a broken mechanical beast. Below, the cacophony of the marketplace – shouts hawking wares, clanging metal, and the incessant roar of rusted engines – competed with the mournful whine of the wind whistling through the skeletal remains of buildings. 
+
+This was Elias's world – a desolate landscape punctuated by pockets of desperate humanity clinging to life in this post-apocalyptic wasteland. He was a radio technician, a whisperer of frequencies in a world drowning in silence. His hope lay in those fleeting moments when a signal broke through the static, connecting him with another soul, offering a sliver of warmth and connection in the desolate cold. 
+
+

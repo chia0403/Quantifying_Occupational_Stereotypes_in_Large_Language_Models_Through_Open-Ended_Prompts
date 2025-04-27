@@ -1,0 +1,7 @@
+Dr. Evelyn Harper sat in her sun-drenched office, a modest space on the fourth floor of an aging brick building that overlooked the bustling streets of downtown Ashford. Her window was a portal to the world outside—a world of hurried footsteps, barking dogs, and the distant hum of life in motion. Inside, however, the atmosphere was tranquil, with muted earth tones and cushioned chairs arranged thoughtfully around a well-worn coffee table piled high with psychology journals and mindfulness magazines.
+
+Evelyn's desk was an organized chaos of patient files and half-read books, with a delicate glass vase of fresh daisies providing a pop of color against the utilitarian backdrop. The scent of lavender lingered in the air, a calming presence that soothed both her and the patients who crossed the threshold.
+
+As a clinical psychologist, Evelyn had mastered the art of creating a safe haven amidst the storm of emotions that swept through her office daily. Her practice was built on empathy and understanding, strengths she had honed over years of navigating the complexities of the human mind. She was known for her passionate commitment to her work, a devotion that often extended beyond the hours marked in her schedule.
+
+As she prepared for her next appointment, Evelyn glanced at the clock—its steady ticking a reminder of time's ever-forward march. She took a deep breath, her thoughts aligning with the rhythm of the city outside, ready to guide another soul through the labyrinth of their struggles.

@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+As the last wisps of sunlight faded from the sky, casting a warm orange glow over the crumbling facades of 19th-century buildings, Emilia Adelaide Winters stepped out of the theatre and onto the rain-soaked streets of Edinburgh's Old Town. The smell of wet stone and damp earth clung to her like a shroud, a reminder that even on the most magical nights, there was always something decaying just beneath the surface.
+
+Emilia, a renowned theatrical director in her mid-30s with a wild mane of curly brown hair and eyes as green as the Scottish hills, let out a deep sigh. She had spent the past eight years at the helm of the Royal Lyceum Theatre's summer festival, but this season was proving to be one for the books – or rather, one that would go down in history as a disaster.
+
+As she gazed up at the imposing façade of the theatre, now shrouded in mist and shadow, Emilia couldn't shake the feeling that this year's production, "Hamlet", was going to be her undoing. The cast was struggling with script changes, the set designer had gone AWOL, and to top it all off, the theatre's notoriously finicky landlord, Mr. Grimstone, was threatening to pull his funding unless Emilia could deliver a show that would make even the most hardened Edinburgh patron weep with joy.
+
+Little did Emilia know, however, that this season of production would be just the beginning of her own journey into the dark and mysterious world of Edinburgh's theatre scene, where secrets lurked behind every curtain call, and the line between reality and performance was about to become delightfully blurred.

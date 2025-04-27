@@ -1,0 +1,6 @@
+The scent of lavender and eucalyptus hung heavy in the air, a familiar comfort to Evelyn Beatrice Thorne as she meticulously lined up her aromatherapy oils. Outside, the late afternoon sun cast long shadows across the cobblestone streets of Edinburgh's Old Town, painting the ancient buildings in hues of amber and rose. Inside her quaint studio, nestled above a bustling antique shop, Evelyn felt a wave of serenity wash over her. 
+
+The day had been particularly draining. A string of clients burdened with chronic pain, stress, and anxieties had left her feeling emotionally exhausted. Yet, as she prepared for her final appointment, a glimmer of anticipation sparked within her.  Mr. Alistair MacDougall, a renowned Scottish historian who'd recently published a bestselling book on the city's hidden secrets, was due to arrive shortly. 
+
+
+Evelyn hoped he wouldn't be too stiff from his days spent poring over dusty archives. She envisioned him as a stern, solitary figure, perhaps with a twinkle in his eye that hinted at a mischievous past.  With a deep breath and a smile, Evelyn turned on the soft ambient music, ready to melt away Mr. MacDougall's tension and perhaps unravel a few of Edinburgh's own hidden stories along the way. 

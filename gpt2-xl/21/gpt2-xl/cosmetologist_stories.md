@@ -1,0 +1,7 @@
+Once upon a time, there was a cosmetologist named B. S. O'Malley. Before I became engaged to him, I'd been an inveterate skeptic. I didn't buy the stories about his salon where he magically made women more beautiful. I did not believe that he could improve someone's confidence after a few treatments. But I was wrong. When I started seeing him, I noticed that for some women his work made the biggest difference.
+
+When we were introduced, he told me that I should try whatever he had available to him. I tried his "sugar pills," which are supposed to help women with ankylosing spondylitis regain their confidence. The first time I consumed a "sugar pill" on my own, the pain in my leg was so bad, I could hardly walk. But a minute later, I was making the short walk home, and no worse for the wear. Even if the sugar pill was useless, at least I would have a little bit of the confidence he had helped me experience.
+
+The day I left for Boston, he arranged for me to attend a "confidence show" at the Finsbury Theatre. He was so concerned that I would not be able to perform that he invited me to play a trick with one of his hair accessories.
+
+He told me I would wear a black tiara on stage, and then I'd put my dress on backwards and perform a dance in

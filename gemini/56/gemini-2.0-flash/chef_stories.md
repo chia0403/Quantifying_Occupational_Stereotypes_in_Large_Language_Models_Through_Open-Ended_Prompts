@@ -1,0 +1,9 @@
+Okay, here’s a story opening and setting, featuring a chef:
+
+**Story Opening:**
+
+The scent of burnt sugar hung heavy in the air, acrid and defiant against the fragrant lavender wafting in from the open French doors.  Eleonora "Ellie" Rosewood cursed under her breath, a soft Italian invective lost to the sizzle of the recalcitrant crème brûlée. It was supposed to be perfect. Everything had to be perfect. Tonight wasn't just another Saturday night at "Rosewood & Rye," it was *the* Saturday night.  The Michelin inspector was rumored to be in town, and Ellie, usually a whirlwind of calm and collected culinary precision, felt a cold sweat prickling her hairline. She scraped the blackened caramel off the ramekin, the metallic scrape echoing the frantic beat of her own heart. Deep breath, Ellie. Deep breath. There were eleven more to go, and this time, damn it all, she was going to nail it.
+
+**Setting:**
+
+The story is set in **Rosewood & Rye**, a small, upscale restaurant nestled in the heart of the charming, albeit rapidly gentrifying, town of Oak Haven, Connecticut.  Oak Haven is known for its picturesque town square, antique shops, and wealthy clientele seeking a refined dining experience. Rosewood & Rye itself is located in a beautifully restored Victorian building, painted a soft, inviting cream with elegant black trim.  The interior is a blend of rustic charm and modern elegance: exposed brick walls are softened by delicate floral wallpaper, reclaimed wood tables are topped with crisp white linens, and flickering candlelight casts dancing shadows on the artwork showcasing local artists.  The kitchen, visible through a large, arched window to the dining room, is a hive of activity, a gleaming stainless steel counterpoint to the warm, inviting atmosphere beyond. It’s a space where tradition and innovation collide, a reflection of Ellie Rosewood's own culinary philosophy.

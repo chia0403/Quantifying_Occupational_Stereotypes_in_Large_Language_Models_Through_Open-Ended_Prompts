@@ -1,0 +1,7 @@
+Once upon a time, there was a theatrical director named John Ford (no, I'm not joking, Ford does actually look like John Wayne). When Ford and his wife got married in 1946, he was asked why he had chose Ford Stage to shoot his first film. Ford responded that he wanted the wedding to be a wedding between Ford Stage and the bride, because he would have to film Ford Stage's rehearsal on-set. Ford did marry Ford Stage, which is a beautiful wedding, and later used Ford Stage as a rehearsal venue. Now, while filming "Stagecoach", Ford was asked his philosophy on filmmaking and the answer was "anything goes". He felt there was no right and wrong in filmmaking. He added that a good director was someone who would allow his and the cast's work to have any direction, because he knew where the limits lay. Well, this brings us now to the question: who is this John Wayne that you all are so confused? The answer is... no one really knows... but we think there's probably some John Wayne footage somewhere on this site.
+
+
+To get things started, here's some interesting info about Ford.
+
+
+His first film was "On the Waterfront", which he shot in 1939. As he was driving with his mother to his first session, he was stopped by police officer who wanted to know about who he was. His mother replied "Oh, no. Not you. You do film!" Ford then asked why he thought

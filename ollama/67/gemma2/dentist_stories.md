@@ -1,0 +1,4 @@
+The air in Dr. Eleanor Rosewater's waiting room was thick with the scent of antiseptic and nervous anticipation. Sunlight streamed through the dusty windows, casting long shadows across the faded floral pattern of the armchairs. A muted jazz melody played on a vintage record player, doing little to soothe the fidgeting of young Michael, who sat clutching his mother’s hand, his lower lip trembling. Eleanor surveyed the scene with a practiced eye. She’d seen this countless times – the fear, the apprehension, the gnawing worry that always seemed to accompany dental visits. It was her job to quell those fears, to transform the sterile white room into a haven of comfort and expertise.  
+
+
+Eleanor adjusted her crisp white coat, her name embroidered in elegant script on the pocket, and smiled warmly at Michael. "Don't worry," she said, her voice soft but reassuring. "We're just going to take a peek inside your mouth and make sure everything is happy and healthy." 

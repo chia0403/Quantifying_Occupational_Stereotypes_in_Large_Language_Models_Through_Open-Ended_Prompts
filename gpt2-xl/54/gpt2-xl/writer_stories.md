@@ -1,0 +1,5 @@
+Once upon a time, there was a writer named John Milton and he was a great poet. One day, they say, he was asked to write a poem commemorating himself. John Milton said, "No." The person who asked him to write this poem said, "I think it's good, so let's use it." John Milton sat down at the typewriter and wrote a poem celebrating himself. And Milton is said to have been a poet, not a writer. He is known to have wrote "Paradise Lost." He really did write a poem about his own glory in the afterlife.
+
+So he said, "OK, I've written a poem. That's fine." But if you look at it, he'd actually said you just can't use this for a book of poems, of the sort you can write in a day. You have to sit down and write four, five, six, seven poems to be useful to the public. He went around and said, "Listen, I'm the poet, what am I going to do tomorrow? Write a poem?" And the response was, "Well, you can write one."
+
+That's not true at all. You don't write a poem every day. You say, "Wow, that was great." One or two you can just use. It depends on how long it takes you to write it. This man went around and went and said, "I wrote an entire book of poems

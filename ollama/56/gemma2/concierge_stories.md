@@ -1,0 +1,6 @@
+The air in the Grand Budapest Hotel was thick with the scent of freshly baked strudel and hushed voices. Eleanor Vanderlyn adjusted her starched white collar and surveyed the bustling lobby. A symphony of clinking champagne glasses, murmuring greetings, and the rhythmic tap-tap-tapping of an invisible pianist filled the opulent space.  Her emerald eyes, set in a face framed by neatly pinned auburn curls, scanned the arriving guests – businessmen with furrowed brows, blushing honeymooners clutching bouquets, even a peculiar trio of gentlemen shrouded in theatrical capes, whispering conspiratorially in the corner.
+
+Eleanor was the heart and soul of this magnificent establishment, a concierge whose encyclopedic knowledge of every guest’s preference, every hidden nook, and every Parisian secret made her the most sought-after woman in the city.  Today, however, a new arrival threatened to disrupt the delicate balance she had so carefully cultivated. 
+
+
+A young man, his face obscured by the shadows of a wide-brimmed hat, strode through the revolving doors with an air of unsettling confidence and a single, wilted rose clutched in his gloved hand. Eleanor watched him approach her desk, a flicker of intrigue dancing in her emerald gaze. This was no ordinary guest. She could feel it.  And something told her that his arrival would change everything.

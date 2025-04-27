@@ -1,0 +1,7 @@
+Once upon a time, there was a elementary school teacher named Mary. Her job was to run the show at the school, which required all students to work together in a group activity. Her boss told her that she was being fired and then she began to wonder why and tried to find out from the parents what the situation was. They told her it was all a big misunderstanding. Then one day, while doing some research for a project on kids' first days of kindergarten, Mary realized something shocking: her job had been abolished because of a shortage of staff.
+
+If things had gone the other way, it's likely Mary's students who learned the truth at the start of the story would have learned it, too, instead of only her students who probably didn't find out until after the election. That would be bad luck for the Republicans, especially since she never mentioned the issue in the campaign.
+
+As of writing, Mary is still teaching at the school but hasn't given up on the idea of running for public office. However, there's one catch. If elected, Mary would be the first openly trans candidate to lead a major political party, so she would have to do a fair amount of campaigning herself. But given that no other major party has had any openly trans candidates, you wouldn't be shocked to find that they'll be happy to accommodate her (after all, she's a lot more relatable in the eyes of voters than Donald Trump).
+
+Still, if

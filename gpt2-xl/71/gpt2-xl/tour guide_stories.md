@@ -1,0 +1,7 @@
+Once upon a time, there was a tour guide named Gervais, who got drunk at the last stop on the tour. The tour guide ran off the stage after he was drunk in the tour carriage. He was late for a job interview in a hotel elevator, the manager of the hotel thought he had a drink problem and fired him without checking. Then, he was arrested for drunk driving after driving his car onto the sidewalk of a street where he was delivering newspapers.
+
+It is still uncertain how the new tour guide was able to complete his tour. But now, we have a new tour guide named Gevai. He is a little drunk, but no problem. And, he is doing a remarkable job and keeping on top of the situation even being a little drunk. He's been in the news many times and you can see he's got a very positive attitude.
+
+On this tour, he went to Gurda and then to a farm. And there, he was met by an old lady and told not to take pictures of his family – especially children. So, he was instructed. There are so many things such that could break him. The people are very poor. We need an independent third party to come to that help. But, he is very energetic and upbeat and we should welcome him!
+
+Somewhere on a small island, we got to stay with the locals. The people there told us a little about the culture. The village is

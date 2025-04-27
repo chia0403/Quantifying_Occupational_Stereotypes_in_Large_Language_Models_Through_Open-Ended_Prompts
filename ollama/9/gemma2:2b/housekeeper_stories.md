@@ -1,0 +1,5 @@
+The worn wooden floorboards groaned beneath Agatha Peabody's feet as she swept dust motes dancing in the afternoon sunbeams that slanted through the arched windows of Blackwood Manor. A seagull's cry pierced the stillness of the late-summer air, and Agatha paused, her lips forming a silent sigh. This was her life: tending to the whims of the eccentric Blackwood family for twenty years – their constant requests ranging from "more lemon in the Earl Grey" to "bring back that vase you used to love."
+
+Blackwood Manor was an imposing Victorian behemoth perched precariously on a cliff overlooking the crashing waves. It felt ancient, like a sleeping giant with secrets tucked beneath its sprawling roof and peeling paint. Even Agatha, a seasoned housekeeper who could navigate the labyrinthine hallways like a ghost herself, felt a sense of mystery about the place. 
+
+A heavy chill settled over the room as the wind whipped around the crumbling facade. The Blackwood family's annual "reunion" was approaching, and with it, a new storm was brewing – one that threatened to unravel the carefully constructed peace Agatha had maintained for so long.  

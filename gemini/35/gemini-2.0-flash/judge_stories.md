@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Setting:** The humid, suffocating air of Savannah, Georgia hung thick with the scent of pluff mud and decaying magnolias. It was late August, the kind of heat that leached the energy from everything, leaving only a shimmering, buzzing haze in its wake. The courtroom of Chatham County Superior Court, normally a stately sanctuary of oak and jurisprudence, felt more like a sweltering brick oven. Even the flickering ceiling fans seemed to struggle against the inertia, churning the stagnant air with a grudging sigh. Outside, the rhythmic clatter of horse-drawn carriages mingled with the blaring horns of impatient automobiles, a jarring reminder of the city’s uneasy dance between old and new.
+
+**Opening:**
+
+Judge Theodora Clementine Blackwood loosened the collar of her black judicial robe, the gesture almost imperceptible, but betraying the discomfort she felt. Sweat trickled down her spine, clinging to the damp silk lining. Before her sat the jury, a restless collection of faces, their attention wavering like moths around a flickering flame. She could feel their impatience, their yearning to escape the oppressive atmosphere and return to the simpler pleasures of air conditioning and iced tea. 
+
+"Mr. Abernathy," Judge Blackwood addressed the prosecuting attorney, her voice firm and clear despite the lingering humidity, "you may continue your closing arguments. But please, be mindful of the time. And for the sake of all our sanity, let us endeavor to keep it brief.” Theodora Clementine Blackwood had presided over this courtroom for fifteen years, but this particular trial, a tangled web of jealousy, real estate, and suspected arson, was threatening to be the death of her. Not literally, of course. But a figurative death, perhaps, of her faith in the good people of Savannah.

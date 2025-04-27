@@ -1,0 +1,7 @@
+Once upon a time, there was a computer programmer named Steve Jobs. He made a lot of software and it was pretty good. He was on his way up the ladder, just like everybody else. But he was having a hard time finding enough people to go with his development system. So he started his own company. That business had very little success because this business does not have enough employees.
+
+So instead of keeping his business, he started a new one, which was called Pixar. He wanted to do something different and he got interested in computers. He was a very smart but very unsophisticated man and he started to create very cool and complicated computer programs. But he was kind of a computer nerd because he spent a lot of time playing with a computer, trying to figure out ways to make his programs look better and more like real life.
+
+So he got hired by Walt Disney and they had a lot of good stories for kids. The one of Walt Disney who hired him is the one who's remembered today, that the name of his former colleague Steve Jobs was in an airplane crash. They heard Steve Jobs' name, Steve's face was on a parachute and the parachute didn't work. But they made it look pretty good.
+
+We had these animated short movies, which were computer generated animations. We were trying to do different types of things but we were more interested in computer graphics, in creating a really animated picture. That didn't really work. So

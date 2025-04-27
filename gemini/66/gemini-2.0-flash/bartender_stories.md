@@ -1,0 +1,14 @@
+## Story Opening:
+
+The neon glow of "The Last Call Saloon" painted a lurid smear across the rain-slicked street, a beacon of questionable comfort in the desolate industrial district. Inside, the air was thick with the scent of stale beer, cheap whiskey, and the lingering phantom of a thousand forgotten conversations. The only other sound, besides the mournful sigh of the wind howling outside, was the rhythmic *thump-thump* of the ice machine struggling to keep up with the meager Friday night crowd.
+
+Elara Genevieve Moreau polished a whiskey glass with a practiced hand, the worn bar towel moving in a swift, almost hypnotic rhythm. Her reflection stared back at her from the glass’s gleaming surface: a woman carved from sharp angles and quiet resilience. Tonight, she was wearing her usual uniform - a simple black t-shirt and jeans, her dark hair pulled back in a severe bun that did nothing to diminish the vibrant intelligence in her emerald eyes.
+
+Tonight, something felt different. An almost imperceptible shift in the atmosphere, like a tuning fork struck just beyond the range of hearing. It wasn’t the usual pre-weekend anxiety that always buzzed in the air of The Last Call; it was something heavier, something... ominous. Elara didn't believe in premonitions, not really, but years spent pouring drinks and listening to the confessions of broken souls had honed her intuition to a razor's edge. Something was coming, and she had a feeling it wasn't going to be another slow night.
+
+## Setting:
+
+**The Last Call Saloon** is a dive bar located in the decaying industrial district of Oakhaven, a city perpetually shrouded in mist and overshadowed by the looming presence of the massive iron mills that were once its lifeblood. The mills are now mostly silent, ghosts of a bygone era, mirroring the decline of the neighborhood around them. The bar itself is a dimly lit, claustrophobic space.
+
+*   **Interior:** Walls are covered in faded posters for long-gone bands and advertisements for local businesses that have since shuttered. The floor is sticky with spilled drinks and ingrained grime. A pool table, perpetually in need of new felt, sits in the back corner, illuminated by a single, buzzing overhead light. The bar itself is a long, mahogany expanse scarred with years of use. Behind it, a cluttered array of bottles gleams under the harsh fluorescent lights, reflecting the anxieties and hopes of the people who seek solace within its walls.
+*   **Exterior:** The building is a brick structure showing signs of neglect. Paint peels from the facade, and graffiti adorns the alleyway beside it. The neon sign, while still functional, flickers erratically, adding to the bar's sense of faded glory. The surrounding streets are largely deserted at night, adding to the feeling of isolation and the sense that The Last Call is a refuge for those who have nowhere else to go.

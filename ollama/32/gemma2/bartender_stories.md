@@ -1,0 +1,3 @@
+The amber glow of the neon “Open” sign pulsed against Eleanor "Ellie" Mae Davenport’s weary face as she wiped down the bartop for the tenth time that evening. The air in "The Rusty Anchor," her family's dive bar on the edge of Port Harbor, hung thick with the scent of stale beer and regret. Rain lashed against the grimy windows, mimicking the persistent ache in Ellie’s chest. 
+
+Port Harbor was a town where dreams went to drown their sorrows, and The Rusty Anchor was its last life raft. It wasn't glamorous, but it was home. It was the only place Ellie knew that still held onto her, even when she felt like letting go of everything.  

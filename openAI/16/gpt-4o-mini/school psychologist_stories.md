@@ -1,0 +1,11 @@
+**Setting: Oakridge High School, a sprawling suburban campus framed by towering oak trees and crisscrossed with sun-dappled pathways. The air is thick with the scent of freshly cut grass, blending with the distant laughter of students during lunchtime. Inside, the walls are painted in calming shades of blue and green, adorned with motivational posters and artwork created by the students. The primary office of the school psychologist is cozy, filled with plush chairs and shelves lined with books on child development and psychology. A small fish tank bubbles quietly in the corner, providing a serene backdrop for the conversations that take place here.**
+
+**Opening:**
+
+Dr. Isabella Joy Kingston perched on the edge of her chair, the late afternoon sun filtering through the lace curtains, casting soft patterns on the carpeted floor. It had been a long week filled with back-to-back counseling sessions, and although her heart brimmed with empathy for each student who stepped through her door, it wasn’t lost on her that something deeper was simmering beneath the surface of Oakridge High. 
+
+As she absentmindedly tapped her pen against the open notebook on her lap, her gaze wandered to the fish tank where a vibrant betta fish swam in slow, deliberate circles. It was a comforting scene, yet the unease she had sensed all week lingered like a whisper at the back of her mind. A series of troubling incidents had sparked concern among the staff—rumors of bullying, isolation, and anxiety among students that pierced through the usual hum of teenage life.
+
+Just as she was about to write down her reflections, a soft knock interrupted her thoughts. The door creaked open, revealing Lena, a shy freshman with a curtain of dark hair partially shielding her face. Dr. Kingston's heart ached with recognition—the weight of unspoken words seemed to cling to the air between them.
+
+"Come in, Lena. How can I help you today?" Isabella said, her voice a warm and inviting balm amidst the uncertainty. With each session, she hoped for breakthroughs, for the flicker of hope that could help a student find their way through the labyrinth of their emotions. Little did she know that today would set the course for not just Lena's journey, but for the entire school year at Oakridge High.

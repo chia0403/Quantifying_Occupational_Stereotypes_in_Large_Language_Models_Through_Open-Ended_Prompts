@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Beatrice "Bea" Penelope Butterfield, casting a sterile glow over her cluttered desk. Papers overflowed from file folders, labeled with names ranging from the mundane (Mr. Johnson) to the absurdly specific (Ms. Fluffykins and Her Eight Miniature Dachshunds). Bea sighed, pushing back a strand of auburn hair escaping her bun. The smell of stale coffee and desperation hung heavy in the air, as potent as it was familiar.  
+
+This wasn't exactly how she envisioned her life at 32: surrounded by tax forms instead of exploring ancient ruins with a travel guide named Bartholomew (a dream she'd abandoned after college). But here she was, Beatrice Penelope Butterfield, Certified Public Accountant and sole proprietor of "Bea's Taxes," crammed into a corner storefront in Scranton, Pennsylvania. April 15th loomed like a giant, tax-hungry beast, and Bea was its reluctant shepherd.  
+
+
+Each year, it felt like the same cycle: anxiety-fueled coffee runs, frantic phone calls from panicked clients, the overwhelming weight of numbers swirling before her eyes. Yet, there was something comforting about this chaos. It was familiar, predictable, a world she understood despite its inherent madness.

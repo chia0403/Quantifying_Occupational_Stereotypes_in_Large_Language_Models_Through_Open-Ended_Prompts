@@ -1,0 +1,7 @@
+The coastal town of Windmere clung to the edge of the continent like a secret it could no longer keep. Mist rolled in most mornings, shrouding the narrow, cobbled streets in a veil that seemed to whisper tales of buried truths and forgotten promises. Colorful boats bobbed lazily in the harbor, their vibrant paint chipped and peeling under the salty embrace of ocean air.
+
+Across from the harbor, in the corner booth of a quaint, well-worn café, sat Evelyn Hartley. Her eyes, a pale shade of blue, were sharp and perceptive beneath a fringe of dark curls that tumbled over her forehead. She nursed a steaming cup of coffee, its rich aroma mingling with the briny scent of the sea. A leather notebook lay open on the table before her, pages filled with scribbles and notes that captured the pulse of the town's heartbeat.
+
+Evelyn, an investigative journalist known for her tenacity and keen sense of curiosity, had arrived in Windmere with a single directive: uncover the mystery behind the old Devereaux lighthouse, which had stood abandoned for nearly half a century. Whispers of odd flickers at night and tales of ghostly figures had circulated among the town's elders, fueling speculations and folklore.
+
+As Evelyn turned the page in her notebook, she could feel the weight of the town's secrets pressing against her, each one a thread leading to a tapestry of truths waiting to be unraveled. Here, in this seemingly sleepy town by the sea, Evelyn sensed the beginnings of a story that would grip headlines and shine light on what lay hidden in the shadows.

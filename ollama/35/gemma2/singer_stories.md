@@ -1,0 +1,6 @@
+The humid air hung heavy in the dimly lit speakeasy, thick with the scent of stale cigarette smoke and illicit gin. A lone saxophone wailed a melancholic melody, weaving through the hushed conversations and clinking glasses. At the far end of the stage, bathed in a pool of golden light, stood  Amelia Clementine Bellerose, her fingers poised above the ivory keys of a vintage piano. 
+
+She was a woman draped in contradictions: her fiery red hair framed a face etched with youthful optimism, yet her emerald eyes held a depth that hinted at untold stories. Her voice, when it finally rose above the saxophonist's lament, possessed a husky timbre that spoke of both vulnerability and resilience. Tonight, Amelia wasn't just playing for the tips; she was pouring her heart into every note, each one a testament to the struggle, the yearning, and the fragile hope that pulsed within her soul. 
+
+
+The year was 1928, and the Roaring Twenties roared on, oblivious to the storm brewing beneath its glitzy surface. But in this smoky haven, tucked away in the heart of Chicago's vibrant underworld, Amelia found solace, a refuge where she could lose herself in the music and confront the demons that haunted her dreams.  

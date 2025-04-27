@@ -1,0 +1,7 @@
+Rain hammered against the corrugated tin roof of "The Rusty Crow," its rhythm mimicking the nervous tap-tap-tap on Amelia Thorne's worn leather apron.  Amelia had run The Rusty Crow for five years, weathering countless storms both literal and metaphorical. Tonight, the storm was particularly vicious – wind howling like a banshee outside the cracked windowpanes, mirroring the tempest in her own soul. She wiped a smear of grime off her forehead, glancing at the familiar face etched into the worn wood of the bar: a man with eyes as deep as a well's depths and lips that held more secrets than all the stories told within The Rusty Crow’s dusty walls. 
+
+“Whiskey?” he asked, his voice hoarse but clear.  “The usual?”
+
+Amelia nodded curtly, her gaze fixed on the swirling amber liquid in the bottle before her. This man was a regular at The Rusty Crow – an enigma wrapped in worn tweed and a heavy silence, whose presence in Amelia's life was as constant as the rain pounding outside. He was never one to linger long, his visits were short bursts of shadow and whispers, leaving a lingering smell of pine and leather that spoke more than words ever could. 
+
+Tonight, though, something felt different.  A weight settled heavy on her chest, a feeling she couldn't shake off. The usual quiet hum of the bar seemed to amplify the storm’s roar. She was used to dealing with the ramblings of drunkards and petty arguments, but tonight, there was a strange stillness that seemed too profound for even the longest nights at The Rusty Crow. 

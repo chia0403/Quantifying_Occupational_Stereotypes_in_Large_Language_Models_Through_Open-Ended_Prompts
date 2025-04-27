@@ -1,0 +1,7 @@
+Once upon a time, there was a librarian named Miss K. O'Neil. She's retired now, but you can still visit her home on the eastside of town. She's going to have a grand day today, since she, and her husband, are both going to help celebrate National Library Week!
+
+I found a great article at the library on her story. You can read it here, but I'll paste the short summary below.
+
+MISS K. O'NEILL was born in 1894 and spent some time as a schoolteacher before retiring to a life of researching old books. She joined the library at the age of 21 and became the only female librarian in the United States to do so. As with most female pioneers in library sciences, MRS. O'NEILL fell victim to sexism in librarianship. She couldn't work quickly enough, or without being criticized for being too slow or too slow-witted of a thinker. She was frequently the subject of sexual harassment among her colleagues. She took time out from working to pursue her education, and to improve herself, and she devoted her energies not only to improving the library, but, as she once put it, to rescuing literature.
+
+Her husband, C.R. McCallum, was the librarian from 1936 until he retired in 1970. MRS. O'NEILL retired in 1969. As the only female librarian in the United States

@@ -1,0 +1,7 @@
+## Story Opening:
+
+The rhythmic shudder of the Cat D11T bulldozer vibrated through Beatrice Anya Kowalski's bones, a familiar lullaby after all these years. Dust devils danced across the desolate expanse of the Arizona desert, mimicking the restless churn in her own gut. At fifty-two, Bea wasn't supposed to be feeling this… vulnerable. She'd spent her life wrestling behemoths like the D11T into submission, carving roads through mountains, leveling land for sprawling subdivisions, and now, sculpting the earth for the next generation of solar farms. But today, the desert felt different. Older, wiser, somehow… mocking.
+
+## Setting:
+
+The year is 2042. The location is a remote, sun-baked patch of the Sonoran Desert, roughly 80 miles southwest of Phoenix, Arizona. Bea is working on a project contracted by "Solara Vitae," a corporation specializing in renewable energy. The landscape is dominated by scrub brush, cacti of varying sizes (some surprisingly well-preserved despite the increasing heat and drought), and the ever-present red dust that coats everything. In the distance, jagged peaks pierce the horizon, shimmering faintly in the relentless heat. Scattered around the construction site are other pieces of heavy machinery, including excavators, graders, and water trucks, all baking under the unforgiving sun. The air is thick with the smell of diesel fumes and the faint, metallic tang of hot metal. It’s a harsh, unforgiving environment, but one Beatrice Kowalski knows intimately and, in her own way, respects.

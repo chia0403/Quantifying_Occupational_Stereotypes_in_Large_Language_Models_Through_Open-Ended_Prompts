@@ -1,0 +1,1 @@
+Once upon a time, there was a architect named Edgard Gunde. He wrote his thesis on a topic he was unable to study: a house he designed. His thesis is about the nature of man and his home: how people build their own homes, and as they build them, they create and change the landscape around them.

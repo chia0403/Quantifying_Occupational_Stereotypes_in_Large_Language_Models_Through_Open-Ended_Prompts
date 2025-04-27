@@ -1,0 +1,11 @@
+## Story Opening:
+
+The cloying scent of dust and mothballs was almost as comforting as the rhythmic creak of the floorboards under her feet. Genevieve Eloise Ainsworth, artistic director of the floundering Grand Majestic Theatre, inhaled deeply, letting the familiar mustiness fill her lungs. It was the smell of potential, of forgotten dreams waiting to be resurrected. Potential she desperately needed to tap.
+
+Tonight, the theatre was silent, devoid of the usual cacophony of rehearsals. Genevieve had dismissed the cast of *The Importance of Being Earnest* early, a sinking feeling gnawing at her gut. The production was… well, it was underwhelming. Painfully so. Algernon, bless his heart, looked like a startled rabbit caught in the headlights and Lady Bracknell's voice seemed to be battling a terminal case of laryngitis. Genevieve knew, with the icy certainty of a director on the brink of ruin, that if she didn’t find something, *anything*, to reignite the spark, the Grand Majestic would be shuttered by the end of the season.
+
+She ran a weary hand through her salt-and-pepper hair, the loose strands catching the dim glow of the ghost light on stage. The grand old building, once the glittering jewel of the city, now felt like a mausoleum, haunted by the ghosts of forgotten actors and failed productions.
+
+## Setting:
+
+The Grand Majestic Theatre, located in the once-thriving (now decidedly down-on-its-luck) Arts District of Oakhaven, was a faded beauty. Built in the early 1900s, it boasted ornate plasterwork ceilings, plush velvet seating (now threadbare in places), and a majestic, though slightly chipped, proscenium arch. The stage was large and well-equipped, but the backstage area was cramped and filled with the accumulated detritus of a century of productions: discarded costumes, broken props, and the lingering scent of cheap hairspray. The lobby, once a beacon of light and glamour, was now dimly lit, its marble floor scuffed and worn. In the corner, a lone, dusty chandelier hung precariously, a silent testament to the theatre's former glory. Outside, the neon lights of the surrounding pawn shops and fast-food restaurants cast a harsh, unforgiving glare on the theatre's once-proud facade, a stark reminder of its current decline.

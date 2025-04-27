@@ -1,0 +1,7 @@
+Once upon a time, there was a school psychologist named Dr. John S. Wett. When he was told to help one struggling son, he did his best. But as parents and schools began to turn to more intense methods of discipline, Wett found it all too disruptive. He became so distressed by what he saw in classrooms and classrooms began to look differently: more like an industrial factory than a place where learning was supposed to occur. When teaching professionals asked Wett if he was planning on stopping, he said he simply couldn't afford to do so.
+
+Which is why his story is also about something beyond today's news media. In fact, it goes back to a time when what we think of as the United States was a lot more of a factory than it is now.
+
+Consider the way we define and describe our factory. There is a huge difference between a sweatshop and a factory. Factory work is generally something performed by many workers, working together but in many different locations, in many different sorts of conditions. Sweatshop work is performed by only a few workers, often workers in remote locations in a harsh, unhealthy, and abusive environment.
+
+When we talk about "sweatshops," we're usually talking about conditions like these. This is the definition Wett set out for the world. "A sweatshop," he wrote, "is any enterprise carried on by a number of employed people in which the wages of any one are such that no

@@ -1,0 +1,6 @@
+The air in the bustling San Francisco farmers market was thick with the scent of fresh basil and sourdough bread, punctuated by the melodic calls of street musicians. Amelia Beatrice Hawthorne, her blonde braid neatly tucked behind her ear, navigated the throngs of people with practiced ease.  She expertly weaved between a woman sampling artisanal goat cheese and a group of teenagers arguing over who got the last avocado. Her eyes, the color of warm honey, scanned the stalls overflowing with colorful produce, seeking out the freshest ingredients for her clients. 
+
+Amelia was more than just a dietician; she was a nutritionist, a confidante, and sometimes even a therapist to her patients. She believed that food wasn't just fuel; it was a source of joy, connection, and healing. Her small practice, nestled in the heart of the city's vibrant Hayes Valley neighborhood, was a testament to this belief. 
+
+
+Amelia paused at a stall brimming with plump tomatoes, their skin glistening like rubies. She inhaled deeply, savoring the earthy aroma. Today was going to be a busy day; she had a meeting with a new client struggling with disordered eating, a group session on healthy meal planning for families, and an evening consultation with her most famous patient – the star chef of a popular vegan restaurant who was battling severe food allergies. 

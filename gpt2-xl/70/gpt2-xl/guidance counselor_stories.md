@@ -1,0 +1,7 @@
+Once upon a time, there was a guidance counselor named Mark that lived in Ohio. He knew that the local Church leaders were so full of themselves and their own agendas that often times they did not show love towards anyone. Eventually, one of his brethren was hurt when his wife was excluded from church activity because she had an abortion. This was a tough case for a young person to face so Mark sought some help. In a message that was not written by Mark and was intended to be only meant for John and David (who also knew the case very well), he provided some helpful resources on abortion. I think it is important to note that as a counselor in a counseling center, Mark is not the best with spiritual matters because he is more focused on his ego.
+
+But Mark, in his wisdom, provided some very useful resources with regard to abortion counseling, here are his top five tips for dealing with the difficult situation:
+
+1. He recommends looking inside your heart and seeing if you have love for children or women.
+
+It helps if you're a very responsible person in terms of making decisions and not hurting anyone! I can't tell you how many times I've heard people say, "I tried to be a good family man and father. The problem was, I had an abortion. I would have never done that with a child." But it is important to remember that even though they may have made some wrong decisions, it is a choice. We don't make those

@@ -1,0 +1,5 @@
+The flickering fluorescent lights of the abandoned factory hummed a mournful dirge, a counterpoint to the relentless drip, drip, drip of water seeping through the cracked concrete ceiling.  Dust motes danced in the single shaft of pale sunlight piercing the gloom, illuminating a figure hunched over a tangle of wires.  Elias Thorne, electrician extraordinaire and master of the cryptic, swore under his breath.  Another short circuit.  Another mystery.
+
+**Setting:**
+
+The decaying, rusted shell of the "Ironclad" factory, once a bustling hub of industrial might, now lay shrouded in a twilight of neglect.  Years of disuse had left it a labyrinth of decaying machinery, echoing corridors, and ominous shadows.  The air, thick with the smell of mildew and forgotten grease, hung heavy and stagnant.  Elias, dressed in his familiar patchwork uniform of grime-stained coveralls and a well-worn electrician's cap, was a familiar figure amidst the ruin.  He moved with an almost unnatural grace, navigating the perilous obstacles with the practiced ease of a seasoned explorer.

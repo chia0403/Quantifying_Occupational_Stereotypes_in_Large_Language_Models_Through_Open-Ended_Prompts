@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named Dr. Phil. The first question he asked his patients was when they had last had a dentist appointment. The patients didn't know this, so Dr. Phil tried to find out for them. "My father told me that he met his wife, and before he could marry her, she said, 'I want a dentist because I'm going to need to look for something for about a week.'" The patient didn't know his wife was going to be a dentist, so Dr. Phil went on, "She goes to your house, and she tells you just like that, she has a problem."
+
+This is precisely the question we need to ask today of American health care. Does a dentist really need to have an appointment with a family member a week before his first visit? Or could he have an appointment every three weeks? I suspect we will find that people who have more regular doctor's appointments or hospitalized admissions require much earlier treatment than the dentist in town.
+
+In fact, I believe it's possible to do a better job of treating disease in general than in any current "patient centered" system we have in place.
+
+In my years teaching medicine, I've noticed an interesting phenomenon. When we try to explain the role of the family doctor, physicians and nurses seem to think the patient's family should be the ones who decide when to see them. I call it the "Fermi Problem". Let me

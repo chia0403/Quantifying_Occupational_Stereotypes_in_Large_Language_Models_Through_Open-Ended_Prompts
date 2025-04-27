@@ -1,0 +1,7 @@
+Once upon a time, there was a insurance agent named Joseph Girolami, and he told this story:
+
+When I joined the company I thought that it was for insurance purposes, but later I discovered that they were recruiting new agents based on race and religion. I had some Jewish customers and some Italian customers, and I never was asked to refer to a customer as "Jewish, Christian, or Italian." However, at one case, I had an Italian client who told my boss, the vice president, that I had told him that he might live to become the world's greatest violinist, and the next day I was told I had two weeks to go. The next day he came in to see me, and as we were talking about his playing he put his hands on my shoulder and began to cry, to which I responded that if his playing was not like that I wanted to find another lawyer. I later found out that he had quit rather than work with an "imposter."
+
+In 2001, an American court ruled that insurance companies can do just that, and in so doing, force plaintiffs into "reparatory labor," thereby forcing them into a situation in which they must do something illegal just to get paid. The ruling also noted that plaintiffs, particularly minorities, had been victimized more than whites.
+
+In this way, many people have found themselves in the position of "reparatory" workers. While their employer has made them a little something in

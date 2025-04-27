@@ -1,0 +1,7 @@
+In the heart of the sprawling city of New Haven, as the sun dipped below the horizon and the bustle of the day gave way to the quiet murmur of the night, the imposing silhouette of the Northcrest Plaza Tower stood tall. It was a monolithic structure, its mirrored exterior reflecting the fading hues of twilight, a stark contrast to the unassuming figure that shuffled through its expansive, marble-tiled lobby.
+
+Edgar Jameson, the janitor, was a man of few words but many thoughts. His heavy work boots echoed softly in the cavernous space, punctuating the quiet as he made his rounds. Edgar was in his late fifties, a testament to a life of unrelenting labor. His hands were calloused and worn, much like the mop he pushed dutifully from corner to corner each night.
+
+The gleaming lobby was empty, save for the odd security guard who greeted Edgar with a nod of familiarity. Here, behind these polished glass doors, Edgar found a world of order in contrast to the chaos outside. He relished the solitude, embracing the whispered stories of the building's silent walls which had witnessed countless tales unfold during their daily rituals.
+
+To Edgar, Northcrest Plaza was more than just his workplace; it was a stage where he played both the invisible guardian and silent observer of life's unfolding dramas. Under the dim fluorescent lights, with the scent of fresh pine cleaner lingering in the air, Edgar embarked on his nightly routine, unaware of how this particular night's events would soon intertwine his story with others in ways he could never have anticipated.

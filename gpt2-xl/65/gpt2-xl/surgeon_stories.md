@@ -1,0 +1,7 @@
+Once upon a time, there was a surgeon named Robert B. Paine, who became a folk hero for killing the vampire Pazuzu. At the end of the book, Paine was executed for attempted murder by his new, evil employer, the Great Wyrm. It's an excellent story of how one man can change the world, but now it's just another myth.
+
+And so, to put an end to this tradition of killing off the "heroes" of vampire sagas, I would have liked to see the protagonist be the main character of the sequel. (And yes, I would have made it a sequel on a very long time, so there was hope.) But I do sympathize with the fans who are outraged. Not all vampires are evil, and if a book is centered around a vampire, that's what they would naturally be.
+
+"It's not enough that vampires are always bad people," says Michael, who also writes as "michaelcameron". "There needs to be a human and real-world consequence. How can you write such a story without it? It only encourages the bad guys."
+
+He also notes that the idea of killing off characters early can be confusing. When was the last time you remember what your characters were like? Or, as he put it, how about this for an example? How would you feel if your favorite character was murdered in the very first pages of a series, or, worse

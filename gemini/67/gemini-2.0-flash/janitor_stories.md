@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Setting:** The grand, echoing halls of the Atherton Conservatory, a renowned institution dedicated to the study and preservation of rare and exotic plants, located in the misty hills just outside of Portland, Oregon. The Conservatory boasted a series of interconnected glasshouses, each meticulously climate-controlled to mimic environments from around the globe. Lush foliage cascaded from every surface, vibrant orchids dripped with condensation, and the air hung thick with the perfume of blooming night-bloomers. At night, under the soft glow of meticulously placed lighting, the place felt less like a scientific institution and more like a forgotten temple swallowed by the jungle.
+
+**Story Opening:**
+
+The insistent buzz of the automatic floor scrubber was the only sound breaking the pre-dawn silence in the Temperate House. Bartholomew "Bart" Higgins, a man whose face held the map of a thousand sleepless nights and a million forgotten messes, guided the machine with practiced ease between rows of towering tree ferns. He hummed a tuneless melody under his breath, a habit born of loneliness and the soothing drone of the scrubber. At 5:00 AM, Bart was the king of the Atherton Conservatory, the sole inhabitant of its humid kingdom, responsible for keeping its floors pristine and its secrets buried.
+
+Tonight, however, the usual symphony of the rainforest was off-key. There was a frantic rustling coming from the section housing the Corpse Flower, a behemoth of a plant currently exhibiting a particularly pungent bloom. Bart sighed, his shoulders slumping. He’d hoped for a quiet shift, a chance to catch up on the audiobooks he listened to through his noise-cancelling headphones. Now, it sounded like something was tearing through the delicate ecosystem of the Temperate House, and Bart knew, with a sinking feeling in his gut, that he was about to find out what.

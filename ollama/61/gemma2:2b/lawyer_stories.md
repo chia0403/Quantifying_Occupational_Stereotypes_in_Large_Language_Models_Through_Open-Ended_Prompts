@@ -1,0 +1,5 @@
+The salt-laden wind whipped Amelia Croft's already ruffled hair as she stepped off the ferry onto the misty deck of the docks in Port Haven. Rain hammered down on her charcoal raincoat, the sound like a thousand tiny hammers against an anvil. The air was thick with the smell of brine and fish, and the fog clung to everything like a ghost story whispered from long-dead sailors. 
+
+Amelia, resplendent in a tailored navy suit, adjusted her spectacles and ran a hand through the unruly strands of auburn hair escaping its braid. "No point fighting the storm," she muttered to herself, pulling the collar higher to ward off the chill. She was here for one reason: a man named Silas, owner of a shipyard that smelled like old ropes and forgotten dreams, had agreed to meet her after hours. 
+
+The docks buzzed with activity, freighters unloading their cargo, fishing boats bobbing gently in the waves. Amelia's gaze swept across the scene, searching for something specific amongst the bustle. Port Haven was a city teeming with secrets, its charm hiding beneath layers of grime and whispers of forgotten stories. And she, like all good lawyers, knew where to find them. 

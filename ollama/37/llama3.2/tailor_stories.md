@@ -1,0 +1,7 @@
+Here's a potential story opening and setting:
+
+In the heart of old Prague, where the Vltava River whispered secrets to the stone bridges and the Gothic spires seemed to touch the sky, a small, mysterious shop stood tucked away on Hradčanská Street. The sign above the door creaked in the gentle breeze, bearing the name "Karel Šváb, Tailor to the Nobility" in elegant, golden letters.
+
+Inside, Karel Šváb himself was busy at work, his hands moving with precision as he stitched together a fine silk suit for a high-society client. The smell of wool and fabric filled the air, mingled with the faint scent of pipe tobacco that Karel inhaled whenever he felt anxious or deep in thought. His eyes, a piercing blue, were fixed on the intricate pattern of stitches unfolding before him, as his mind wandered to the whispers of a mysterious commission that had arrived just days ago – a request for a custom-made cloak with an unknown purpose, and a price tag that made even Karel's sharp business sense twitch with curiosity.
+
+As the sun dipped below the rooftops, casting the shop in a warm, golden light, Karel couldn't shake off the feeling that this cloak was something more than just another bespoke garment. Something... sinister.

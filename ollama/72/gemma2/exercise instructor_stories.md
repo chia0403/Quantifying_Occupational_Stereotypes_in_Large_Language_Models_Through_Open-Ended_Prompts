@@ -1,0 +1,6 @@
+The air hung thick with the scent of sweat and eucalyptus oil as Amelia Beatrice "Amy" Hawthorne surveyed her class.  It was 6:30 am on a Tuesday, which meant a room buzzing with caffeinated ambition and pre-workout jitters. The windows were still fogged from last night's humidity, casting the brightly colored yoga mats in a hazy glow. Outside, Miami pulsed with its usual early morning energy – the distant rumble of construction, the rhythmic whoosh of a passing motorcycle. But here, in this dimly lit studio nestled within a trendy Wynwood art space, Amy held court. 
+
+Her music – a mix of indie pop and Latin beats – throbbed through the speakers as she moved with practiced grace, her limbs fluid and strong.  Amy wasn't just leading a class; she was orchestrating an experience, a carefully curated blend of physical exertion, mindfulness, and community.   For many in this room, her vinyasa flow was more than exercise; it was a ritual, a lifeline, a chance to breathe and reset before the city swallowed them whole.  
+
+
+But today, something felt different. Amy couldn't shake a nagging sense of unease. The energy in the room felt off, the usual hum of anticipation replaced by a palpable tension. As she began her sequence, a prickling sensation crawled up her spine. Something was about to happen, she just didn't know what. 

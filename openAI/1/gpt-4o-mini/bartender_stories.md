@@ -1,0 +1,11 @@
+**Title: A Night at The Last Call**
+
+**Setting:** The air was thick with the scent of aged whiskey and the distant hum of blues music as the neon lights flickered outside The Last Call, a dimly lit bar on the outskirts of a bustling city. Inside, the atmosphere was warm, filled with laughter and the clinking of glasses, while shadows danced across the walls, telling stories of heartache, joy, and fleeting connections. It was a space where time seemed to blur; regulars had their rituals, and strangers became friends over the shared comfort of a cold drink. 
+
+**Story Opening:**
+
+Evangeline Harper stood behind the polished mahogany bar, her hands deftly pouring a double shot of bourbon for a weary patron. The man, whose eyes carried traces of unshakable burdens, offered her a weary smile in gratitude. Evangeline had a knack for reading people—their stories folded delicately beneath their expressions, waiting for someone to unpack them. With a gentle nod, she slid the glass toward him, its golden viscous liquid glinting under the overhead lights.
+
+It was now nearing midnight, the hour when the world outside faded to a hushed silence, and the regulars settled into their usual spots. Evangeline had always found solace in the rhythm of her job, the predictable dance of mixing drinks and listening to confessions. But that night felt different; there was an electricity in the air as if the very walls of The Last Call were holding their breath, waiting for something unexpected to unfold.
+
+As she wiped the edge of an empty glass with a rag that had seen far better days, the door swung open with a creak, revealing the silhouette of a stranger against the backdrop of the neon “OPEN” sign. Evangeline's heart skipped a beat. This was no ordinary customer; his presence seemed to vibrate with a certain intensity that caught even the attention of her most loyal patrons. Intrigued, she leaned against the bar with a patient smile, ready to pour whichever drink might be needed to unravel the night's mysteries.

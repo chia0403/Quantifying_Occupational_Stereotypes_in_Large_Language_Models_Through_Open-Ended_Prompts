@@ -1,0 +1,11 @@
+## Story Opening:
+
+The mid-morning sun, already a brazen eye in the sky, glared down on Theodore Arthur Finch, turning the manicured emerald of the Meadowbrook Golf & Country Club's 18th green into a shimmering mirage. Sweat trickled down the back of his neck, clinging to the worn fabric of his olive green uniform. He wiped it away with a dirt-stained forearm, leaving a streak of brown across his brow.
+
+He was on his knees, tweezers in hand, locked in a silent battle with the relentless encroachment of crabgrass. Each stubborn blade he plucked felt like a tiny, personal victory against the forces of chaos that threatened to unravel the pristine image of Meadowbrook. Theodore took a deep breath, the scent of freshly cut rye and expensive fertilizer filling his lungs. He loved this place, this green haven carved out of the ordinary world. He loved the quiet hum of the sprinkler system, the rhythmic thwack of golf clubs in the distance, even the faint, perpetually condescending drawl of the club members as they strolled past, commenting on the "excellent job, Finch" before disappearing into the air-conditioned sanctuary of the clubhouse.
+
+Today, though, that familiar hum felt different, laced with a subtle vibration of unease. He could feel it in the way the breeze rustled through the ancient oak that stood sentinel on the edge of the green, and in the skittish behavior of the normally brazen robins that hopped about, searching for worms. Something was off. And Theodore Arthur Finch, groundskeeper extraordinaire, had a very bad feeling about it.
+
+## Setting:
+
+The story opens at the Meadowbrook Golf & Country Club, located in the fictional, affluent suburb of Havenwood, Connecticut. It's a sprawling estate encompassing rolling hills, meticulously manicured lawns, sparkling ponds, and, of course, an 18-hole championship golf course. The clubhouse is a grand, Georgian-style building, a monument to wealth and privilege. The atmosphere is one of quiet elegance and understated exclusivity, a place where appearances are everything and the slightest imperfection is meticulously corrected. The surrounding landscape is quintessentially New England, with stately trees, stone walls, and a sense of timeless charm that belies the simmering tensions and secrets that lie beneath the surface of Havenwood's perfect facade.

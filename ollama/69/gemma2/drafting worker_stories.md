@@ -1,0 +1,5 @@
+The acrid smell of chalk dust hung heavy in the air, coating Eleanor "Ellie" Beaumont's throat like sandpaper.  She squinted at her drawing board, the harsh overhead lights glinting off the finely drawn lines that snaked across the sheet before her. Outside, the rumble of the city was a distant murmur through the thick walls of the drafting room, but inside, silence reigned supreme, broken only by the occasional scratch of a pencil or the rustle of paper. Ellie's workspace, tucked away in a corner under a flickering fluorescent light, felt both familiar and suffocating. 
+
+The year was 1938, and Chicago hummed with a restless energy. The World's Fair loomed on the horizon, promising marvels of modern technology and breathtaking architecture. Yet, within these cramped quarters, Ellie's world revolved around blueprints, angles, and the rhythmic rasp of her T-square against paper. Her days were spent translating the dreams of architects into meticulous lines, each one a testament to precision and unwavering focus. But lately, a restlessness had begun to stir within Ellie, a yearning for something beyond the confines of this dusty room.  
+
+

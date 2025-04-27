@@ -1,0 +1,11 @@
+## Story Opening:
+
+The fluorescent lights hummed a monotonous tune, a soundtrack to Dr. Eleanor "Ellie" Vance's Monday morning migraine. Steam curled from her lukewarm coffee as she stared out the window of her small, cluttered office at Hawthorne High. The drizzle outside mirrored the persistent ache behind her eyes, a feeling only exacerbated by the overflowing in-tray on her desk. Forms demanding her attention, referral notes hinting at a plethora of anxieties and acting-out, and the usual stack of parent emails, all vying for her immediate attention.
+
+A particularly insistent knock rattled the thin door, pulling her attention from the grey landscape. Ellie sighed, pinching the bridge of her nose. Another day, another crisis, another soul yearning for connection in the chaotic ecosystem of adolescence. "Come in," she called, trying to inject a semblance of cheer into her voice. The door creaked open, revealing Mrs. Davison, the history teacher, her face etched with a familiar blend of concern and exasperation. Ellie braced herself. Whatever was about to walk through that door, she knew it wouldn't be easy.
+
+## Setting:
+
+The story is set in Hawthorne High School, a public high school in a working-class suburb of a medium-sized American city (think Akron, Ohio or Rochester, New York). The school is a sprawling, brick building, a relic of the 1970s with faded paint and a general air of institutional wear and tear. The hallways are perpetually noisy, filled with the energy of hundreds of teenagers navigating the complex social landscape of adolescence.
+
+Dr. Vance's office is located in the far corner of the guidance counseling suite, a small, cramped space that feels perpetually overwhelmed by the sheer volume of paperwork and personal effects crammed into it. The walls are plastered with posters aimed at promoting mental well-being - inspirational quotes and tips on managing stress, most of which are ironically obscured by stacks of files. A well-worn armchair sits in the corner, providing a safe space for students to unravel their worries. The desk is a chaotic testament to her workload, a landscape of papers, pens, and half-finished cups of coffee. Overall, the setting is a microcosm of the pressures and complexities faced by teenagers, a place where hope and despair often dance a delicate, precarious waltz.

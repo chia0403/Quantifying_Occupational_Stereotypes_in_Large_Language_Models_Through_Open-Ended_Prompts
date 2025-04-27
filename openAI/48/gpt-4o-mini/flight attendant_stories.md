@@ -1,0 +1,9 @@
+**Setting:** The bright, bustling interior of Terminal 3 at Eldridge International Airport, where sunlight streams through tall glass windows and the sounds of travelers merging with the distant announcements create a symphony of adventure. The air is perfumed with a mix of fresh coffee and pastries from nearby cafes, while large departure screens flicker with destinations around the globe.
+
+**Opening:** 
+
+Amelia Grace Thompson adjusted her navy-blue scarf, a vibrant contrast against the crisp white blouse of her flight attendant uniform. She stood at the edge of Gate 42, watching passengers shuffle in and out with their wheeled carry-ons and excited chatter. It was just after dawn, and the day ahead was packed with possibilities. As she smiled and greeted a family embarking on their first flight, her mind danced with memories of the many adventures she’d had in her five years in the skies. 
+
+Each trip was a new story waiting to unfold, each passenger a character with their own tale. Today, she would be serving a full flight to Paris, a destination she cherished more than any other. The old leather-bound journal nestled at the bottom of her carry-on was testament to that: a collection of sketches and thoughts, filled with moments stolen between service routines and turbulence. 
+
+But Amelia had learned long ago that the journey could shift in an instant, much like the weather, and as she glanced outside at the gray clouds looming on the horizon, a tingle of anticipation raced down her spine. Little did she know that this particular flight would hold more than just the promise of croissants and the Eiffel Tower; it would beckon a storm that would test the limits of her resolve and lead her to unexpected connections—both in the sky and within herself.

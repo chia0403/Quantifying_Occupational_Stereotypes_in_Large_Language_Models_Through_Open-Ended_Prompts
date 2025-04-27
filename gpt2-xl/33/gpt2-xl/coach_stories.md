@@ -1,0 +1,7 @@
+Once upon a time, there was a coach named Mike O'Shea. This is the time of year when every college recruiting specialist would come out and tell us that in 2008, there weren't enough opportunities for great college players anywhere around the country to get an education. Mike O'Shea, you see, was the coach at a small college from Missouri named Missouri. And when Missouri went 0-10 his senior season, he decided to just quit football entirely. What was he thinking?
+
+
+When O'Shea stepped out of the football stadium one day, he saw his entire squad, some 150 or so high school kids, working out. But they were working out in a football weight room instead of in the weight room. "This is crazy," he thought. "There's no way I'm going to be a high school athletic director." He went home to Missouri and made his move, becoming the football coach at Murray State University, where he is still the head coach today.
+
+
+If a high rise with a few apartments that could have been torn down for the project O'Shea had in mind was his initial plan, it still only afforded him a little bit of space on the ground floor. But when it came time to fill the basement, he did some quick math and realized he wouldn't need much room at all. "It was probably about four thousand square feet, and as such, it wasn't big enough to accommodate the current requirements of the

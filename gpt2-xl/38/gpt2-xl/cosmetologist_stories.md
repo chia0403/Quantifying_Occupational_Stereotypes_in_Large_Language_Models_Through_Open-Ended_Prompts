@@ -1,0 +1,7 @@
+Once upon a time, there was a cosmetologist named David Halt. He got a small business, but then one day it came under attack, and he had to move out of the house. His boss and his old friend showed up in his place to see what had happened to him. At first David didn't understand why, he figured that his boss just didn't like the "cosmetological argument," so he told them to get lost. His boss told him that this argument was nothing more than a fancy piece of fine glass, but just like the pieces he put back into the box, the argument had gotten out of balance, causing the problem. This brought back David's old friend and the boss took this opportunity to explain things, and the man finally agreed to the cosmetological concept. David's new boss said, "You have to understand, this argument won't save your company."
+
+
+It is quite natural that we say that something was "written in the stars" even though in this case we are talking about a man's argument that the argument was out of balance. To us, what we see in the sky is what really happened in those two people's past. It is as though the stars were written with letters and had some connection to those letters. The letter H means that the argument is correct--the arguments of those two people before them all had that property--but in reality, it isn't the case.
+
+
+It is clear at what

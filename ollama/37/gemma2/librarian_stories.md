@@ -1,0 +1,5 @@
+The scent of old paper and leather hung heavy in the air, a comforting blanket woven from forgotten stories and whispered secrets. Sunlight slanted through the tall windows of the Willow Creek Public Library, illuminating dust motes dancing in the stillness. Eleanor Amelia Cartwright, affectionately known as Ellie to the handful of patrons who ventured into her domain, straightened a shelf of worn hardcovers.  
+
+Willow Creek was a town where time seemed to move at its own languid pace, nestled amongst rolling hills and whispering willow trees that gave it its name. The library itself was a sanctuary, a refuge from the outside world, its shelves groaning under the weight of countless tales waiting to be discovered. Ellie had been the librarian for almost thirty years, her life intimately entwined with the hushed whispers and rustling pages that filled the space. But lately, something felt different. A subtle shift in the air, an unsettling quietness that lay beneath the usual hum of borrowed stories. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a dentist named Edward N. DeLuca. (Yes, that Edward N. DeLuca, the same guy who's still alive and still in practice. And the same guy's name was also DeLuca.) You read that right… a dentist named Edward N. DeLuca.
+
+I'm not sure, really. I mean, I've never met the man. But the stories about what happened at the dentist's house when the police, including the man who was in charge of the case, arrived are a little bizarre, which is why I'm including them below.
+
+The incident starts when DeLuca left a party with police, and was found asleep and unresponsive at the bottom of his pool. The next thing we know, the police came to the scene and demanded he provide a urine sample. He declined, claiming he did not remember what happened, but did agree to take part in a Breathalyzer test. A few days later, the police, according to DeLuca, decided that he wasn't fit for trial and sent the breath test to the lab again. This time, the lab confirmed that DeLuca tested positive for marijuana. The officer assigned to the case to which DeLuca's blood was sent informed his superiors that there was "no way a person with a blood alcohol content of.00 would have drunk that much."
+
+So the police kept pushing forward with the investigation, and

@@ -1,0 +1,7 @@
+Rain lashed against the grimy windows of The Rusty Mug, its relentless rhythm mimicking the drumming in Elias Thorne’s chest.  He sat hunched over his lukewarm coffee, the steam rising in a ghosting plume that mirrored the sadness clinging to his thoughts. Across from him sat Mrs. Henderson, her wrinkled face illuminated by the flickering neon sign advertising “Hot Pastrami on Rye.” The air hung thick with the scent of stale beer and the salty tang of Mrs. Henderson's homemade pickles. 
+
+Elias had been following this story for months now, ever since his exposé about the city council’s shady dealings came out in The Echo last week.  He thought he was finally getting somewhere, but now, after a series of tense interviews with both politicians and their reluctant informants (the kind who gave you more cryptic notes than solid information), the truth felt like a distant echo within the deafening storm outside. 
+
+His mind was racing, churning through the city's underbelly: the forgotten alleyways where secrets festered; the abandoned warehouses humming with hushed whispers of corruption; and the ever-present shadow of the council members’ watchful eyes.  He needed answers. But right now, all he had were a half-empty coffee mug and a growing sense that this case was about to go sideways. 
+
+Elias took another sip of the bitter brew, hoping the caffeine would numb the anxiety churning in his gut. "Mrs. Henderson," he said finally, his voice barely audible above the drumming rain. “I need something.” 
