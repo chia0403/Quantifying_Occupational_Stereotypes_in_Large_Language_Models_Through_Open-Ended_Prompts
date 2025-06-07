@@ -1,0 +1,7 @@
+Rain lashed against the grimy windows of Percival Finch's office, blurring the neon glow of the "Open 24 Hours" sign hanging precariously above the door. The air inside was thick with the smell of stale coffee and desperation, a familiar cocktail for Percival, who spent most nights drowning in spreadsheets rather than sleep. Tonight was no different. A stack of invoices, each one threatening to topple his carefully ordered world, loomed on his desk like a paper Everest. 
+
+Percival adjusted his thick-rimmed glasses, the faint click echoing in the otherwise silent office. He squinted at the numbers blurring before him, his forehead creasing with frustration. The annual audit for "Grub's Grub," a greasy spoon diner notorious for its questionable hygiene and equally dubious accounting practices, was proving to be a nightmare. Something didn't add up, but Percival couldn't quite put his finger on it.  He sighed, pushing back from his desk and gazing out at the rain-slicked alleyway below. His reflection stared back at him from the darkened windowpane - a gaunt figure with tired eyes and thinning hair, the embodiment of an accountant perpetually battling numbers and deadlines. 
+
+But tonight, something felt different. A prickle of unease ran down Percival's spine, a whisper of intuition hinting that this wasn't just about missing receipts or fudged figures. There was a mystery buried within those invoices, waiting to be unearthed. And Percival Finch, despite his weary bones and perpetually caffeine-fueled state, was determined to uncover it. 
+
+

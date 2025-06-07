@@ -1,1 +1,1 @@
-Thomas Alva Edison
+Thomas Edison

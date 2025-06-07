@@ -1,0 +1,5 @@
+The air hung thick with the metallic tang of blood and the savory scent of curing salts. Outside, the cobbled streets of Prague shimmered under the midday sun, but within the cramped confines of Josef Vaclav’s butcher shop, shadows stretched long and cool. Josef himself, his broad hands stained crimson, expertly carved a shoulder of lamb, the cleaver whispering through the flesh with practiced ease. He worked in silence, lost in the rhythm of his craft, the rhythmic thudding of the blade against bone a counterpoint to the distant clatter of trams and the lively chatter spilling from the open doorway of the bakery next door.  
+
+Josef Vaclav wasn't just any butcher; he was an artist of flesh, revered throughout the neighborhood for his skill in transforming unyielding carcasses into succulent roasts and delicate sausages. His shop, nestled between a boisterous tavern and a hushed apothecary, held a special place in the heart of Prague – a sanctuary of savory smells and honest labor. But today, something felt different. A prickling unease settled upon Josef as he worked, a sense that the familiar order of his world was about to be irrevocably disturbed. 
+
+

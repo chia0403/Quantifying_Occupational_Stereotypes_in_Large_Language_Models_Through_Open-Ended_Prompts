@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpanes of Percival "Percy" Finchley's office, mirroring the tempest brewing inside him.  Stacks of ledgers towered precariously on his mahogany desk, each one representing another financial puzzle he couldn't quite solve. Percy, with his spectacles perpetually perched on the bridge of his nose and his neatly combed silver hair reflecting the dim lamplight, was renowned for his meticulousness. Yet, this case, involving the enigmatic Miss Evangeline Blackwood and her missing fortune, had him utterly stumped.  
+
+His office, nestled in a quiet corner of London's bustling financial district, was as orderly as Percy himself. Leather-bound books lined the walls, a vintage globe stood sentinel in the corner, and the air hung heavy with the scent of aged parchment and pipe tobacco. But tonight, even the comforting familiarity of his surroundings couldn't soothe Percy's mounting anxiety. Miss Blackwood had vanished without a trace, leaving behind only cryptic clues hidden within her tangled accounts –  clues that whispered of hidden fortunes, secret societies, and perhaps even danger.
+
+

@@ -1,0 +1,4 @@
+The worn floorboards of the grand Victorian mansion groaned beneath Amelia Thistlewick's feet as she pushed her trolley laden with cleaning supplies down the echoing hallway. Dust motes danced in the pale shafts of sunlight that streamed through the arched windows, illuminating the faded grandeur of the once-vibrant home. The air hung heavy with the scent of beeswax and lavender polish, a familiar comfort amidst the looming silence. Amelia had been tending to the Blackwood Manor for over twenty years, her own life quietly unfolding amidst its peeling wallpaper and forgotten memories. Today, however, felt different. A tremor of anticipation vibrated through her as she approached the master bedroom door, a sense that something was about to shift within these hallowed walls. 
+
+
+Let me know if you'd like me to continue the story! 😊

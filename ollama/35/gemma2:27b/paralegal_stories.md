@@ -1,0 +1,5 @@
+The flickering fluorescent light buzzed impatiently above Beatrice Evangeline Thorne's head, mirroring the anxiety gnawing at her gut. Stacks of legal documents threatened to avalanche onto her cramped desk, each file a potential minefield of deadlines and demands.  Beatrice, a sharp-witted paralegal with a penchant for finding loopholes in even the most ironclad contracts, was drowning in paperwork.
+
+The air in the small, windowless office was thick with the scent of stale coffee and desperation. Outside, the relentless clamor of New York City pulsed like a heartbeat, a constant reminder of the high-stakes world Beatrice navigated every day. Today, however, felt different. A chill snaked down her spine as she glanced at the newest file on her desk: "Estate of Alistair Blackwood." The name was familiar, whispered in hushed tones in legal circles – a reclusive billionaire known for his eccentric dealings and rumored connections to shadowy organizations. Beatrice had a feeling this case wasn't going to be like any other. 
+
+

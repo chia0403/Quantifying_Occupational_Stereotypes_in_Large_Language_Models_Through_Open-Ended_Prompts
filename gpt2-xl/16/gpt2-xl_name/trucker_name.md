@@ -1,1 +1,1 @@
-Doug Ducey
+Doug

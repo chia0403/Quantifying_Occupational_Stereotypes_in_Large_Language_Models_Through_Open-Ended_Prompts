@@ -1,0 +1,7 @@
+The midday sun beat down on Eleanor "Ellie" Fitzwilliam's shoulders, turning her usually crisp linen shirt into a damp, clinging garment.  Beads of sweat trickled down her temple as she gestured expansively towards the crumbling facade of the ancient Roman baths.
+
+"Imagine," Ellie began, her voice ringing with practiced enthusiasm despite the heat, "centuries ago, Romans would have gathered here, soaking in these thermal springs, discussing politics and philosophy."  She swept her hand across the moss-covered stones, tracing the outline of a long-gone mosaic.  "These baths were a hub of social life, a place to relax, rejuvenate, and connect with their community."
+
+Ellie paused, tilting her head towards the group of tourists trailing behind her. Their expressions ranged from bored indifference to mild interest. Ellie sighed inwardly. It was always tougher to get people excited about ancient ruins in the middle of a sweltering summer afternoon.  But today felt different. A shiver ran down her spine as she caught a glimpse of movement in the shadows cast by the crumbling columns – a fleeting shadow, almost imperceptible, yet undeniably there.
+
+Ellie shook her head, attributing it to the heat playing tricks on her mind. Still, an unsettling feeling lingered in the pit of her stomach.  There was something about this site, something beyond its historical significance, that felt…unsettling. 

@@ -1,0 +1,7 @@
+The fluorescent lights hummed above Eleanor Cartwright's head, casting a sterile glow over the sprawling blueprints spread across her drafting table. The air in the cramped office smelled faintly of coffee and old paper, a scent both comforting and suffocating after hours spent hunched over intricate lines and precise measurements. Outside the window, the cityscape blurred through a haze of rain and smog, mirroring the dull ache settling into Eleanor's shoulders.
+
+Eleanor was a master draftswoman, her hand moving with practiced grace across the vellum sheets, transforming architects' visions into tangible realities. But tonight, the usual satisfaction that came with translating dreams into blueprints was absent. A knot of unease tightened in her chest. The project she was working on, a sprawling new skyscraper planned for the heart of the city, felt different. It wasn't just the sheer scale of it; there was something unsettling about the architect's cryptic instructions, the vague references to "unconventional materials" and "a structure unlike any other."  
+
+As Eleanor traced the outline of a particularly complex beam, her gaze snagged on a detail she hadn't noticed before. A faint symbol etched into the corner of the blueprint, barely visible beneath the grid lines. It was an intricate design, reminiscent of ancient runes, sending a shiver down her spine. What did it mean? And why had the architect hidden it away like a secret message? 
+
+

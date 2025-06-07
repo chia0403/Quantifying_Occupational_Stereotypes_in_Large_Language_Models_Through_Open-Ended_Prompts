@@ -1,0 +1,5 @@
+The midday sun beat down on Elias Thorne's broad shoulders, turning his already sweat-soaked t-shirt into something resembling a second skin.  He squinted through the glare reflecting off the steel girders that formed the skeletal frame of the new skyscraper rising from the heart of downtown. The air thrummed with the symphony of construction: the screech of metal on metal as cranes lifted heavy loads, the rhythmic thumping of jackhammers carving into concrete, and the constant murmur of voices, punctuated by shouts and laughter. Elias, a man built like an oak tree with calloused hands that could wrangle steel beams with ease, perched precariously on a beam high above the bustling city streets. 
+
+His boots gripped the narrow surface as he carefully maneuvered a length of rebar into place, his muscles aching from hours of repetitive movements. But Elias didn't mind the hard work. There was something satisfying about building something tangible, something that would stand for years to come. He liked knowing that he played a part in shaping the cityscape, adding another layer to its ever-evolving story.
+
+

@@ -1,0 +1,7 @@
+The scent of lilies hung heavy in the air, mingling with the dusty fragrance of old books and the faint sweetness of vanilla from Mrs. Peterson's freshly baked scones next door.  It was the kind of day that begged for quiet contemplation, the kind Elsie Amelia Willowcroft usually found solace in amidst her blossoming arrangements. But today, a storm brewed not just outside her shop window but within its very walls.
+
+Elsie Amelia's Florist sat nestled between a cozy antique bookstore and a beloved bakery on Maple Street, a charming lane known for its independent businesses and gossiping inhabitants. The shop itself was a symphony of color and texture: vibrant bouquets bursting with life lined the shelves, delicate orchids perched precariously on wrought iron stands, and dried lavender swirled in fragrant bundles from the ceiling. A worn Persian rug lay beneath Elsie's worktable, softening the click-clack of her floral shears against ceramic vases. 
+
+A large clock ticked above the door, its hands creeping closer to noon.  This was when most customers arrived: ladies with bouquets for birthdays and funerals, anxious husbands seeking romantic gestures, and the occasional adventurous soul searching for something unique.  But today, the shop remained unusually quiet. The silence felt oppressive, a stark contrast to the usual hum of activity. Elsie Amelia, her fingers idly tracing patterns on a dusty sunflower seed packet, knew something was amiss. 
+
+

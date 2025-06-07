@@ -1,2 +1,1 @@
 Chupacabra
-William Johnson

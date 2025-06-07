@@ -1,2 +1,1 @@
 William Clay
-Bill Clay

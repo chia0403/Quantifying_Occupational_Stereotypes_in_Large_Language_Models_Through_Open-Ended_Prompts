@@ -1,0 +1,4 @@
+The sun beat down on Silas Bartholomew "Bart" Higgins' neck with the relentlessness of a blacksmith's hammer. Sweat dripped from his brow, stinging his eyes as he hoisted another 50-pound bag of asphalt mix onto the back of the steaming dump truck. The air hung heavy and thick with the pungent scent of tar and diesel fuel, punctuated by the rhythmic clang of shovels against pavement and the guttural roar of machinery grinding away at the old highway surface. Bart squinted towards the shimmering horizon, where the endless ribbon of asphalt stretched out before him like a mirage. This stretch of Highway 17 had been his domain for the past five years, ever since he'd left behind the dust and grime of the coal mines in West Virginia for the relentless sun and heat of the Nevada desert.  
+
+
+He wasn't sure which was worse.

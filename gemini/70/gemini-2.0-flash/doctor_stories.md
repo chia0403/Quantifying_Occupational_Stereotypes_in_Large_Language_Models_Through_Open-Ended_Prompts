@@ -1,0 +1,9 @@
+## Story Opening:
+
+The rhythmic beep of the fetal heart monitor was a relentless metronome in the dimly lit room. Dr. Eleanor "Ellie" Vance rubbed the bridge of her nose, the scent of antiseptic and stale coffee clinging to her scrubs. Outside, the November wind howled a mournful tune against the hospital's brick facade, a soundtrack to the nervous energy that permeated the air. Mrs. Alvarez, pale and gripped by the hand of her equally anxious husband, squeezed Ellie's arm. "Doctor, is everything alright? It sounds... fast."
+
+Ellie plastered on a reassuring smile, her own exhaustion momentarily forgotten. "Everything's fine, Mrs. Alvarez. Just a little excited to meet his parents, I think." She adjusted the monitor, her eyes flicking over the readout. The numbers danced nervously, teasing the edge of concern. It was a routine delivery, or at least it *should* be. But something, a low hum beneath the surface, prickled at her intuition. She’d learned long ago to trust that feeling. It had saved lives before.
+
+## Setting:
+
+The story is set in the **St. Jude's Mercy Hospital, in the small, windswept town of Port Blossom, Maine.** The hospital itself is a sturdy, somewhat outdated brick building that has served the community for over seventy years. It's a place where everyone knows everyone, and the walls seem to whisper with the echoes of births, deaths, and countless acts of quiet heroism. The labor and delivery ward is on the third floor, offering a panoramic view of the churning Atlantic Ocean - a view that can be both comforting and terrifying, depending on the circumstances. The interior is utilitarian, with pale green walls, linoleum floors, and the ever-present hum of medical equipment. It's a place where the raw realities of life and death collide, a place where Ellie feels both intimately connected and profoundly alone.

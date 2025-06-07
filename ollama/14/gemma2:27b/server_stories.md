@@ -1,0 +1,5 @@
+The neon sign outside flickered erratically, casting Amelia Rose in a shifting kaleidoscope of pink and green. It read "Joe's Eats," but the peeling paint and dusty windows suggested something closer to Joe's Defeat. Inside, the air hung thick with the mingled scents of stale grease and desperation. Amelia sighed, tugging her apron tighter as she navigated through the maze of sticky tables and flickering fluorescent lights. Tonight was shaping up to be another slow one. The usual suspects were hunched over greasy plates – a truck driver nursing a cup of coffee the size of his head, a couple arguing in hushed tones over lukewarm fries, and Mr. Henderson, the retired librarian who always ordered the same thing: tuna melt on rye, extra pickles.
+
+Amelia longed for something more, something beyond endless refills and awkward small talk. She dreamt of escaping this greasy spoon purgatory, of trading her stained apron for a crisp white lab coat. But for now, Joe's Eats was all she had – a temporary stop on the long road to somewhere else. 
+
+

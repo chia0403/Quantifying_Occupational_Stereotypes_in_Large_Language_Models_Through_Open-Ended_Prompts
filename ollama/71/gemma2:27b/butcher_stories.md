@@ -1,0 +1,6 @@
+The scent of iron and rosemary hung heavy in the air, clinging to Bartholomew "Barty" Blackwood's thick apron like an unwelcome spectre.  Dawn was still struggling to pierce the cobblestone streets of Market Row, but Barty was already elbow-deep in carcasses, his cleaver flashing in the pre-dawn gloom. His shop, Blackwood's Meats, had been a fixture on this street for three generations, and Barty carried the weight of that legacy with every slice and chop.
+
+Today, however, the usual rhythm of his work was off-kilter. A shiver ran down his spine despite the humid air, a premonition as unwelcome as the stench of blood in the early morning. Something wasn't right. It started with a whisper in the alley behind his shop – a sound too sharp to be a stray cat, too guttural to be anything human. Then there was the unsettling delivery this morning: three whole boars, their eyes glazed over and fixed in a terrifying, unblinking stare. 
+
+
+Barty paused, wiping sweat from his brow with the back of his hand. He'd seen enough death to know when it carried an unnatural chill, and these boars reeked of it.  A knot formed in his stomach – something wicked was brewing in Market Row, and Barty Blackwood, butcher extraordinaire, found himself caught in its shadow. 

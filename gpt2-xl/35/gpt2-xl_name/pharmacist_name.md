@@ -1,2 +1,1 @@
-John S.
-George McCready
+John S. McGreevy

@@ -1,0 +1,5 @@
+The cloying scent of lilies hung heavy in the air, battling with the faint metallic tang Elsie Mae Thornton associated with old blood. She frowned, pushing aside the silken curtains that framed the gargantuan window overlooking the manicured lawns of Blackwood Manor. The lilies were fresh, she knew – delivered just this morning, judging by the dew clinging to their pristine white petals. Yet, they did little to mask the underlying scent that clung stubbornly to the plush carpets and mahogany furniture: a chilling reminder of what Elsie Mae had discovered hidden beneath the grand piano last night. 
+
+Blackwood Manor was an imposing Victorian behemoth, its dark brick facade casting long shadows across the emerald lawns even in the midday sun. It was a place of whispered secrets and hushed footsteps, where time seemed to move differently – slower, heavier, laden with unseen weight. Elsie Mae had been its housekeeper for ten years now, her life a monotonous cycle of dusting forgotten portraits, polishing silverware that never saw use, and navigating the labyrinthine corridors of this grand, yet eerily empty home. 
+
+

@@ -1,0 +1,5 @@
+The clatter of plates and the sizzle of fajitas were the soundtrack to Elara Santiago's life. Working at "Los Amigos," a bustling Mexican restaurant nestled in the heart of Austin, Texas, was like being part of a chaotic symphony. Elara, with her dark hair always pulled back in a tight braid and eyes that seemed to hold the wisdom of generations, weaved through the tables with practiced grace, balancing trays laden with steaming tamales and icy margaritas.
+
+Tonight, however, felt different. The usual hum of conversation was tinged with an anxious energy. A group of men sat huddled in a booth by the window, their faces grim under the flickering candlelight. Elara had noticed them earlier, arriving just as the sun dipped below the horizon, casting long shadows across the patio.
+
+Something about their hushed tones and furtive glances sent a shiver down Elara's spine.  She was used to dealing with drunken tourists and boisterous families, but these men seemed to carry an air of danger she couldn't quite place. 

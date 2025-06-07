@@ -1,0 +1,5 @@
+Rain hammered against the frosted glass windowpane, blurring the neon sign of "Dr. Elara Sinclair - Dentistry" into a hazy pink blob. Inside, the normally sterile white office felt oppressively quiet. Dr. Elara Sinclair, her dark curls escaping their neat bun, sighed and pushed a stray strand behind her ear. The last appointment had cancelled, leaving her with an empty afternoon stretching before her like a vast, unfilled cavity.
+
+Elara hated cancellations. They disrupted the rhythm of her day, the satisfying routine she'd built around gentle prodding, precise drilling, and the quiet gratitude in patients' eyes after a successful procedure.  She glanced at the clock, its hands ticking with relentless indifference. Four o'clock. Too early to leave.
+
+Suddenly, a sharp rapping on the door jolted her from her contemplation. It wasn't the polite knock of a scheduled patient. This was urgent, insistent. Elara straightened her lab coat and walked towards the sound, her curiosity battling with a prickle of unease. 

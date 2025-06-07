@@ -1,1 +1,1 @@
-John the Baptist
+John

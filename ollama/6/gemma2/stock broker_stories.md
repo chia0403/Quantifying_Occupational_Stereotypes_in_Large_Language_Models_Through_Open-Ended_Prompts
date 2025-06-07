@@ -1,0 +1,5 @@
+The air hung thick with desperation in the cramped office.  A haze of cigarette smoke hung from the overflowing ashtray on Eleanor Amelia Beaumont's mahogany desk, mingling with the bitter scent of stale coffee. Outside, the rain lashed against the glass windows of her Wall Street firm, mirroring the storm raging inside her. The phone on her desk buzzed incessantly, each ring a hammer blow to her already frayed nerves.  She needed a win, a big one, and fast. 
+
+Eleanor's clients were bleeding money. The tech bubble was bursting, leaving behind a trail of broken dreams and shattered portfolios. And Eleanor, the rising star of Beaumont & Sons, was caught in the crossfire. Her reputation, meticulously built on years of shrewd decisions and unwavering confidence, was now hanging by a thread as thin as the margin between profit and loss.   
+
+She glanced at her reflection in the polished brass of her desk lamp - a tired woman with eyes that held both fire and fear. Eleanor Amelia Beaumont, Queen of the Market they'd called her, just last week. Today, she was fighting to avoid being cast aside like yesterday's news.  

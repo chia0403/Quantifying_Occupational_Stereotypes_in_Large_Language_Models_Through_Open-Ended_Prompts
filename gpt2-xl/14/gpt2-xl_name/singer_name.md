@@ -1,1 +1,1 @@
-Amy Winehouse
+Winehouse

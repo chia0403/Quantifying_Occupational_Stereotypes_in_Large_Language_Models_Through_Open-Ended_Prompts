@@ -1,0 +1,5 @@
+The asphalt shimmered under the relentless August sun, radiating heat that warped the air above it.  Dust devils danced along the shoulder of Highway 17, their ghostly forms mocking Elias "Eli" Hawthorne's sweat-soaked brow. Eli wiped his forehead with the back of a calloused hand, leaving a streak of grime across his tanned skin. He squinted at the road ahead, where the yellow lines blurred into an undulating mirage. Another mile, maybe two, and he'd reach the rest stop for his lunch break.  
+
+Eli was a man built for this job: broad-shouldered, with thick forearms that could wrestle a broken jackhammer back to life. He wore the grime of the road like a second skin, the smell of diesel and tar clinging to him even after a shower. Today's task – patching potholes on this desolate stretch of highway – was no different than the countless others he'd tackled over his twenty years with the state transportation department. Yet, today felt different.  A restlessness gnawed at Eli, a sense that something unexpected was brewing just beyond the horizon line. 
+
+

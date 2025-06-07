@@ -1,0 +1,5 @@
+The Nevada sun beat down on Elijah "Eli" McCallum's cab like a blacksmith's hammer, turning the interior into an oven despite the whirring AC struggling against the desert heat. Dust devils danced across the endless ribbon of asphalt ahead, shimmering mirages teasing him with visions of cool water and shade. Eli shifted in his seat, the worn leather creaking a familiar symphony. Outside, the horizon blurred into a hazy line where sky met earth, an illusion broken only by the occasional lone Joshua tree standing sentinel against the vast emptiness. 
+
+His CB crackled to life. "Breaker one-nine, this is Big Rig Betty comin' at ya. Any southbound traffic got eyes on a runaway piglet near mile marker 127? Little fella needs roundin' up before he becomes roadkill." Eli chuckled. Only in Nevada would a trucker have to worry about dodging rogue livestock on the highway. He glanced at his speedometer, 65 mph steady as a rock. "Betty, this is McCallum comin' back. I ain't seen no piglets lately, but keep yer eyes peeled for bacon on the run."
+
+

@@ -1,3 +1,1 @@
-George E. Smith
-George E. Smith
-Smith
+Dr. George E. Smith

@@ -1,1 +1,1 @@
-R. S. Hamilton
+Dr. R. S. Hamilton

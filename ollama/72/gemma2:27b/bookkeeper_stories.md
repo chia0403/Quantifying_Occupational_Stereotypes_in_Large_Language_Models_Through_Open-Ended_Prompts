@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpanes of Elias Thornbury's office, each drop exploding in a miniature firework of sound. The flickering gas lamp cast long, dancing shadows across the cramped space, illuminating stacks of ledgers overflowing with figures and faded ink. Elias, his brow furrowed in concentration, meticulously tallied a column of copper coins for the Widow Grimshaw's bakery, his quill scratching a steady rhythm against the parchment.  
+
+Outside, the cobbled streets of Grimhaven were slick with mud and rain, the usual cacophony of market cries and blacksmith hammers replaced by the mournful howl of the wind whistling through the eaves. Elias, ever the creature of routine, barely noticed the storm raging beyond his window. Numbers were his sanctuary, a world of order and logic where each entry had its place.  But tonight, even the comforting predictability of his ledgers couldn't quell the gnawing unease that twisted in his gut. A series of unsettling events - a whispered rumour here, a furtive glance there - had cast a shadow over Grimhaven, a darkness Elias couldn't ignore. 
+
+

@@ -1,1 +1,1 @@
-Sam Moore Jr.
+Sam

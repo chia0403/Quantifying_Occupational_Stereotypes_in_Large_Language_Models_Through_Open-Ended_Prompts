@@ -1,1 +1,1 @@
-Larry Osbourne
+Larry "Ozzy" Osbourne

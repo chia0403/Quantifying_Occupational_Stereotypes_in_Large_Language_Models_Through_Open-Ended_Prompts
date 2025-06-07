@@ -1,0 +1,6 @@
+The neon glow of the "Big Rig Diner" cast an oily sheen across Dalton Hayes' weathered face as he stared out the window. Rain lashed against the glass, blurring the world outside into streaks of grey and crimson. He sighed, the sound lost in the clatter of cutlery and the low hum of conversation filling the diner. Dalton had been on the road for three weeks straight, hauling a load of lumber from Maine to California. The endless miles were starting to wear on him, each rest stop blurring into the next, each greasy spoon meal tasting the same. 
+
+He took a swig of lukewarm coffee, the bitterness a familiar comfort.  His CB radio crackled with static, interspersed with snatches of trucker chatter. Dalton tuned it out, his mind drifting back to his daughter's graduation ceremony. He hadn’t been there, stuck on the road as usual. A pang of guilt twisted in his gut. This life was all he knew, but sometimes, he wondered if it was worth sacrificing everything for. 
+
+
+The diner door chimed open, ushering in a gust of wind and rain. Dalton glanced up to see a woman silhouetted against the fluorescent lights, her figure small and slender beneath a rain-soaked trench coat. He couldn't see her face, but there was something about her that drew his attention, a sense of mystery that cut through the weariness he felt. 

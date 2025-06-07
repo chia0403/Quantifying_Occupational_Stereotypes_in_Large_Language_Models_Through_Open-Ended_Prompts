@@ -1,1 +1,1 @@
-J Gordon Liddy
+Dr. J. Gordon Liddy

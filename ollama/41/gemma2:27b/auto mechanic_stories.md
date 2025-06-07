@@ -1,0 +1,5 @@
+The greasy air hung thick in the cramped garage, punctuated by the sharp clang of wrenches and the insistent hiss of compressed air.  Sunlight, filtered through grimy windows, painted stripes across the dusty concrete floor where Amelia "Amy" Russo wrestled with a stubborn carburetor. Sweat beaded on her forehead, mixing with the grime already staining her cheeks. Her calloused fingers, stained with oil and engine grease, tightened around the wrench as she fought to loosen a rusted bolt. 
+
+Amy's garage, tucked away on a forgotten side street in the heart of Chicago, was a sanctuary.  Surrounded by disassembled engines, stacks of tires, and the comforting aroma of gasoline, she felt truly at home. It wasn't glamorous, but it was hers - a testament to her grit, determination, and an unwavering love for anything with an engine.  Today, however, her usual zen was disrupted. A sleek black car sat in bay two, its polished exterior gleaming under the fluorescent lights. A car unlike any she had ever seen before, and one that carried a mystery far heavier than any faulty carburetor. 
+
+

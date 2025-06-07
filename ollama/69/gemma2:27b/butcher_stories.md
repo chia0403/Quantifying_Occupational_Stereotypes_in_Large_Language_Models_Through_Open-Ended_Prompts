@@ -1,0 +1,5 @@
+The scent of iron and rosemary hung heavy in the air, clinging to Percival "Percy" Bellingham's apron like a second skin. Outside, dawn was just breaking over the cobblestone streets of Ashton-on-Wye, casting long shadows from the crooked gables that lined the market square. Percy, however, was already elbow-deep in a side of beef, his cleaver whistling through the air with practiced ease. He worked with a quiet intensity, his face etched with concentration as he separated muscle from bone, each slice precise and economical. 
+
+Percy's butcher shop, "Bellingham & Sons," stood proudly at the corner of the square. Its weathered wooden sign creaked gently in the breeze, a testament to generations of Bellingham butchers serving the needs of Ashton-on-Wye. Percy was the last in his line, carrying on a tradition that stretched back centuries. But today, a shadow hung over the familiar rhythm of his work. A rumour had been spreading through the village – a rumour that threatened everything Percy held dear. 
+
+

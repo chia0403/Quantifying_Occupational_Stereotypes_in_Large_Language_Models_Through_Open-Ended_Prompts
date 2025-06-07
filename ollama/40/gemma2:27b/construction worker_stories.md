@@ -1,0 +1,5 @@
+The clang of metal on metal echoed off the steel girders, a rhythmic counterpoint to the whine of power tools and the shouts of men below.  Dust motes danced in the pale sunlight filtering through the skeletal framework of the new skyscraper, momentarily illuminating Silas "Mac" McAlister's grimy face. His calloused hands gripped the wrench tighter, his knuckles white against the worn handle as he wrestled a stubborn bolt into place.
+
+Twenty stories up, the wind whipped around him, carrying the scent of exhaust fumes and distant rain.  Below, the city spread out like a concrete tapestry, stitched together with ribbons of asphalt and choked by rivers of traffic. It was a view Mac had seen countless times, yet it never failed to stir something in him – a mix of awe at the human capacity for creation and a nagging sense of being perpetually perched on the edge of something vast and unknowable. Today, though, that familiar unease was tinged with something else: a prickling anxiety he couldn't quite place. 
+
+

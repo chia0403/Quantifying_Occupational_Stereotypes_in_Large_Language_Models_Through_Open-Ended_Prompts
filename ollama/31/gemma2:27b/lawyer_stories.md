@@ -1,0 +1,5 @@
+Rain lashed against the windows of Alistair Blackwood's office, mimicking the storm raging within him. The mahogany desk gleamed under the single, flickering lamp, reflecting his grim expression as he stared at the file in front of him. It contained everything: witness testimonies riddled with inconsistencies, forensic evidence pointing in multiple directions, and a client – young, terrified, and insisting on her innocence – who Alistair knew was walking straight into a legal nightmare.
+
+The city outside, usually vibrant with the hum of life, felt suffocatingly still. Alistair's office, perched on the 27th floor overlooking the rain-slicked cityscape, was his sanctuary, a haven from the chaos he dealt with daily. But tonight, even the familiar comfort of leather chairs and book-lined shelves couldn’t soothe his unease. He had taken on countless cases in his decade as a defense attorney, but this one felt different. This wasn't just about proving innocence; it was about facing a truth that could shatter everything he believed in. 
+
+

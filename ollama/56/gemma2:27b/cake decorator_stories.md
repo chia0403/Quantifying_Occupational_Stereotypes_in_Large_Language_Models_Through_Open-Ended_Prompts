@@ -1,0 +1,5 @@
+The insistent buzz of the bakery door announced yet another customer, pulling Eloise Bernadette Dubois from her sugary reverie. Flour dusted her apron, the scent of vanilla lingered in her hair, and a half-finished buttercream rose perched precariously on her workbench. She sighed, wiping her hands on a tea towel, already anticipating the inevitable request for something "simple" but "elegant," preferably done within the next hour. Eloise's tiny bakery, nestled on a quiet cobblestone street in Montmartre, Paris, was known for its exquisite custom cakes, each one a miniature work of art.
+
+But today, Eloise felt a flicker of impatience. The morning sun streamed through the arched window, illuminating the array of pastel-colored frosting bowls and the gleaming silver tools that were her instruments of creation. She yearned to lose herself in the intricate details of a multi-tiered wedding cake, adorned with cascading sugar flowers and delicate filigree work. Instead, she was bracing for another onslaught of "Happy Birthday" scrawls on vanilla sponge cakes. 
+
+

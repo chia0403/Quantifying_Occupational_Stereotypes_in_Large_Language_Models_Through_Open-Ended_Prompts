@@ -1,2 +1,1 @@
 Richard Ritchie
-Rebecca Ritchie

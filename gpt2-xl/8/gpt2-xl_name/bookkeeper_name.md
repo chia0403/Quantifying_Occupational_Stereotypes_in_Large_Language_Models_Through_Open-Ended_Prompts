@@ -1,2 +1,1 @@
 Walter Scott
-Walter Scott

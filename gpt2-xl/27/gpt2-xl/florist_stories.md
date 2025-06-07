@@ -1,0 +1,7 @@
+Once upon a time, there was a florist named Carol Ann Henningson who worked at a little shop in North Charleston, South Carolina. They only made and sold products related to blooming of flowers. But when a stormy day fell on Carol's day off, her husband, Bill, went in and saw that flowers were all damaged. Bill said that the flower shop is closed and that is why they are asking the people whether there is a place for them to go to pick their own flowers. They took some of the damaged flowers, repaired the place and had some customers come there to pick their own flowers.
+
+Carol is a real sweet heart so she decided to stay and help other flower shops. She got in great shape and started a company to sell plants to people and also to sell the plants back to the people who bought them. She eventually became a successful person and a major philanthropist who was well known for her generosity and is still one of the most well known florists in the business world.
+
+Carol's Story and How She Started Her Flower Shop and Started the Flower Business
+
+Carol Ann Henningson has been involved with flowers and flowers related industries since the 20s. Her husband Bill died when she was young so she and her six younger brothers took care of everything. Carol and her siblings were self-taught flower makers and it wasn't until Carol's sister, Peggy, told her that florists were

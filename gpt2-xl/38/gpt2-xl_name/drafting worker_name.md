@@ -1,3 +1,1 @@
-Tim Drake
-Ethan
 Tim

@@ -1,0 +1,5 @@
+The Nevada sun beat down on Elias "Eli" Cartwright's weathered neck as he surveyed the endless ribbon of asphalt stretching before him. The air shimmered with heat, making the distant mesas dance like mirages.  Eli squinted, wiping a sheen of sweat from his brow with a calloused hand. Around him, the usual symphony of highway work – grinding machinery, shouted orders, the thrumming bass of passing semis – played out under the relentless blue sky. But today, something felt different. A knot of unease tightened in Eli's gut, an instinctive feeling that he couldn't quite place. 
+
+He glanced at the mile marker: 247. It was a desolate stretch, miles from any town or gas station. Just endless desert scrub and the occasional hawk circling high above. Eli had worked this section of Highway 95 for years, patching potholes and replacing guardrails, always acutely aware of the solitude that came with the job. But today, the silence seemed heavier, punctuated by a strange rustling sound coming from the thickets bordering the road.
+
+

@@ -1,0 +1,5 @@
+The air in Eloise Beaumont's studio apartment hung thick with the scent of jasmine and sawdust, a peculiar but delightful combination that perfectly captured her essence: delicate yet driven. Outside, Manhattan throbbed with its usual frenetic energy, car horns blaring symphonies of discontent, sirens wailing mournful melodies. But within the cocoon of her fourth-floor walk-up, Eloise was oblivious. She hunched over a mahogany table, meticulously sketching out plans for Mrs. Van Derlyn's Upper East Side townhouse.
+
+The late afternoon sunlight slanted through the dusty windowpanes, illuminating the chaotic beauty of Eloise's workspace: rolls of vibrant fabrics spilling from antique trunks, stacks of design magazines threatening to topple, and an overflowing toolbox crammed with everything from vintage thimbles to power drills. This was her sanctuary, a space where imagination reigned supreme, and Eloise could transform mere houses into homes, imbuing them with the stories and dreams of their inhabitants. 
+
+

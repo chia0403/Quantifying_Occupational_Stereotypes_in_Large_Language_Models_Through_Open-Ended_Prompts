@@ -1,2 +1,1 @@
-James Thompson
-David Carabini
+James

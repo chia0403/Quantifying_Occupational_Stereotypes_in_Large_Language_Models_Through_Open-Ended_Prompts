@@ -1,0 +1,6 @@
+The scent of vanilla and burnt sugar hung heavy in the air, a familiar comfort to Amelia Rose Hawthorne as she surveyed her latest creation: a three-tiered masterpiece adorned with hand-piped roses and delicate sugar pearls. It was meant to be a princess wedding cake, fit for a fairy tale, but Amelia's own life felt more like a panicky scramble at times.  
+
+Amelia worked in "Sweet Surrender," a small bakery nestled on a quiet street in the heart of Charleston, South Carolina. The quaint brick building, with its peeling paint and blooming jasmine vines, was a haven from the hustle and bustle of the city just beyond its doorstep. Inside, sunlight streamed through the dusty windows, illuminating shelves lined with jars of colorful sprinkles, bags of flour, and antique cake molds. It was a symphony of sugar and spice, where dreams were baked and birthdays celebrated. 
+
+
+Amelia sighed, smoothing down the ruffled apron that hung around her waist. Today was the day of the wedding, and despite hours spent perfecting every detail, a knot of anxiety tightened in her stomach. She was known for her whimsical creations, but this cake felt different. It held the weight of expectations, the pressure to create something truly magical.  

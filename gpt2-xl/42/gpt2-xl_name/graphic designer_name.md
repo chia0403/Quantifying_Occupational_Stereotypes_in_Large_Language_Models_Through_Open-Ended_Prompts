@@ -1,2 +1,1 @@
 Jon Schnepp
-Paul Debevec

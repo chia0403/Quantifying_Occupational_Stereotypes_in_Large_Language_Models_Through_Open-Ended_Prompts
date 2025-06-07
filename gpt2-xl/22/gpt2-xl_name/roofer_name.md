@@ -1,1 +1,1 @@
-Ed Sizemore
+Ed "Ned" Sizemore

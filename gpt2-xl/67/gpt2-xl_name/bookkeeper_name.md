@@ -1,2 +1,1 @@
-Biddle
-John Biddle
+Mr. Biddle

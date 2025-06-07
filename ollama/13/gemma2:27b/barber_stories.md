@@ -1,0 +1,4 @@
+The rusted bell above the door chimed a weary clang as Elijah "Eli" Bartholomew straightened his spectacles and peered at the man stepping in from the rain-swept street. Eli’s shop, nestled on a forgotten corner of Elm Street, was a sanctuary of old-world charm.  Dark mahogany chairs gleamed under the warm glow of gas lamps, the air thick with the familiar scent of bay rum and talcum powder. Outside, the city grumbled under a bruised sky, but inside, Eli’s world was one of sharp scissors, steady hands, and whispered stories shared between barber and patron.
+
+
+Eli smoothed down his apron, a smile crinkling the corners of his eyes. "Welcome in, sir," he said, his voice gravelly yet welcoming. "Take a seat and let me warm you up."  The man hesitated for a moment, his gaze sweeping over the shop before settling on Eli. He was tall and gaunt, with shadows etched beneath weary eyes. He finally nodded, walking towards one of the empty chairs as if navigating through fog.

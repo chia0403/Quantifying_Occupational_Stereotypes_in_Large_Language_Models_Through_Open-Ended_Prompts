@@ -1,0 +1,6 @@
+The scent of lilies hung thick in the air, mingling with the earthy perfume of pine needles from the nearby forest.  Rain lashed against the glass doors of "Petal & Thorn", blurring the streetlights outside into an impressionistic dance of red and yellow. Inside, Amelia Hawthorne's hands worked deftly, shaping a cascade of deep crimson roses. The florist was renowned for her dramatic arrangements, each one a symphony of color and texture that seemed to capture the very essence of the soul.  Amelia's small shop on Willow Street had been a haven for local brides seeking something unconventional in their bouquets, and for regulars who enjoyed an afternoon tea with a bouquet of fragrant lilies.
+
+But today was different. 
+The usual quiet hum of the shop was replaced by an unsettling silence. Amelia’s heart pounded against her ribs as she adjusted the vase on the counter; each detail of her creation seemed to be echoing a hidden dread in her gut. She looked at the clock: 3:15 pm.  Her eyes narrowed, and she knew something was amiss. A sudden chill settled over the shop, and the air grew heavy with an unspoken foreboding. The rain outside had ceased, leaving a stillness as thick as grief.
+
+

@@ -1,0 +1,5 @@
+The insistent chirping of the heart monitor cut through Elara Marie Sinclair’s daydreams like a scalpel.  She jolted upright in her chair, the worn leather protesting with a tired squeak. A familiar pang of guilt stabbed her chest – she'd drifted off again, lulled by the rhythmic beeping and the stale scent of disinfectant that permeated every corner of St. Jude’s Medical Ward.
+
+Elara sighed, pushing back stray strands of dark hair from her forehead. The fluorescent lights buzzed overhead, casting a sickly yellow glow over the room filled with rows of beds occupied by patients in various stages of recovery.  Outside, the city pulsed with life, oblivious to the quiet drama unfolding within these walls. Elara's gaze fell on Mr. Henderson in bed three – his chest rose and fell in shallow breaths, his face pale and drawn. He was fighting a losing battle against pneumonia, and Elara knew it. Yet, she clung to the sliver of hope that flickered within her, refusing to concede defeat until the very last moment. 
+
+

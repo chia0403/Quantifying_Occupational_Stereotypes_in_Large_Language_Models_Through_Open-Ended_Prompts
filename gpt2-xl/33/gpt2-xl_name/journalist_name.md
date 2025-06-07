@@ -1,2 +1,1 @@
 Gary Webb
-David Remnick

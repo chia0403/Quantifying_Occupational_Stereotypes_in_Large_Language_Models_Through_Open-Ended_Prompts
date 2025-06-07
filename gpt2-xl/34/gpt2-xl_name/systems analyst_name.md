@@ -1,2 +1,1 @@
-George H.W. Bush
-George W. Bush
+George H.W.

@@ -1,0 +1,5 @@
+The air in Mercy Hospital's lab hung thick with the scent of antiseptic and anxiety. Fluorescent lights buzzed overhead, casting a sterile glow on the stainless steel counters cluttered with tubes, needles, and requisition forms.  Eliza Marie Thornton, a woman whose gentle demeanor belied her unwavering focus, adjusted her stethoscope and glanced at the clock. 7:12 AM. The early morning rush was about to begin.
+
+Eliza wasn't just any phlebotomist. Her practiced hands, nimble and precise, could locate a vein in the darkest depths of a patient's arm. She treated each draw with reverence, understanding that within those tiny vials flowed not only blood, but stories - whispers of illness, resilience, and hope. Today, however, something felt different. An unsettling prickle danced along Eliza's spine, a premonition she couldn't quite decipher.
+
+As the first wave of patients shuffled in, their faces etched with worry and anticipation, Eliza braced herself for whatever the day might bring.  Little did she know that this seemingly ordinary Tuesday would unravel into a series of unnerving events, leading her down a rabbit hole she never anticipated venturing into. 

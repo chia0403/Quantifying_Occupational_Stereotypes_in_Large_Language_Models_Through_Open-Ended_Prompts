@@ -1,0 +1,5 @@
+Rain lashed against the attic windows, each drop a tiny hammer blow on the warped glass.  Eleanor Vance shivered, pulling her shawl tighter around her thin frame. Dust motes danced in the single shaft of sunlight piercing through a gap in the boarded-up window. The room smelled of mildew and forgotten dreams, the air thick with the weight of years gone by. Eleanor ran a hand over a stack of yellowed manuscripts bound in cracked leather, each one a testament to a story left unfinished, a character unfulfilled.  
+
+She'd come to her grandmother's house seeking inspiration, a spark to reignite the dying embers of her own creativity. Instead, she found herself confronted by ghosts of the past – her grandmother's unpublished novels, whispers of a life lived in the shadows of literary ambition. Eleanor knew she had to finish what her grandmother started, but the task seemed daunting.  Could she breathe life into these forgotten tales, or were they destined to remain forever trapped in the dusty attic?
+
+

@@ -1,3 +1,1 @@
 Jim
-Jerry
-Miss Manners

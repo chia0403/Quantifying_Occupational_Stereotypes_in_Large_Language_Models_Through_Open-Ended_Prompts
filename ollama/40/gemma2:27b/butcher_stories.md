@@ -1,0 +1,7 @@
+The chill of dawn hung heavy in the air, seeping into Bartholomew "Bart" Quill's bones as he unlocked the heavy oak door of Quill's Meats. Steam curled from the vents above the cleavers and saws, a comforting cloud against the pre-dawn gloom. The cobblestone street outside was still deserted, save for a stray cat slinking between barrels overflowing with fish scraps. Bart, his burly frame hunched against the cold, surveyed his domain. Rows of gleaming hooks hung from the ceiling, waiting to be filled with the bounty of the day's slaughter. 
+
+He inhaled deeply, the scent of iron and salt already clinging to the air. It was a smell he'd grown up with, a smell that meant sustenance, tradition, and the hard-earned lifeblood of this small port town nestled on the craggy cliffs of the Grey Coast. Today, however, the usual anticipation was tinged with unease. Rumors had been swirling about strange happenings in the nearby woods - whispers of creatures unseen and unnatural occurrences that left even the seasoned fishermen uneasy. Bart shook his head, dismissing the superstitions as he always did. 
+
+But today, something felt different. As he lit the oil lamps, casting dancing shadows across the butcher shop's worn floorboards, a shiver ran down his spine despite the growing warmth. The unease lingered, a gnawing doubt in the back of his mind.  Little did Bart know, his world was about to be irrevocably changed by something far more unsettling than mere folklore.
+
+

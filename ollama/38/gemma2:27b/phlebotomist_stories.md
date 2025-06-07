@@ -1,0 +1,5 @@
+Rain lashed against the windows of Mercy General Hospital, blurring the neon "Emergency" sign into a chaotic smear of color. Inside, Amelia Rose Cartwright meticulously wiped down the countertop in the lab, her movements precise and practiced. The air hummed with the low drone of refrigerators and centrifuges, punctuated by the occasional clatter of trays being wheeled past. It was 3 am, the witching hour when the hospital seemed to breathe a little easier, before the pre-dawn rush began. Amelia preferred these quiet hours. They allowed her to focus, to lose herself in the rhythm of drawing blood, separating samples, and labeling vials with neat, meticulous strokes.  
+
+Tonight, however, something felt different. A prickle of unease danced on her skin, a feeling intensified by the eerie silence that had descended upon the lab. Even the usually omnipresent hum seemed muted, as if holding its breath. As she reached for a fresh vial, the door swung open with a groan, revealing a figure shrouded in shadow. 
+
+

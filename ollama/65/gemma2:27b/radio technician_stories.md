@@ -1,0 +1,5 @@
+The whine of static filled Amelia "Amy" Chen's ears, punctuated by the occasional burst of distorted music. She squinted at the ancient tube radio on her workbench, its wooden casing scratched and chipped like an old fighter plane. Dust motes danced in the shaft of sunlight slicing through the dusty windowpane of her cramped workshop.  The smell of solder and burnt transistors hung heavy in the air. Outside, rain lashed against the corrugated iron roof, a steady drumbeat accompanying Amy's frustration. 
+
+She was on the verge of giving up. This blasted Zenith console, a relic from the golden age of radio, had been refusing to cooperate for weeks. Its owner, an elderly gentleman named Mr. Henderson, swore it held recordings of his late wife's voice, lost to time and neglect. Amy, ever the pragmatist, knew the chances of salvaging those recordings were slim. But something about the wistful hope in Mr. Henderson's eyes kept her tinkering, pushing against the limits of her own expertise. 
+
+

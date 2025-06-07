@@ -1,0 +1,4 @@
+The rusted gate groaned like an old man complaining about his joints as Silas Bartholomew Blackwood heaved it open.  Morning mist clung to the manicured lawns of Blackwood Manor, obscuring the ornate statues and twisting the ancient oak trees into spectral figures. Silas, in his threadbare overalls and mud-caked boots, was a stark contrast to the grandeur around him. He inhaled deeply, the crisp air carrying the scent of dew-kissed roses and damp earth. This place had been his world for fifty years -  a sprawling testament to generations past, now silent except for the chirping of unseen birds and the rhythmic tick of Silas's old grandfather clock, hidden away in the shed.
+
+
+Today, however, felt different. A prickle of unease ran down Silas’s spine as he surveyed the meticulously trimmed hedges. The roses seemed paler, their blooms drooping slightly. Even the normally vibrant koi fish in the pond swam listlessly beneath the surface. Something was amiss.  

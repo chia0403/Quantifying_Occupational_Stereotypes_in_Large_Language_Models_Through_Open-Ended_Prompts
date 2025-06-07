@@ -1,2 +1,1 @@
 Michael Wolff
-Steve McCurry

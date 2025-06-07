@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The rain poured down on the University of Edinburgh's historic campus like a relentless curtain, casting a gloomy shadow over the stone buildings and Gothic spires that seemed to pierce the grey sky like shards of splintered bone. Professor Emilia Helena Fothergill, a renowned expert in Renaissance literature and culture, stood at her window, gazing out at the sodden streets below as she sipped her lukewarm tea.
+
+As she watched, a narrow figure emerged from the mist-shrouded alleys, dodging pedestrians and cars with an air of purpose that belied the dreary weather. Emilia's eyes narrowed as she recognized the unmistakable stride of her former student, James Alexander MacTavish – now a rising star in his own right, having just landed a lucrative research grant to study the same medieval texts that had captivated Emilia for decades.
+
+The phone on her desk buzzed, shrill and insistent, breaking the spell of the rain-soaked afternoon. Emilia sighed, reluctantly turning away from the window as she picked up the receiver, wondering what news or trouble would be waiting for her in the form of a call from the university administration or, more likely, from someone who had heard rumors about her own future plans.

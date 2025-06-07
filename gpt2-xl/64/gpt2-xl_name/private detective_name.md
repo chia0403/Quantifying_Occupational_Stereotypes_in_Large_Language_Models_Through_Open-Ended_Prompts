@@ -1,2 +1,1 @@
 Joe Dombrowka
-Tom Smith

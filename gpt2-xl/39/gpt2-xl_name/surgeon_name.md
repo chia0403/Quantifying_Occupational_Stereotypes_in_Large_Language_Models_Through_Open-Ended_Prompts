@@ -1,2 +1,1 @@
 Robert O. Fox
-Fox

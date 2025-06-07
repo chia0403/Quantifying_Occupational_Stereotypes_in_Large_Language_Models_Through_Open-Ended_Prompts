@@ -1,0 +1,5 @@
+The Arizona sun beat down on Elias "Eli" Cruz's neck like a branding iron, turning his already-bronzed skin a shade darker. He squinted at the horizon, where the shimmering heat waves danced and distorted the distant saguaro cacti into wavering phantoms. Eli ran a calloused hand over his salt-and-pepper beard, wiping away a bead of sweat that threatened to sting his eye. The endless ribbon of asphalt stretched out before him, baking under the merciless sun. He'd spent the morning patching potholes along Highway 60, the constant drone of traffic a monotonous soundtrack to his solitary work.  
+
+Today was different though. A sense of unease prickled at Eli's skin, a feeling he couldn't quite place. The wind carried an unfamiliar scent – metallic, sharp, and tinged with something acrid, like burning rubber. It whispered through the creosote bushes, rustling their dry leaves and sending a shiver down his spine. He glanced nervously towards the shimmering haze in the distance, wondering if it was just the heat playing tricks on him.
+
+

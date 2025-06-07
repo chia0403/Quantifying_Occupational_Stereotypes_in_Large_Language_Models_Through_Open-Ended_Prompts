@@ -1,0 +1,5 @@
+The air hung thick with diesel fumes and the scent of sunbaked earth. Silas Blackwood squinted through the dusty windshield of his Caterpillar 349 excavator, watching as the foreman, a man built like a bulldog named Hank, gestured impatiently towards the yawning pit in front of him. The midday Arizona sun beat down mercilessly, turning the exposed rock face into a shimmering mirage. Silas sighed, ran a calloused hand through his greying beard, and cranked the engine to life. Another day, another mountain moved. 
+
+He expertly maneuvered the behemoth machine, its hydraulics groaning as he swung the massive bucket towards a towering boulder. Silas had been operating heavy equipment for over twenty years, starting out on backhoes and bulldozers before graduating to these monstrous excavators. He'd seen it all: sprawling housing developments rising from barren plains, highways carved through mountainsides, and entire landscapes reshaped by his skilled hands. But today, he felt a familiar ache in his back and shoulders, a reminder that even the strongest steel eventually rusts.  
+
+

@@ -1,0 +1,5 @@
+Rain lashed against the windows of Dr. Evelyn Rosalind Price's office, mimicking the storm brewing inside her own chest. The sterile white walls seemed to close in, amplifying the nervous tremor in her hands.  She'd been at Hawthorne Middle School for five years, helping students navigate the choppy waters of adolescence. Yet, today felt different. Today, she was facing a case unlike any other - the disappearance of 13-year-old Liam O’Connell.
+
+Liam wasn't just another student. He was bright, quiet, and possessed an uncanny ability to draw intricate fantasy worlds in his notebook. Evelyn had spent countless hours with him, helping him cope with the recent loss of his mother. Now, Liam was gone, vanished without a trace, leaving behind only a half-finished drawing depicting a mythical dragon soaring above a storm-wracked city.  
+
+The faint scent of old paper and crayons hung in the air, a haunting reminder of Liam's absence. Evelyn stared at the drawing, its unfinished lines mirroring the gaping hole Liam’s disappearance had left in her heart. 

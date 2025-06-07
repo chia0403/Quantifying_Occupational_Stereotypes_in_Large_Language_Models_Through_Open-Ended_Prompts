@@ -1,0 +1,5 @@
+The Nevada sun beat down on Elijah "Eli" Cartwright's neck, turning his collar red despite the sweat-soaked bandana tied around his head. He squinted at the endless ribbon of asphalt shimmering before him, the heat rising in waves off the pavement. Around him, the vast emptiness of the Mojave Desert stretched, punctuated only by scrubby Joshua trees and the occasional weathered billboard advertising a long-gone roadside attraction. Eli gripped the handle of his jackhammer tighter, the vibration humming through his bones as he chipped away at the cracked concrete shoulder.
+
+He'd been working this stretch of Highway 95 for months, patching potholes, repaving worn sections, and battling the relentless desert elements. It wasn't glamorous work, but it was honest, and Eli took pride in keeping these lonely roads passable for the weary travelers who traversed them. Today, however, a strange sense of unease gnawed at him. The wind seemed to whisper through the Joshua trees with an unnatural urgency, and even the vultures circling overhead appeared agitated. He couldn't shake the feeling that something was amiss, something beyond the usual desert weirdness.
+
+

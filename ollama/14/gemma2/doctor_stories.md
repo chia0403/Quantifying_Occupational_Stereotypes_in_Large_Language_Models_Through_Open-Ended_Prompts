@@ -1,0 +1,5 @@
+The insistent hum of the MRI machine was the soundtrack to Dr. Eleanor Vance's morning. Her office, typically a haven of calming blues and soft sunlight filtering through sheer curtains, felt sterile and metallic under the fluorescent glare of the medical wing. Eleanor tapped her pen against her notepad, eyes fixed on the swirling patterns projected onto the patient's brain scans. 
+
+A young woman, no older than twenty-two, lay strapped to the table, her face pale beneath a veil of hair damp with sweat. Her breathing was shallow and erratic. This wasn't just another routine scan; this was Sarah, Eleanor's daughter, her entire world suddenly compressed into this metal tube humming its insistent symphony.  
+
+The hospital, usually bustling with life and activity, felt oppressive today. The air hung heavy with the scent of antiseptic and fear. Each beep from the heart monitor sounded like a hammer blow against Eleanor's chest, a constant reminder of the fragility of life, especially her own daughter's. 

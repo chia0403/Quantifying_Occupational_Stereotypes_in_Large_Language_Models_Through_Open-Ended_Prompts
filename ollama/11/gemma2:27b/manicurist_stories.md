@@ -1,0 +1,5 @@
+The neon sign outside buzzed erratically, casting a sickly green glow across Amelia Rose Hawthorne's tired face. It read "Nails by Amy," a hopeful moniker that felt increasingly ironic given the state of her salon. Three chipped chairs sat in forlorn silence beneath dusty pendant lights, each reflecting the emptiness that echoed through the small space. A lone bottle of iridescent glitter polish sat perched precariously on a cluttered counter, its sparkle dulled by years of neglect. Amelia sighed, the sound swallowed whole by the oppressive stillness. The bell above the door chimed unexpectedly, jolting her upright.
+
+A gust of wind whipped in, carrying with it the scent of rain and something else...something spicy and unfamiliar. A young woman stood hesitantly on the threshold, her face obscured by the shadows cast by her wide-brimmed hat. Amelia straightened her floral apron and forced a smile. "Welcome to Nails by Amy," she chirped, hoping her voice didn't betray the tremor of nerves that coursed through her. 
+
+

@@ -1,0 +1,6 @@
+The air hung heavy with the scent of caramelized onions and woodsmoke. Outside, a relentless November drizzle hammered against the grimy windows of "Rosie's Eats," a ramshackle diner perched precariously on the edge of a forgotten fishing town. Inside, Amelia Rose Callahan, her fiery red curls escaping from their braid, danced between the hissing stovetop and the ancient, dented refrigerator. Her hands, calloused but nimble, kneaded dough with practiced ease while simultaneously stirring a pot of bubbling stew with the other. The bell above the door jingled, announcing a weary-looking fisherman seeking refuge from the storm. Amelia, her face creased in a warm smile, barked out, "Usual, Finn?"
+
+He nodded, slumping onto his favorite stool at the counter. Amelia's world revolved around this diner, its worn wooden booths and chipped enamel tables, the constant hiss and clatter of cooking, and the comforting murmur of familiar voices. It was her sanctuary, a place where she could pour her soul into every dish, transforming simple ingredients into culinary magic.  But lately, a nagging unease had settled in Amelia's gut. The diner wasn't what it used to be. Customers were dwindling, and bills piled up on the counter like forgotten dreams. The storm raging outside seemed to mirror the turmoil brewing within her.
+
+
+

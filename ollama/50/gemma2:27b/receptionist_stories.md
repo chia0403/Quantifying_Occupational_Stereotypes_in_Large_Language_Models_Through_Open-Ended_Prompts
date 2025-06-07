@@ -1,0 +1,4 @@
+The fluorescent lights hummed above Eleanor Beatrice Cartwright's head like an agitated hive of bees. The air conditioner wheezed its tired protest against the stifling July heat seeping in through the floor-to-ceiling windows of the grand lobby.  Eleanor tapped a manicured fingernail against the polished mahogany of her reception desk, the rhythmic click echoing the insistent ticking of the grandfather clock against the far wall. She surveyed the sterile expanse: plush velvet chairs arranged in neat rows, a coffee table laden with outdated magazines, and a towering fern fighting for life under the harsh glare of the overhead lights.  It was 3:47 pm on a Wednesday, and Eleanor Beatrice Cartwright, receptionist extraordinaire at the esteemed Blackwood & Sons Law Firm, longed for the sweet release of five o'clock.
+
+
+Let me know if you'd like to explore what happens next!  

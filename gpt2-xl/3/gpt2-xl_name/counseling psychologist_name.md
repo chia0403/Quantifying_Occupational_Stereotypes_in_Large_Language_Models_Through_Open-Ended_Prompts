@@ -1,1 +1,1 @@
-John Money
+Dr. John Money

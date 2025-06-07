@@ -1,0 +1,5 @@
+The wind whipped Amelia "Ace" Sinclair's braids across her face as she gripped the yoke, knuckles white against worn leather. Below, the endless ochre expanse of the Namib Desert stretched out like a rumpled blanket, dotted with the occasional skeletal acacia tree. The setting sun cast long shadows, turning the dunes into undulating waves of fire and shadow. Ace squinted, her eyes scanning the horizon for any sign of life. Her battered Cessna 172 sputtered, its engine protesting against the thin air and relentless wind. She needed to find a place to land soon, before darkness swallowed them whole.
+
+Ace had been flying for as long as she could remember. Growing up in a small town nestled against the Arizona desert, the sky had always been her playground.  But this mission was different. This wasn't about joyrides or scenic tours. Ace was on a desperate search, following a cryptic map left behind by her grandfather, a renowned archaeologist who vanished years ago while searching for a lost city deep within the Namibian wilderness. The map promised adventure, but it also whispered of danger.
+
+

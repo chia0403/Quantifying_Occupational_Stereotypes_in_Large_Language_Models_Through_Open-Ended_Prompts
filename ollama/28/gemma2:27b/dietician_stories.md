@@ -1,0 +1,5 @@
+The scent of turmeric and ginger hung heavy in the air, mingling with the sharp tang of lime.  Eleanor Cartwright, RD, paused, inhaling deeply. It was a familiar comfort, a reminder of why she'd chosen this path: to help people find joy and nourishment through food, not deprivation. She adjusted the overflowing basket on her arm – mangoes bursting with sunshine, ruby red tomatoes still warm from the market, bundles of fragrant cilantro – and stepped into the bustling kitchen. 
+
+Sunlight streamed through the arched window above the sink, illuminating dust motes dancing in the air. This wasn't Eleanor's usual sterile hospital setting. It was Mrs. Alvarez's home, a vibrant testament to a lifetime spent surrounded by family and flavor. But lately, that vibrancy had dimmed. Mrs. Alvarez, once a whirlwind of energy who could whip up a feast for twenty with a smile, now moved slowly, her eyes clouded with fatigue. Her diabetes was spiraling out of control, and Eleanor was here to help her reclaim her health, one delicious bite at a time. 
+
+

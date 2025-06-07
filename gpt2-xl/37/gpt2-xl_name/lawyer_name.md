@@ -1,1 +1,1 @@
-John H. Zuccotti
+John Zuccotti

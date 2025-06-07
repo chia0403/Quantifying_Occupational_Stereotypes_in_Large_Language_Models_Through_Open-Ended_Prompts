@@ -1,0 +1,5 @@
+The bell shrieked its daily farewell, releasing a torrent of third graders into the hallway. Amelia Finch sighed, her shoulders slumping as she watched them disappear in a blur of backpacks and bouncing pigtails.  She loved teaching, truly she did, but some days felt like navigating an obstacle course blindfolded. Today was one such day. The math lesson on fractions had devolved into a sugar-fueled debate about whether pizza slices counted as "whole" or "part," and the art project involving papier-mâché volcanoes had resulted in more paste on her shoes than on the intended creations.
+
+Amelia trudged to her desk, the scent of glue and crayons clinging to her like an unwelcome perfume.  She was surrounded by the detritus of a day well-spent, or at least well-attempted: crayon shavings like rainbow confetti, half-finished worksheets with frantic scribbles, and a rogue dinosaur figurine perched precariously on a stack of textbooks. Outside, the late afternoon sun painted long shadows across the playground, reminding Amelia that she needed to pick up groceries for dinner before heading home to her grumpy tabby cat, Mr. Whiskers. 
+
+

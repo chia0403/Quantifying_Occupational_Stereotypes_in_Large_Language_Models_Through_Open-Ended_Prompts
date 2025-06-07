@@ -1,0 +1,5 @@
+The humid Charleston air hung thick with the scent of jasmine and salt, clinging to Beatrice "Bea" Fontaine like a second skin as she weaved through the cobblestone streets. Gas lamps flickered, casting long shadows that danced with the Spanish moss draped from ancient live oaks. Bea clutched her notepad tighter, its pages already filled with scribbled notes and half-formed theories. The historic city, usually brimming with tourists and laughter, felt eerily subdued tonight. A palpable tension hung in the air, a consequence of the recent string of unexplained disappearances plaguing the city's elite. 
+
+Bea, a young but tenacious investigative journalist for the Charleston Gazette, was determined to uncover the truth behind these vanishings. Whispers of ancient curses and clandestine societies swirled through the humid night, fueling Bea's insatiable curiosity. She knew this story held the potential to catapult her career, but more importantly, she felt a deep responsibility to shed light on what was happening to Charleston’s own. 
+
+

@@ -1,0 +1,5 @@
+The humid air hung heavy in the cavernous studio, thick with the scent of sweat and lemon-scented cleaner. Sunlight streamed through the grimy skylights, illuminating dust motes dancing in the air.  Atop the raised platform, Emilia "Em" Rodriguez adjusted her Bluetooth headset, the bass thumping through her skull a counterpoint to the rhythmic squeak of sneakers on wood. 
+
+Em surveyed the class: a kaleidoscope of bodies – toned and flabby, young and old, all united by their desire for endorphins and self-improvement. Her smile was genuine as she addressed them, her voice booming through the speakers despite the muffled thumping music.  "Alright everyone," she said, clapping her hands together, "Let's get those heart rates up!" 
+
+But something felt off today. A prickling unease danced at the edge of Em's awareness. Perhaps it was the unsettling silence from a few regulars who usually dominated the front row, or maybe the lingering feeling that someone unseen watched her every move.  Whatever it was, it cast a shadow over the usual energy buzzing through the studio.  

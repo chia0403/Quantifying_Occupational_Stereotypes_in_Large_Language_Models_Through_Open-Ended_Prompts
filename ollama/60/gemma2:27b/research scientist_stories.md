@@ -1,0 +1,3 @@
+Rain hammered against the corrugated iron roof of the abandoned laboratory, each drop exploding in a miniature geyser of rusty water.  Dr. Evelyn Bellweather hunched deeper into her threadbare coat, pulling it tighter around her shivering frame. The air hung thick and stagnant, smelling of mildew and decaying chemicals. A single flickering bulb cast long, skeletal shadows across the dusty workbenches, illuminating beakers choked with green slime and rusted Bunsen burners that looked like fossilized insects. Evelyn shivered again, not just from the cold but from a primal fear that gnawed at her insides. This place had whispered secrets for decades, secrets she was determined to unearth, even if it meant facing them alone in this decaying tomb of scientific ambition. 
+
+

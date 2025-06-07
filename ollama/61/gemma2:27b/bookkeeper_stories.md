@@ -1,0 +1,6 @@
+Rain lashed against the dusty windowpanes of Bartholomew Quill's office, each drop an insistent drumbeat on the brittle glass.  The air smelled faintly of mildew and old parchment, the scent clinging stubbornly to the cluttered space like a forgotten memory. Bartholomew, hunched over his ledger with a furrowed brow, barely noticed the storm raging outside. His world existed within the neat columns and precise figures meticulously recorded in his book. 
+
+A man of routine and unwavering dedication, Bartholomew had been the esteemed bookkeeper for Mr. Alistair Finch's import-export business for nearly two decades. He knew every transaction, every shipment, every penny earned and spent with a meticulousness bordering on obsession. But tonight, something was amiss. A discrepancy, faint as a whisper, had snagged his attention within the ledger’s neatly ordered rows. It wasn't much, a fraction of a shilling unaccounted for, yet it gnawed at Bartholomew like a persistent itch. He tapped his quill against the desk, a nervous habit that amplified the rhythmic patter of the rain. His mind, normally as sharp and clear as a freshly sharpened pencil, felt muddled with unease.
+
+
+What was this discrepancy? Was it an honest error or something more sinister?

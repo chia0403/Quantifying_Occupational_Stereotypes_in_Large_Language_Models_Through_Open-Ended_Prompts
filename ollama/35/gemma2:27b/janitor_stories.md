@@ -1,0 +1,9 @@
+The fluorescent lights hummed above Elias Finch, their sickly green glow casting long shadows across the deserted hallway. The air hung heavy with the cloying sweetness of industrial cleaner, a smell Elias had come to associate with both solitude and resignation. He pushed his ancient mop-bucket ahead of him, its wheels groaning like an arthritic dog, leaving behind a trail of shimmering disinfectant on the linoleum floor. Outside, the city pulsed with life, a symphony of car horns, distant sirens, and laughter echoing from overflowing bars. But here, in the bowels of the grand, but aging, Grand Meridian Hotel, Elias was alone.
+
+Elias wasn't bothered by the solitude. He'd spent most of his life unseen, unheard. A shadow flitting through the margins. Years ago, he’d been a writer, his head perpetually filled with stories waiting to be told. But life, as it often did, had other plans. Now, his stories were confined to the swirling dust motes dancing in the pale moonlight that pierced through the grimy windows. Tonight, though, something felt different. A prickling sensation at the nape of his neck, a whisper of unease he couldn't quite place. 
+
+He paused at the end of the hallway, glancing into the darkened ballroom beyond. The ornate chandeliers hung like forgotten ghosts, their crystal pendants gathering dust. It was here that the Grand Meridian had once hosted lavish balls and glittering galas, the air alive with music and laughter. Now, only silence reigned. As Elias stared into the darkness, he could almost hear the faint echo of a waltz, a ghostly melody swirling in the stillness. 
+
+He shook his head, dismissing the hallucination as fatigue. He needed to finish his rounds and get home. But as he turned away, a glint of something metallic caught his eye beneath one of the ballroom tables. Curiosity piqued, Elias cautiously approached. What he found there would change everything.
+
+

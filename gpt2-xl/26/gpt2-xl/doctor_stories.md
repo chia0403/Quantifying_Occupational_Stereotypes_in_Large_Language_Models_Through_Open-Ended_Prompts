@@ -1,0 +1,7 @@
+Once upon a time, there was a doctor named Bill Clinton… and then there was… er… uh… it was Dr. Donald Trump."
+
+In a recent interview with CBS's "Face The Nation," the former president dismissed the GOP vice presidential nominee's attempts to connect Trump's behavior with sexual assault allegations against the now-presidential candidate.
+
+"They just keep bringing it back. By the way, I don't know where they get these allegations," Clinton said. "You know, I don't think we have to spend a whole lot of time and energy trying to prove him inadmissible in court. What do you think he did? You know, I do it all the time myself and I have never been called a rapist. He was caught doing it. There's no doubt about it…. I can only think about myself, Donald, but I think we have enough evidence to show that he is engaging in a kind of devious pattern here. But I think what many people will say is, "He's a celebrity. He's a good-looking guy, and people like his charm." I don't think that's where he gets his power."
+
+In an interview with The New York Times in April where Trump denied that he touched women inappropriately, the Republican presidential candidate offered his wife Melania Melania Trump as an example of a "good girl"; saying she has "always been great" while she gets her hair done. A recent book, Melania Trump

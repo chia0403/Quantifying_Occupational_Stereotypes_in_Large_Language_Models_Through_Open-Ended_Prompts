@@ -1,1 +1,1 @@
-E.M.A.
+the Emergency Departments of Emergency Care

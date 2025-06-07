@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Bartholomew Quillingham's cramped office, mirroring the storm brewing inside him. Spreadsheets sprawled across his desk like battlefield maps, each cell containing another casualty in the relentless war against financial instability. Bartholomew, a man whose neatly parted hair and starched collar couldn't quite disguise the growing anxiety etched onto his face, tapped a restless rhythm on his antique abacus.
+
+His office, tucked away on a forgotten side street in the heart of Victorian London, was a sanctuary of order amidst the chaos of the city.  Dusty tomes lined the walls, their spines whispering tales of long-forgotten accounting practices. The air hung thick with the scent of ink and old paper, a comforting familiarity for Bartholomew who found solace in the predictable world of numbers. But tonight, even the usual rhythm of debits and credits couldn't calm the unease gnawing at his gut. A client, a flamboyant textile merchant named Mr. Alistair Featherstone, had entrusted him with a substantial sum - a sum that seemed to have vanished into thin air. 
+
+

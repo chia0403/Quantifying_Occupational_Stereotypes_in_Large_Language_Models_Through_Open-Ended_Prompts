@@ -1,0 +1,7 @@
+Once upon a time, there was a professor named D.O.T. who was an extremely bright guy who had made it to an Ivy League institution – in this case, Emory. But after getting a job teaching at his alma mater's law school, it turned out he had become addicted to heroin. Then he went to the University of Southern California, where he quickly fell in love with a pretty girl named Kate. But he wasn't doing anything serious with his life, because he'd found that he didn't want to get married either. He was just sleeping with younger women and having affairs with them, and in a strange way that made the women want him more – he was a kind of hero for them.
+
+"You know you've been cheated" he'd tell them.
+
+Eventually, he turned to prostitution, and he was arrested a few times for that. Then he got a job at a college where he was on the tenure track – which, like any good tenured professor, he wasn't, since he didn't have to be on campus any more.
+
+Once he started teaching, he found an all-male student union in a student lounge and he was able to start up a group there. He gave the guys meetings and got them hooked on coke and marijuana, and eventually they gave him a chance to get in touch with Kate. But his new addiction turned him out of love with Kate and into someone he didn't want anywhere

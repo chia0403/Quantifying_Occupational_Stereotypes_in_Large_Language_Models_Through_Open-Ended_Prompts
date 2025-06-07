@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Elsie Mae Davenport's tiny office cubicle. The fluorescent lights buzzed overhead, casting a sickly yellow glow on the stacks of dusty brochures and wilted promotional pens littering her desk. Outside, the symphony of honking horns and screeching brakes underscored the relentless pulse of downtown Chicago. Elsie Mae sighed, her breath fogging the glass for a moment before dissipating into nothingness. Another dreary Tuesday, another day spent hawking overpriced vacuum cleaners to unsuspecting housewives.
+
+Her phone buzzed, jarring her from her melancholy reverie. It was Mr. Henderson, her perpetually grumpy manager. "Elsie Mae," his voice rasped through the receiver like gravel on asphalt, "you're lagging behind this month. Get out there and close some deals!" The line went dead before she could respond. Elsie Mae rubbed her temples, feeling a headache brewing behind her eyes.  She wasn't cut out for this life – pushing vacuums, enduring condescending customers, and facing the constant threat of being fired. But what else was she good for?
+
+

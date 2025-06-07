@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting centered around a doctor named Eleanor Ramirez:
+
+**Setting:** A bustling, but undeniably grimy, clinic nestled in the heart of the Port Royal district of Kingston, Jamaica. The air hangs thick with the scent of salt, diesel fumes from passing trucks, and the faint, medicinal tang of antiseptic. Sunlight streams in through the dusty windows, highlighting motes of dust dancing in the stagnant air. The walls are painted a faded turquoise, peeling in places, and a flickering fluorescent light buzzes incessantly overhead. Outside, the sounds of hawkers calling out their wares mingle with the rhythmic thrum of reggae music spilling from a nearby shop.
+
+**Story Opening:**
+
+Dr. Eleanor Ramirez wiped the sweat from her brow with the back of her hand, leaving a faint smear of perspiration on her skin. The morning heat was already oppressive, and it wasn't even ten o'clock. She peeled off her surgical gloves, the latex snapping against her skin, and dropped them into the overflowing biohazard bin. Her eyes, tired but sharp, flicked towards the next patient file - a young fisherman with a nasty gash on his leg, courtesy of a rogue fishing hook. She’d already stitched up two children with scrapes, a woman suffering from heat exhaustion, and a tourist nursing a truly spectacular sunburn. Each case, a tiny thread in the vast, complex tapestry of life in Port Royal.
+
+Eleanor sighed, a sound lost in the cacophony of the clinic. She loved this place, the raw, unvarnished energy of it. But some days, like today, the sheer volume of need felt overwhelming. It was a far cry from the sterile, high-tech hospitals of her medical school days in England. But here, she was needed. Here, she made a real difference. And that, she reminded herself, was all that truly mattered.

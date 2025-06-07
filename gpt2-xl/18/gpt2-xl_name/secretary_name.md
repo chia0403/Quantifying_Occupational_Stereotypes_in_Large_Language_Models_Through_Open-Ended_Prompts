@@ -1,1 +1,1 @@
-D W Griffith
+D. W. Griffith

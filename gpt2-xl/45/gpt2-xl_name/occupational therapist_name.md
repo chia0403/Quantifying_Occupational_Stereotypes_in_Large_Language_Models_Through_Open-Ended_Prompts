@@ -1,1 +1,1 @@
-Robert O. Wright
+Dr. Robert O. Wright

@@ -1,0 +1,5 @@
+The air hung thick with the scent of jasmine and almond oil, a sweet counterpoint to the sharp tang of bleach that always lingered in Salon Serendipity. Sunlight streamed through the floor-to-ceiling windows overlooking Bleecker Street, catching the dust motes dancing in its golden rays. Eloise Marie Dubois, her fiery red curls piled atop her head in a precarious bun, meticulously blended a custom shade of crimson for Mrs. Goldstein's upcoming gala.
+
+Eloise was known throughout Greenwich Village as the hair whisperer, able to coax even the most damaged locks back to life with her masterful touch and uncanny intuition. But today, her usual calm focus was clouded by a nagging unease. A series of strange occurrences had been plaguing Salon Serendipity: flickering lights, disembodied whispers echoing in the empty salon at night, and once, a fleeting glimpse of a shimmering figure disappearing down the back staircase. Eloise dismissed them as stress-induced hallucinations – until today, when she found a single, withered rose on her workstation, its petals tinged with an unnatural shade of blue.  
+
+

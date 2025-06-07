@@ -1,0 +1,4 @@
+The iron scent of blood hung heavy in the air, mingling with the acrid bite of woodsmoke.  Elara Vashti, her face grim beneath her helm, surveyed the carnage left behind by the raiders. Charred timbers smoldered where the gatehouse once stood, and bodies – both raider and defender – lay strewn across the cobblestone courtyard like discarded dolls. Elara tightened her grip on her spear, the polished wood slick with sweat. She had barely slept in two days, the constant dread of another attack gnawing at her insides.  As a guard of the Citadel, she swore an oath to protect its inhabitants, and the recent siege had tested that vow like never before. 
+
+
+Now, dawn painted the eastern sky in hues of blood orange and bruised purple, mirroring the devastation below. Elara knew this was just the beginning. The raiders wouldn't stop until they breached the Citadel walls, and she would be there to meet them, spear in hand, ready to defend her home to the very last breath. 

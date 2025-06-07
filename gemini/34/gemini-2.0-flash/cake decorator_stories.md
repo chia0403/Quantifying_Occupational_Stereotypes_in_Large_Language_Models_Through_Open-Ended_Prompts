@@ -1,0 +1,7 @@
+**Opening:**
+
+The fluorescent lights of "Sweet Surrender" buzzed, a discordant hum that did little to soothe the tremor in Clara Amelia Harrington’s hands. She gripped the piping bag a little too tightly, the delicate buttercream threatening to burst through the seam. Today wasn’t just any day; it was Mrs. Vandergelt’s Diamond Jubilee, a day that separated the cake decorators from the cake *art*ists. And Clara, despite her years of experience, felt like a trembling leaf on the precipice of a sugary hurricane.
+
+**Setting:**
+
+"Sweet Surrender" was a beacon of sugary dreams nestled amongst the brick and mortar of downtown Maple Creek. The aroma of vanilla, almond, and freshly baked sugar cookies wafted out onto the street, a siren song to those with a sweet tooth. Inside, the walls were painted a soft, creamy yellow, adorned with framed photographs of past creations: whimsical birthday cakes, elegant wedding tiers, and gravity-defying sculpted masterpieces. Display cases glittered with meticulously decorated cupcakes and miniature pastries, tempting passersby. Clara's workspace, tucked in the back of the shop, was a controlled chaos of frosting bowls, piping bags of varying sizes, edible glitter, and meticulously organized sprinkles. The air was thick with the scent of powdered sugar and a quiet tension, a stark contrast to the sweet façade presented to the customers. This small back room was Clara's sanctuary, her battleground, and her canvas.

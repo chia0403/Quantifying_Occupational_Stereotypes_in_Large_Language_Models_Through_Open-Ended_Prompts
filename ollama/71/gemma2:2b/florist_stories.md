@@ -1,0 +1,5 @@
+The air hung thick with the scent of lilies, jasmine, and something vaguely reminiscent of burnt sugar. Eleanor Hawthorne, her auburn hair pulled back into a messy bun, surveyed her greenhouse with tired eyes. The late afternoon sun slanted through the stained glass roof, painting the vibrant blooms in a kaleidoscope of color. It was beautiful, yet another reminder of the weight she carried on her small shoulders. 
+
+The bustling city outside felt miles away, but its echoes of traffic and sirens were always present, reminding Eleanor that her little haven, nestled deep within the suburbs, existed as a fragile bubble against the chaos of the world. This wasn’t just a florist shop; it was her life's work, her solace, her escape. Yet, tonight, the weight of grief pressed down on her, heavier than any bouquet she could assemble.  
+
+Tonight, Mr. Miller, the old man whose family had owned this very plot for generations, was being laid to rest. The funeral wasn’t just a somber affair; it marked the end of an era. For Eleanor, it meant more than that –  it meant the end of her childhood haven and the beginning of another chapter in her life she hadn't anticipated. 

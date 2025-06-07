@@ -1,2 +1,1 @@
-Walter Bedwell
-Joseph Gottlieb
+Dr. Walter Bedwell

@@ -1,0 +1,4 @@
+Rain lashed against the ambulance windows, blurring the neon glow of the city skyline into an impressionist painting. Inside, Amelia Reyes, her dark curls plastered to her forehead, fought to keep her eyes open. Another double shift, another string of car accidents and drug overdoses etched into the fine lines around her 32-year-old eyes. The siren wailed, a mournful cry slicing through the torrential downpour as they sped towards a reported cardiac arrest in a run-down apartment complex on the edge of town. Amelia felt a familiar ache in her chest, a mixture of adrenaline and exhaustion that had become her constant companion. Tonight, though, something felt different. A prickling sense of unease settled over her, a feeling she couldn't shake as they careened through the flooded streets. 
+
+
+Let me know if you want to continue the story! 😊

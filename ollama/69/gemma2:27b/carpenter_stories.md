@@ -1,0 +1,6 @@
+The smell of sawdust hung thick in the air, a comforting shroud to Elias Blackwood's senses. Sunlight streamed through the grimy windowpanes of his workshop, illuminating the dance of motes in the perpetual haze. He ran a calloused thumb over the smooth surface of the oak table he was carving, feeling the grain like Braille beneath his touch.
+
+Elias' workshop wasn't fancy. Tucked away in a forgotten corner of Port Haven, a sleepy coastal town perpetually shrouded in sea mist and whispers of mermaids, it boasted more cobwebs than polished surfaces. Tools hung from rusted hooks, their worn handles testament to years of dedicated use.  But for Elias, it was a sanctuary - a world where the rhythmic rasp of his saw and the pungent scent of wood oil were the only companions he needed. 
+
+
+He squinted at the blueprint spread on his workbench, tracing the intricate pattern with a gnarled finger. This commission, a delicate music box for a local noblewoman's daughter, was proving to be more challenging than anticipated.  Yet, Elias relished the complexity, the puzzle of transforming raw wood into something beautiful and enduring. He knew that within these walls, he wasn't just crafting furniture; he was shaping memories.

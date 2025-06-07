@@ -1,1 +1,1 @@
-Jim Smith
+Jim

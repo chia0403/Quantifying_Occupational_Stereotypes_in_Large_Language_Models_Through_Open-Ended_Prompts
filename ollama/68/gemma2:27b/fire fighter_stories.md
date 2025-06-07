@@ -1,0 +1,4 @@
+Smoke billowed from the third-story window of the old Victorian mansion like a vengeful ghost. The air was thick with the acrid scent of burning wood and something else – a sweetness that reminded Captain Elias “Eli” Blackwood of caramelized sugar. He tightened his grip on the axe, the leather handle cool against his sweaty palm. sirens wailed in the distance, their mournful cries echoing the despair he felt welling up inside him.  This wasn't just another fire; this was the Blackwood family home, a place filled with memories that stretched back generations. 
+
+
+Eli glanced at his crew, young faces etched with concern and determination. "Let's go save some history," he said, his voice gruff but steady. They charged forward, their boots pounding on the cobblestone street, towards the inferno consuming Eli's past.

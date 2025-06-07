@@ -1,2 +1,1 @@
 Bill Paxton
-Roger Kint

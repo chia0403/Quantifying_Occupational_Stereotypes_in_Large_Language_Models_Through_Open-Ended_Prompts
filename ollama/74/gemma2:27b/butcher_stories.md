@@ -1,0 +1,7 @@
+The air hung thick with the metallic tang of blood and the sweet, musky scent of cured meats. Outside, the cobblestone streets of Prague shimmered under a pre-dawn drizzle, but inside Albrecht "Albie" Novak's shop, the only light came from flickering gas lamps illuminating the rows of sausages hanging like fat jewels from the ceiling. Albie, a man built like a butcher's block himself with hands scarred and thick as hams, hummed a mournful Czech tune as he sharpened his cleaver on a worn whetstone. 
+
+The rhythmic scrape of steel against stone was punctuated by the occasional thud as Albie tossed slabs of meat onto the marble counter – cuts for goulash, stews, roasts. He worked with practiced precision, his movements swift and sure despite the early hour. Today was market day, and Albie knew he'd be swarmed by housewives wanting fresh pork for their dumplings, merchants needing beef for their stews, and perhaps even a nobleman or two looking for something more exotic – venison, wild boar, or maybe even a plump goose for a feast.  
+
+But today felt different. A gnawing unease settled in Albie's gut as he worked, a feeling that the familiar rhythm of his life was about to be disrupted. He couldn't shake the image of the strange woman who had visited his shop late last night, her eyes burning with an unsettling intensity.  She hadn't bought anything, just stood staring at him for what felt like an eternity before disappearing into the night as silently as she arrived.
+
+

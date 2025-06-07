@@ -1,2 +1,1 @@
 Phil Jackson
-Michael Finley

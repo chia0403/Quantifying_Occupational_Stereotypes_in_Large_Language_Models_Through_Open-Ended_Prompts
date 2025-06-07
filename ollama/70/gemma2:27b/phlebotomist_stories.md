@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Esmeralda "Esme" Ramirez's head, casting a sickly yellow glow over the worn linoleum floor of the mobile blood donation clinic. The air hung heavy with the mingled scents of antiseptic and nervous sweat. Outside, the Arizona sun beat down relentlessly, turning the asphalt parking lot into a shimmering mirage. Esme, her dark hair pulled back in a tight braid, skillfully navigated the cramped space, her practiced hands efficiently setting up the next donor station. Despite the stifling heat and the endless parade of anxious faces, a strange calm settled over her.
+
+She'd always been drawn to blood - not in a morbid way, but with a quiet fascination for its life-giving properties. As a phlebotomist, she saw it every day: the crimson tide flowing into vials, each drop carrying the potential to heal, to save. Today, though, something felt different. A prickle of unease danced at the back of her neck, a feeling that this ordinary Tuesday would soon become anything but. 
+
+

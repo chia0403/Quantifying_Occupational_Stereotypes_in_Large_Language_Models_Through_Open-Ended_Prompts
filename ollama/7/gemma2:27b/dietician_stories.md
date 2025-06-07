@@ -1,0 +1,6 @@
+Rain lashed against the windows of "Nourish & Thrive," blurring the vibrant mural of fruits and vegetables that adorned its exterior. Inside, Amelia Cavendish, RD, sighed as she rearranged a display of protein bars, her brow furrowing with every gust of wind that rattled the storefront. The steady rhythm of rain had lulled most potential clients away today, leaving Amelia in an uncharacteristically quiet space. She normally thrived on the buzz of lunchtime consultations and the excited chatter of cooking classes. But today, solitude pressed in, amplifying a growing sense of unease she couldn't quite place.
+
+A sudden clatter from the back alley snapped her out of her thoughts. Curiosity piqued, Amelia cautiously approached the door leading to the narrow passageway behind the shop. The alley was shrouded in shadows, illuminated only by flickering streetlights that cast elongated shapes on the wet cobblestones. Hesitation gnawed at her, but a prickle of apprehension urged her forward. 
+
+
+What do you think Amelia will find in the alley? Let me know and I'll continue the story!

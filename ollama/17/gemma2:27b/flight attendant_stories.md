@@ -1,0 +1,5 @@
+Rain lashed against the windows of the Airbus A320, blurring the twinkling lights of Tokyo below into an impressionistic painting. Eleanor Vance smoothed down her crisp navy uniform, attempting to ignore the anxious flutter in her stomach. It wasn't the turbulence that bothered her – she was a seasoned flight attendant with five years under her belt. No, it was the passenger seated two rows back. A man shrouded in shadows, his face obscured by the brim of a fedora. He hadn't moved since boarding, his gaze fixed intently on something Eleanor couldn't see. Something unsettling about his stillness made the hairs on the back of her neck prickle.
+
+The familiar chime signaling meal service echoed through the cabin, momentarily drawing Eleanor's attention away. But as she began doling out lukewarm pasta and tepid beverages, her eyes kept straying back to the enigmatic passenger in Row 12. He hadn't touched his food, his gloved hands resting motionless on the armrest. Something was amiss, a silent alarm ringing in Eleanor's instincts. She just couldn't figure out what it was... yet.
+
+

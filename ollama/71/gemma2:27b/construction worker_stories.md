@@ -1,0 +1,7 @@
+The midday sun beat down on Elias Finnigan's neck, turning his already sweat-soaked collar into a sticky mess. Dust devils danced across the cracked asphalt of the abandoned lot, swirling around his steel-toe boots. He squinted at the skeletal framework rising from the earth, its girders like bony fingers clawing at the unforgiving sky. This was supposed to be a luxury apartment complex, but so far it looked more like a monument to broken dreams.
+
+Elias wiped a hand across his brow, smearing dirt and grime into a grimy streak. He'd been working on this project for months, ever since they'd bulldozed the old theater that used to stand here. The memory of its faded grandeur still haunted him sometimes – the velvet curtains, the smell of popcorn and dust, the echoing applause. Now it was just another pile of rubble, replaced by something cold and impersonal.
+
+Today, Elias had a feeling things were about to get even stranger. A delivery truck had just arrived, carrying crates marked with cryptic symbols he didn't recognize. The foreman, a gruff man named Sal, wouldn't say what they contained, only that Elias and the other workers needed to "handle them with care." 
+
+Elias glanced at his fellow crewmates, their faces etched with curiosity and apprehension.  Whatever was inside those crates, it promised something different, something beyond the monotony of bricks and mortar. A shiver ran down Elias's spine. He couldn't shake the feeling that this project was about to take a very unexpected turn. 

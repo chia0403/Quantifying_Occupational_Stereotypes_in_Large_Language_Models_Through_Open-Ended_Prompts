@@ -1,2 +1,1 @@
 Frank Shuster
-George Catlin

@@ -1,0 +1,5 @@
+Grease clung to Elias "Eli" Thorne's knuckles like stubborn barnacles as he wrestled with the rusted bolts on a '67 Mustang. The midday sun beat down on Eli's Garage, a ramshackle building perched precariously on the edge of Harmony Creek, a town so small it barely registered on most maps. The air hung thick with the scent of gasoline, motor oil, and Eli's ever-present pipe tobacco.  Harmony Creek itself was a lazy ribbon winding through fields of sunflowers and wheat, its placid surface reflecting the cerulean sky. But inside Eli's Garage, the world hummed with the insistent purr of engines, the clatter of tools, and Eli's gruff but good-natured banter as he guided his apprentice, young Billy Jenkins, through the intricacies of rebuilding a carburetor. 
+
+Eli squinted at the corroded bolt head. "This thing's seen better days," he muttered, applying more leverage with his wrench. Suddenly, a piercing shriek cut through the rhythmic symphony of the garage. Eli froze, his heart thudding against his ribs. It wasn't a sound he was accustomed to in Harmony Creek. 
+
+

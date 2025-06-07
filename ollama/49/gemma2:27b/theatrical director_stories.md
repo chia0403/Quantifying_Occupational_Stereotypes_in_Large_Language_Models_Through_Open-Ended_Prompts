@@ -1,0 +1,5 @@
+The air in the Rialto Theatre crackled with anticipation, thick as the dust motes dancing in the single spotlight illuminating the center stage. The musty scent of velvet and old wood mingled with the sharp tang of sweat and nervous energy.  Amelia Rosalind Beaumont, her silver hair pulled back in a severe bun, paced backstage like a caged tigress. Her silk scarf, the color of burnt sienna, trailed behind her as she muttered lines under her breath. Tonight was the opening night of "The Tempest," Amelia's passion project, and every fiber of her being was vibrating with a potent mix of excitement and fear.
+
+Her vision for Shakespeare's classic had been bold – a minimalist interpretation set against a backdrop of stark white, punctuated by bursts of neon light that echoed the storm raging within Prospero's heart. The critics had already labelled it "daring," "audacious," and even "foolhardy."  Amelia didn't care. She believed in her vision, in her cast, and in the power of theatre to transport audiences to worlds beyond their wildest imaginations. 
+
+Tonight, she would prove them all right or wrong. Tonight, The Rialto would become a stage for magic.  

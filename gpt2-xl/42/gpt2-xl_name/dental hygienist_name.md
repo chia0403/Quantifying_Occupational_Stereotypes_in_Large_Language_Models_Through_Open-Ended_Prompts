@@ -1,3 +1,1 @@
 William Foos
-Edythe
-Foos

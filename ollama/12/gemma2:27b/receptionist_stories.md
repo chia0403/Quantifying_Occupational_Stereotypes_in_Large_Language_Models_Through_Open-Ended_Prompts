@@ -1,0 +1,4 @@
+The air conditioner wheezed like a tired dragon, struggling to push back the oppressive August heat that seeped in through the glass doors of the Grandview Suites. Amelia Cartwright, perched behind her walnut reception desk, sighed and idly tapped a chipped acrylic nail against the worn laminate surface. Outside, tourists swarmed the boardwalk, their voices a distant, muffled roar. Amelia envied them. Their lives were filled with adventure, laughter, and saltwater taffy. Hers consisted of answering ringing phones, fielding complaints about sticky elevator buttons, and pretending to be interested in Mrs. Henderson's meticulously detailed account of her colonoscopy. 
+
+
+Today, however, felt different. An unsettling energy crackled in the air, a buzz just beneath the surface of the usual summer lull. Amelia couldn't shake the feeling that something was about to happen, something big. 

@@ -1,0 +1,5 @@
+Rain lashed against the windows of Eloise Beaumont's Parisian apartment, blurring the cityscape beyond into an impressionistic swirl of greys and golds.  The Eiffel Tower, usually visible from her balcony, was obscured by a curtain of water. Eloise sighed, pushing away a stray curl that had escaped its intricate braid. She stared at the unfinished mood board spread across her worktable – swatches of emerald velvet, brass fixtures, and sketches for an ornate fireplace mantel.  
+
+Her latest client, Madame Dubois, wanted to transform her aging townhouse into a jewel box of Art Deco elegance. Eloise was excited by the challenge, but the Parisian drizzle always seemed to dampen her creative spark. She needed inspiration, something to ignite the flame within and bring Madame Dubois' vision to life. Perhaps a trip to the Musée des Arts Décoratifs would do the trick.  Or maybe a glass of wine...and a croissant. Eloise smiled. Sometimes, the simplest pleasures were all it took to spark her imagination. 
+
+

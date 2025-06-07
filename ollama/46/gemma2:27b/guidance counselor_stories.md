@@ -1,0 +1,5 @@
+The flickering fluorescent lights of Northwood High's Guidance Department cast long, weary shadows across Amelia Cartwright’s desk. Stacks of college brochures teetered precariously beside her overflowing inbox, testament to the tidal wave of anxieties crashing against the shores of senior year. Outside her window, the last rays of October sunlight painted the maple trees in fiery hues, a stark contrast to the muted desperation that hung heavy in Amelia's chest. This wasn't the fulfilling career she'd envisioned after earning her Masters in Counseling. It was a labyrinth of paperwork, standardized test scores, and parental expectations, leaving little room for the genuine connection she craved with her students.
+
+Today, however, something felt different. A quiet intensity thrummed beneath the usual pre-college frenzy. Amelia sensed it in the hesitant knocks on her door, the hushed whispers in the hallway, and even in the nervous flutter of the student handbook clutched tightly in a young boy's hand. This wasn’t just another day; something was brewing, something unspoken, waiting to be unearthed. 
+
+

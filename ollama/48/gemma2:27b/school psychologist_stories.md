@@ -1,0 +1,7 @@
+The flickering fluorescent lights of the guidance office buzzed in tune with Amelia Rose Blackwood's growing headache.  It was 3:45pm on a Tuesday, which meant she had precisely fifteen minutes to finish writing up her report on Timmy Henderson before the afternoon bell rang and the hallways erupted into chaos. Timmy, a quiet seventh-grader who communicated primarily through elaborate drawings, had been exhibiting signs of social withdrawal and anxiety that Amelia felt needed addressing sooner rather than later.
+
+Outside her window, the October sun cast long shadows across the sprawling asphalt playground. The leaves on the ancient oak tree by the library were just beginning to turn crimson and gold, a stark contrast to the sterile white walls of Amelia's office. Despite its uninspiring decor, Amelia had made it her own sanctuary. A framed poster of Vincent Van Gogh's "Starry Night" hung above her desk, a constant reminder that even amidst darkness, there was beauty to be found.  
+
+Today, however, the swirling brushstrokes seemed to mock her. Timmy’s case was proving more complex than she anticipated, and Amelia couldn't shake the feeling that something crucial was missing. She stared at the half-finished report on her computer screen, a tangle of observations and hypotheses that felt incomplete. Was it simply childhood anxiety, or was there something deeper lurking beneath the surface? 
+
+

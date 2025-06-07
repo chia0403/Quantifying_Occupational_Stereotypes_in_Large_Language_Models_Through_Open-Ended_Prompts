@@ -1,0 +1,5 @@
+The salty air whipped Amelia Blackwood’s auburn hair around her face as she perched precariously on the edge of the crumbling seawall. Her canvas, strapped to an easel that wobbled dangerously in the wind, depicted the churning grey ocean below. Waves crashed against the rocks with a thunderous roar, sending plumes of white spray high into the air. The sky mirrored the tempestuous sea, bruised purple and streaked with angry orange where the sun struggled to break through.
+
+Amelia loved painting storms. The raw power, the untamed beauty, it ignited something primal within her. Today, however, a gnawing unease accompanied the familiar thrill. The storm felt different, charged with an unsettling energy that made the hairs on her arms stand on end.  A shiver ran down her spine, and she glanced nervously towards the dilapidated lighthouse perched atop the cliff behind her, its beam long extinguished. Legends whispered of a ghostly keeper who haunted the tower, his mournful cries echoing on stormy nights. Amelia dismissed it as superstition, yet couldn't shake the feeling that she was being watched.
+
+

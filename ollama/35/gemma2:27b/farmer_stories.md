@@ -1,0 +1,5 @@
+The wind whipped across Silas Blackwood’s face, tasting like dry earth and impending rain. He squinted at the horizon, where bruised clouds gathered like angry giants. His calloused hands tightened on the worn handle of his plow as he steered the oxen through another furrow. The field stretched before him, a patchwork of emerald green and sun-baked brown, a testament to months of backbreaking labor. Silas knew every inch of this land, had tilled it since he was a boy learning from his father. This year, however, the earth felt different, almost reluctant to yield its bounty. A knot of worry tightened in his chest – a worry shared by all the farmers in Hollow Creek, their faces etched with lines deeper than any plow could carve. 
+
+The whispers had started weeks ago, tales spun around flickering hearths and hushed voices in the market square: rumors of blight, of withered crops and empty granaries. Silas refused to believe them at first, clinging to the hope that his land would be spared. But now, looking out at his fields, a shiver of doubt ran down his spine. Something was wrong. 
+
+

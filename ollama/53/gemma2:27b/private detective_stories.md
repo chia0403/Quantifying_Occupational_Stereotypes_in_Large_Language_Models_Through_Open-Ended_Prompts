@@ -1,0 +1,5 @@
+Rain hammered against the grimy windowpane of Elijah "Eli" Blackwood's office, blurring the neon glow of the "Open 24 Hours" sign hanging crookedly above his door. The air inside was thick with the smell of stale coffee and regret. Eli sat hunched over a chipped desk, a single flickering fluorescent bulb casting harsh shadows across his face. He traced the lines of a faded photograph, the image blurred and indistinct - a woman with haunted eyes and a smile that didn't quite reach them. 
+
+The case file lay open before him, a tangle of cryptic clues and dead ends. The missing person: Amelia Cartwright, vanished without a trace three weeks ago. The client: her distraught husband, a man whose desperation was etched into every line of his face. Eli took a drag from his cigarette, the acrid smoke stinging his lungs. He hadn't wanted this case. Missing persons rarely ended well in a city as grimy and unforgiving as New Haven. But Amelia's eyes in that photograph, filled with a sorrow he couldn't quite decipher, had drawn him in. 
+
+

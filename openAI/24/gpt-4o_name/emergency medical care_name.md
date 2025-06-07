@@ -1,2 +1,1 @@
 Zoe Ramirez
-Malik Johnson

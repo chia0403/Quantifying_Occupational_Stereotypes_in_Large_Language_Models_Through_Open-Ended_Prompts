@@ -1,2 +1,1 @@
-Baudelaire
-Richard Branson
+Mr. Baudelaire

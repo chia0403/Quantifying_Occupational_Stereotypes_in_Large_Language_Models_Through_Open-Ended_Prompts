@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Detective Isabella "Izzy" Rossi's office, blurring the neon glow of the liquor store sign across the street. The air hung thick with the smell of stale coffee and desperation, a familiar cocktail in the heart of New Orleans' Seventh Ward. Izzy chewed on the end of her pen, studying the crime scene photos scattered across her desk. A young man, barely out of his teens, lay sprawled on the cracked asphalt, eyes staring vacantly at the stormy sky. 
+
+The victim, Jamal Jackson, had been found just hours ago, a single gunshot wound marring his temple. The alley reeked of gunpowder and fear, whispers of another senseless act in a city already drowning in them. Izzy's gut clenched, a familiar ache settling deep within her. She knew this dance all too well - the shattered families, the empty promises, the cycle of violence that seemed impossible to break. This time, though, something felt different. A chill snaked down her spine as she noticed a faint symbol etched onto Jamal's wrist, barely visible beneath the bloodstains. It was a crescent moon cradling a skull, an emblem Izzy had only seen once before... 
+
+

@@ -1,0 +1,5 @@
+The flickering neon sign outside read "Salvatore's Shear Perfection" in faded pink and green, casting an erratic glow onto the rain-slicked cobblestones of Mulberry Street. Inside, Salvatore Moretti hummed along to Dean Martin on the scratchy old radio while expertly navigating his silver shears around a customer's ears. Rain lashed against the shop window, blurring the lights of the city into a shimmering mirage. The air smelled faintly of bay rum and freshly brewed espresso. 
+
+Salvatore was a man who knew his craft as well as he knew his neighborhood – every crack in the pavement, every grumpy shopkeeper, every secret tucked away behind a brick facade. His shop was more than just a place to get a haircut; it was a sanctuary, a confessional booth, a stage for stories whispered over the rhythmic snip of scissors. Today, however, something felt different. A chill hung in the air, heavier than the autumn drizzle.  The door creaked open, admitting a figure shrouded in shadows, and Salvatore knew this wouldn't be an ordinary day at Shear Perfection.
+
+

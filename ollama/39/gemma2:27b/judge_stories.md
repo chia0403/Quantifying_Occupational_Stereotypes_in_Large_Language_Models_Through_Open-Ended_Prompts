@@ -1,0 +1,5 @@
+The mahogany bench felt cold beneath Amelia Winthrop's robes. It always did in December, despite the roaring fire crackling merrily in the hearth opposite her. The flickering flames cast dancing shadows across the courtroom walls, illuminating dust motes swirling in the air like miniature galaxies. A palpable tension hung heavy over the room, thick as the scent of old books and polished wood that permeated every inch of the hallowed space.
+
+Judge Amelia Winthrop, a woman whose stern visage hid a heart softened by years of dispensing justice with unwavering fairness, surveyed the scene before her. On one side sat a young man, barely out of his teens, his face pale and etched with fear. Opposite him stood a hardened matron, her lips pursed in a thin line of disdain. The case, a petty theft, was hardly unusual for this sleepy coastal town. Yet today, something felt different. An unsettling premonition gnawed at Amelia's gut, whispering of hidden truths and a storm brewing beneath the surface.
+
+

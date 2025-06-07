@@ -1,0 +1,5 @@
+The humid Charleston air clung to Eliza Beaumont like a second skin as she hurried down Meeting Street, her overflowing tote bag bouncing against her hip. A tangle of anxieties coiled in her stomach: the leaky roof at the salon that needed immediate attention, the stack of appointment confirmations threatening to topple over on her cluttered desk, and most pressing, the upcoming Charleston Hair and Beauty Expo where she'd be showcasing her new line of all-natural haircare products.
+
+Eliza paused outside "The Mane Attraction," her tiny but beloved salon nestled between a boisterous seafood restaurant and a dusty antique shop. The faded turquoise paint peeled slightly around the window frame, hinting at the building's age and Eliza's limited budget. Still, the scent of jasmine from the overflowing planters flanking the entrance always calmed her frayed nerves. Today, however, even the sweet fragrance couldn't dispel the tension that thrummed through her. The expo was just a week away, and she hadn't quite figured out how to charm the notoriously hard-to-impress judges.
+
+

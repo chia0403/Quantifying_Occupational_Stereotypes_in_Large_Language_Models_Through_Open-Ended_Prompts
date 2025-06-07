@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of Elara Blackwood's studio, each drop a staccato beat in the symphony of the storm raging outside. The wind howled like a banshee, rattling the ancient windowpanes and sending shivers down her spine.  Elara, a woman with eyes the colour of stormy seas and hair as dark as raven wings, stood before her easel, brush poised mid-air above a canvas splashed with vibrant hues.
+
+Her studio, nestled in a forgotten corner of a bustling seaside town, was her sanctuary. Sunlight streamed through the skylights, illuminating dust motes dancing in the air, and casting long shadows from the haphazard arrangement of canvases, paint tubes, and half-finished sculptures that cluttered the space. The scent of turpentine and linseed oil mingled with the salty tang of the sea breeze, creating a unique olfactory tapestry that was as familiar to Elara as her own heartbeat.
+
+Tonight, however, inspiration seemed to have deserted her.  The storm outside mirrored the tempest brewing within. A blank canvas stared back at her accusingly, mocking her creative block. 

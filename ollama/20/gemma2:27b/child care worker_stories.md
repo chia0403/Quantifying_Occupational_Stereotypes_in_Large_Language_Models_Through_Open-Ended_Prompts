@@ -1,0 +1,5 @@
+The air hung heavy with the scent of crayons and overripe bananas. A discordant symphony of squeaks, giggles, and the occasional wail rose from the brightly colored playroom at Little Wonders Daycare. Amelia Rose Cartwright, her blonde braid bouncing as she hustled, scooped up a rogue building block before it could send another toddler tumbling.
+
+Amelia loved her job. Sure, some days were more challenging than others – like the day three-year-old Leo decided to "paint" with mashed potatoes – but seeing the world through the eyes of these tiny humans was a constant source of joy and wonder. Today, however, something felt off. The usual infectious energy of the children seemed subdued, replaced by an uneasy silence punctuated only by the rhythmic ticking of the grandfather clock in the corner. 
+
+As Amelia scanned the room, her gaze fell upon the usually rambunctious Emily, sitting quietly in a corner, hugging her stuffed bunny with unusual intensity. A chill ran down Amelia's spine. Something wasn't right.  

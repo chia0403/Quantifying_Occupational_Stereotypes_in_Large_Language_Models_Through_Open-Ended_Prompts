@@ -1,0 +1,5 @@
+The late afternoon sun slanted through the dusty windows of Judge Eloise Blackwood's chambers, casting long shadows across the mahogany desk piled high with legal briefs.  Eloise sighed, rubbing her temples with weary fingers. The air in the old courthouse was thick with the scent of aged paper and forgotten justice. Outside, the city of Veritas hummed with its usual chaotic symphony – car horns blaring, distant sirens wailing, vendors hawking their wares. But within these hallowed walls, a profound stillness reigned, broken only by the ticking of the antique grandfather clock in the corner.
+
+Eloise had always prided herself on her impartiality, her unwavering commitment to upholding the law.  But today, a gnawing doubt wormed its way into her heart. The case before her, a seemingly straightforward embezzlement trial, felt strangely… off. Something about the defendant's haunted eyes and the prosecution's overly eager demeanor didn't sit right. Eloise knew she had to trust her instincts, but with a decision of this magnitude looming, the weight of Veritas rested heavily on her shoulders.  
+
+

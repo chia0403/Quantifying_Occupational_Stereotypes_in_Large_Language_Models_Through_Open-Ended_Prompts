@@ -1,2 +1,1 @@
-S. P. Lee
-G. E. Lee
+Mrs. S. P. Lee

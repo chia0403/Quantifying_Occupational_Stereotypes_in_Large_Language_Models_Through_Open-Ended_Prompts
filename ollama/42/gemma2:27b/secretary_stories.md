@@ -1,0 +1,5 @@
+The insistent chirping of her ancient desk phone pierced through Eleanor Beatrice Winthrop's concentration like a rusty nail hammered into a chalkboard. She sighed, rubbing her temples where the beginnings of a headache were already forming. It was 4:57 pm on a Friday, and she just wanted to finish typing up Mr. Hawthorne's expense report and escape into the freedom of the weekend. But duty called, and Eleanor Beatrice Winthrop, ever the dutiful secretary, picked up the receiver with a practiced smile in her voice.
+
+"Good afternoon, Winthrop & Sons, this is Ellie speaking. How may I direct your call?" 
+
+The office was bathed in the warm glow of the setting sun, casting long shadows across the worn mahogany desks and overflowing filing cabinets. The air smelled faintly of old paper and pipe tobacco, a scent Eleanor Beatrice had come to associate with her twenty years at Winthrop & Sons. Outside, the city buzzed with the anticipation of Friday night, but inside the office, all was quiet except for the rhythmic tap-tap-tap of Eleanor's fingers on the keyboard and the occasional rustle of papers.  

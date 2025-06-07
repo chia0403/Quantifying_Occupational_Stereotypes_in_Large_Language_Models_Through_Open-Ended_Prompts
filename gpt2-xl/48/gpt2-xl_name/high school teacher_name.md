@@ -1,1 +1,1 @@
-George Miller
+George M. Miller

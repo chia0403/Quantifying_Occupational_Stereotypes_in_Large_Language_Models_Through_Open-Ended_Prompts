@@ -1,2 +1,1 @@
 Charles Lewis
-Richard Eversharp

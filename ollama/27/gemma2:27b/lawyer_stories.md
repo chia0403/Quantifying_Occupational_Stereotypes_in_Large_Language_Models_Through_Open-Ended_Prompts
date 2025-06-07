@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Beatrice "Bea" Hawthorne's office, blurring the already dismal view of Chicago's industrial district. The air inside was thick with the scent of stale coffee and desperation – a potent cocktail Bea had become all too familiar with in her years as a public defender. Stacks of case files threatened to engulf her desk, each one representing another lost soul caught in the unforgiving gears of the legal system. 
+
+Today's file, however, was different. It wasn't the usual petty theft or drug possession charge. This file held the name "Elias Vance," and a chilling accusation: conspiracy to commit murder. Elias, a young man with haunted eyes and a past shrouded in secrecy, had walked into Bea's office yesterday, claiming he was innocent and begging for her help. Something about his plea – a raw vulnerability beneath the surface of fear – had ignited a spark of determination within Bea. She had agreed to take his case, knowing full well it could be the most dangerous one of her career.
+
+

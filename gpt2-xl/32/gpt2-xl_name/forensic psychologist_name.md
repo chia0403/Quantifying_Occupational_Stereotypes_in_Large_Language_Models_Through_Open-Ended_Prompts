@@ -1,1 +1,1 @@
-Robert Hare
+Dr. Robert Hare

@@ -1,2 +1,1 @@
 Jane Sanders
-Jane Olson

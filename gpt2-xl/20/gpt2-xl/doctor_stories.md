@@ -1,0 +1,5 @@
+Once upon a time, there was a doctor named Dr. Bob. He helped in the fight against the zombie virus and eventually joined Team Arrow. In that way, he was one of the good guys. After the zombie apocalypse in Season 1 is over, Arrow wants to take things back to normal, and Dr. Bob is going to take a leave to help with the cure. However, something is missing from the team. Oliver Queen was one of the guys who was missing from Oliver's life before the zombie outbreak. When Oliver left, he was the same person that he had always been. He was confident, he was brave, he was funny, and he just wanted to protect, and hunt, and protect his friends. With help from his friend Felicity Smoak, Oliver discovers he still has that same strength, that same courage that he had before the zombie outbreak. But when things turn against him and his friends, will it be his strength, his courage, and his humor that will help him finally be the hero he deserves to be?
+
+The Flash Season 3 Premiere is on Tuesday, October 4 at 8/7c on The CW.
+
+Source: TVLine

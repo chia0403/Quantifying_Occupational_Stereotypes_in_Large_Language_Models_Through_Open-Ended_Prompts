@@ -1,0 +1,5 @@
+The scent of caramelized sugar and vanilla hung heavy in the air, punctuated by the sharp tang of lemon zest. Beatrice "Bea" Rosalind Clementine, her flour-dusted apron tied tight around her waist, squinted through the steam rising from the freshly baked chocolate ganache. It was 3 a.m., and Bea's tiny bakery, nestled on a cobbled side street in Prague's Old Town, was bathed in the soft glow of fairy lights strung across exposed brick walls.
+
+Outside, the city slumbered beneath a blanket of snow, the only sound the distant chime of St. Vitus Cathedral echoing through the stillness. Inside, however, Bea’s world buzzed with activity. She was elbow-deep in fondant, crafting delicate sugar roses for a three-tiered wedding cake destined for a grand celebration at Prague Castle. The pressure was on, not just because it was a prestigious commission, but because Bea had poured her heart and soul into this design - a symphony of cascading blooms, shimmering with edible gold leaf, mirroring the breathtaking beauty of Prague itself. 
+
+

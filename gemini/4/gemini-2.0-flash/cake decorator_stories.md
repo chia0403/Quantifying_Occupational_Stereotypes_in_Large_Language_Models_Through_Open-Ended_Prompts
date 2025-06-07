@@ -1,0 +1,7 @@
+## Story Opening:
+
+The aroma of vanilla and burnt sugar hung heavy in the air, a constant, comforting companion to Amelia Beatrice Butterfield. It clung to her apron, her hair, even the soft skin of her wrists, a testament to her years spent immersed in the sweet, meticulous world of cake artistry. Today, though, the familiar scent felt stifling, clinging like a desperate lover. Her hands, usually so nimble and precise, trembled slightly as she piped a delicate border of buttercream roses around the base of a six-tiered masterpiece. It was a wedding cake, a goddamn *spectacular* wedding cake, a sugar-spun testament to eternal love and commitment, and Amelia wanted to hurl it against the nearest wall.
+
+## Setting:
+
+Amelia worked in a small, fiercely independent bakery called "Butterfield's Bliss," nestled on a cobblestone street in the heart of Beacon Hill, Boston. The bakery itself was a symphony of pastel colors and sugary delights. Display cases overflowed with perfectly sculpted cupcakes, rows of glistening macarons, and elaborate sugar sculptures. Light streamed in through the large, bay windows, illuminating the intricate details of Amelia's latest creations. The air was always filled with the gentle hum of the refrigerator units, the soft whir of the stand mixer, and the chatter of customers eager to indulge in a sweet treat. A chalkboard behind the counter proudly proclaimed the daily specials, handwritten in elegant cursive, while a vintage gramophone played a constant stream of cheerful, albeit slightly dusty, jazz.

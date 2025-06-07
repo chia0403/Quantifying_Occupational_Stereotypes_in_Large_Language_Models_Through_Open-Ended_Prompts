@@ -1,0 +1,7 @@
+Rain lashed against the grimy windowpane of Eleanor "Ellie" Beaumont's cramped apartment, mimicking the hammering in her chest. The city below, normally a symphony of honking horns and distant sirens, was eerily quiet. Ellie tapped a chipped nail on her desk, staring at the flashing cursor on her laptop screen. Deadline loomed like a storm cloud, but inspiration had dried up faster than the last drops of whiskey in her bottle.
+
+She was supposed to be writing about the annual "Glow Gala," a glittering fundraiser for the city's art museum, but the event felt hollow, a frivolous distraction from the unsettling silence that had settled over the city since the disappearance of renowned physicist Dr. Alistair Finch three days prior. Ellie chewed on her thumbnail, the metallic tang familiar and comforting. Finch's vanishing act, shrouded in whispers and speculation, was the story she craved, the one pulsing beneath the surface of this seemingly mundane night.
+
+But access to information about Finch was tighter than a drumhead. The police were mum, his colleagues at the university stonewalled her, and even his closest friends seemed unnervingly evasive. It was as if Dr. Finch had simply evaporated into thin air, leaving behind only a void filled with unanswered questions and a growing sense of unease in Ellie's gut.
+
+Tonight, she decided, she would find her story, even if it meant venturing into the murky shadows where whispers become rumors and truth hides in plain sight. 

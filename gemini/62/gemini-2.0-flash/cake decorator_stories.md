@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Story Opening:**
+
+Esmeralda "Essie" Valencia hummed along to the vintage jazz playing softly from her phone, a tune she'd heard a thousand times and still found impossibly soothing. The buttercream was the perfect consistency today – smooth, light, and holding its shape like a dream.  She expertly swirled it across the vanilla sponge, creating a delicate rosette that nestled perfectly amongst its siblings.  But even as her hands worked with practiced ease, her mind wrestled with a gnawing anxiety. Today was the day.  The "Golden Spoon" competition.  And if she didn't win, "Essie's Sweet Surrender," the tiny bakery she’d poured her heart, soul, and last dime into, might not survive the summer.
+
+**Setting:**
+
+The story unfolds within the charming, if slightly dilapidated, walls of "Essie's Sweet Surrender," a small bakery nestled in the heart of the bustling, yet historically preserved, "Calle Rosa" district of San Antonio, Texas. Calle Rosa is a vibrant street, known for its colorful buildings, art galleries, and the lingering scent of spices and pastries wafting from its many small businesses. Essie's bakery, painted a cheerful shade of sunflower yellow, is squeezed between a bohemian bookstore and a quirky antique shop. Inside, the aroma of baking vanilla and cinnamon hangs heavy in the air. Display cases glitter with delicate pastries, vibrant macarons, and miniature works of art rendered in sugar.  While the storefront boasts a certain quaint charm, the back kitchen, visible through a small archway, reveals a more chaotic reality. It’s a cramped space, crammed with mixing bowls, piping bags, whisks, and towering stacks of cake pans. The walls are splattered with colorful evidence of past creations – a testament to Essie's passion and a constant reminder of the tight margins she operates on.

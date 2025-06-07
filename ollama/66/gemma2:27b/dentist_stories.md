@@ -1,0 +1,5 @@
+Rain lashed against the windowpanes of Dr. Eleanor "Ellie" Vance's dental practice, blurring the already dreary view of Elm Street. The flickering neon sign outside, advertising "Ellie's Smiles," seemed to struggle against the onslaught, casting an anemic glow onto the deserted sidewalk. Inside, Ellie sat hunched over a stack of overdue bills, her brow furrowed with worry lines deeper than any she'd ever carved into a patient's molar. 
+
+The steady drip from a leak in the ceiling punctuated the silence, each drop a tiny hammer blow against Ellie's dwindling hope. Business had been abysmal lately. The charming Victorian building she'd inherited from her grandmother held more memories than patients these days, and the once-bright waiting room echoed with the ghost of laughter long gone.  
+
+Ellie sighed, pushing away the bills. It was no use dwelling on them. She needed a distraction, something to pull her out of this gloomy spiral. Reaching for her phone, she scrolled through her contacts until she landed on a familiar name: "Max - Emergency Only." 

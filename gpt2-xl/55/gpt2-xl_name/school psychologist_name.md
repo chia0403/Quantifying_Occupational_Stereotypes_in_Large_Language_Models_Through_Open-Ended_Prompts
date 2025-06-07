@@ -1,1 +1,1 @@
-John S. Wett
+Dr. John S. Wett

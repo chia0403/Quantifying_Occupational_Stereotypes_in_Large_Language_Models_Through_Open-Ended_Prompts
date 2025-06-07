@@ -1,3 +1,1 @@
-Jekyll the Mad
-Karken
-X█████
+Dr. Jekyll

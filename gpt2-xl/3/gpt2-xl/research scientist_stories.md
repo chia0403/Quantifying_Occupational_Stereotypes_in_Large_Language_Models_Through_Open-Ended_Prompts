@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named R. C. Fisher with no formal training in the use of mathematical tools. Then he started noticing strange results and eventually developed some very interesting tools that would be crucial in future developments in computer science, and in the whole science of computer science, as well.
+
+Fisher's breakthrough (that made him famous) was a way of figuring out the complexity of a model, in other words of calculating the volume of an object in a high-dimensional space. This made him famous and the concept, that could be found very valuable for problems in mathematics like calculus.
+
+And in many ways, he inspired another, much more successful mathematician named Claude Shannon at Bell Labs in New Jersey. Their very different approaches to problem solving gave birth to computing and computer science.
+
+In the early days of modern computation, the problem of calculating the volume of a given object would be handled very efficiently by hand; if you had to deal with such an object, it was already very important that it be as accurate as possible. On the other hand, Fisher showed that if you could compute the volume of an object for an arbitrarily large range of values then you would quickly be able to know if the model you were working with (which might either be the volume or a simple shape, like a circle, triangle, or cylinder) actually had volumes from one dimension to another. And you could now easily check if the model you are working with can fit

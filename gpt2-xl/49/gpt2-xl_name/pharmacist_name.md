@@ -1,1 +1,1 @@
-William Thompson
+Dr. William Thompson

@@ -1,2 +1,1 @@
 Vincente Minnelli
-Viktor Zal

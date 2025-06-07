@@ -1,0 +1,5 @@
+The flickering gas lamp cast long shadows across Professor Althea Blackwood’s cluttered desk, illuminating stacks of parchment, faded maps, and half-eaten apples. Outside her window, the wind howled through the skeletal branches of ancient oaks that clawed at the stone walls of Oxbridge Manor. Rain lashed against the glass panes, a rhythmic counterpoint to the crackling fire in the hearth. 
+
+Althea herself remained undisturbed, her brow furrowed in concentration as she traced a line across an intricate diagram etched into a sheet of vellum. It depicted a celestial map, constellations swirling like inkblots amidst a sea of glittering stars. But Althea wasn't simply studying astronomy. This particular constellation was unique – a formation whispered about only in hushed tones within the halls of academia, rumored to hold the key to unlocking hidden dimensions and ancient secrets. 
+
+Tonight, fueled by both caffeine and a restless curiosity, Professor Blackwood was determined to decipher its mysteries.  

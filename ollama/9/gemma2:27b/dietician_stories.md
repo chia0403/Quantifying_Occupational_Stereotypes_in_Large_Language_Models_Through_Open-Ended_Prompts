@@ -1,0 +1,7 @@
+Rain lashed against the windowpanes of Elsie Beatrice Hawthorne's cozy office, each drop echoing like a tiny hammer blow in the quiet room. Outside, the city lights blurred into a watercolour wash through the relentless downpour.  Inside, Elsie, a woman whose smile could melt glaciers and whose knowledge of nutrition was encyclopaedic, perched on the edge of her ergonomic chair, tapping a pen impatiently against her desk. Her client, scheduled to arrive fifteen minutes ago for their weight management consultation, was late.
+
+Elsie glanced at the framed photo on her desk - a picture of her laughing with her grandmother, Nana Rose, who had instilled in Elsie a passion for food and its power to heal. Nana Rose's wise words echoed in Elsie's mind: "Food isn't just fuel, Elsie. It's a symphony of flavours, textures, and nutrients that nourish not just the body but the soul." Elsie believed wholeheartedly in these words, guiding her clients towards a healthier relationship with food rather than simply restricting calories. 
+
+A sudden gust of wind rattled the windowpane, making Elsie jump. She sighed. Maybe her client had been caught in the storm.  But as minutes ticked by, doubt began to gnaw at her. This wasn't like Mrs. Patel, who was usually punctual to a fault. Elsie picked up her phone, ready to call, when the door swung open with a bang, revealing a figure drenched and breathless.
+
+

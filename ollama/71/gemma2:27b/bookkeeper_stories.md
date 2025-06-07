@@ -1,0 +1,7 @@
+Rain lashed against the grimy windowpanes of Bartholomew Quill's office, each drop a tiny hammer blow against the dusty glass. The air inside was thick with the scent of old paper, stale tea, and Bartholomew's own nervous sweat. He chewed on his thumbnail, his gaze darting between the ledger sprawled open on his desk and the insistent ticking of the grandfather clock in the corner.
+
+Bartholomew Quill wasn't a man easily rattled. Years spent meticulously balancing accounts for various establishments in the bustling port city of Salhaven had honed his patience to a razor's edge. Yet, tonight, something felt different. The figures danced before his eyes, refusing to settle into any coherent pattern. He knew, with a sinking certainty, that the discrepancies weren't mere human error. Someone was deliberately tampering with the books.
+
+The question wasn't *who*, but *why*?
+
+Salhaven's docks bustled with trade from across the known world, attracting merchants, adventurers, and those seeking to disappear into its labyrinthine streets. But beneath the veneer of prosperity lurked whispers of smuggling rings, shadowy organizations, and secrets best left buried.  Bartholomew had always kept his nose firmly in his ledgers, content with the predictable rhythm of numbers. Tonight, however, those numbers were singing a discordant tune, one that threatened to unravel the very fabric of his quiet life. 

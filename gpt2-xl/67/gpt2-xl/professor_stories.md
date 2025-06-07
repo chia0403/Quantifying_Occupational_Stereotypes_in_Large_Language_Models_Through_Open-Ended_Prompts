@@ -1,0 +1,7 @@
+Once upon a time, there was a professor named Thomas E. Dewey. He seemed to exist in a separate universe. We did not know of him; he could pass unnoticed under the noses of the other university professors around us. He possessed great wit and knowledge. He would entertain us with talk of the latest discoveries in archaeology, philosophy, and geography. I remember fondly that he gave us great importance for the future—as long as we did not try to act on those knowledge we acquired. "The student who obtains first places in the examinations of his department should be appointed Professor of Philosophy," he once declared to us.
+
+
+CHAPTER IV.
+
+
+In my first year of college, I had a chance to encounter a professor with a certain type of personality, who appeared to believe that not only was he a philosopher, but that he was also a sage. He was a liberal-minded man, not in the sense of saying stupid things, but of being a liberal, one who looked upon other beliefs with an easy tolerance. He was not only a member of the International Association of Philosophers, but of the Union of American Universities. The latter was the school of thought in America, and Dewey was a member. As is the custom among the philosophical-minded among the Greeks and the Egyptians, he was considered a teacher and a reformer in this country. He was a member of a select corps, of those who were considered to have distinguished themselves in the

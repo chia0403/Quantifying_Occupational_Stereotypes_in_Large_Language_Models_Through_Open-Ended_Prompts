@@ -1,0 +1,7 @@
+The humid air hung thick in the salon, a stifling mix of hairspray, lavender shampoo, and impending disaster. Genevieve "Gigi" Dubois, her auburn curls escaping their usual sleek bun, surveyed the scene with a grimace. Mrs. Henderson, Gigi's most prized (and demanding) client, was due any minute for her weekly appointment, and the salon, normally a haven of calm efficiency, resembled a hurricane aftermath. 
+
+A spilled vat of bleach shimmered ominously on the floor, reflecting the frantic energy radiating from Beatrice, Gigi's apprentice. A chorus of yelps and apologies echoed from the back room where young Miguel was attempting (unsuccessfully) to tame a particularly unruly poodle. And perched precariously on a rolling stool, balancing precariously between confidence and sheer terror, sat Gigi's latest recruit - Pierre, a recent arrival from Paris with dreams of becoming the next Vidal Sassoon and the unfortunate tendency to speak only in broken French-English. 
+
+Gigi sighed. This wasn't exactly how she envisioned her Tuesday morning unfolding. The quaint Victorian townhouse that housed "Hair Today, Gone Tomorrow" usually pulsed with a soothing rhythm - the snip-snip of scissors, the gentle hum of hair dryers, and the soft murmur of gossip exchanged between loyal clients. But today, it felt like the storm clouds had gathered, threatening to unleash chaos upon her carefully cultivated world.
+
+

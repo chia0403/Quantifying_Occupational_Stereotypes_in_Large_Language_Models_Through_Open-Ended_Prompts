@@ -1,0 +1,5 @@
+The humid Georgia air hung heavy, thick with the scent of honeysuckle and impending rain.  Eliza Maybelle Cartwright adjusted her straw hat, tugging it further down to shield her face from the unrelenting sun. Sweat trickled down her temple, leaving a salty trail she hastily wiped away with the back of her hand.  It was barely past noon, and already Eliza felt like she'd walked a hundred miles. She hadn't even made it halfway through her assigned route in Savannah's historic district, a maze of cobblestone streets and moss-draped oak trees, each storefront beckoning with promises of charm and Southern hospitality.
+
+Eliza wasn’t selling trinkets or souvenirs, though. Her wares were far more substantial - custom-made furniture from her family's workshop back in Macon.  She carried swatches of luxurious velvet, images of intricately carved mahogany tables, and a genuine passion for the craftsmanship that went into each piece. Today, she was determined to land a sale at one of Savannah’s grand old mansions. 
+
+

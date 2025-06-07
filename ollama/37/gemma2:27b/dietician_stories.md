@@ -1,0 +1,7 @@
+Rain lashed against the windows of Amelia Kensington's tiny office, blurring the city lights into an impressionistic watercolour. The aroma of chamomile tea, barely noticeable above the rhythmic drumming of the downpour, did little to soothe her frayed nerves. It was 7:30 pm and she was staring at yet another client file, a tapestry of nutritional deficiencies and unhealthy habits woven into the life story of a middle-aged accountant named Mr. Bartholomew Finch.
+
+Amelia sighed. Becoming a dietician hadn't been quite the fairy tale she'd imagined as a child. Sure, she loved helping people make healthier choices, but the reality was often frustrating. People were creatures of habit, resistant to change, and Mr. Finch, judging by his file, was no exception. He craved sugary drinks and greasy takeout, ignoring the pleas of his doctor and the undeniable evidence of his declining health.
+
+She picked up a pen, ready to draft yet another personalized meal plan that would likely end up gathering dust in Mr. Finch's drawer alongside its predecessors. Then, a sudden clatter from the alley below startled her. Looking down, she saw a figure huddled in the doorway opposite her office, shivering under a threadbare blanket. Something about the hunched silhouette tugged at Amelia's heartstrings. Maybe tonight, instead of battling Mr. Finch's sugar addiction, she could offer a different kind of nourishment - one that transcended calories and vitamins.  
+
+

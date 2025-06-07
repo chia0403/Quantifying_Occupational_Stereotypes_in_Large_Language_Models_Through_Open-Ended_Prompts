@@ -1,0 +1,4 @@
+Rain lashed against the grimy windows of Dr. Elias Thorne's clinic, blurring the already indistinct cityscape beyond. The neon sign above flickered erratically, casting grotesque shadows that danced on the peeling paint of the waiting room walls. Elias, his brow furrowed with exhaustion, scrubbed at a stubborn bloodstain on his threadbare scrubs. He hadn't slept in over 36 hours, fueled only by stale coffee and the relentless tide of patients pouring through his door in the heart of Sector Seven, the city's most neglected district. The air hung heavy with the mingled scents of disinfectant, desperation, and something faintly metallic that Elias knew all too well - the smell of poverty clinging to every soul who walked through his door. 
+
+
+He sighed, a weary sound lost in the rhythmic hammering of the rain.  Tonight was going to be long.

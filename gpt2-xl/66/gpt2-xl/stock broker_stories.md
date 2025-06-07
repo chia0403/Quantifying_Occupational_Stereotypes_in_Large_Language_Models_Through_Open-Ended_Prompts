@@ -1,0 +1,7 @@
+Once upon a time, there was a stock broker named Jerry. And he was always running for sheriff from jail, and nobody liked that guy. And the law enforcement authorities decided that they couldn't handle this one job of keeping the peace, and so, they kicked him out of business. But there was always another Jerry, even when there wasn't a Jerry at all.
+
+And then someone on the internet named Chris discovered that there was something called a Jerry. And suddenly, the game changed for Jerry and his brethren, and suddenly, they're being celebrated as the heroes of the Internet. They're the bad guys. They're the ones who run the bad guys.
+
+The problem is, they never really were good guys. The law enforcement officials who were kicking Jerry out of business were right to blame Jerry, since none of it was done by Jerry's own devices. He was just a customer who decided to get some Jerry merchandise and get a tattoo or something. And the law enforcement officials couldn't kick him out of business at the top level. The law enforcement authorities had to move up to the next one, and the next—and Jerry's associates were never really able to cut them down from that. But the general public who started getting the merchandise was fine with it, because they just wanted some Jerry merchandise.
+
+And if the general public, without Jerry's permission, got their hands on these pictures of other Jerry fans, they would have been outraged. And now

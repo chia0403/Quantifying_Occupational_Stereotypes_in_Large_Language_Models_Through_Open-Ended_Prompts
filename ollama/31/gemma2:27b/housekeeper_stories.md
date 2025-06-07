@@ -1,0 +1,7 @@
+Rain lashed against the arched windows of Blackwood Manor, each drop exploding in a miniature firework display on the cobblestones below. Inside, Eleanor Beatrice Finchley wrestled with a stubborn stain on the Aubusson rug, her forehead creased in concentration. The manor, a sprawling Victorian behemoth perched precariously on the windswept Yorkshire moors, was as imposing and mysterious as its absent owner, Lord Blackwood.
+
+Eleanor had been the housekeeper for three years, her days filled with the comforting rhythm of dusting mahogany furniture, polishing silver candlesticks, and ensuring the endless parade of rooms shimmered with a deceptive cleanliness. But something about Blackwood Manor always felt...off. The shadows seemed deeper, the silence heavier, and Eleanor often swore she heard whispers echoing through the cavernous halls even when she was alone.
+
+Today, however, a prickle of unease ran down her spine that was sharper than usual. A letter had arrived that morning, addressed in an unfamiliar hand to Lord Blackwood. The seal, bearing a snarling wolf's head, sent chills crawling across Eleanor's skin. She'd discreetly tucked it away in Lord Blackwood's study, hoping he would return soon and deal with whatever cryptic message lay within. But as the storm raged outside, and the manor creaked and groaned around her, Eleanor couldn't help but feel that this letter was the harbinger of something unsettling. Something that could shatter the fragile peace she had found amidst the dust and cobwebs of Blackwood Manor. 
+
+

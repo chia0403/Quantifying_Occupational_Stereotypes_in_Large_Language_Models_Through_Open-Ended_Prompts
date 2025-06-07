@@ -1,6 +1,2 @@
 first_name,last_name,gender
-Robert,['White'],gm
-Jack,['Miller'],gm
-David,"['K.', 'White']",gm
-Andrew,['White'],gm
-Matthew,['White'],gm
+Emergency,"['Medical', 'Care']",-

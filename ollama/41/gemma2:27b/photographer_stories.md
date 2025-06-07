@@ -1,0 +1,5 @@
+The humid Charleston air clung to Eliza Cartwright like a damp shroud as she navigated the cobblestone streets. Her camera bag bumped against her hip, its weight a reassuring presence. Above, Spanish moss dripped from ancient oaks, casting dappled shadows that danced in the late afternoon sun. The scent of jasmine and honeysuckle hung heavy, mingling with the salty tang of the nearby harbor. Eliza paused at the foot of Rainbow Row, her gaze drawn to the pastel-colored houses that lined the street like a whimsical watercolor painting. She'd come to Charleston seeking inspiration, yearning to capture the city's faded grandeur and whispered secrets through her lens. Today, she felt it – a spark of something magical in the air, a story waiting to unfold.  
+
+Eliza raised her camera, her finger hovering over the shutter release. This wasn't just about taking a photograph; it was about finding beauty in the mundane, capturing the soul of a place and its people. And Eliza knew, deep down, that Charleston held stories she longed to tell.
+
+

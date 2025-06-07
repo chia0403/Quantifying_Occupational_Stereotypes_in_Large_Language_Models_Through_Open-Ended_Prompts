@@ -1,0 +1,6 @@
+The aroma of burnt sugar hung heavy in the air, battling with the cloying sweetness of synthetic fruit from Elena Ramirez's protein shake. Elena wrinkled her nose, trying to pinpoint the source of the acrid smell. It had been plaguing her since she arrived at the community center kitchen, a converted school cafeteria with peeling linoleum floors and fluorescent lights that buzzed like agitated wasps.
+
+Elena sighed, pushing a stray strand of dark hair behind her ear. This wasn't exactly the glamorous world of nutrition consulting she'd envisioned when she graduated with honors from NYU. But after months of fruitless job searching, this community outreach program had been her only offer - to teach a series of "Healthy Eating on a Budget" workshops to a group of seniors struggling with diabetes. 
+
+
+Elena wasn't sure if she was more worried about the burnt sugar smell or the skepticism in the eyes of the woman across the table who kept eyeing her protein shake like it might bite her. The program coordinator, Ms. Johnson, had assured Elena that this group was "eager to learn," but so far, they seemed content with their coffee and donuts.  Elena took a deep breath. This wasn't going to be easy, but she was determined to make a difference.

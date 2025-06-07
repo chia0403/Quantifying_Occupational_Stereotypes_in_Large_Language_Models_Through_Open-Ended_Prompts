@@ -1,0 +1,5 @@
+The air hung thick with humidity and the scent of jasmine, clinging to Amelia Rose Dubois like a second skin as she stepped onto the rickety stage. The "stage" was more accurately described as a platform jutting out over a dusty courtyard in the heart of Marrakesh's ancient medina. Strings of fairy lights cast a hazy glow on the worn wooden planks beneath her feet, barely penetrating the velvet darkness that draped the surrounding walls.
+
+Amelia adjusted the microphone, its metallic gleam an alien presence amidst the aged stone and faded tapestries.  A murmur rippled through the assembled crowd - a motley mix of tourists, locals sipping mint tea, and wide-eyed children perched on their parents' shoulders. Their faces were obscured in shadow, but Amelia could feel their expectant gazes boring into her. This was her first performance in Morocco, a far cry from the neon-lit clubs of New York City where she had honed her craft. Tonight, she wasn't just singing; she was weaving magic with her voice, trying to bridge the gap between two worlds. 
+
+

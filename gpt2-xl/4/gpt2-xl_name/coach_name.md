@@ -1,2 +1,1 @@
 Jerry Sloan
-Jim Calhoun

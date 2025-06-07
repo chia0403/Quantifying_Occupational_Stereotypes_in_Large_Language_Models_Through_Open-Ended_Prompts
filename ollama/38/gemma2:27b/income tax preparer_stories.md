@@ -1,0 +1,5 @@
+The flickering fluorescent lights above cast Amelia Blackwood's desk in a sickly yellow glow. Tax season was always brutal, but this year felt particularly relentless. Stacks of W-2s, 1099s, and receipts towered precariously around her like papery stalagmites. The air hung heavy with the scent of stale coffee and desperation, a familiar aroma in Amelia's tiny office tucked away in the back corner of a strip mall. Outside, the incessant drone of traffic on Route 22 punctuated the rhythmic tap-tap-tapping of Amelia's fingers against her keyboard.
+
+Despite the chaos, Amelia found a strange solace in the numbers. There was order within them, a logic that made sense even amidst the jumble of human lives they represented. Today, however, her usual focus wavered. A nagging feeling pricked at her conscience, whispering doubts about one particular client's return. The case of Mr. Arthur Finch, an enigmatic antique collector with a penchant for secrecy and suspiciously large charitable donations, was starting to feel less like routine paperwork and more like something out of a mystery novel. 
+
+

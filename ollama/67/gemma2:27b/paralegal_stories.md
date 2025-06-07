@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Amelia Rose Callahan's cubicle, mimicking the relentless pounding in her chest. The fluorescent lights hummed overhead, casting a sickly yellow glow over stacks of legal briefs and case files that threatened to engulf her entirely.  The air hung heavy with the scent of stale coffee and desperation, a familiar perfume in the dimly lit warren of cubicles that housed the paralegal department at "Hawkins & Davenport," a mid-sized law firm clinging precariously to its reputation in downtown Chicago. 
+
+Amelia, her auburn hair pulled back in a tight ponytail, tapped a manicured fingernail against the glass tabletop, her gaze fixed on the blurry cityscape beyond. The impending deadline for the Henderson case loomed over her like a guillotine blade, and she hadn't even begun to untangle the Gordian knot of evidence.  Suddenly, a shrill ringing sliced through the humdrum silence, jolting Amelia from her anxious reverie. It was Mr. Davenport himself, his gruff voice booming through the speakerphone demanding an update on the Henderson case.
+
+

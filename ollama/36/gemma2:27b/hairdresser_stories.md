@@ -1,0 +1,3 @@
+The scent of lavender and hot oil hung heavy in the air, punctuated by the rhythmic snip-snip of shears and the low hum of hairdryers. Emilia Rose Bellini, with her vibrant turquoise streaks woven into her mahogany brown curls, expertly maneuvered a comb through Mrs. Garibaldi's thick, silver hair. Outside "Emilia's Emporium," nestled on the bustling corner of Mulberry and Bleecker in Little Italy, New York City throbbed with its usual midday energy. Horns honked, vendors hawked fresh cannolis and steaming cups of espresso, and the air vibrated with a symphony of Italian chatter. But within Emilia's salon, a haven of tranquility reigned. 
+
+

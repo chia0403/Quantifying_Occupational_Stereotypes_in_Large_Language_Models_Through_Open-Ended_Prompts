@@ -1,0 +1,5 @@
+Rain hammered against the grimy windowpane, blurring the already desolate cityscape beyond. Inside his cramped office at the Department of Corrections, Elias Finch chewed on the end of his pen, staring at the file spread before him. The photograph stared back - a young man, barely out of his teens, with haunted eyes and a defiant sneer etched across his face. This was Marcus Hayes, Elias' latest probationer, convicted of petty theft and vandalism. A minor offense, some would say. But Elias had seen enough broken lives to know that sometimes the smallest cracks could lead to the deepest chasms.
+
+The air hung heavy with the smell of stale coffee and desperation. A fluorescent hum buzzed overhead, casting a sickly yellow glow across the room. Scattered around Elias' desk were stacks of files, each representing a life teetering on the edge. He was responsible for keeping them from falling. But sometimes, it felt like he was clinging to a rope dangling over an abyss, himself just as vulnerable to the pull. 
+
+

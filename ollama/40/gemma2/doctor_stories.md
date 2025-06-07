@@ -1,0 +1,5 @@
+The air in Mercy General's ER was thick with the scent of antiseptic and unspoken tension. Fluorescent lights hummed overhead, casting a sterile glare on the chaotic scene below. Dr. Amelia Harding, her dark hair pulled back in a tight bun, surveyed the triage room with a practiced eye. A young girl, no older than eight, whimpered softly beside a gurney, clutching her arm where a bandage hastily covered a deep gash. An elderly gentleman coughed violently in the corner, his face pale and clammy. 
+
+Amelia took a deep breath, steeling herself for another night battling exhaustion, emotional baggage, and the relentless march of human suffering. Outside, the city slept, oblivious to the symphony of sirens wailing their way through the night. But inside Mercy General, life was a whirlwind of broken bones, shattered dreams, and the desperate flicker of hope that flickered in every patient's eyes. This was her world, her battleground, and Amelia Harding, despite the weariness etched on her face, wouldn't have it any other way. 
+
+

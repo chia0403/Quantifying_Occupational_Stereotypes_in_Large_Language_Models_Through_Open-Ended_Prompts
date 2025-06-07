@@ -1,0 +1,4 @@
+The wind whipped across the parched plains, carrying with it the scent of dust and sagebrush. Sun beat down mercilessly on Jedediah "Jed" Hawkins' weathered face as he surveyed his herd from atop his trusty steed, Buttercup. Jed, a man carved from granite and sinew, squinted at the horizon where the silhouettes of his cattle grazed against the blinding blue sky. The once vibrant green pastures were now brittle gold, cracked under the relentless summer sun. A drought had gripped their corner of Wyoming for months, turning the land unforgiving and testing the resilience of both man and beast. Jed knew they couldn't hold on much longer. The creek, their only source of water, was dwindling to a trickle. 
+
+
+He pulled his hat down further over his brow, a grimace etching its way across his face. He needed rain, and he needed it soon.  The future of Hawkins Ranch, a legacy passed down through generations, hung precariously in the balance. 

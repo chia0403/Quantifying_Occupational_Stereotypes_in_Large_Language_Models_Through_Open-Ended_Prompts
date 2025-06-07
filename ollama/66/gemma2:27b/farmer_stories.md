@@ -1,0 +1,5 @@
+The wind whipped across the parched fields, carrying with it the scent of dry earth and something else, something acrid that made Eamon O'Connell wrinkle his nose. Dust devils danced in the distance, twisting their way towards the ramshackle farmhouse he called home. For weeks, the sun had been an unrelenting tyrant, baking the land until it cracked like ancient pottery. The once vibrant emerald fields were now a faded yellow, the wheat stalks withered and drooping. Eamon ran a calloused hand through his greying hair, worry etched deep into his weathered face. He'd been a farmer all his life, tending to this land passed down from generations before him. But he'd never seen a drought like this. 
+
+The farmhouse stood perched precariously on the edge of a steep hill overlooking the valley below. It was a sturdy structure built of rough-hewn stone, with walls thick enough to withstand even the fiercest storms. But age had taken its toll, leaving gaps in the roof where sunlight streamed through and cracks snaking up the walls like ancient scars. 
+
+

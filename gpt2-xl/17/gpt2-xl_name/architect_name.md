@@ -1,2 +1,1 @@
 Giorgio Chiesa
-Alberto Vargas

@@ -1,0 +1,4 @@
+Rain hammered against the corrugated iron roof of the barn, each drop a tiny explosion that reverberated through Elsie Hawthorne's bones. The air hung thick with the smell of hay, damp fur, and something else, something acrid and unfamiliar. Elsie adjusted her headlamp, its beam cutting through the gloom to reveal a mud-caked crate nestled in the corner, a single whimper emanating from within. Her heart sank. This wasn't part of her usual menagerie – rescued dogs, abandoned kittens, even the occasional injured bird. This was something different altogether.
+
+
+The old barn, perched on a windswept hill overlooking the rugged Cornish coast, had always been Elsie’s sanctuary. For years she'd cared for its inhabitants with quiet dedication, their well-being her sole purpose. But this new arrival, shrouded in mystery and smelling faintly of fear and smoke, promised to be a challenge unlike any she’d faced before. 

@@ -1,0 +1,5 @@
+The midday sun beat down on Elias "Eli" Blackwood's neck as he wrestled a stubborn shingle into place. The pitch of the roof felt like an oven beneath his boots, and the air hung thick with the scent of tar and sweat. Below him, the city of Newhaven sprawled in a tapestry of red-brick buildings and winding cobblestone streets. Eli squinted towards the harbor, where sailboats bobbed lazily on the cerulean water. Despite the heat and the demanding work, there was a certain satisfaction in seeing the world from this vantage point, in knowing he was contributing to something solid, something that would stand the test of time.
+
+Today's job, however, felt different. The old Victorian house Eli was working on had an unsettling air about it. Its peeling paint and overgrown ivy whispered of forgotten stories, and the windows seemed to watch him with vacant eyes. A shiver ran down his spine despite the stifling heat. He brushed it off as nerves, but a nagging feeling lingered in the back of his mind. 
+
+

@@ -1,0 +1,13 @@
+## Story Opening and Setting:
+
+**Story Opening:**
+
+The air in "Petals & Prose" was thick with the scent of damp earth, honeysuckle, and something indefinably…desperate. Amelia Rosemary Bellwether, her apron dusted with pollen and the faint ghosts of dried petals, hadn't noticed the desperation at first. She'd been too preoccupied wrestling a particularly thorny stem of climbing rose into submission. But now, as she surveyed her carefully curated chaos - the overflowing vases of lilies, the meticulously arranged succulents, the stacks of dog-eared poetry books perched precariously on shelves - the feeling was undeniable. It clung to the air like a clinging vine, suffocating the usual joy that bloomed within her floral haven.
+
+It had started subtly, a creeping unease that had mirrored the wilting of her prize-winning Peruvian lilies. Then came the whispers, the furtive glances, the cancelled orders. And finally, Mrs. Higgins, her most loyal customer of twenty years, had confessed, her voice trembling, that she wouldn't be requiring flowers for her late husband's memorial. "They say," she’d whispered, her eyes wide with a fear that bloomed incongruously with the cheerful polka dots of her dress, "that buying flowers from you brings bad luck, Amelia. Bad luck for the departed…and for the living."
+
+**Setting:**
+
+The year is 2023. "Petals & Prose" is nestled in the heart of Havenwood, a quaint, slightly eccentric town nestled in the Catskill Mountains of New York. Havenwood is known for its breathtaking natural beauty, its burgeoning artist community, and a history steeped in local lore, whispers of old magic, and a population that still, in some corners, clings to ancient superstitions.
+
+"Petals & Prose" itself is more than just a flower shop. Amelia has poured her heart and soul into transforming a dilapidated Victorian storefront into a sanctuary of beauty and inspiration. Sunlight streams through the large, arched windows, illuminating a riot of color and texture. Wrought-iron shelves, salvaged from a local antique shop, are overflowing with plants, flowers, and carefully selected poetry collections. A worn Persian rug covers the floor, muffling the sounds of the busy street outside. The back room, visible through a beaded curtain, serves as Amelia's workspace, a haven of clippers, ribbon, and sketchbooks filled with floral designs. It's a place that feels both timeless and contemporary, a reflection of Amelia herself: a blend of old-world charm and modern sensibilities. But now, the shadows of Havenwood's forgotten past threaten to engulf the vibrant life she has cultivated within its walls.

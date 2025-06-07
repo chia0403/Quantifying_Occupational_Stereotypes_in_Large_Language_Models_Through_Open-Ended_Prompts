@@ -1,0 +1,5 @@
+The incessant wail of the siren sliced through Eliza Ramirez's already frayed nerves.  Rain lashed against the ambulance windshield, blurring the neon-drenched cityscape into streaks of red and yellow. It was another night in Chicago, where the air crackled with a chaotic energy that mirrored Eliza’s own tumultuous state. 
+
+She gripped the gurney railing tighter as they navigated the treacherous streets. The call had been terse – "Possible GSW, unknown age and gender, alley behind Mulligan's Pub." GSW - gunshot wound. Eliza's stomach twisted. These calls were always the worst. Every fiber of her being yearned to be home curled up with a good book, but duty, that unrelenting siren song, called to her. She was an EMT, after all, and in this city, there was always someone who needed saving.
+
+The ambulance screeched to a halt outside the dimly lit alleyway, its red lights painting grotesque shadows on the brick walls. Eliza scrambled out, her boots slipping on the slick pavement. The stench of stale beer and urine hit her nostrils, mixing with something else – metallic, sharp, unmistakably blood. 

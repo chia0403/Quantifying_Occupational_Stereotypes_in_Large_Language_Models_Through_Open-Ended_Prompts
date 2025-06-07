@@ -1,0 +1,3 @@
+Rain hammered against the windows of St. Jude's Hospital, blurring the lights of the city below into an impressionistic watercolour. Inside, the air hung heavy with the sterile scent of disinfectant and a quiet tension that only a surgical theatre could breed. Dr. Evelyn Albright, her brow furrowed in concentration, adjusted the magnification loupes perched on her nose, her eyes fixated on the intricate network of arteries and veins laid bare before her. The rhythmic beep of the heart monitor punctuated the silence, each pulse a metronome counting down the precious seconds she had to mend the shattered vessel. This wasn't just any surgery; it was a race against time for a young boy whose life hung precariously in the balance.
+
+

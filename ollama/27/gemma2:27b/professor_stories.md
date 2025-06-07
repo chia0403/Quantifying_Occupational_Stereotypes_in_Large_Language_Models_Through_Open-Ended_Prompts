@@ -1,0 +1,3 @@
+Rain lashed against the arched windows of Professor Eleanor Ainsworth's study, mimicking the tempest raging within her. Stacks of parchment, each one meticulously inscribed with arcane symbols and withered herbs pressed between the pages, threatened to topple over as she paced, her tweed skirt swirling around her ankles. The fire in the hearth sputtered, casting flickering shadows that danced on the walls lined with ancient tomes bound in leather and iron. Outside, the cobblestone streets of Edinburgh were slick with rain, reflecting the gaslights in a distorted shimmer. Eleanor, however, was oblivious to the world beyond her study. Her mind was consumed by a single, terrifying thought: she had made a grave mistake. 
+
+

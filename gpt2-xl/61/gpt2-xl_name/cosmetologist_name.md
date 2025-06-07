@@ -1,1 +1,1 @@
-Mary Rose Riney
+Mary

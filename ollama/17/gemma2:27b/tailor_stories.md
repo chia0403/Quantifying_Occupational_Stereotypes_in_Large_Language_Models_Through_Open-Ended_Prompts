@@ -1,0 +1,6 @@
+The air in The Golden Needle hung thick with the scent of beeswax and lavender, punctuated by the sharp tang of iron from Elias Finch's needle as it pierced through fine silk. Sunlight streamed through the shop window, illuminating motes of dust dancing above bolts of vibrant fabric stacked high against the walls. Outside, the bustling marketplace of Silkhaven thrummed with life – merchants hawked their wares, children chased pigeons through cobblestone streets, and the aroma of spices mingled with the salty tang of the nearby sea.
+
+Elias, a man whose hands moved with the precision of a master craftsman, meticulously adjusted the fit of a crimson velvet doublet on his latest client, Lord Auberon Ashworth, a nobleman known for his flamboyant style.  The weight of years sat heavy on Elias's shoulders, etched in the lines around his kind eyes and the silver threading through his once dark hair. He’d been plying his trade in Silkhaven for over four decades, earning a reputation as one of the finest tailors in the realm. 
+
+
+But today, a shadow lingered over The Golden Needle.  A rumour had swept through the city – whispers of a shadowy organization known only as 'The Raven's Claw' who were targeting artisans like Elias, threatening to steal their secrets and cripple the city's vibrant craft scene.   

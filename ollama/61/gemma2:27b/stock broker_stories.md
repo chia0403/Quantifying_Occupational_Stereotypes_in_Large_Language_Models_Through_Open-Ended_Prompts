@@ -1,0 +1,4 @@
+The acrid smell of burnt coffee permeated Amelia Thorne's cramped office, a testament to her insomnia-fueled late nights spent poring over market trends. Outside her window, the relentless grey sky mirrored the mood in the trading floor below. It was one of those days where even the seasoned veterans seemed to be walking on eggshells, their usual boisterous energy replaced by an anxious tension. The Dow Jones had been dipping steadily all morning, and whispers of a potential crash were swirling like vultures around Amelia's desk. 
+
+
+She tapped her pen against the screen displaying her portfolio, each tick downward sending a jolt through her. Her clients, mostly retirees relying on their investments for income, depended on Amelia to navigate these treacherous waters. The weight of their trust felt heavier than usual today.

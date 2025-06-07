@@ -1,0 +1,7 @@
+Once upon a time, there was a professor named George H.W. Bush. But his name changed. In 1993, he and his wife, Barbara Bush, adopted their current surname. The following year, he married. And in 2004, he became George W. Bush. Not all Americans are delighted with the turnabout. Last Sunday, the Los Angeles Times printed this response from a concerned friend of the Bush family: "It's not like everyone suddenly thinks George P. or George H. could be great candidates either. This is the guy whom he married—and his new wife is still the one his dad wanted to marry."
+
+The Times noted that after eight years as the nation's 47th President, the Bush family has yet to officially announce how much it has spent to build up its presidential archives.
+
+In July, the Bush family spent a year and $17.9 million building a presidential library in Dallas. The money came from the foundation and from its private donor, Texas oilman T. Boone Pickens. He wants the library because he has a "great admiration" for all three Presidents Bush. "Presidents need their family support," Pickens wrote in an email, before adding that he wants the library to serve all historians, historians, and historians. "If I had all the money I'd be building a huge library," he said.
+
+In early July, the foundation released a statement saying President Bush planned to speak at a Sept. 12

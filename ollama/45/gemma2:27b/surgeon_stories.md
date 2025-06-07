@@ -1,0 +1,3 @@
+Rain lashed against the windows of the OR, mimicking the frantic tattooing of Eliza Winthrop's pulse as she scrubbed in. The air hung heavy with antiseptic and the tang of fear – not her own, but that emanating from the young woman on the table. A single flickering fluorescent light illuminated the scene, casting harsh shadows across Eliza's face as she tightened the mask over her nose and mouth. Tonight, every second counted.  Eliza was about to embark on a surgery unlike any other in her career: separating conjoined twins, a delicate dance between life and death played out under the unforgiving glare of surgical lights. 
+
+

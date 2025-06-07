@@ -1,0 +1,4 @@
+The midday sun beat down on Silas Montgomery's neck like a blacksmith's hammer, turning his already sweat-soaked shirt into something resembling a damp rag. Dust devils danced in the vacant lot across the street, swirling up grit and debris from the half-demolished building that cast a long, skeletal shadow over Silas and his crew. The air thrummed with the whine of saws and the clatter of hammers against steel as they labored to erect the framework for a new office complex. 
+
+
+Silas leaned against his shovel, momentarily resting his aching back. He squinted at the shimmering horizon, imagining something beyond the endless sprawl of concrete and glass that defined this city. Somewhere out there, maybe, lay a field of sunflowers bathed in golden sunlight, or a rushing river carving its way through emerald hills. Anything but this relentless sun and the choking dust that seemed to cling to everything.

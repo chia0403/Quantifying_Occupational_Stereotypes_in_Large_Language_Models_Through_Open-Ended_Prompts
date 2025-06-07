@@ -1,0 +1,5 @@
+The air hung thick with the smell of ozone and disinfectant, punctuated by the sharp tang of antiseptic. Sirens wailed in the distance, a symphony of urgency that Amelia "Amy" Chen had grown accustomed to. She stood at the nurses' station, her navy blue scrubs already stained with the day's battles – a splatter of blood here, a smear of unknown bodily fluid there. The fluorescent lights buzzed overhead, casting a sterile glow on the chaotic tableau of the ER waiting room: anxious families huddled together, coughing patients draped in blankets, and a young man clutching his bleeding arm, eyes wide with panic.
+
+Amy glanced at the clock – 3:17 PM – another hour until her shift ended. She sighed, rubbing her weary eyes. It had been a relentless day, filled with heart attacks, car accidents, and a particularly nasty case of food poisoning from the local taco truck. But Amy wouldn't trade it for anything. In the whirlwind of broken bones and shattered lives, she found purpose.  She was the calm in the storm, the steady hand that guided patients through their darkest moments. 
+
+

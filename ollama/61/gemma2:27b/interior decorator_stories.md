@@ -1,0 +1,5 @@
+The pungent scent of linseed oil hung heavy in the air, mingling with the sweet perfume of lilies that Eloise Beaumont had carelessly tossed onto the antique mahogany table. Sunlight streamed through the dusty attic window, illuminating swirling motes and highlighting the faded grandeur of the once-opulent room. Eloise ran a gloved hand over the intricately carved surface of the table, imagining elegant ladies in silk gowns sipping tea beneath its warm glow. This forgotten house, with its peeling wallpaper and cobwebbed chandeliers, whispered stories of a bygone era, begging to be brought back to life. 
+
+Eloise Beaumont wasn't just any interior decorator; she possessed an almost supernatural ability to sense the soul of a space. She could hear the echoes of laughter in the drafty hallway, feel the warmth of hearth fires long extinguished, and see the ghosts of past inhabitants lingering in the shadows. This house, with its melancholic silence and faded beauty, called out to her like a lost love. And Eloise, ever the romantic, couldn't resist answering the call. 
+
+

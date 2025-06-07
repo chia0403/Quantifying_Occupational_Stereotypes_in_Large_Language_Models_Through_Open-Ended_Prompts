@@ -1,0 +1,4 @@
+The salt air hung heavy in the room, tinged with the faint scent of jasmine from Amelia Rose Hawthorne's diffuser. Outside, the relentless Pacific pounded against the cliffs of Big Sur, its rhythm a constant backdrop to her life. Amelia had built her practice on the edge of this wild beauty, drawing in clients seeking solace as much as relief from aching muscles. Today, however, the usual tranquility was disrupted. A gust rattled the windowpanes, and a wave crashed so forcefully against the rocks that the whole house shuddered. Amelia paused, listening intently. It wasn't just the storm; there was something else, a faint sound like...crying? 
+
+
+Let me know if you'd like me to continue the story!

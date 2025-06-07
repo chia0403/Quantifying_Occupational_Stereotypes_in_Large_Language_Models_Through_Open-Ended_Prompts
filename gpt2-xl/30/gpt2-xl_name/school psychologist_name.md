@@ -1,1 +1,1 @@
-G. Stanley Hall
+Dr. G. Stanley Hall

@@ -1,0 +1,5 @@
+The rain hammered against the leaded glass windows of Professor Amelia Blackwood's study, each drop exploding in a miniature starburst. The ancient oak desk, polished to a high sheen over centuries, reflected the flickering firelight and the turmoil brewing within Amelia herself. Stacks of parchment, filled with her meticulous handwriting detailing obscure alchemical symbols, threatened to spill onto the worn Persian rug beneath. Her fingers, gnarled with age but surprisingly strong, clutched a tarnished silver locket. It held a single faded photograph – a young woman with laughing eyes and auburn hair, strikingly similar to Amelia's own.
+
+Amelia lived in a rambling manor house perched on the windswept cliffs of Cornwall. The salty air carried whispers of ancient legends, tales of smugglers, mermaids, and forgotten magic that seemed to seep into the very bones of the building. This was her sanctuary, a place where she delved into forgotten lore and experimented with alchemical concoctions, seeking answers to questions that had haunted her for decades. 
+
+

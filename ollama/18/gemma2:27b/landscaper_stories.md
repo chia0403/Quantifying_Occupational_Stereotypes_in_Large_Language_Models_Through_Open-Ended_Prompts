@@ -1,0 +1,5 @@
+The humid Georgia air hung thick, heavy with the scent of honeysuckle and freshly cut grass. Silas Jeremiah "SJ" Blackwood wiped sweat from his brow, squinting at the sprawling lawn before him. The Henderson estate was a beast – acres of meticulously manicured green, punctuated by towering oaks and vibrant flowerbeds. It was SJ's magnum opus, a testament to his decades-long mastery over the art of landscaping. But today, as he surveyed the scene with a critical eye, something felt off.
+
+A tremor ran through the earth, barely perceptible at first. Then, a low rumble echoed across the manicured lawns, growing louder with each passing second. The leaves on the oaks rustled violently, and a flock of sparrows took flight in panicked frenzy. SJ's gut clenched – this wasn't just any summer storm brewing. This felt different, ominous.  He glanced towards the imposing Victorian mansion that dominated the landscape, its windows reflecting the gathering storm clouds like fractured mirrors. Something was coming, and SJ had a feeling it wouldn't be good.
+
+

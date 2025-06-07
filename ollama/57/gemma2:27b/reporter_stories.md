@@ -1,0 +1,6 @@
+The acrid smell of stale cigarettes and desperation hung thick in the air of The Rusty Nail, a dive bar tucked away on a forgotten corner of Elm Street. Rain lashed against the grimy windows, mirroring the storm brewing inside Amelia "Amy" Harding. Her notebook lay open on the sticky countertop, its pages already stained with spilled beer and anxieties. 
+
+Amy was chasing a story – a big one. Rumors had been swirling for weeks about a clandestine operation happening right under the noses of the authorities in this sleepy town of Ashton. Whispers of illegal arms dealing, shadowy figures, and disappearances plagued the hushed conversations in back alleys and dimly lit pubs. The local police were tight-lipped, dismissing it all as "town gossip." But Amy, with her sharp instincts honed by years of reporting for the Ashton Chronicle, smelled something rotten beneath the surface. 
+
+
+The Rusty Nail was her last hope. Old Man Henderson, a fixture behind the bar with eyes that had seen too much, was rumored to have connections. He knew everyone and everything, or so they said. Tonight, Amy was determined to pry loose whatever information he held, even if it meant drinking cheap whiskey until dawn.

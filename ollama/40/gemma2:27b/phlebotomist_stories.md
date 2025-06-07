@@ -1,0 +1,5 @@
+The fluorescent lights hummed overhead, casting a sickly green glow over the sterile white walls of the Sunrise Community Clinic. A faint scent of antiseptic hung in the air, mingling with the underlying aroma of fear and anxiety that seemed to permeate every corner of the waiting room. Amelia "Amy" Chen adjusted her lavender scrubs, the name tag pinned crookedly above her breast pocket. Outside, the Arizona sun beat down mercilessly, baking the asphalt parking lot into a shimmering mirage.
+
+But inside, it was always cool, almost frigid. Amy preferred it that way. It kept her focus sharp, her movements precise. As a phlebotomist, every vein was a map, every artery a pulsing river she navigated with practiced ease. Today, however, her usual calm felt threatened by the knot of unease twisting in her stomach. A new patient awaited her, one whose file had been flagged with a cryptic "urgent" label. The details were sparse: Johnathan Blackwood, 42, presenting with unspecified symptoms. Amy couldn't shake the feeling that this wasn't going to be an ordinary blood draw.  
+
+

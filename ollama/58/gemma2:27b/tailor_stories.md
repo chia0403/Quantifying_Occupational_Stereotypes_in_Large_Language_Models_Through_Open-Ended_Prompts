@@ -1,0 +1,5 @@
+The air hung heavy with the scent of lavender and beeswax in The Golden Thimble, a tiny shop tucked away on a cobbled side street in Prague's Old Town. Sunlight, filtered through dusty windowpanes, illuminated swirling motes of dust and fell upon rows of bolts of silk, velvet, and linen, their colours muted and rich like old paintings.
+
+Behind the counter, Elias Novak meticulously stitched a seam onto a crimson doublet, his needle moving with the practiced rhythm of a lifetime spent at his craft. The quiet hum of the city drifted in through the open doorway: the clatter of horse-drawn carriages, the lilting melody of a street violinist, and the murmur of voices mingling with the scent of roasting chestnuts. Elias paused, tilting his head to listen, a furrow forming on his brow. It was a sound he hadn't heard before, something sharp and discordant cutting through the city's usual symphony.
+
+He set down his needle and moved towards the doorway, peering out onto the bustling street. A sense of unease pricked at him. The cobblestones were unusually empty, save for a single cloaked figure hurrying past, their face hidden in shadow. 

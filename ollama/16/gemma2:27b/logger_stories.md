@@ -1,0 +1,3 @@
+The air hung heavy with pine needles and woodsmoke, a familiar scent that clung to Jasper Blackwood like a second skin. Dawn was just breaking, casting long shadows through the towering Douglas firs that crowded the Willamette National Forest. Jasper, his weathered face etched with the lines of a life spent wrestling giants, surveyed the scene before him: a sprawling mess of felled timber waiting to be dragged, stacked, and sent on its way. He cracked his knuckles, feeling the familiar ache in his lower back, but pushing it aside. Another day, another dollar, he thought, his calloused hand reaching for the worn handle of his chainsaw. 
+
+

@@ -1,0 +1,5 @@
+The air hung heavy with the scent of garlic and woodsmoke, a familiar comfort to Esmeralda Delacroix as she surveyed her domain.  Her tiny restaurant, "Chez Esme," nestled on a cobblestone alley in Montmartre, Paris, was bustling with the usual Saturday night energy. Laughter mingled with the clatter of plates and the hiss of sizzling butter on the cast iron griddle. Outside, the streetlamps cast an amber glow upon the ancient buildings, their facades adorned with ivy and wrought-iron balconies overflowing with geraniums. Esmeralda, her face flushed from the heat of the stove, paused for a moment to savor the scene. This was her haven, a world she'd built brick by brick, spice by spice, fuelled by her passion for crafting culinary masterpieces that transported diners to another realm.
+
+Tonight, however, a tension simmered beneath the surface, an unsettling dissonance in the usual symphony of Chez Esme. A letter lay unopened on the counter, its crisp white envelope bearing a Parisian postmark and no return address. Esmeralda's heart skipped a beat as she remembered the anonymous phone call earlier that day, a voice steeped in menace warning her to "beware."
+
+

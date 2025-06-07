@@ -1,0 +1,6 @@
+The scent of acetone hung heavy in the air, a familiar perfume to Esmeralda "Esme" Reyes. Her small salon, "Painted Tips," was tucked away on a quiet side street in Brooklyn, its window plastered with vibrant posters advertising everything from glitter gradients to rhinestone embellishments. Sunlight streamed through the glass door, illuminating dust motes dancing above Esme's workbench – a testament to the late hour and the steady stream of clients she’d seen that day.
+
+A chipped porcelain teapot sat steaming on a rickety table in the corner, its contents long cold. Outside, sirens wailed in the distance, a melancholic melody interwoven with the rhythmic tapping of Esme's file against an acrylic nail. Her client, Ms. Rodriguez, was lost in a romance novel, her lips moving silently as she devoured the words. 
+
+
+Esme paused, admiring her work – a shimmering ombre effect transitioning from deep emerald to glittering gold. She loved transforming plain nails into tiny canvases, each stroke of polish a whisper of artistry. But tonight, Esme's thoughts weren't on manicures.  She was consumed by a nagging feeling, an itch beneath her skin that wouldn't be scratched away. Something was wrong. She just didn't know what. 

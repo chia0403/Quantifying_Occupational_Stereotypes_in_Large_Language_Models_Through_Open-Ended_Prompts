@@ -1,0 +1,5 @@
+Rain lashed against the windows of Dr. Evelyn Albright's office, blurring the view of the playground below into an impressionistic swirl of gray and green. The air inside was thick with the scent of old books and nervous anticipation. Evelyn, her brow furrowed in concentration, tapped a pen against her notepad, reviewing the file before her. Liam Carter, age 12, had been referred by his math teacher for "unusual behavior" and "difficulty concentrating."  Evelyn sighed. This year had seen an influx of students struggling with anxiety and social isolation, likely exacerbated by the pandemic's lingering effects.  Liam's case, however, felt different. There was something in the brief notes from his teacher, a hint of unease beneath the surface, that piqued Evelyn's curiosity.
+
+She straightened up, smoothing down her cardigan as she prepared to meet Liam for the first time. Today, within the beige walls and faded floral wallpaper of her office at Oakwood Middle School, Evelyn would attempt to unravel the mysteries behind Liam Carter's troubled mind. 
+
+

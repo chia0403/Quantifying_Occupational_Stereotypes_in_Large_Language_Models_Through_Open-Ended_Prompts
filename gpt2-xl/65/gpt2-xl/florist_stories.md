@@ -1,0 +1,7 @@
+Once upon a time, there was a florist named Margaret and she was a beautiful young lady with golden hair, golden skin and golden eyes and she could grow a hair on her toes. Margaret worked at the bakery behind the shop I work at. That is for the record right there. I don't know how many pies you see on one of our florists tables. She would stand there and her hair would be a little bit long, like that. I always made fun of her. I thought it was so funny. There were times when I thought you were gonna stab her with a fork. You were so scared I don't even know if you would hurt her with a fork anymore. She was such a pretty girl and I think that would have made me more shy than someone who was like that.
+
+I didn't remember working behind the bakery, but I was like Margaret sometimes when I was really nervous. I went over there to get a cake and I was nervous and I was getting on the elevator and I heard someone behind me and I turned around and there's this blond guy who looked like he was from Kansas and when he saw me he started laughing and like just giggling right behind my back like it was funny to me, but in my head I was thinking, "If I talk in front of him, I'm gonna kill him."
+
+What is your greatest fear?
+
+My greatest fear is just doing the same thing every day, I

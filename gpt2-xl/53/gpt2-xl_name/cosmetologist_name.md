@@ -1,2 +1,1 @@
-Peggy Korn
 Mrs. Lott

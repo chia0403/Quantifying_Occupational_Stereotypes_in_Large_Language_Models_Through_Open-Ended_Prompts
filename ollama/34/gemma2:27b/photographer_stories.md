@@ -1,0 +1,5 @@
+The salt-laced wind whipped Eleanor Clairemont's hair across her face as she crouched on the craggy cliff edge, camera clutched tight in her gloved hands. The sun was beginning its descent, painting the sky in hues of bruised purple and fiery orange that reflected off the churning Atlantic below.  She squinted through the lens, framing the perfect shot: a solitary gannet perched precariously on a jutting rock, wings spread wide against the dramatic backdrop. This was why Eleanor lived for these moments - the raw beauty of nature, captured in its purest form. 
+
+This particular cliff face, overlooking the secluded cove of Penhale Sands in Cornwall, had been her muse for weeks. The isolation suited her; Eleanor preferred the company of gulls and crashing waves to that of people.  Her latest project, a series exploring the untamed spirit of the Cornish coast, was consuming her entirely, pushing her to brave howling storms and treacherous tides in pursuit of the perfect image. Today, however, felt different. A strange sense of anticipation thrummed beneath her skin, as if something momentous was about to happen. 
+
+

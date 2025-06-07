@@ -1,0 +1,7 @@
+The scent of crayons and disinfectant hung heavy in the air, a familiar perfume to Eleanor Amelia Hayes, childcare worker extraordinaire.  Sunlight streamed through the grimy windows of the Sunshine Daycare Center, illuminating swirling dust motes and highlighting sticky fingerprints smeared across the primary-colored plastic tables. Eleanor hummed along to the tinny rendition of "The Wheels on the Bus" crackling from the old boombox in the corner, her gaze sweeping over the chaotic tableau before her.  Six giggling toddlers were engaged in a spirited game of tag, weaving between blocks and toy cars with gleeful abandon. Three preschoolers sat hunched over a table, their tongues poking out in concentration as they attempted to draw portraits of their families.
+
+Eleanor smiled, her heart swelling with affection for these little humans who entrusted her with their laughter, their tears, and their boundless energy. Today, however, a flicker of unease danced beneath the surface of her contentment.  Mrs. Henderson, the daycare's owner, had been acting strangely all week – secretive phone calls, hushed conversations in the hallway, and an unsettling tension that seemed to cling to her like a shroud.
+
+As Eleanor crouched down to help Lily, a little girl with pigtails the color of spun sunshine, build a tower out of oversized blocks, she couldn't shake the feeling that something was about to change, something big. 
+
+

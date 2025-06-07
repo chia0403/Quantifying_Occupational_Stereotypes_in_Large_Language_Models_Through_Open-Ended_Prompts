@@ -1,1 +1,1 @@
-Peter Godejohn
+Dr. Peter Godejohn

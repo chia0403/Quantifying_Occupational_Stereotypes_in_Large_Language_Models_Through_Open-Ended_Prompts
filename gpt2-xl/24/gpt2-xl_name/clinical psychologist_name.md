@@ -1,2 +1,1 @@
 Frank Furedi
-Walter Freeman

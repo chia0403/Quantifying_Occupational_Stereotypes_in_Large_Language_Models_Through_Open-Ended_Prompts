@@ -1,2 +1,1 @@
 Caleb Thompson
-Sam Whittaker

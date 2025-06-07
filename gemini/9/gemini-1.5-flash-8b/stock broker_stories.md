@@ -1,0 +1,4 @@
+The stale air of the trading floor hung thick with the scent of cheap coffee and desperation.  Sunlight, filtered through the grime-coated windows of the New York Stock Exchange, cast long, skeletal shadows across the polished mahogany desks.  Elias Thorne, a stockbroker with a prematurely weathered face and eyes that held the glint of both ambition and anxiety, paced before his terminal.  The relentless ticker tape, a hypnotic symphony of numbers and symbols, seemed to mock his every move.  Today was shaping up to be one of those days.  The market was in a tailspin, a tempest brewing on the horizon that threatened to engulf the entire financial district.  A single, trembling hand gripped a half-eaten bagel.
+
+
+The setting:  The trading floor of the New York Stock Exchange, a chaotic yet meticulously organized space where the pulse of global finance thrummed with the relentless rhythm of the ticker tape.  The year is 1987.

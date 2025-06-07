@@ -1,0 +1,3 @@
+Rain lashed against the corrugated iron roof of St. Jude's Free Clinic, each drop exploding in a miniature burst of sound. The air hung heavy with the scent of antiseptic and damp wool. Evelyn Rose Carmichael, her auburn braid whipping across her shoulder, hurried through the echoing hallway, a tray of neatly labeled vials clutched tightly in her hand.  She knew Mrs. Perez was waiting, her pale face etched with anxiety as she anticipated the results of her latest bloodwork. Evelyn always tried to be swift, efficient - but today, even the usually familiar rhythm of her work felt disrupted by the storm raging outside and a gnawing unease within. 
+
+

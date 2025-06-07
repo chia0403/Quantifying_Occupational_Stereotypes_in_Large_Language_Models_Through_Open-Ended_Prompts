@@ -1,0 +1,5 @@
+The gavel felt strangely heavy in Judge Eleanor Cavendish's hand. Sunlight streamed through the arched windows of Courtroom 3B, illuminating motes of dust that danced like miniature ballerinas. Usually, Eleanor found solace in the quiet dignity of her courtroom, the polished mahogany benches, and the timeless weight of justice. Today, however, the air felt thick with unspoken tension.
+
+Eleanor adjusted her spectacles, her gaze sweeping over the assembled crowd: a nervous young defendant fidgeting in his chair, the victim's family huddled together, their faces etched with grief and anticipation. This case, a seemingly straightforward robbery gone wrong, had spiraled into something far more complex, dredging up long-buried secrets and threatening to shatter the fragile peace of her small Appalachian town.  
+
+Eleanor took a deep breath, steeling herself for the arduous journey ahead. The fate of those present rested on her shoulders, and she knew every decision would ripple through their lives, leaving scars both visible and invisible. 

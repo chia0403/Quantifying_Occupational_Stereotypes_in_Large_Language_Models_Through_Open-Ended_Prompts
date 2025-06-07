@@ -1,0 +1,5 @@
+The air hung thick with the scent of lemon polish and lavender disinfectant as Elara Finch scrubbed the stubborn watermark from the mahogany coffee table in the grand foyer. Sunlight streamed through the arched windows, illuminating dust motes dancing in the golden rays. Above her, an ornate chandelier sparkled like a captured constellation, its prisms throwing rainbows across the polished marble floor. This was Thorne Manor, a sprawling Victorian behemoth perched on the edge of the windswept Yorkshire moors. For Elara, it was more than just a place of work; it was a sanctuary from the harsh realities of her life. Each day, she lost herself in the rhythm of cleaning, polishing, and dusting, finding solace in the order she brought to this grand, yet often lonely, house.
+
+But today was different. A tension hung in the air, thicker than the lavender scent. Elara could sense it in the hushed whispers of the other staff, in the hurried footsteps echoing through the empty halls. Something was amiss at Thorne Manor, and for the first time, Elara felt a shiver of fear crawl down her spine. 
+
+

@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane, blurring the neon glow of the "Lucky Dragon" sign across the street. Inside his cluttered office, Theodore “Teddy” Blackwood sighed, pushing a stray lock of salt-and-pepper hair from his weary eyes. The air hung heavy with the scent of stale coffee and cheap tobacco, a testament to Teddy's long hours and even longer nights spent chasing shadows through the underbelly of 1940s Chicago. He hadn't had a decent case in weeks, the kind that stirred something within him, something beyond the drudgery of missing cats and cheating husbands.
+
+Just as he was contemplating whether to call it a night, the door creaked open, admitting a gust of wind and a figure shrouded in darkness. Teddy straightened in his chair, his hand instinctively reaching for the worn revolver tucked beneath his desk. He squinted into the gloom, the streetlamp outside casting fleeting shadows across the newcomer's face. "Can I help you?" he rasped, his voice rough from too much whiskey and not enough sleep.
+
+

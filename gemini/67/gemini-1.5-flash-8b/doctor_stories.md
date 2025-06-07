@@ -1,0 +1,3 @@
+The biting wind whipped Dr. Elara Nightingale's crimson cloak around her, stinging her cheeks as she surveyed the sprawling, snow-dusted valley.  Below, the village of Aethelgard huddled like a frightened flock of birds, its thatched roofs barely visible beneath the blanket of white.  A single, flickering firelight, the only visible sign of life, pulsed from the hospice she'd been summoned to.  The valley, usually vibrant with the emerald green of springtime meadows and the warm ochre of autumn leaves, was a stark canvas of icy grey and stark white.  January's grip was merciless, and Elara felt the chill not just in the air, but in the heavy weight of responsibility pressing down on her shoulders.
+
+Her destination: the hospice run by the reclusive Elder Elara.

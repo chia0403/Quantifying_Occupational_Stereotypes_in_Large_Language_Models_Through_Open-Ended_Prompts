@@ -1,0 +1,5 @@
+The scent of crayons and hand sanitizer hung heavy in the air, a peculiar perfume that Ms. Eloise Hawthorne had come to associate with comfort and chaos in equal measure. Sunlight streamed through the oversized windows of her classroom, illuminating a battlefield of scattered blocks, abandoned Play-Doh creations, and half-finished drawings depicting stick figures holding hands with rainbows. It was nap time, but the usual symphony of gentle snores was punctuated by the occasional sniffle and the persistent thumping of little feet against the worn rug as someone, inevitably Timmy Henderson, decided to stage an impromptu dance recital.
+
+Eloise sighed contentedly, leaning back in her chair and watching the scene unfold. Kindergarten was a whirlwind, a constant dance between discipline and delight, but she wouldn't trade it for anything. Today, however, felt different. There was an unusual stillness hanging in the air, a subtle tension that hummed beneath the surface of Timmy's impromptu ballet. It was as if the very walls were holding their breath, waiting for something to happen. 
+
+

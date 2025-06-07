@@ -1,0 +1,5 @@
+The insistent wail of the heart monitor sliced through Amelia Rose Davenport's exhaustion like a rusty scalpel. She blinked rapidly, trying to dispel the fog that clung to her brain after another grueling twelve-hour shift in the cardiac ward. Outside, the city pulsed with life – car horns blared, sirens shrieked, and distant music throbbed – but inside St. Jude's Hospital, time seemed to stand still, punctuated only by the rhythmic beeping of machines and the hushed murmur of worried whispers. Amelia, her starched blue scrubs clinging to her sweat-dampened skin, glanced at the clock: 3:17 am.
+
+It was nights like these that Amelia questioned her sanity. Why subject herself to this relentless cycle of sleep deprivation, emotional turmoil, and the ever-present threat of life and death? Yet, as she met the fearful eyes of Mr. Henderson, his chest heaving with each shallow breath, a flicker of purpose ignited within her. He needed her – needed someone to fight for him, to calm his anxieties, to offer a sliver of hope in the face of the unknown.  And Amelia Rose Davenport, despite her weary bones and yearning for sleep, was ready to do just that. 
+
+

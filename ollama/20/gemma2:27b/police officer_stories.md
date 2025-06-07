@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Detective Eleanor Vance's office, mirroring the tempest brewing inside her. The flickering neon sign of the "Lucky Dragon" bar across the street cast an unsettling green glow on her desk, cluttered with photos and reports from a case that refused to let go.  It was 2:37 am, the kind of hour when even the shadows seemed to be holding their breath. Eleanor ran a hand through her short, choppy blonde hair, her eyes fixed on the photograph of a young woman – Sarah Jenkins – whose smile now felt like a haunting memory. Sarah had vanished three weeks ago, swallowed whole by the labyrinthine streets and secrets of Chinatown.  Eleanor knew this case was different. It wasn't just the gut feeling that gnawed at her; it was the unsettling silence surrounding Sarah's disappearance. No witnesses, no leads, just an eerie void where answers should be.
+
+Tonight, she felt a shift in the stagnant air. A whisper of intuition, a nudge telling her something was about to break. 
+
+

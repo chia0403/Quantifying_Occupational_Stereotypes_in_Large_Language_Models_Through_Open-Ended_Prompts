@@ -1,0 +1,5 @@
+Rain lashed against the windows of St. Jude's Hospital, blurring the already fading neon glow of the "Emergency" sign. Inside, the air buzzed with controlled chaos. Monitors beeped, gurneys rolled, and nurses barked orders in clipped, efficient tones. Amidst this storm of activity, Amelia Rose Gallagher, a veteran nurse with salt-and-pepper hair pulled back into a tight bun, calmly assessed her patient. The young man, barely out of his teens, lay pale and sweating on the bed, his chest heaving with each shallow breath. His name was Daniel, and he'd been brought in after a motorcycle accident, unconscious and bleeding profusely. Amelia glanced at the clock ticking relentlessly on the wall. 7:43 PM. Another long night stretched ahead of her.
+
+The waiting room beyond the glass partition overflowed with anxious faces. Each person held their own story – a worried wife, a frantic father, a friend biting his nails raw. Amelia understood their fear; she’d seen it countless times before. But tonight, something felt different. The air crackled with an unspoken tension, as if the storm outside mirrored the turmoil brewing within the hospital walls. 
+
+

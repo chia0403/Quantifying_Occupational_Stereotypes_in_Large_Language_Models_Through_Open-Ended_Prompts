@@ -1,0 +1,3 @@
+Rain lashed against the grimy windows of Mercy General Hospital, blurring the already dim cityscape beyond. The air hung heavy with the scent of antiseptic and despair. Inside, Amelia Rose Thompson, a seasoned RN with salt-and-pepper hair tucked beneath her cap, navigated the chaotic symphony of beeping monitors, frantic whispers, and pained groans. Her crisp white uniform was stained with the day's battles – a smear of crimson here, a smudge of something unidentifiable there.  She paused outside Room 214, steeling herself for what lay beyond the frosted glass. Tonight, Amelia would face her most daunting challenge yet: a patient teetering on the precipice between life and death, a young man clinging desperately to each fragile breath.
+
+

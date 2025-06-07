@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named Michael J. Fox. And there was a big fat girl playing basketball in a basketball game. The one thing Michael Fox did right was that he had a "hot dog at every meal."
+
+You don't go in the kitchen, search for a sausage, cut the dog in half, and ask, "So, do you want to go a second time?" It wasn't like that. But what a person says about themselves is just as important as what they do. There, Fox was as much a womanizer. He was a womanizer who took up with a hot dog (thereby proving the hot dog rule: if it's delicious, eat it).
+
+In an attempt to explain his "hot dog fetish," Fox explained it this way:
+
+If you take anything away from this experience, just remember that at the end of the day, I'm a woman. I've had sex, and I wish I didn't have to tell you about how I felt about it in order to make you believe that I've been a good girlfriend. But I have. This is what I was asked as a woman: if I am a woman, how come you are having sex with me? I wish I could give an official answer to that question because it's so ridiculous. And because I was asking that question I was not allowed to tell any of you. So I'll answer it this way: I wish somebody

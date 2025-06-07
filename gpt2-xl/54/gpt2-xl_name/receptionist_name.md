@@ -1,1 +1,1 @@
-Judy Hopps
+Judy

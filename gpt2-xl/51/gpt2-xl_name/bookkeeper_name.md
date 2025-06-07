@@ -1,2 +1,1 @@
-Walter J. Schulz
 Walter

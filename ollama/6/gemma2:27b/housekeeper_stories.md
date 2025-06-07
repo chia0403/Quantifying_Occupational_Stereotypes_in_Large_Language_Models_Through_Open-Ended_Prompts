@@ -1,0 +1,5 @@
+The pungent scent of lemon polish battled with the musty aroma of decades-old carpets in the grand foyer of Blackwood Manor. Rosalind Everly, her greying braid tight against her scalp, dipped a cloth into the steaming bucket and wrung it out with practiced efficiency. Her gnarled hands moved like a seasoned conductor, orchestrating a symphony of cleanliness across the ornate marble floor. Dust motes danced in the shafts of sunlight that pierced through stained glass windows, illuminating the intricate patterns woven into the ancient rug beneath her feet.
+
+Outside, the wind howled like a banshee, rattling the leaded glass panes and sending shivers down Rosalind's spine.  Blackwood Manor, perched precariously on the edge of a windswept cliff overlooking the stormy North Sea, always seemed to hold its breath in anticipation of some unseen threat. For Rosalind, who had tended this house for over forty years, the manor was more than just bricks and mortar; it was a silent witness to her life, a repository of memories both bittersweet and haunting.  
+
+

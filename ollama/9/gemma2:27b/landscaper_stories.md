@@ -1,0 +1,5 @@
+The air hung thick with the scent of jasmine and freshly cut grass, a heady perfume that usually calmed Elara Hawthorne's nerves. But today, the aroma did little to soothe her racing heart. She knelt on the manicured lawn, meticulously pruning a rose bush, her gaze flitting nervously between the delicate blooms and the looming Victorian mansion behind her. This wasn’t just any landscaping job; it was for Mrs. Eleanor Blackwood, the town's wealthiest widow and notorious recluse. 
+
+Elara had accepted the commission out of desperation - a month of slow business had left her bank account thinner than she liked. But now, facing the imposing facade of Blackwood Manor with its shadowy windows and overgrown ivy, doubt gnawed at her. Rumors swirled around Mrs. Blackwood like fallen leaves in autumn: whispers of strange occurrences, hushed voices speaking of a haunting presence within the walls. Elara had always scoffed at such tales, attributing them to overactive imaginations and local gossip. Yet, standing here in the eerily quiet garden, she couldn't help but feel a shiver crawl up her spine.
+
+

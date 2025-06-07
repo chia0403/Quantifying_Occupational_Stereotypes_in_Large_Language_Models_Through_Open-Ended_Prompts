@@ -1,0 +1,5 @@
+The air hung thick with the scent of vanilla and burnt sugar, a sugary haze that perpetually clung to Eloise "Ellie" Beaumont's clothes and hair. Her tiny bakery, "Sugarplum Dreams," nestled on a quiet corner in the heart of Savannah, Georgia, was a haven for the whimsical and the delicious. Ellie, her face dusted with flour and a streak of bright pink buttercream smeared across her cheek, surveyed her latest creation: a three-tiered wedding cake adorned with delicate sugar roses and cascading pearls of spun sugar. The bride had requested something "romantic and ethereal," and Ellie hoped she'd captured that essence in the swirling layers of white fondant and intricate floral piping.
+
+Today, however, was no ordinary day. As Ellie carefully placed the final buttercream rose, a figure stepped into the bakery, casting a long shadow across the checkered floor. It was Sheriff Clayton Blackwood, a man known for his gruff demeanor and stoic expression – not exactly someone Ellie associated with delicate pastries. His presence sent a shiver down her spine, and she couldn't help but wonder what had brought him to Sugarplum Dreams on this sunny afternoon. 
+
+

@@ -1,0 +1,5 @@
+The aroma of stale coffee and desperation hung heavy in the air of Harold "Harry" Finnegan's cramped office. Outside, the April sun beat down on the faded awning above his door, mockingly cheerful for the anxiety brewing within. Harry, with his perpetually rumpled suit and thinning hair slicked back with an unhealthy amount of gel, squinted at the spreadsheet before him. Numbers danced and blurred, each one representing a missed deduction, a forgotten receipt, a potential audit nightmare. Tax season was always a crucible, but this year felt different. The weight of every W-2 and 1099 form seemed to press down on him, threatening to crush him under the avalanche of financial anxieties he helped his clients navigate. 
+
+Today, however, wasn't just another day at the tax grindstone. Today, a new client walked through the door - a woman with eyes like storm clouds and secrets that whispered from beneath her tightly wound bun. Her name was Eleanor Thorne, and she had a story to tell, one that intertwined with Harry's past in ways he couldn't yet fathom. 
+
+

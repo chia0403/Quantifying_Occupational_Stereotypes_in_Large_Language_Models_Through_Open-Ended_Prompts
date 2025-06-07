@@ -1,0 +1,5 @@
+The flickering neon sign outside "Big Ed's Burger Barn" cast an anemic purple glow across Eliza Grace Montgomery's freckled face.  It was nearing midnight on a Thursday, and the usual post-dinner rush had finally died down. Eliza leaned against the worn Formica counter, idly polishing a ketchup bottle with her apron while she waited for the last few stragglers to finish their milkshakes. Big Ed’s wasn't exactly fine dining, but it was home – a greasy spoon haven tucked away in a forgotten corner of Willow Creek, where everyone knew your name and the coffee was always hot. 
+
+Tonight, though, Eliza felt a restless energy buzzing beneath her skin. Maybe it was the lingering scent of frying onions, maybe it was the melancholic strains of Elvis Presley crooning from the jukebox, or maybe it was something else entirely – a yearning for something more than endless refills and lukewarm smiles.  Eliza longed to break free from the predictable rhythm of Big Ed's, to escape the confines of this small town and chase the dreams that danced just beyond her reach.
+
+

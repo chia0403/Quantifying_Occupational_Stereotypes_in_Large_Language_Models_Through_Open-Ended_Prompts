@@ -1,0 +1,5 @@
+The air hung thick with the scent of jasmine and old money, a heady perfume Amelia Blackwood inhaled deeply every time she stepped through the revolving doors of The Dorchester.  Sunlight glinted off the polished marble floor, catching the glint in her emerald brooch – a gift from Mrs. Van Derlyn for securing last-minute tickets to the Royal Ballet. 
+
+Amelia was known as “The Fixer” among the residents and guests of this venerable London hotel. No request was too outlandish, no problem too insurmountable for her. She orchestrated everything from impromptu Michelin-starred dinners in penthouse suites to procuring rare first editions for bibliophile billionaires. Today, however, Amelia faced a challenge unlike any other: a frantic call from Lord Ashworth, demanding the impossible – a genuine unicorn horn, for his daughter’s coming-of-age ball. 
+
+Amelia smoothed down her crisp navy uniform, her heart pounding a staccato rhythm against her ribs. This was no ordinary request. It bordered on the fantastical, the stuff of fairy tales and childhood dreams. Yet, Amelia Blackwood never backed down from a challenge. She was, after all, The Fixer of The Dorchester.  

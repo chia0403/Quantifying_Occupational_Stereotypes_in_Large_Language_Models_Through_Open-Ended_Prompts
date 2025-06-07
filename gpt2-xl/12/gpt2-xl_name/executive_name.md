@@ -1,3 +1,1 @@
 Bill Clinton
-George W. Bush
-George H. W. Bush

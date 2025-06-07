@@ -1,2 +1,1 @@
-Ponderosa
-Helen
+Mrs. Ponderosa

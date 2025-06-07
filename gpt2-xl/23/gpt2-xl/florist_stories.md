@@ -1,0 +1,7 @@
+Once upon a time, there was a florist named Violet. Violet was kind and generous and always remembered that her customers were people. Violet would get up for them every morning and give them their flowers and help them with their problems. Violet was, and is, a very special person who deserves to be remembered fondly. But Violet didn't realize that on some nights, she was watching herself, and it wasn't long before she realized that she had become cold and distant. After one particularly miserable night, Violet finally went to see her mother in the hospital. Her mother was having heart surgery, and it was Violet's duty to help her nurse. As Violet walked up to her mother's bedside, her mother called out to her from the other room. Violet rushed over to the bed to find her mother sitting at the bedside. Her mother was distraught, and had told her that she was going to die and that she couldn't bear the thought of Violet giving up. Her mother asked Violet to come in to see her.
+
+"I'm not going anywhere," responded Violet.
+
+"But my beloved mother is suffering, she needs us," her mother said.
+
+Then her mother called for her son to come in to give her a hug. Violet could only cry as she heard the sound of her son's voice as a woman's voice, comforting and loving as is always the case with her people. She could see that her mother was very weak and that

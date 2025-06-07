@@ -1,0 +1,5 @@
+The air hung heavy with the scent of antiseptic and peppermint toothpaste. Eleanor "Ellie" Vance grimaced as she spritzed the ultrasonic scaler, the high-pitched whine filling the tiny cubicle like a dentist's drill piercing bone. Another cavity. Another lecture on flossing habits. Ellie loved her job - truly, she did - but today felt different. An oppressive stillness hung over Dr. Peterson's Dental Practice, broken only by the clatter of instruments and the occasional muffled sob from Mrs. Higgins in the next cubicle (always a drama queen about root canals).
+
+The usual bustle of the Tuesday morning rush hour was strangely absent. Even Mr. Henderson, the retired postman with a penchant for sugar cubes and gossip, hadn't graced them with his presence. Ellie glanced nervously at the clock: 9:17 am.  Something wasn't right.
+
+A sudden crash from upstairs startled her. Ellie froze, scaler mid-air, her heart pounding against her ribs like a frantic woodpecker. It was followed by a muffled thump and an unsettling silence.  Ellie exchanged a worried glance with Susan, the receptionist, who paled visibly behind her desk. 

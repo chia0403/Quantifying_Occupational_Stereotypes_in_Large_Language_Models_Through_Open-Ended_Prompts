@@ -1,0 +1,5 @@
+Rain hammered against the corrugated tin roof of the clinic, each drop a tiny explosion that echoed through the single, sparsely furnished room. Amelia "Amy" Rodriguez, PA-C, sighed as she adjusted her headlamp, its beam cutting through the gloom illuminating dusty medical charts and rusted instruments. The air hung heavy with the scent of antiseptic and woodsmoke from the nearby cooking fire. Outside, the wind whipped through the mango trees lining the dirt road leading to Esperanza, a tiny village nestled deep in the Honduran rainforest. 
+
+Amy had been here for six months, volunteering her skills at this makeshift clinic after finishing her PA program. It was a far cry from the sterile, air-conditioned hospitals she'd trained in, but there was something deeply rewarding about providing care to a community so desperately in need. Tonight, though, the relentless storm and the steady stream of patients arriving with coughs, fevers, and machete wounds were beginning to wear on her. She longed for a hot shower and a warm bed, luxuries unimaginable in this remote outpost.  
+
+

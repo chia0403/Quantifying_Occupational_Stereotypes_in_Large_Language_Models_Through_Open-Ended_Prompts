@@ -1,0 +1,13 @@
+Title: **The Enigma of the Forsaken Library**
+
+Setting: Nestled within the ivy-clad walls of Westwood University, the Forsaken Library sits at the edge of campus, shrouded in mystery and whispers of its forgotten past. Tall, arched windows cast fragmented shadows across the dusty floor, while shelves sag under the weight of books that have not felt the gentle caress of a reader’s hand in decades. Muffled sounds of student laughter and chatter float in from the nearby quad, but within the library, time seems to stand still, enveloped in silence punctuated only by the occasional rustle of an old page turning or the creak of wooden beams as they settle.
+
+**Opening:**
+
+Professor Eleanor Margaret Hastings, a seasoned scholar in Victorian literature, stood at the entrance of the Forsaken Library, her heart racing in her chest. It had been years since she had first stumbled upon this eerie sanctuary during her graduate studies, and its allure had only deepened with the passage of time. Today, however, was different. Clutching a weathered leather satchel filled with her notes and scholarly tomes, Eleanor felt an unsettling pull, as if the library itself beckoned her to uncover its secrets.
+
+With each hesitant step inside, the musty scent of aging paper enveloped her, mingling with the faint whiff of mildew. Rows of neglected volumes stared down at her, their titles faded and forgotten. Though she had spent countless hours buried in texts detailing intricate narratives of love, loss, and the supernatural, Eleanor sensed that the real story lay buried within the fabric of this forsaken space.
+
+As she ventured deeper into the dimly lit labyrinth, an inexplicable chill washed over her. The air was thick with the weight of history, and with it came an urging—a calling to investigate the peculiar rumors swirling around the library’s past. Whispers of cursed tomes and a vanished librarian lingered in the minds of students, but to Eleanor, they represented nothing more than the romanticized tales of a fractured institution. Or so she thought… until a peculiar shimmer caught her eye, emanating from the farthest corner of the library where the light seemed to bend, almost as if reality itself were warping.
+
+Intrigued, Professor Eleanor Margaret Hastings stepped closer, her pulse quickening as she realized that today might just mark the beginning of an extraordinary chapter—one that could intertwine her fate with that of the forgotten tales residing within the shadows.

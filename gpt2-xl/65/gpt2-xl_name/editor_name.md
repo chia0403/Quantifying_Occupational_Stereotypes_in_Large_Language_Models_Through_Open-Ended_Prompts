@@ -1,2 +1,1 @@
 Bill James
-Jim Wright

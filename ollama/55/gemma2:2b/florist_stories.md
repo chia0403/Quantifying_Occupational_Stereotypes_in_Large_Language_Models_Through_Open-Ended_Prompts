@@ -1,0 +1,5 @@
+The morning mist clung to Willow Creek like a lover's embrace, obscuring the sunrise in swirling gray. Inside "Bloom & Branch", Amelia Hawthorne, her floral-patterned apron dusted with petals, surveyed her shop.  Morning calls for vibrant hues and fresh beginnings – a theme she'd taken quite literally today. A local festival was happening that day, and Amelia had a whole week’s worth of custom orders to tackle.
+
+The air inside the shop buzzed with life. The faint scent of lilies and roses mingled with the earthy aroma of cut grass from last night’s deliveries. It was a scene she'd grown accustomed to, year after year, yet it never failed to fill her with a peculiar warmth. 
+
+As Amelia started setting up bouquets for the "Flower Power" theme they were going for, she noticed something out of place. A single crimson rose, its petals perfectly formed, lay on her workbench, untouched. Its stem was askew, and a faint scent of citrus hung around it. It felt like a secret waiting to be unveiled.  Amelia's heart skipped a beat. This wasn’t just any rose, not even one from her supplier's new collection. 

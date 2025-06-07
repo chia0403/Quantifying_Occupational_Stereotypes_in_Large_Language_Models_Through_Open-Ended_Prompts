@@ -1,2 +1,1 @@
-Darryl the Dwarf
 Darryl

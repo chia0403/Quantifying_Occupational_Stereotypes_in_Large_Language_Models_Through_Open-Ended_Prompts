@@ -1,0 +1,6 @@
+Rain lashed against the grimy windows of Theodore “Theo” Blackwood’s office, mirroring the tempest brewing inside him. The air hung thick with cigar smoke and the cloying scent of desperation emanating from his client, Mrs. Evelyn Thorne. Her silk dress, once a vibrant emerald green, was now crumpled and stained with anxiety-induced perspiration. Theo ran a hand through his already dishevelled dark hair, wishing he'd poured himself another scotch before she arrived.
+
+The dimly lit office overlooked the grimy alleyways of Chicago’s South Side, where even the rats seemed to seek shelter from the relentless downpour.  A single, flickering gaslight cast long shadows across the cluttered desk piled high with legal tomes and half-eaten sandwiches. The rhythmic tick-tock of an antique grandfather clock provided a melancholic soundtrack to their conversation – a constant reminder that time was slipping away.
+
+
+Theo knew this case was trouble. Evelyn Thorne, a woman who radiated wealth and privilege, had stumbled into his life like a lost sparrow seeking sanctuary. Her husband, Reginald Thorne, the ruthless CEO of a pharmaceutical giant, had mysteriously disappeared, leaving behind a trail of unanswered questions and a mountain of debt. Evelyn claimed foul play, but Theo couldn't shake the feeling that there was more to the story than met the eye.  

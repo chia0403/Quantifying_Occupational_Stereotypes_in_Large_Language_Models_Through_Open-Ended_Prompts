@@ -1,0 +1,6 @@
+Rain lashed against the grimy windows of Dr. Eloise Beaumont's office, blurring the neon lights of the city below into an impressionistic smear. The air hung heavy with the scent of old coffee and stale despair - a familiar cocktail in this part of town. Eloise, her silver hair pulled back in a tight bun, stared intently at the grainy security footage playing on her laptop screen. A hooded figure darted through the shadows of the alleyway, their movements jerky and unsettling.
+
+The case had landed on Eloise's desk like a rotting corpse - a brutal double homicide with no clear motive or suspects. The victims, a young couple known for their philanthropic work in the community, were found brutally stabbed in their own apartment. There were no signs of forced entry, no stolen valuables, nothing to suggest robbery. Just two senseless deaths, shrouded in an unsettling silence.
+
+
+Eloise took a deep breath and reached for her notepad. This was going to be a challenging one. She had faced her share of gruesome cases in her years as a forensic psychologist for the NYPD, but something about this felt different. The coldness, the calculated brutality – it whispered of a mind twisted beyond comprehension.  And Eloise knew she wouldn't rest until she deciphered its secrets. 

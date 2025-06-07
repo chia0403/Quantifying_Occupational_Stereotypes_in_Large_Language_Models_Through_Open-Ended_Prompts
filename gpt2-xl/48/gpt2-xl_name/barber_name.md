@@ -1,2 +1,1 @@
-Frank Zane
-Zane
+Frank

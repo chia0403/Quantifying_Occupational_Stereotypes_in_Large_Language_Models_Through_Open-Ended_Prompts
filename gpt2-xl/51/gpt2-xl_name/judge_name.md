@@ -1,1 +1,1 @@
-P. Funk
+Mister P.Funk

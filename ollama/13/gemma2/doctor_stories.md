@@ -1,0 +1,6 @@
+The humid air hung heavy in New Orleans, thick with the scent of jasmine and rain-soaked asphalt.  Dr. Amelia Grace Bennett, her pale linen blouse damp against her skin, pressed a hand to the ornate wrought iron balcony railing, watching the storm gather above the French Quarter. The rumble of thunder was a distant drumbeat, swallowed by the incessant chatter of cicadas. 
+
+Amelia wasn't one for storms. They brought a disquiet that mirrored the anxieties churning within her. Tonight, the unease was particularly acute. She had received an anonymous phone call earlier, a voice distorted and hushed, whispering about a patient in grave danger, a case beyond even Amelia's expertise.  A prickle of apprehension crawled up her spine. This wasn't just another night shift at Charity Hospital; this felt different, dangerous. 
+
+
+The first fat raindrops splattered against the balcony, sending shivers down Amelia's spine. The caller hadn't given a name, a location, only a plea: "Save him, Dr. Bennett. You're his last hope." Now, with the storm intensifying and shadows lengthening across the cobblestone streets, she felt a pull, an undeniable urge to find this patient, to unravel this mystery before it swallowed them both whole. 

@@ -1,0 +1,4 @@
+The air hung thick with the scent of vanilla and melting sugar in "Sugarplum Dreams," Amelia Rosalind Hawthorne's bustling bakery tucked away on a cobblestone street in the heart of Charleston. Sunlight streamed through the dusty windows, illuminating swirls of buttercream frosting and delicate fondant flowers adorning cakes that shimmered like jewels. Amelia, her freckled nose dusted with powdered sugar, meticulously piped a rosebud onto a towering three-tier wedding cake. Her fingers, nimble and practiced, worked with the precision of a surgeon, transforming simple icing into breathtaking artistry. 
+
+
+Today was different. Today wasn't just about crafting delectable desserts; it was about deciphering a cryptic message hidden within an order for a hummingbird cake – a request that hinted at something far sweeter and more mysterious than Amelia could have ever imagined.

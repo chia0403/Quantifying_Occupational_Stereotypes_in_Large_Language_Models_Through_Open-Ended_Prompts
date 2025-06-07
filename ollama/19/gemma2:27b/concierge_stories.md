@@ -1,0 +1,5 @@
+Rain lashed against the arched windows of The Grand Blackwood Hotel, blurring the Parisian street below into an impressionist painting. The wind howled like a banshee, tugging at the heavy velvet drapes that framed Elodie Beaumont's polished mahogany desk. She sat ramrod straight, her auburn hair pulled back in a tight chignon, her pale blue eyes scanning the endless stream of requests flowing across her computer screen.
+
+Elodie was The Grand Blackwood's concierge - a title she wore with pride, for it meant more than simply booking rooms and procuring tickets. It meant being a confidante, a problem solver, and sometimes, even a miracle worker. Tonight, however, felt different. A gnawing unease twisted in her stomach as she read the latest email: "Urgent request - Mr. Laurent Dubois, room 302. Requires immediate assistance."  Mr. Dubois was notorious for his eccentric demands and volatile temper. Elodie took a deep breath, steeled herself, and pressed reply. The storm raged outside, mirroring the brewing tempest within her own heart. 
+
+

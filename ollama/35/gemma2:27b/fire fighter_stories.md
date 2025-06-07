@@ -1,0 +1,5 @@
+The acrid smell of smoke stung Alistair "Al" MacAllister's nostrils even before he reached the inferno engulfing the century-old bakery on Oak Street. Red and orange flames licked hungrily at the night sky, casting an eerie glow on the faces of the gathered crowd.  Sirens wailed in the distance, a mournful symphony echoing Al's own pounding heart. He adjusted the heavy fire axe strapped to his belt, its weight familiar and comforting. Tonight was different though, a gnawing sense of unease twisting in his gut. This wasn't just another kitchen fire; this felt…personal.
+
+Al had grown up across the street from the bakery, inhaling the sweet scent of fresh bread every morning before school. Old Man Henderson, the gruff but kind baker who owned it, had always slipped him a warm croissant on his way home. Memories flickered through Al's mind - childhood laughter echoing in the alleyway, the satisfying crunch of crusty bread, the warmth radiating from Henderson's ovens. Now, those memories were threatened by a raging inferno, and Al swore he wouldn't let them be consumed by the flames.
+
+

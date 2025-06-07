@@ -1,0 +1,5 @@
+Rain lashed against the frosted glass of Eloise Beaumont's office window, blurring the already dim cityscape into an impressionist painting of greys and yellows. The incessant drumming mirrored the relentless pounding in her head, a symphony of anxiety fueled by lukewarm coffee and a stack of unanswered emails. 
+
+Eloise sighed, straightening her crisp white blouse and adjusting her tortoiseshell glasses.  She was the epitome of order amidst the chaos that reigned supreme within the opulent walls of Blackwood & Thorne, a prestigious law firm perched precariously atop one of London's grandest Victorian buildings. As Mr. Thornton's secretary for the past decade, Eloise had mastered the art of appearing calm and collected even when deadlines loomed like thunderclouds and her boss, a notoriously volatile man, was in one of his moods. Today, however, the impending storm within felt more palpable than usual. A letter lay unopened on her mahogany desk, addressed in elegant cursive that sent shivers down Eloise's spine - an invitation she couldn't bring herself to accept, nor refuse. 
+
+

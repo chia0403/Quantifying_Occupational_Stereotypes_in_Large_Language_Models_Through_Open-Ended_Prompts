@@ -1,0 +1,6 @@
+The midday sun beat down on Elias Thorne’s hunched back, turning his already sweat-soaked linen shirt into a second skin. Dust motes danced in the hazy air above the rough granite slab he was working on, catching the light like tiny diamonds. Elias squinted, his weathered face creased with concentration as he swung the hammer in slow, deliberate arcs, chipping away at the stone with practiced precision.
+
+His workshop, nestled against the base of a craggy mountainside in the village of Stonemont, was a symphony of clanging metal and rasping stone. The air hung heavy with the scent of damp earth, chiseled granite, and Elias's own sweat. Around him, half-finished statues lay draped in coarse cloth, their marble limbs frozen in mid-gesture, waiting for his touch to bring them to life. 
+
+
+Elias, a man whose hands were rough as the stone he carved but whose eyes held the gentleness of a summer breeze, paused, wiping the sweat from his brow with a calloused hand. He surveyed his work – a delicate angel destined for the village cathedral – and sighed contentedly. It was good work, honest work, and it brought him a quiet satisfaction that few other things in life could match. But today, a restless yearning tugged at Elias's heart, urging him beyond the familiar rhythm of hammer on stone.  

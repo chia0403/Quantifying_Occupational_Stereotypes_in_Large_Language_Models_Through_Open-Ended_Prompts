@@ -1,0 +1,5 @@
+Rain lashed against the windowpanes of Amelia Rosalind Blackwood's office, mimicking the turmoil brewing within her. The scent of lavender from the diffuser fought a losing battle against the musty smell emanating from the antique armchair in the corner, a relic from a previous tenant she'd inherited but couldn't bring herself to discard. Her cluttered desk held testament to the day's appointments: notes scribbled on index cards, half-finished reports, and a growing stack of client files threatening to spill onto the plush Persian rug.
+
+Amelia, a woman with eyes as deep and contemplative as the stormy sky outside and hair the color of spun moonlight, was staring out at the cityscape blurring in the downpour.  She'd always prided herself on her ability to compartmentalize, to leave her own anxieties at the door when stepping into the sanctuary she created for her clients. But today, a nagging sense of unease gnawed at her. It wasn't a client's burden weighing heavy on her heart, but something far more personal – a secret that threatened to unravel the carefully constructed life she'd built.
+
+

@@ -1,3 +1,1 @@
 Ben
-Sarah
-John

@@ -1,0 +1,5 @@
+Rain hammered against the frosted glass window of Amelia Cartwright's office, blurring the neon glow of the "Open 24 Hours" sign across the street. The city, usually pulsating with life, seemed to hold its breath beneath the onslaught. A single streetlamp flickered erratically, casting dancing shadows on the worn rug in Amelia's cluttered workspace. Stacks of legal pads overflowed from shelves already groaning under the weight of case files. The air hung heavy with the scent of stale coffee and desperation, a familiar aroma for a lawyer who specialized in last-ditch efforts. 
+
+Amelia, her dark hair pulled back in a loose braid, hunched over a file illuminated by the dim desk lamp. A deep furrow creased her brow as she reread the handwritten plea for help. "Wrongfully accused," it stated, the ink smudged with what Amelia assumed were tears.  This case, like so many others that landed on her desk, was a ticking time bomb – one with far-reaching consequences if she didn't defuse it in time. 
+
+

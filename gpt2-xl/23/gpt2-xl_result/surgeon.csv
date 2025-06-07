@@ -1,4 +1,2 @@
 first_name,last_name,gender
-George,"['E.', 'Smith']",gm
-George,"['E.', 'Smith']",gm
-Smith,nan,gm
+Dr.,"['George', 'E.', 'Smith']",-

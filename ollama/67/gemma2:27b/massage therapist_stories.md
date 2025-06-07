@@ -1,0 +1,5 @@
+Rain lashed against the windowpane of Eleanor Finch's tiny treatment room, mimicking the drumming anxiety in her chest. The air hung heavy with the scent of lavender and sandalwood oil, usually a soothing combination for both Eleanor and her clients. Today, however, it did little to calm the storm brewing within her.
+
+Eleanor stared at the blinking cursor on her laptop screen, the glow reflecting in her wide hazel eyes. Her online booking system was eerily quiet, a stark contrast to the bustling weekdays she'd become accustomed to since opening "Eleanor's Ease" six months ago. Rent was due tomorrow, and with only one appointment booked for the entire week, panic threatened to engulf her.  
+
+Outside, the city of Asheville, North Carolina, shimmered through a veil of rain. Nestled in the Blue Ridge Mountains, its vibrant arts scene and thriving wellness community had initially drawn Eleanor from her humdrum life in Chicago. Now, the very charm that had lured her seemed to mock her precarious situation. 

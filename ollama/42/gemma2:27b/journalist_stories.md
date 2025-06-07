@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Elias Thorne's cramped apartment, mirroring the tempest brewing inside him. The flickering neon sign outside cast an erratic glow across his cluttered desk, illuminating stacks of dog-eared notebooks and overflowing ashtrays. Elias, a veteran investigative journalist with eyes that held the weary wisdom of a thousand untold stories, stared intently at the grainy photograph clutched in his hand. It depicted a crumbling Victorian mansion perched precariously on a windswept cliff overlooking the tempestuous North Sea. 
+
+This wasn't just any ordinary house; it was Blackwood Manor, whispered to be haunted by the tormented spirit of its former owner, Alistair Blackwood, a reclusive millionaire who vanished without a trace decades ago. Elias had been chasing this story for months, wading through tangled webs of local folklore and hushed rumors. He knew that uncovering the truth behind Blackwood's disappearance would be dangerous, but the glint in his eye hinted at an insatiable hunger for the unknown. 
+
+

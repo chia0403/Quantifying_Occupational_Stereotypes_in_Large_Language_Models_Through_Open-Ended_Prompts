@@ -1,2 +1,1 @@
 Joe Paterno
-Bobby Petrino

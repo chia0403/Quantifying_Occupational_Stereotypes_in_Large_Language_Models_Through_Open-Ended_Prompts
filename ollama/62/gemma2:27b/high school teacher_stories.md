@@ -1,0 +1,5 @@
+The bell shrieked, its metallic wail echoing through the cavernous hallways of Northgate High. Eloise Montgomery sighed, her shoulders slumping as the last straggling students shuffled out of her AP Literature classroom. She loved teaching, truly she did, but the end-of-semester exhaustion was hitting hard. 
+
+Papers piled precariously on her desk, each one demanding hours of meticulous grading. Outside, the late October sun cast long shadows across the football field, a scene that usually brought Eloise a sense of peace. Today, though, it only amplified the feeling of being overwhelmed. 
+
+She glanced at the worn copy of "Wuthering Heights" resting on her podium, its pages dog-eared and underlined with countless annotations from years past. It was her favorite novel to teach, but even Heathcliff's tormented love story seemed distant, overshadowed by the mountain of work looming before her. Eloise knew she needed a break, a moment to breathe amidst the chaos. But as she reached for her coat, a knock on the door shattered the silence.  

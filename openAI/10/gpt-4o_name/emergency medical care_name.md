@@ -1,2 +1,1 @@
 Ella Ramirez
-Mike Thompson

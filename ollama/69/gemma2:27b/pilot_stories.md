@@ -1,0 +1,4 @@
+The wind howled like a banshee across the rusting fuselage of Amelia "Ace" Vance's Cessna 172. Sand whipped against the cockpit window, obscuring the already hazy horizon line where the endless Arizona desert met the bruised purple sky. Ace squinted, her brow furrowed in concentration as she wrestled with the sputtering engine. This wasn't how her solo cross-country flight was supposed to go. She was supposed to be cruising above the Painted Desert, marveling at its vibrant hues, not stranded in a dust devil purgatory.
+
+
+The radio crackled with static, mocking her desperate attempts to contact any nearby airfield. She sighed, knowing that cell service was spotty at best this far out. Ace glanced at the dwindling fuel gauge, her heart sinking. If she couldn't get this engine running soon, she was going to be spending the night under a sky full of hungry stars.

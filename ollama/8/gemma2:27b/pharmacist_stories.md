@@ -1,0 +1,7 @@
+Rain hammered against the warped glass panes of "Greenwood Apothecary," blurring the already fading sign above Amelia Winthrop's head.  Inside, the air hung thick with the scent of lavender, chamomile, and something faintly metallic – a blend familiar and comforting to Amelia. She surveyed her domain, the shelves stacked high with jars filled with dried herbs, roots, and powders, each labeled in neat script. Sunlight struggled through the gloom, catching on dust motes dancing above antique apothecary scales and worn leather-bound texts. A lone bell tinkled as Mrs. Hawthorne, a regular customer with a penchant for peppermint tea and gossip, entered, shaking her umbrella like a scolding finger.
+
+Amelia sighed, her reflection wavering in the dusty mirror behind the counter. Tonight was the anniversary of her father's passing, and the emptiness in her heart resonated with the hollowness of the shop after hours. She missed his gruff voice, his steady hand guiding hers as she learned the ancient art of apothecary. 
+
+But tonight, she had a delivery to make – one that promised not only financial gain but also a chance to leave Greenwood behind for a few precious hours. As she carefully packed a vial filled with shimmering gold liquid into a velvet pouch, Amelia couldn't shake the feeling that this was more than just another transaction. This delivery held a secret, a whisper of something ancient and powerful, and it beckoned her towards a destiny she couldn't yet fathom.
+
+

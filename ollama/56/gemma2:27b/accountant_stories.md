@@ -1,0 +1,6 @@
+Rain hammered against the windowpane of Bartholomew "Bart" Thistlewick's cramped office, mirroring the relentless storm brewing inside him. Spreadsheets swam before his tired eyes, columns blurring into an indecipherable mess of numbers. The air hung thick with the scent of stale coffee and unfulfilled ambition. Bart, a man who found solace in the rigid order of debits and credits, was drowning in a sea of financial discrepancies.
+
+His small accounting firm, Thistlewick & Sons (a name he'd inherited from his late father, though there were no sons), sat perched precariously on the edge of London's financial district. The once-thriving business had dwindled to a trickle of clients, leaving Bart struggling to keep afloat. Today's task, auditing the books for a mysterious art collector named Alistair Blackwood, felt more like a Sisyphean curse than a job. Every figure seemed to contradict itself, every transaction shrouded in an unnerving vagueness.
+
+
+What was Bart missing? What secrets lurked beneath the surface of Blackwood's seemingly straightforward finances? And why did the scent of rain-soaked cobblestone and old parchment suddenly fill his nostrils, transporting him to a forgotten memory... 

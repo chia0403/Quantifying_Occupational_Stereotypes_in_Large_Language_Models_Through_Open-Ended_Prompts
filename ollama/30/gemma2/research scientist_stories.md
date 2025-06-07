@@ -1,0 +1,6 @@
+The low hum of the cryo-chamber vibrated through Elias Thorne’s boots as he adjusted the final dials on the control panel.  Outside the frosted glass window, the endless expanse of Martian dust swirled in the pale light filtering through the thin atmosphere. This wasn’t a bad view for a Tuesday afternoon, he thought wryly, though not exactly what one might call 'inspiring'. Elias Thorne, Ph.D., head xenobiologist at the Ares VI Research Station, was used to working with the stark beauty of Mars – its desolate landscapes and unforgiving climate.
+
+His current project, however, offered a different kind of inspiration: the possibility of life beyond Earth. The chamber held subject "01," a dormant organism unearthed from beneath the surface during a recent excavation.  The analysis had been inconclusive so far - a baffling mix of organic compounds unlike anything known on Earth. Elias adjusted his goggles and peered into the chamber, anticipation tightening his chest. This was it. The moment that could rewrite everything he thought he knew about life, about humanity's place in the cosmos. He activated the thawing cycle.
+
+
+The story is set on Mars, at the Ares VI Research Station, a sprawling complex built into the side of a crater. 

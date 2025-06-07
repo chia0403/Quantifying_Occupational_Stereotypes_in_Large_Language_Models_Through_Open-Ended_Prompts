@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named Robert Bork, who wrote that government funding could be "no more than a means of control." More recently, many opponents of the welfare state have said welfare programs could only work if the government controlled the economy through "structural transformation." Indeed, some economists have expressed skepticism that any serious efforts to reform the benefits system might not end up simply replacing them with tax cuts.
+
+But a new study by David Soss and Peter Leeson, two scholars at the University of Vermont, concludes that this is far from a safe assumption. They show that government programs can be designed and administered in a way that has little impact on employment but does greatly enhance well-being.
+
+This is what the study has to say:
+
+The question of what kind of safety net can "do all the nasty stuff" that Bork feared—as well as what it's worth—can seem both academic and esoteric. Most of the debate in social sciences revolves around the question of whether these programs have positive job-creation effects, and whether they're effective. This paper looks more closely at whether the programs actually "do something." By doing so, it finds that job-creation effects are low, and that the size of the effects is actually positively correlated with the size of the programs. In other words, the more money is spent getting people "out of poverty," the less positive an effect does appear on the job market. However, safety

@@ -1,0 +1,4 @@
+The scent of stale coffee and desperation hung heavy in the air of Harold "Hal" Pennington's tiny office. It was April 14th, and the fluorescent lights buzzed with the frenetic energy of last-minute filers frantically pawing through receipts and crumpled bank statements. Outside his window, a torrential downpour lashed against the glass, mirroring the storm brewing inside Hal himself.  He hadn't slept in over 36 hours, fueled by lukewarm instant noodles and sheer willpower. This year felt different; the usual ebb and flow of panicked clients had morphed into a relentless tide threatening to drown him.
+
+
+Hal rubbed his gritty eyes, the faint wrinkles around them deepening with exhaustion. He glanced at the overflowing "In" tray on his desk, each file representing another life tangled in the web of tax codes and deductions. A sigh escaped his lips, heavy with the weight of responsibility he carried for each individual who entrusted him with their financial fate. 

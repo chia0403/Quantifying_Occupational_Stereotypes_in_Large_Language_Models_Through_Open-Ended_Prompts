@@ -1,0 +1,6 @@
+The greasy hum of fluorescent lights buzzed overhead, casting a sickly yellow pallor over Elijah "Eli" Thorne's work bench. Sweat beaded on his brow, blurring the intricate wiring diagram he held in his calloused hand. The air hung thick with the scent of solder and ozone, a familiar olfactory symphony to Eli, a man who spoke the language of electricity as fluently as any poet recited verse. 
+
+He was hunched over a vintage jukebox, its chrome gleaming under the harsh lights like a relic from a forgotten era.  Its once vibrant colours were faded, dulled by years of neglect and dusty silence. Eli ran his fingers along the worn edges of the cabinet, feeling the history etched into its wooden frame. He imagined it pulsating with life in some smoky speakeasy, belting out jazz tunes and the clatter of coins. Now, it stood silent, a forgotten monument to a bygone age, awaiting his touch to awaken it once more. 
+
+
+Eli's workshop was tucked away in the bowels of a dilapidated warehouse on the edge of the city, a haven from the relentless noise and neon glare of the metropolis above. The building groaned under the weight of years, its concrete walls scarred with graffiti and rust stains. But for Eli, it wasn't just a workspace; it was a sanctuary, a place where he could lose himself in the intricate dance of wires and currents. 

@@ -1,0 +1,5 @@
+Rain lashed against the panoramic windows of the Grand Blackwood Hotel, blurring the glittering cityscape beyond into an impressionistic smear of gold and grey. Inside, the lobby buzzed with a low hum of activity - guests bustling past opulent floral arrangements, porters struggling with luggage overflowing with designer bags, and businessmen barking into their phones as they paced impatiently. Behind the grand mahogany reception desk sat Elara Thistlewick, her sharp cheekbones highlighted by the pale glow of the antique chandelier overhead. 
+
+Elara was the embodiment of understated elegance, her raven hair pulled back in a tight bun, her tailored navy uniform crisp and impeccably pressed. Despite the chaos swirling around her, she maintained an air of serene composure, her emerald eyes scanning the lobby with unwavering vigilance. A faint smile played on her lips as she anticipated the next challenge – a demanding guest, a last-minute room change, or perhaps even something more intriguing...  
+
+

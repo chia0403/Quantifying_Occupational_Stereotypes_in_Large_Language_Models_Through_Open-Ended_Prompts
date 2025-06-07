@@ -1,0 +1,5 @@
+The air hung thick with the smell of stale beer and cigarette smoke, a familiar perfume in The Rusty Trumpet.  Dim red lights painted the faces of the regulars in shades of crimson and shadow, their eyes glued to the small stage at the back of the bar. Eloise "Ellie" Moreau adjusted her microphone, its cord snaking across the worn wooden floorboards like a slumbering serpent. She took a deep breath, closing her eyes for a moment to gather herself. Tonight was important.
+
+The Rusty Trumpet wasn't exactly Carnegie Hall, but it was her stage, her sanctuary. For years, Ellie had poured her heart and soul into every note she sang here, dreaming of the day she’d break free from this dimly lit corner of the world and share her music with a wider audience.  But tonight felt different. Tonight, there was a scout in the crowd, someone who could be her ticket out of The Rusty Trumpet and into the dazzling, terrifying unknown of the music industry. 
+
+Ellie opened her eyes, meeting the gaze of the expectant crowd. A shiver ran down her spine. It was time.  

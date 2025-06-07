@@ -1,0 +1,6 @@
+The air hung thick with the scent of buttercream and sugar as Amelia Beatrice Primrose surveyed her domain: "Sugarplum Dreams," a cozy little bakery tucked away on a cobblestone street in Edinburgh's historic Old Town. Sunlight streamed through the stained glass windows, casting rainbows across the shelves piled high with freshly baked treats. Amelia, her hands dusted with powdered sugar, adjusted a delicate sugar flower on a towering wedding cake destined for a grand ceremony later that day.  
+
+She loved this time of day, the quiet before the rush. The clatter of the morning crowd had died down, leaving behind a gentle hum of activity – the soft whirring of the mixer, the rhythmic tapping of her assistant's spatula against the marble countertop. Outside, the city was waking up, its familiar rumble and bustle filtering through the open door like a distant symphony.  But inside Sugarplum Dreams, everything felt serene, focused, and undeniably sweet. 
+
+
+Amelia took a deep breath, inhaling the intoxicating aroma, and smiled. This was her haven, her canvas, where she transformed simple ingredients into edible masterpieces that brought joy to others. Today, she would be crafting dreams, one layer of cake at a time. 

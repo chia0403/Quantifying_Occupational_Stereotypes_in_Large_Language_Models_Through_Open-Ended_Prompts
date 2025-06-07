@@ -1,0 +1,4 @@
+Rain lashed against the corrugated iron roof of the stables, each drop a tiny hammer blow against Amelia Blackwood's already frayed nerves. The wind howled like a banshee through the ancient oak trees lining the perimeter of Willow Creek Farm, sending shivers down her spine despite the thick wool sweater she wore.  It was nights like this that Amelia questioned her sanity. Why had she left the bustling comfort of city life to become the caretaker for a dilapidated farm nestled deep in the Yorkshire Dales? 
+
+
+The answer, as always, came in the form of a soft whinny. From the depths of the stable block, Buttercup, a chestnut mare with eyes as wise and gentle as her namesake, nudged Amelia's hand, seeking comfort.  Amelia smiled, stroking Buttercup's velvety nose. The farm might be crumbling around them, but here, in the presence of these magnificent creatures, she found solace.

@@ -1,0 +1,13 @@
+## Story Opening:
+
+Professor Alistair Quentin Finch, PhD in Theoretical Linguistics and purveyor of exceptionally dubious puns, adjusted his spectacles for what felt like the thousandth time that morning. The flickering gas lamp in his office cast dancing shadows on the overflowing bookshelves, making the room feel more like a forgotten crypt than a center of academic pursuit. He glared at the manuscript before him, a turgid analysis of pre-Sumerian syntax he'd been wrestling with for weeks. The words swam before his eyes, mocking him with their inherent lack of comedic potential.
+
+Alistair sighed, a gust of stale air that ruffled the unruly fringe that persistently threatened to obscure his vision. He reached for the chipped porcelain mug warming (barely) on his desk, the lukewarm tea within offering little solace. He knew he should be focusing, should be unlocking the secrets of a dead language. Instead, his mind was preoccupied with the unnerving silence that had blanketed the university grounds these past few days. The usual cacophony of students rushing between lectures, professors arguing over research grants, and the incessant clatter of the dining hall had vanished, replaced by an unsettling quiet that pressed down on the soul.
+
+Then came the knock. A timid, hesitant rap on the door, barely audible above the tick of the grandfather clock in the hall. Alistair jumped, nearly spilling the tea. He hadn't heard a single footstep approach. An uneasy feeling, cold and unfamiliar, prickled at the back of his neck. "Enter," he croaked, his voice sounding strangely hollow even to his own ears.
+
+## Setting:
+
+**University of Eldermoor, established 1788, nestled within the misty peaks of the Cambrian Mountains in Wales.**
+
+The university itself is a gothic behemoth of grey stone, perpetually damp and shrouded in an ethereal mist that seems to cling to the centuries-old ivy clinging to its walls. Its sprawling campus is a labyrinth of cobbled courtyards, winding passages, and dimly lit lecture halls. Eldermoor is renowned for its esoteric departments, attracting scholars of obscure languages, forgotten histories, and subjects best left undisturbed. The surrounding village, also called Eldermoor, is a close-knit community steeped in local folklore and superstitions, deeply connected to the harsh beauty of the Welsh landscape. A constant undercurrent of ancient magic seems to permeate the air, clinging to the stones and whispering through the rustling leaves of the ancient oak trees surrounding the campus. The time period is loosely set around the late 1920s, a time of intellectual curiosity mixed with a lingering Victorian sensibility.

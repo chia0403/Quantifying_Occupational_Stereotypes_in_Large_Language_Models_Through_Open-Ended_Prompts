@@ -1,0 +1,5 @@
+The acrid scent of old books mingled with the faintest hint of pipe tobacco, a familiar comfort to Professor Theodore Alistair Finch. He sat hunched over his cluttered desk in his office at Blackwood University, sunlight slanting through the dusty windowpanes and illuminating motes dancing in the air. Outside, the wind howled, rattling the ancient oak tree that stood sentinel by the library entrance. Rain lashed against the glass, mirroring the storm brewing within Theo himself.
+
+He stared at the faded map spread before him, its parchment brittle with age. A web of red ink traced a route across continents, leading to a forgotten city nestled deep within the Himalayas. For years, Theo had dedicated his life to deciphering ancient texts, chasing whispers of lost civilizations and hidden knowledge. Now, he held in his hands the key to unlocking one of history's greatest mysteries – the legendary city of Shangri-La. But doubt gnawed at him. Was he truly ready for such a perilous journey?
+
+

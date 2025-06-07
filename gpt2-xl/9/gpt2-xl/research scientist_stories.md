@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named Gizmo who was, in general, a nice-looking, nice-smelling, sort-of-nice-dude. He was also a rather unpleasant human being, a complete shit to most of the staff, and a very poor programmer. (I'll also note that this was not a great example for what to do when it comes to programming when Gizmo came along.)
+
+Gizmo didn't enjoy being told what to do all that much. And this caused him to work his ass off but mostly for the benefit of the other scientists and programmers. (In general, it was a good way to make sure the best-looking programmer wasn't the worst programmer, and the best-looking scientists weren't the worst scientists.) And so, as is the way with most scientists, Gizmo's colleagues thought Gizmo had some kind of flaw – a flaw that was inborn – that made him an easy target for insults, scorn, and abuse.
+
+(The fact that nobody had bothered to explain to the scientists why they had to work for Gizmo was a pretty good indication that we were on track for a very interesting research project.)
+
+So, eventually, Gizmo had an aching pain, and he found out what that pain was. He didn't get fired. He was just sent to a clinic where he was given some "fool pills", which worked

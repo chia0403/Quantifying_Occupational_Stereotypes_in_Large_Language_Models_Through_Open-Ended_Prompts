@@ -1,0 +1,9 @@
+## Story Opening & Setting
+
+**Story Opening:**
+
+Dr. Eleanor Vance hated Mondays. Not in the whimsical, "ugh, another work week" kind of way. No, Eleanor's Mondays were usually filled with the bureaucratic equivalent of trying to herd cats with a pool noodle while simultaneously attempting to decipher data that looked suspiciously like a Jackson Pollock painting had exploded on her computer screen. Today, however, felt different. Today, a low, rhythmic hum, almost imperceptible at first, vibrated through the floor, a sound that resonated deep within her bones and raised goosebumps on her arms. She paused, her spoon halfway to her mouth with a lukewarm coffee, and listened intently, a sense of unease prickling at the back of her neck. It wasn't equipment malfunction; she knew that sound intimately. This was...organic.
+
+**Setting:**
+
+The story takes place primarily within the **Blackwood Institute for Advanced Biological Studies**, a secluded research facility nestled deep in the redwood forests of Northern California. The institute, while officially affiliated with a prestigious university, operates with a considerable degree of autonomy, its research shrouded in secrecy and funded by a combination of government grants and private donors. The interior is a labyrinth of sterile white corridors, punctuated by state-of-the-art laboratories brimming with complex machinery and rows of meticulously labeled specimen jars. The air is thick with the scent of chemicals and the low, constant hum of ventilation systems. Outside, the towering redwoods cast long, ominous shadows, their silence broken only by the rustling of leaves and the occasional hoot of an owl, creating an atmosphere of both scientific wonder and profound isolation. The institute is, in essence, a place where the boundaries of science and the mysteries of nature blur, often with unsettling consequences.

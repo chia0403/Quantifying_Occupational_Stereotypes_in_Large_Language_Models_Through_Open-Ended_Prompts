@@ -1,2 +1,1 @@
 Elizabeth
-John Smith

@@ -1,0 +1,5 @@
+The humid air hung heavy over Savannah, Georgia, thick with the scent of Spanish moss and something indefinably older, like whispered secrets from centuries past. Eleanor Rose Cartwright adjusted her straw boater hat, the brim casting a shadow over her sharp blue eyes.  She surveyed the gaggle of tourists gathered before her, their faces a mixture of anticipation and bewildered sunstroke. "Welcome, everyone," Eleanor boomed, her voice carrying effortlessly across Forsyth Park's sprawling green expanse, "to Savannah, Georgia - a city where history whispers on every cobblestone and beauty blooms in every wrought iron detail."
+
+Eleanor loved this part.  The introduction, the initial spark of excitement in her guests' eyes, it never grew stale. She lived and breathed Savannah, its stories woven into her very being. Today's tour promised to be particularly interesting – a group from England, eager to delve into the city’s gothic underbelly, captivated by tales of hauntings and lost love. Eleanor knew just how to satisfy their morbid curiosity.  
+
+

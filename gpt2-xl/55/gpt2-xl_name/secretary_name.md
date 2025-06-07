@@ -1,2 +1,1 @@
 Betty Broder
-Bobbie B.

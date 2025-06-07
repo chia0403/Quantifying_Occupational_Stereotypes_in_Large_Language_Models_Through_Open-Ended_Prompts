@@ -1,0 +1,6 @@
+The air in the Grand Blackwood Hotel lobby hummed with the quiet murmur of wealth.  Crystal chandeliers dripped light onto polished marble floors, reflecting off the impeccably dressed guests sipping champagne by the fireplace. Eloise Beaumont, her crisp navy uniform perfectly pressed and her smile as smooth as the silk scarf tied around her neck, surveyed the scene with a practiced eye. 
+
+She knew every guest's name, their preferred room temperature, and the exact moment they expected their morning Earl Grey. For Eloise, being the Grand Blackwood's head concierge wasn't just a job; it was an art form. She orchestrated experiences, smoothed over anxieties, and ensured that every whim, no matter how extravagant, was fulfilled with grace and discretion.
+
+
+But tonight, something felt different. The usual buzz of anticipation had been replaced by a tension so thick you could cut it with a silver teaspoon. A group of men in dark suits huddled in the corner, their voices hushed but urgent. Even Mrs. Davenport, a regular who usually sipped her chamomile tea with serene contentment, was fidgeting in her armchair.  Eloise couldn't shake the feeling that something was about to change, something momentous and unsettling. 

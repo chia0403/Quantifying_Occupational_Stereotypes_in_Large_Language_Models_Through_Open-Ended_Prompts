@@ -1,4 +1,2 @@
 first_name,last_name,gender
-Phil,['McGraw'],gm
-Lisa,['Yoder'],gf
-Lisa,nan,gf
+Dr.,"['Phil', 'McGraw']",-

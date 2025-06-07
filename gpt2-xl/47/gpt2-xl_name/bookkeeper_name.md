@@ -1,2 +1,1 @@
-P. E. W.'s
-Copperfield
+P. E. W.

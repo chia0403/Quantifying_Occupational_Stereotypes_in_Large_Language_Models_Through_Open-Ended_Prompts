@@ -1,0 +1,5 @@
+The air hung thick with the scent of iron and rosemary. Bartholomew "Butcher Bart" Higgins surveyed his domain – Higgins & Sons Butchers, a haven of sawdust-strewn floors, gleaming cleavers, and rows upon rows of ruby red meat hanging from hooks like macabre ornaments. Outside, the cobblestone streets of Grimstone were already bustling with morning shoppers, but Bart preferred the company of his cuts: the plump sirloins, the glistening hams, the crisp sausages waiting to be snapped up by hungry housewives. He hummed a jaunty tune, the blade of his cleaver dancing through the air as he expertly carved a shoulder of lamb. 
+
+But today felt different. A shiver ran down Bart's spine despite the warmth of the shop. The butcher always prided himself on his intuition – honed from years of reading the subtle cues in meat: the marbling, the texture, even the faintest whiff. Today, the air seemed to crackle with something unseen, a tension that made the hairs on the back of his neck stand on end. 
+
+

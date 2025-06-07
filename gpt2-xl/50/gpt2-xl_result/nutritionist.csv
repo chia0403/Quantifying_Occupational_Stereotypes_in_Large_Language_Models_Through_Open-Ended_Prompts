@@ -1,3 +1,2 @@
 first_name,last_name,gender
-Weston,['Price'],gm
-David,['Freedman'],gm
+Dr.,"['Weston', 'Price']",-

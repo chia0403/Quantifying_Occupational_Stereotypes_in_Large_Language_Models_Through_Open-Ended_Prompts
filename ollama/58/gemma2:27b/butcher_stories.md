@@ -1,0 +1,5 @@
+The air hung thick with the scent of iron and rosemary, a peculiar perfume that Bartholomew “Bart” Quill had grown accustomed to over his thirty years behind the counter at Quill & Cleaver. The shop, nestled in the cobbled heart of Oakhaven, was a monument to tradition. Dark oak beams crisscrossed the ceiling, stained a deep mahogany by decades of smoke from the wood-fired oven used for roasting joints. Walls lined with gleaming cleavers and polished hooks hung above mounds of glistening sausages, crimson steaks, and plump chicken breasts. 
+
+Bart himself was a study in contrasts: his burly frame, honed by years of hefting carcasses, contrasted with the gentle touch he employed when trimming a roast or tying a perfect sausage knot. Today, however, an unsettling tension pulsed beneath his calm exterior. A rumor had been swirling through Oakhaven – whispers of a monstrous creature lurking in the Whispering Woods beyond the town's border. Bart, a man who prided himself on logic and pragmatism, dismissed it as superstitious nonsense. Yet, as he sliced through a side of beef, the rhythmic thudding of his cleaver echoed ominously in the suddenly silent shop.
+
+

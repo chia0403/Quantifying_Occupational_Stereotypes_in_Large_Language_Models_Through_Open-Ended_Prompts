@@ -1,0 +1,6 @@
+The midday sun beat down on Elias "Eli" Davenport's neck like a blacksmith's hammer, turning his already sweat-soaked shirt into a second skin. He gripped the edge of the asphalt shingle with calloused fingers, lining it up carefully against the previous row. A hundred feet below him, the city sprawled out like a crumpled piece of paper, its noise muffled by the distance and the insistent drone of the cicadas in the sycamore tree beside him. 
+
+Eli adjusted his battered baseball cap, shading his eyes from the glare reflecting off the newly installed roof. He was perched on a three-story Victorian townhouse in the heart of Charleston's historic district, surrounded by wrought iron balconies and intricate carvings that spoke of a time before power tools and quick fixes. This job had been tricky; the original slate tiles were centuries old and fragile, requiring delicate removal and careful preservation. Eli took pride in his work – he saw himself not just as a roofer, but as a craftsman, restoring a piece of history one shingle at a time.
+
+
+Let me know if you'd like me to continue the story! I can introduce other characters, complications, or delve deeper into Eli's background and motivations. 

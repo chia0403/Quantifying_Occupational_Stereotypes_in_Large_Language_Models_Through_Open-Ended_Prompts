@@ -1,2 +1,1 @@
 Gwen Sanger
-George Weigel

@@ -1,0 +1,5 @@
+The scent of aged paper and leather clung to Eloise Winthrop like a comforting shroud. She inhaled deeply as she navigated the labyrinthine aisles of the Grand Blackwood Library, her worn loafers whispering against the polished oak floor. Outside, the storm raged, wind howling through the ancient oaks lining Elm Street and rain lashing against the gothic windows. But inside, all was hushed tranquility, punctuated only by the rhythmic tick-tock of the grandfather clock in the foyer. Eloise paused at the towering mahogany shelves stacked with centuries of human knowledge, her fingers trailing along spines embossed with faded gold lettering.
+
+Tonight, she wasn't here to shelve returned books or mend a torn page. Tonight, Eloise was on a quest for something far more elusive – an answer to a cryptic riddle left behind by her late grandmother, the library’s former head librarian. The riddle promised a hidden treasure, one rumored to be tucked away somewhere within the library's vast and secret depths. 
+
+

@@ -1,0 +1,3 @@
+The Arizona sun beat down on Elias "Eli" Ramirez's back as he wrestled a length of rebar into place. Sweat stung his eyes, mingling with the grit already caked on his face. Dust devils danced across the barren expanse of the construction site, swirling past half-finished concrete foundations and towering cranes that scraped the cloudless sky. The air vibrated with the rhythmic clang of hammers, the guttural growl of earthmovers, and the shouts of men coordinating their efforts in a symphony of construction chaos. Eli wiped his brow with the back of his hand, grimacing at the grime. Today was already shaping up to be one of those days where even the desert seemed determined to test him. 
+
+

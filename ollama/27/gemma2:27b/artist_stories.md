@@ -1,0 +1,4 @@
+The acrid smell of turpentine hung heavy in the air, mingling with the faint scent of lavender from the dried bouquet on Elara Sinclair's windowsill. Outside, rain lashed against the grimy panes of her studio window, blurring the already muted colours of the Parisian street below. Elara, hunched over a canvas the size of a doorway, barely registered the storm raging outside. Her world was confined to the swirling chaos of paint on her easel – vibrant blues and fiery oranges struggling for dominance in a desperate attempt to capture the elusive essence of a dream she'd had the previous night. 
+
+
+It wasn't the first time Elara had been consumed by such a vision. Dreams were her muse, their fleeting beauty and bizarre logic serving as inspiration for her abstract masterpieces. But this dream, tinged with a haunting sense of longing and an unknown figure shrouded in shadow, felt different. It clawed at her subconscious, demanding to be translated onto canvas.

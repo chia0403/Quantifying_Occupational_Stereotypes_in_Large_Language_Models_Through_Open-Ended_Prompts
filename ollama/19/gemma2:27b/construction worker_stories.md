@@ -1,0 +1,6 @@
+The sun beat down on Elias "Eli" Blackwood's neck like a blacksmith's hammer, turning his skin a mottled red. Dust danced in the air, kicked up by the relentless churn of the excavator nearby. Eli wiped sweat from his brow with a calloused hand, squinting at the skeletal outline of the skyscraper rising before him. Steel girders clawed at the sky, promising a future filled with glass and concrete – a future that Eli, despite his years spent building them, rarely felt part of.
+
+He was a cog in the machine, he knew that. One bricklayer among thousands, helping to raise a monument to ambition and wealth he could barely fathom. But today, something felt different. A shiver ran down his spine, not from the oppressive heat, but from an unsettling premonition. The air thrummed with unseen energy, making the hairs on his arms stand on end. It was as if the building itself was whispering a warning, its steel bones groaning under an unseen weight. 
+
+
+Eli shook his head, attributing it to fatigue. He needed a break, a cold drink of water, anything to silence the unease creeping into his heart. But before he could act, a bone-jarring screech echoed through the construction site, followed by a sickening crunch. Dust erupted from the ground floor, obscuring everything in a gray haze...

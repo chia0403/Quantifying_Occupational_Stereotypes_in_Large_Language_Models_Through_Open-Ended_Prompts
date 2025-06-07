@@ -1,0 +1,4 @@
+The flickering fluorescent lights cast long, skeletal shadows across the deserted hallways of the Grand Blackwood Institute. Reginald "Reg" Bartholomew Higgins III, head janitor and self-proclaimed guardian of the institute's dusty secrets, pushed his battered cleaning cart down the corridor, the squeak of its wheels a lonely counterpoint to the echoing silence.  The air hung heavy with the scent of old paper, forgotten experiments, and a faint whiff of ozone, a lingering reminder of the electrical storm that had knocked out power just hours before. Reg paused at a tarnished bronze plaque reading "Professor Alistair Blackwood's Laboratory," his brow furrowing. He could have sworn he'd heard a muffled sound coming from within, something akin to a low growl. 
+
+
+Let me know if you'd like me to continue the story!

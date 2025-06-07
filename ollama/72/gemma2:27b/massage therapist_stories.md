@@ -1,0 +1,5 @@
+Rain lashed against the dusty windowpanes of "Serenity Now," blurring the neon OPEN sign into a sickly yellow smear. Inside, Amelia Rose Cartwright adjusted the lavender-scented candle on the shelf, its flickering flame struggling against the gloom. The rhythmic patter of the rain was a soothing counterpoint to the insistent thrumming in her chest. It wasn't the storm bothering Amelia; it was the empty appointment book and the unsettling feeling that this quaint coastal town was slowly but surely draining her savings. 
+
+Amelia had envisioned "Serenity Now" as an oasis of calm, a haven where she could use her skilled hands to melt away stress and tension. But reality had proven harsher than fantasy. The locals seemed content with their aches and pains, preferring home remedies to the luxurious touch of a trained massage therapist.  Today's cancellation marked the third this week, leaving Amelia staring down the barrel of another quiet evening punctuated by the mournful wail of seagulls outside.  Just as she was about to resign herself to a night of reading and herbal tea, a figure materialized in the doorway, silhouetted against the tempestuous sky. 
+
+

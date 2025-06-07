@@ -1,0 +1,7 @@
+Once upon a time, there was a doctor named Dr. Frank-N-Furter." —The Great Brain Robbery, "Tales to Astonish and Amuse"
+
+The Doctor and his companions, Peri and Lara, visited Dr. Frank-N-Furter of the University of Piedmont on the planet A.D. 2344 for a "sick day's" care. After their first encounter with Dr. Furter upon his arrival, the Doctor and his companions were not sure they could trust their supposed "sickly old geezer" and asked to see his report, but the elderly man declined at the last minute, insisting that they should have no such business.
+
+Furter made an odd-looking bed, but apparently was able to read Braille. The Doctor and his friends soon started having more problems with the patient, beginning with the suggestion that they should take the patient abroad, as he had had a vision of a woman from another planet and would not be able to communicate from here. The Doctor and his companions, however, noticed that something seemed different about him. As they were unable to discern what it was, the Doctor and Peri suggested that the patient and the strange patient be placed together for observation. While they did not believe the strange patient could harm him, the doctor's presence made him too unpredictable and difficult to handle for the friends to be on the same bed as him.
+
+While

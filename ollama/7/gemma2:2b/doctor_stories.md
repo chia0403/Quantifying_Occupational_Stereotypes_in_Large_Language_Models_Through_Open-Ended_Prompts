@@ -1,0 +1,5 @@
+The humid air clung to Dr. Elias Thorne like a second skin as he stepped out into the night. His crisp white coat seemed to shimmer in the dim light of the moonlit hospital gardens. The jasmine scent, usually so comforting, felt suffocating tonight; even the gentle breeze carried a whisper of something unsettling. It was this kind of stillness, the absence of life’s usual hum and clatter, that Elias found most unnerving at times like these. Tonight, though, the unease wasn't just in the air, it emanated from within him as he held the crumpled notes in his hand.
+
+**Setting:** The sprawling Victorian-era grounds of St. Jude's Hospital are shrouded in an eerie quiet.  The old stone walls seem to close in on Elias, each crack and crevice mirroring the growing storm brewing inside him.
+
+**Main Character:** Dr. Elias Thorne - A brilliant but emotionally guarded doctor, renowned for his surgical prowess but struggling with personal demons he keeps locked away behind a facade of cold professionalism. 

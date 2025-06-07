@@ -1,0 +1,7 @@
+Rain lashed against the grimy windows of Eleanor Cavendish's office, blurring the already hazy cityscape beyond. The neon signs from the dive bar across the street flickered like dying fireflies, casting an unsettling, purple glow onto her cluttered desk. Stacks of files threatened to topple over, each one a testament to another broken promise, another shattered dream. Eleanor ran a hand through her sleep-tousled hair, the weight of the case before her pressing down on her shoulders like a physical burden.
+
+She was a lawyer, yes, but not the kind who donned tailored suits and argued in pristine courtrooms. Eleanor Cavendish was a defender of the downtrodden, a champion for the forgotten souls lost in the labyrinthine legal system. Her clients weren't CEOs or socialites; they were bartenders with unpaid child support, single mothers facing eviction, undocumented immigrants fighting deportation.
+
+Today, however, she faced a challenge unlike any other. Sitting across from her was Maya Ramirez, a young woman with haunted eyes and a voice barely above a whisper. Maya had been accused of a crime Eleanor couldn't even fathom - the ritualistic murder of her own grandmother. And as Eleanor stared into those tear-filled eyes, she knew this case would push her to her very limit, forcing her to confront not only the complexities of the law but also the darkest recesses of the human soul. 
+
+

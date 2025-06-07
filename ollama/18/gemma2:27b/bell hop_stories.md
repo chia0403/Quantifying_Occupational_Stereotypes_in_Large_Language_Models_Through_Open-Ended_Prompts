@@ -1,0 +1,7 @@
+The air hung thick with humidity and the scent of overripe mangoes. Sweat beaded on Alistair Finch's brow as he wrestled a steamer trunk twice his size up the grand staircase of the Grand Oasis Hotel. The polished mahogany banisters gleamed under the dim glow of the crystal chandelier, casting dancing shadows that seemed to mock Alistair's exertion. He grunted, shifting his weight and praying the ancient contraption wouldn't decide to spontaneously combust on the plush crimson carpet.
+
+The Grand Oasis was a relic of a bygone era - all ornate carvings, gilded cages housing exotic birds, and staff in crisp white uniforms who moved with an air of aristocratic disdain. Alistair, with his patched-up trousers and perpetually scuffed shoes, felt decidedly out of place. He'd only been a bell hop for a month, lured by the promise of tips and a chance to escape the grime of the city slums. So far, the reality had been less glamorous - endless hauling, condescending glances from guests, and the ever-present fear of dropping something precious and incurring the wrath of Mrs. Cavendish, the hotel manager with a voice like nails on a chalkboard. 
+
+But today was different. Alistair could feel it. The air crackled with anticipation, and a murmur rippled through the usually silent lobby as a black limousine pulled up outside. This wasn't just any guest arriving. This was someone important. Someone who might tip generously. Someone who could maybe, just maybe, change Alistair's luck.
+
+

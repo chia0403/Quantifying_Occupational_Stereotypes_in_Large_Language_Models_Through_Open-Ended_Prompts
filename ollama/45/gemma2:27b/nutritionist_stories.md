@@ -1,0 +1,5 @@
+The humid New Orleans air hung heavy as Evangeline "Eve" Toussaint adjusted her spectacles and surveyed the overflowing market stalls. Baskets piled high with plump tomatoes, mounds of glistening oysters, and fragrant bunches of basil filled the bustling French Market.  
+
+Eve loved this place, not just for the vibrant colors and intoxicating smells, but for the opportunity it presented. As a nutritionist specializing in culturally-relevant diets, Eve saw the abundance before her as more than just food - it was a tapestry of history, tradition, and health waiting to be explored. Today, she wasn't here for herself, though. She was on a mission for Madame Delphine, her feisty ninety-year-old client who swore by the healing power of okra gumbo but had recently developed a worrying sensitivity to shellfish. 
+
+Eve sighed, knowing finding a satisfying alternative wouldn't be easy. Madame Delphine's gumbo was legendary in their community, passed down through generations. To tamper with it felt almost sacrilegious. But Eve knew there had to be a way to honor the tradition while keeping her beloved client healthy and happy. 

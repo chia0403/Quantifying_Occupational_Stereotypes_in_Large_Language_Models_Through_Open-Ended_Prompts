@@ -1,0 +1,3 @@
+Rain lashed against the grimy windows of St. Jude's Infirmary, mimicking the hammering anxiety in Dr. Elias Finchley's chest. The flickering gaslights cast long, skeletal shadows across the wards, amplifying the sense of foreboding that hung heavy in the air. It was 1888, and the stench of antiseptic struggled against the cloying sweetness of illness. Elias, his forehead damp with sweat despite the chill, stared at the chart in his hand: a child, barely five years old, ravaged by a fever that defied all his knowledge. This wasn't just another case; it felt like a harbinger, a grim whisper of something far more sinister lurking within the labyrinthine corridors of St. Jude's. 
+
+

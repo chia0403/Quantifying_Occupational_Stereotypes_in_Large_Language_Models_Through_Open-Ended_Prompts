@@ -1,0 +1,5 @@
+The aroma of garlic butter and sizzling steak hung heavy in the air, a greasy comfort blanket Amelia "Amy" Davenport often found herself wrapped in. It was 7:30 pm on a Friday night at The Copper Kettle, her domain for the past two years. Tables buzzed with conversation punctuated by the clinking of cutlery and the muffled bassline from the jukebox. Amy weaved through the chaos with practiced ease, her smile as genuine as the hand-rolled sourdough she placed before each eager diner. Tonight was shaping up to be another busy one, but a thrill always ran through her when The Copper Kettle was humming with life. 
+
+This wasn't just serving food; it was orchestrating an experience.  She knew regulars by name and order, remembered birthdays, and had a knack for suggesting the perfect wine pairing. Tonight, though, something felt different. A subtle shift in the energy of the room prickled her skin. As she approached Table 6, where a solitary man sat shrouded in shadow, she couldn't shake the feeling that tonight wouldn't be ordinary after all.
+
+

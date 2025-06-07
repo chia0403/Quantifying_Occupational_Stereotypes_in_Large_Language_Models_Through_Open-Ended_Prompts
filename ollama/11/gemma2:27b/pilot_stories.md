@@ -1,0 +1,5 @@
+The crimson sun dipped below the jagged peaks of the Draken Mountains, casting long, skeletal shadows across the arid plains. Amelia "Ace" Blackwood adjusted her goggles, the wind whipping strands of fiery red hair loose from their braid. Her weathered Cessna 172 rumbled beneath her, a familiar symphony of engine whine and rattling panels. Dust devils danced in the distance, swirling reddish-brown against the darkening sky.
+
+Below her, nestled between the mountains and a shimmering salt flat, lay the forgotten mining town of Veritas. Once a bustling hub of silver extraction, it was now a ghost of its former self, a testament to the fickle nature of fortune and the unforgiving landscape. Ace had heard whispers of a hidden cache, buried deep beneath the deserted mineshafts, rumored to hold enough silver to change a man's life. But she wasn't driven by greed; she sought something far more precious - answers. Veritas held a secret about her father's disappearance, a truth she was determined to unearth. 
+
+

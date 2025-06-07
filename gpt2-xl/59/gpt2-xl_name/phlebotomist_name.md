@@ -1,2 +1,1 @@
-Samuel Beresford
-John Harvey Kellogg
+Doctor Samuel Beresford

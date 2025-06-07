@@ -1,0 +1,7 @@
+The scent of iron and rosemary hung heavy in the air, mingling with the sweet tang of blood. Bartholomew “Bart” Hemlock surveyed his domain – Hemlock’s Fine Meats, a cramped shop tucked away on a cobblestone street in the heart of Grimsborough. 
+
+Grimsborough was a city cloaked in perpetual twilight, its gothic spires reaching for a sky perpetually shrouded in mist. The cobblestones were slick with rain, and gas lamps flickered weakly against the encroaching gloom. Bart knew the rhythm of this city like the back of his hand – the mournful toll of the cathedral bell at dawn, the raucous cries of fishmongers in the early morning, the hushed footsteps of the nightwatchmen as they patrolled the shadowy alleys. 
+
+He ran a calloused thumb over the gleaming blade of his cleaver, its edge honed to razor sharpness. Today was Market Day, and Bart needed every ounce of his skill to prepare for the throngs of housewives, tavern keepers, and even the occasional discerning nobleman who would soon be clamoring for his wares. His heart beat with a familiar mix of anticipation and dread. He loved the craft, the transformation of raw flesh into delectable cuts, but Grimsborough was a city where shadows whispered secrets, and sometimes those whispers turned to screams.  Bart wasn't just a butcher; he was also a keeper of secrets, privy to the darkest desires and deepest fears of his clientele. Today, he suspected, those secrets would run deeper than usual.
+
+

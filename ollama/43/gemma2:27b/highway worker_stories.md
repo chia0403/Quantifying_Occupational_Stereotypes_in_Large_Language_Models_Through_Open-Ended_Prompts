@@ -1,0 +1,6 @@
+The Nevada sun beat down on Silas Jeremiah "Si" Blackwood's neck like a blacksmith's hammer. Sweat dripped from his brow, stinging his eyes as he wrestled with the jammed asphalt tamper. A groan escaped his lips as the stubborn machine refused to budge. "Come on, you rusty beast," Si muttered, spitting out a mouthful of dust and gravel. He was miles from nowhere, smack-dab in the middle of the endless desert highway that stretched like a cracked ribbon across the Mojave.
+
+The air shimmered with heat, distorting the distant horizon. Not a single car had passed in the last hour. Just Si, his trusty pickup truck "Betsy," and the endless expanse of sand and scrubland. It was lonely work, but Si didn't mind. He liked the solitude, the rhythmic clang of his tools against the unforgiving asphalt. Out here, he could think, let his mind wander as freely as the hawks circling overhead.
+
+
+But today, something felt different. A prickling sensation crawled up Si's spine, a feeling like he was being watched. He glanced around cautiously, but saw nothing except the sun-bleached bones of a long-dead steer and a tumbleweed rolling lazily in the breeze. Still, the uneasiness remained, a nagging doubt that wouldn't be silenced. 

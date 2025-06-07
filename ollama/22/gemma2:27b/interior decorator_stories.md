@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Amelia Rosalind Thorne's cramped apartment, mirroring the storm brewing inside her. The acceptance letter from Parsons School of Design lay crumpled on her coffee table, a mocking testament to her unfulfilled dreams.  Five years she'd been slaving away at "Decor & More," a kitschy furniture store catering to suburbanites with questionable taste. Five years of rearranging pre-fab sofas and gaudy floral prints, extinguishing the ember of passion that once burned brightly within her.
+
+Tonight, however, the embers flickered back to life. A call from Mrs. Van Derlyn, a notorious socialite known for her extravagant parties and even more extravagant demands, presented Amelia with a chance. A rare opportunity to showcase her talent, to transform a dilapidated ballroom into a spectacle worthy of Versailles. But there was a catch - a deadline so tight it felt like a noose tightening around her neck. Could Amelia navigate the treacherous waters of high society, appease Mrs. Van Derlyn's insatiable appetite for grandeur, and finally reclaim the dreams she thought were lost forever? 
+
+

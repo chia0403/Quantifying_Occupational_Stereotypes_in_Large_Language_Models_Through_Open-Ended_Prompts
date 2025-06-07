@@ -1,0 +1,5 @@
+The humid air hung heavy in the cramped kitchen, thick with the scent of simmering ginger and garlic. Outside, the neon glow of Hong Kong's Kowloon district pulsed against the grimy windowpane.  Amelia "Amy" Li gripped the worn handle of her wok, flames licking at its sides as she tossed marinated chicken with a practiced flick of her wrist. Sweat beaded on her brow, but her focus remained unwavering. Tonight was important. A food critic from one of Hong Kong's most prestigious culinary magazines was coming to review her humble stall, "Amy's Golden Wok."  
+
+Amy had poured her heart and soul into this tiny haven tucked away in a bustling alleyway. For years, she'd honed her skills, learning the secrets of Cantonese cuisine from her grandmother, a renowned street food vendor. Now, with every sizzling stir-fry and perfectly steamed dumpling, Amy aimed to honor her grandmother's legacy while carving her own path in the city's fiercely competitive culinary scene. The critic's visit was her chance to prove herself.  She just prayed she wouldn't burn the chili sauce. 
+
+

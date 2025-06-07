@@ -1,0 +1,5 @@
+The scent of lavender polish hung heavy in the air, mingling with the faint tang of ozone from the ancient humidifier Amelia Cartwright had wrestled into submission that morning. Dust motes danced in the single shaft of sunlight piercing the gloom of the grand foyer, illuminating the faded grandeur of Blackwood Manor. Amelia surveyed the scene with a sigh. Five years she'd been tending to this behemoth, and still, it felt like she was fighting a losing battle against time and neglect. The once-vibrant tapestry depicting a hunting scene now sagged threadbare, its colours dulled by decades of dust. The marble floor beneath her polished shoes bore the faint scars of forgotten scuffles and spilled wine. 
+
+Today was different, though. Today, Amelia wasn't just battling dust bunnies and cobwebs. Today, she was bracing for the arrival of the Blackwood heir, Lucian Blackwood III - a man shrouded in rumour and shadowed by whispers of his eccentric nature.  Amelia adjusted her starched apron, straightened the silver tray laden with freshly-baked scones, and steeled herself for whatever whirlwind the prodigal son might bring. 
+
+

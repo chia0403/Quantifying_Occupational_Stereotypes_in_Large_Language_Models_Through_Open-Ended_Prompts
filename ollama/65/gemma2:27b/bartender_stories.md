@@ -1,0 +1,5 @@
+The neon sign outside flickered, casting an anemic glow onto the rain-slicked street. "The Rusty Sprocket," it declared in faded pink and turquoise, promising warmth and respite from the relentless November drizzle. Inside, the air hung thick with the mingled scents of stale beer, burnt peanuts, and something vaguely floral – probably the cheap air freshener Celeste desperately hoped masked the lingering aroma of last night's spilled tequila sunrise. 
+
+Celeste "Cece" O'Connell wiped down a sticky patch on the counter with a sigh. The usual Wednesday night crowd was sparse: a couple huddled in the corner booth, their faces illuminated by the flickering screen of their phone; a lone man nursing a whiskey at the bar, his gaze fixed somewhere beyond the grimy windowpane. Cece leaned against the polished wood, drumming her fingers impatiently. It was nights like these she wondered if she'd made a mistake leaving the corporate grind for this dimly lit haven of broken dreams and forgotten promises. 
+
+

@@ -1,2 +1,1 @@
-Judy Wiegert
-Nancy Tannen
+Judy

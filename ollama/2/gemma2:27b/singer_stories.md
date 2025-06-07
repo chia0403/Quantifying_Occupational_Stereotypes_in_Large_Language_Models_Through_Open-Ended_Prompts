@@ -1,0 +1,5 @@
+The flickering neon sign outside "The Rusty Microphone" cast an unsettling purple glow on Elara Solstice's face as she stood backstage, fiddling with the frayed string of her acoustic guitar. The air backstage was thick with the smells of stale beer, cigarette smoke, and anticipation - a heady cocktail Elara usually found exhilarating. Tonight, though, a knot of anxiety tightened in her stomach.
+
+The Rusty Microphone wasn't exactly known for its polished acts. It was a dive bar on the edge of the city, where dreams went to die and washed-up musicians clung to the last vestiges of their fading glory. But tonight, Elara had a chance: a scout from "Siren Records" was rumored to be in the audience. This could be her big break, the chance she'd been waiting for her entire life.
+
+But doubt gnawed at her. Could she really rise above the din of drunken chatter and indifferent stares?  Could her voice, honed in smoky cafes and dimly lit alleys, captivate someone who held the key to her future? 

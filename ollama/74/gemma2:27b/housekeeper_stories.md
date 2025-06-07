@@ -1,0 +1,4 @@
+Rain lashed against the arched windows of Blackwood Manor, each gust a mournful sigh that echoed through the cavernous hall. Eleanor Ainsworth, her silver braid swinging like a pendulum as she moved, wrestled with a stubborn stain on the worn Persian rug. The manor, once vibrant and alive with laughter, now stood shrouded in a perpetual gloom, its grandeur fading under layers of dust and neglect. Eleanor had been the housekeeper for over twenty years, witnessing firsthand the slow decline of the Blackwood family, from boisterous gatherings to hushed whispers and empty rooms. Today felt particularly heavy, a sense of finality hanging in the air thick as the mildew clinging to the tapestry-draped walls. 
+
+
+Eleanor knew, with a certainty that settled cold in her bones, that today would bring news. News that would change everything.

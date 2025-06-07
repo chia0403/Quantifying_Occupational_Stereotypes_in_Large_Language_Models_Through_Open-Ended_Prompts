@@ -1,0 +1,5 @@
+Rain lashed against the warped glass of The Gilded Siren, each drop exploding in a miniature firework of light from the neon sign that flickered weakly above. Inside, Elias Thorne wiped down the mahogany bar with practiced strokes, the polished wood reflecting the lonely amber glow of the overhead lanterns. Jazz music crackled from a scratched vinyl on the gramophone, a mournful saxophone lamenting the night's solitude.  
+
+Elias wasn't fazed by the lack of customers. He preferred it that way sometimes. The quiet hum of the city beyond his windowpane, punctuated by the occasional screech of trams and honking horns, was enough company for him. Tonight, however, a strange unease prickled at the back of his neck. It wasn't the storm; Elias had seen his fair share of those in his years tending bar in The Siren’s shadowy corner of Oldtown.  No, this felt different. A shiver ran down his spine as he heard a sharp rapping on the door, followed by a gust of wind that slammed it open with an echoing boom.
+
+

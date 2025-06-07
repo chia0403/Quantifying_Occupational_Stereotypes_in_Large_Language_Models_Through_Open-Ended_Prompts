@@ -1,0 +1,5 @@
+The flickering gas lamp cast long, skeletal shadows across Bartholomew Quillfeather's cluttered desk. Dust motes danced in the weak light, swirling around stacks of ledgers bound in threadbare leather and overflowing with cramped numerals. Outside, the cobblestone streets of Grimhaven echoed with the mournful clang of a distant bell tower, marking the stroke of midnight. Bartholomew sighed, rubbing his tired eyes. Another night spent wrestling with the notoriously tangled finances of the Black Griffin Trading Company.
+
+Bartholomew wasn't cut out for adventure. He preferred the comforting routine of balancing accounts and deciphering cryptic receipts to the unpredictable chaos of the world beyond his window. But tonight, a sense of unease gnawed at him, an unsettling feeling that something was amiss. The ledger he held, detailing the Black Griffin's recent trade with the enigmatic Shadow Isles, seemed strangely incomplete. And then there was the whispered rumour about stolen shipments and shadowy figures lurking in the docks... 
+
+

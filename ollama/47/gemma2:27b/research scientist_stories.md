@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Dr. Elara Vance's makeshift lab, blurring the already dim lights of the abandoned warehouse district. The air hung thick with the metallic tang of ozone and the sickly sweet scent of decaying vegetation, a stark contrast to the sterile labs she was accustomed to back at the institute.  Elara grimaced, pushing a stray lock of auburn hair out of her eyes as she hunched over her workbench. Her lab coat, once pristine white, was now splattered with grease stains and flecks of unknown organic matter – souvenirs from her recent foray into the city's forgotten underbelly. 
+
+The flickering fluorescent light above cast long shadows across the cluttered space, illuminating a jumble of beakers, petri dishes, and archaic scientific equipment she'd scavenged from junkyards and back-alley deals. In the center of it all sat her prize: a pulsating, bioluminescent orb the size of a grapefruit, its ethereal glow casting an otherworldly aura on the grimy walls around them. This wasn't some routine research project - this was something far beyond anything Elara had ever encountered in her career.
+
+

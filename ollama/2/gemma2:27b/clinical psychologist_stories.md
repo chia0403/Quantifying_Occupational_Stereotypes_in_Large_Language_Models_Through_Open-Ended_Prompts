@@ -1,0 +1,5 @@
+Rain lashed against the warped windowpane of Dr. Elias Thorne's office, mimicking the tempest raging within his own mind. The worn leather of his armchair creaked as he shifted, the scent of old books and pipe tobacco thick in the air.  His cluttered desk, normally a haven of organized chaos, reflected the disarray of his thoughts – overflowing files teetered precariously alongside empty coffee mugs and scattered notes scrawled in his hurried hand. Elias ran a weary hand through his silvering hair, the weight of responsibility pressing down on him like the oppressive sky outside.
+
+Today was the day he'd been dreading for weeks - the arrival of Amelia Blackwood. Her file, sitting open on his desk like an ominous warning, held whispers of fractured sanity and unsettling delusions. A renowned artist whose captivating canvases had once graced prestigious galleries, Amelia now resided in a haze of paranoia and fragmented memories, her vibrant talent overshadowed by a growing darkness. Elias, known for his empathy and unconventional methods, was her last hope – the only one willing to delve into the labyrinthine corridors of her tormented mind.  
+
+

@@ -1,0 +1,7 @@
+The Nevada sun beat down on the battered windshield of Bartholomew "Big Bart" Higgins' Kenworth T680, turning the world into a shimmering haze. Dust devils danced across the empty highway, kicking up miniature storms that disappeared as quickly as they formed.  Bart squinted against the glare, his hand calloused and tanned from years spent gripping the steering wheel. He'd been hauling freight across this desolate stretch of desert for longer than he cared to remember – endless miles blurring into one another, punctuated only by the occasional greasy spoon diner or the lonely glint of a gas station sign in the distance. Today's cargo: pallets of solar panels bound for a new development somewhere near Las Vegas. Bart wasn't sure why they needed so many panels out here, but he figured it was something to do with all that sunshine.
+
+He reached into his cooler and grabbed a lukewarm can of soda, popping the tab with a hiss. The sugary liquid did little to quench the thirst clawing at his throat, but it was better than nothing. As he chugged down the last dregs, a faint crackle erupted from the CB radio. A gravelly voice filled the cab, "Breaker One-Nine, anyone got eyes on Big Bart out there?"
+
+Bart chuckled, recognizing the voice as Old Man Joe, another veteran trucker who'd been running these roads for decades. He pressed the mic button, his own voice a gruff rumble, "This is Big Bart comin' in. Whatcha need, Joe?"
+
+

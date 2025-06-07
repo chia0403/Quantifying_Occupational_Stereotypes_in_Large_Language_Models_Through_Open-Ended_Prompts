@@ -1,0 +1,5 @@
+The humid air hung heavy in The Cut & Curl, thick with the scent of peroxide and lavender hairspray.  A ceiling fan whirred ineffectually overhead, stirring only a few stray strands of fuchsia hair dye into the air. Eloise Delacroix sighed, her reflection staring back at her from the stainless steel mirror behind the styling station. 
+
+Eloise, with her fiery red bob perfectly coiffed and expertly applied winged eyeliner, was known for transforming even the most desperate heads of hair into works of art. Today, however, she felt more like a wilted flower than a blooming rose. A steady stream of cancellations had left her schedule sparse, her usual upbeat demeanor replaced by a gnawing sense of unease. 
+
+The bell above the door jingled, momentarily pulling Eloise from her thoughts. A woman hesitantly entered, her shoulders hunched and eyes downcast. This wasn't the glamorous socialite Eloise usually styled. This was someone in need.  Eloise straightened, a spark of hope flickering within her. Perhaps today wouldn't be so bad after all. 

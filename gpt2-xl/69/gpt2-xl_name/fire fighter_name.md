@@ -1,8 +1,1 @@
 Thomas A. Nierenberg
-Joseph R. Miller-Wilson
-George E. Miller
-Edward A. Miller
-G.D. Van Rensselaer
-George W. Schreiber
-Joseph H. Schlecht
-James O'Neill

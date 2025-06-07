@@ -1,2 +1,1 @@
 Joe Hill
-Michael Vazquez

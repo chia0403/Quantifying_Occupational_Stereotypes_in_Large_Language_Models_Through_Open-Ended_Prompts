@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Dr. Eleanor Vance's office, mimicking the storm brewing inside her. The flickering neon sign of the all-night diner across the street cast an unsettling green glow onto the cluttered desk piled high with case files. A half-empty coffee mug sat precariously close to a stack of psychological evaluations, its contents long since cold. Eleanor rubbed her tired eyes, the harsh overhead fluorescent light doing little to alleviate the throbbing behind them. 
+
+Tonight was different. Tonight, she wasn't poring over reports for some routine petty theft or domestic dispute.  The file in front of her, stark and clinical against the worn mahogany desk, held something far more sinister: "Subject: Jasper Thorne. Charges: Multiple counts of aggravated assault and homicide." Eleanor had a reputation for getting into the minds of even the most disturbed individuals, but Jasper Thorne was unlike any subject she'd encountered before. The chilling details of his crimes - meticulously planned, devoid of apparent motive - sent shivers down her spine.
+
+

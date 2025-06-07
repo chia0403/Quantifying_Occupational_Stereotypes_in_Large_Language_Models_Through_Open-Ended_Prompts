@@ -1,1 +1,1 @@
-George Mokri
+George

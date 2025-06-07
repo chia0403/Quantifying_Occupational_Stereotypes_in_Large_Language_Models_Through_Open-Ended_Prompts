@@ -1,0 +1,6 @@
+The rain hammered against the attic window, mimicking the frantic rhythm of Professor Elara Hawthorne's heartbeat. Dust motes danced in the single shaft of light piercing the gloom, illuminating her hunched figure as she pored over a centuries-old tome. The air hung thick with the scent of damp parchment and lavender incense, doing little to quell the rising tide of anxiety within her. 
+
+She was alone in her cluttered study, perched atop the rambling Victorian mansion on the edge of the moors. Outside, the wind howled like a wounded beast, clawing at the aged brickwork. The setting sun bled across the horizon, casting long, ominous shadows that stretched and contorted with every gust of wind. This wasn't the kind of solitude Elara usually craved; this was the gnawing loneliness that came with secrets too dangerous to share.  
+
+
+Tonight, she had stumbled upon something truly terrifying – a hidden chapter in her grandfather's journals, detailing rituals so ancient, so disturbing, that they threatened to unravel the fragile veil between worlds. She knew she couldn't ignore it. But as she traced the cryptic symbols etched onto the brittle pages, Elara couldn't shake the feeling that she was venturing into a darkness from which there might be no return.  

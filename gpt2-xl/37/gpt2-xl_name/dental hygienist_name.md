@@ -1,1 +1,1 @@
-J.R. Ralston
+Dr. J.R. "Big Daddy" Ralston

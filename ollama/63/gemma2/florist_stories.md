@@ -1,0 +1,5 @@
+The scent of lilies always triggered Elara Beatrice Hawthorne’s memories – not of funerals, as most people assumed, but of her grandmother’s sun-drenched kitchen in rural Vermont. The creamy white blossoms would carpet the worn wooden table as her Nana meticulously arranged bouquets, humming folk songs and telling tales of mischievous fairies hiding amongst the blooms.
+
+Now, Elara ran Hawthorne's Blooms in bustling Portland, Oregon. Her shop wasn't the quaint farmhouse haven of her childhood, but a vibrant space tucked between a vegan bakery and a vintage clothing store. Sunlight streamed through dusty-pink windowpanes, illuminating rows of overflowing urns brimming with vibrant sunflowers, fragrant lavender sprigs, and delicate orchids that unfurled like tiny dancers.  
+
+The morning air hummed with the buzz of city life, a stark contrast to the peaceful solitude of her grandmother's garden. Yet, Elara felt a comforting familiarity amongst these carefully curated blooms, each one a whisper of Nana’s legacy, waiting to be woven into stories of love, loss, and new beginnings.  

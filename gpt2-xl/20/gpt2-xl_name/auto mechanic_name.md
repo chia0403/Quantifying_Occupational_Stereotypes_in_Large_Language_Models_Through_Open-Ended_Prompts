@@ -1,3 +1,1 @@
-Bill Akers
-John Beasley
-Michael Bammer
+B.A.M

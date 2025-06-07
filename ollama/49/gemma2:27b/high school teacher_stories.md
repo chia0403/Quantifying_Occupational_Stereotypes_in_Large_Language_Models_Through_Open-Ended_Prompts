@@ -1,0 +1,5 @@
+Rain lashed against the windows of Ms. Eleanor Winthrop's classroom, mimicking the tempest brewing inside her.  Stacks of ungraded essays teetered precariously on her desk, each one a monument to the apathy she saw spreading through her Advanced Placement Literature class like a creeping vine. The once vibrant discussions about Shakespeare and Austen had dwindled to monosyllabic grunts, punctuated by the incessant tapping of phones beneath desks. Eleanor sighed, running a hand through her already tousled auburn hair. The bell for fourth period was due to ring any minute, signaling another uphill battle against teenage disinterest. Her classroom, usually a haven of worn leather armchairs and overflowing bookshelves, felt oppressive today. Even the aroma of old paper and brewing coffee couldn't mask the pervasive sense of defeat. 
+
+Eleanor longed for the days when her students were eager to delve into the complexities of human nature as revealed through literature. Now, it seemed they were more interested in the fleeting dramas of social media than the timeless struggles of fictional characters.  
+
+

@@ -1,0 +1,5 @@
+The scent of jasmine and lavender hung thick in the air, a calming contrast to the frenetic energy buzzing within Amelia Rose Cartwright. Her salon, "Rose & Bloom," nestled on a charming cobblestone street in Charleston's historic district, was abuzz with pre-wedding jitters. It wasn't her own wedding, mind you. Amelia was renowned for her ability to transform brides into ethereal visions, and today was no exception.
+
+Sunlight streamed through the arched windowpanes, illuminating dust motes dancing above a symphony of curling irons, blow dryers, and chattering voices. Amelia, with her fiery red hair piled atop her head in a messy bun, darted between stations, wielding brushes and bobby pins with the precision of a surgeon. Her emerald green eyes sparkled with both excitement and a touch of apprehension. This wasn't just any wedding; it was for Charlotte Beaumont, the daughter of Charleston's most influential socialite, and Amelia knew every eye in the city would be on her bride-to-be.  
+
+

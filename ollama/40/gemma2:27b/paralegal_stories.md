@@ -1,0 +1,6 @@
+Rain lashed against the grimy windows of the Thompson & Pierce law firm, blurring the neon glow of the "Open 24 Hours" sign across the street.  Evelyn Beatrice Cartwright sighed, pushing a stray strand of auburn hair behind her ear.  The clock on the wall ticked relentlessly towards midnight, each click a tiny hammer blow to her already frayed nerves. She was alone in the office, mountains of case files threatening to engulf her desk.
+
+Tonight, Evelyn wasn't just battling paperwork. She was wrestling with doubt. A nagging feeling gnawed at her that something about the Henderson Estate case wasn't right. The will itself was a tangled mess of contradictions and questionable clauses. And then there was Mr. Henderson’s enigmatic niece, Penelope, who seemed more interested in disappearing than inheriting her uncle's fortune. 
+
+
+Evelyn rubbed her tired eyes.  She knew she should just call it a night, but something about the case wouldn't let her rest.  Maybe another hour, she thought, just to double-check those financial records one last time.  Little did Evelyn know that this late-night investigation would plunge her into a world of hidden secrets, dangerous alliances, and a mystery far deeper than any legal document could reveal.

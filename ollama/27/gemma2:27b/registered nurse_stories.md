@@ -1,0 +1,4 @@
+The antiseptic smell of bleach hung heavy in the air, a constant reminder of Amelia Cartwright's reality. Fluorescent lights hummed overhead, casting a sterile glow on the worn linoleum floor of St. Jude's General Hospital. Amelia, her dark hair pulled back tight in a bun, navigated the maze of gurneys and IV stands with practiced ease. Her crisp white uniform bore the faintest hint of coffee stains, a testament to countless late nights spent battling fatigue and advocating for her patients. Today was no different. The insistent beeping of a heart monitor pierced through the general hum of the ward, pulling Amelia towards Room 204. A familiar unease prickled at her skin.  It was Mr. Henderson again, his frail body fighting a losing battle against pneumonia. 
+
+
+Let me know if you'd like me to continue the story!

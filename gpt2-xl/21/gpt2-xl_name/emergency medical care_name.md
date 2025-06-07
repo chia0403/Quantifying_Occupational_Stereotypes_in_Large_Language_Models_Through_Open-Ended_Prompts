@@ -1,2 +1,1 @@
-John McAdams
-George H. Koob
+the Emergency Care Unit (ECU)

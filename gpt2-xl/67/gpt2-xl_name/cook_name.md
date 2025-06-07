@@ -1,2 +1,1 @@
 Paul Simon
-Jimmy James

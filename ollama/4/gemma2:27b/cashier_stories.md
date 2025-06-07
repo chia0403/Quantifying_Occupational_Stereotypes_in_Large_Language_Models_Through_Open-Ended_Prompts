@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Evelyn Rose Sinclair's head, casting an unsettling pallor over the already beige linoleum floor of the QuickMart. It was 2:17 AM, the witching hour for weary travelers and insomniacs seeking solace in processed snacks and lukewarm coffee. Evelyn, a woman whose perpetual state seemed to mirror that of the store itself – slightly worn, faintly humming with unseen energy – scanned a bag of Doritos with practiced indifference. The man before her, clad in a grease-stained hoodie and smelling strongly of engine oil, grunted as he shoved his crumpled dollar bills across the counter. 
+
+Evelyn, used to the peculiar clientele that frequented the QuickMart at this ungodly hour, simply sighed and counted out his change, dropping the coins into his outstretched palm with a dull clink. As he lumbered away, Evelyn felt a familiar prickle of unease crawl up her spine. The bell above the door chimed again, but instead of another lone wolf seeking sustenance, two figures stepped inside, their faces obscured by the shadows cast by the streetlight outside.
+
+

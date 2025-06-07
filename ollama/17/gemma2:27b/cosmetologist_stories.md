@@ -1,0 +1,5 @@
+The air hung thick with the scent of lavender shampoo and acetone, a familiar comfort to Elara Blackwood. Sunlight streamed through the shop window, illuminating dust motes dancing above rows of brightly coloured hair dye bottles. Outside, the bustling market square throbbed with life - vendors hawking their wares, children chasing pigeons, couples stealing kisses under awnings. But inside "Elara's Elixir," time seemed to slow, a sanctuary carved out from the chaos of the city.
+
+Elara carefully sectioned her client's auburn hair, her fingers deftly weaving strands into a precise braid. Mrs. Petrov, a regular with perpetually twinkling eyes and a penchant for flamboyant hairstyles, was excitedly recounting her upcoming trip to visit her granddaughter in the Northern Isles. Elara listened intently, nodding along, while her mind wandered. A restlessness she couldn't quite name had been simmering within her lately, a yearning for something beyond the familiar routine of snipping, styling, and soothing frayed nerves.  
+
+

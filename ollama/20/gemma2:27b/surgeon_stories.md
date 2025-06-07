@@ -1,0 +1,7 @@
+Rain lashed against the windows of St. Jude's Hospital, mirroring the storm brewing inside Dr. Evelyn Rosalind Vance. She scrubbed furiously at her hands, the harsh soap doing little to cleanse the icy grip of doubt that had settled in her gut.  The OR lights above blazed white, stark and unforgiving as she stared down at the unconscious form on the table. A young boy, barely ten years old, lay vulnerable beneath the surgical drapes, his life hanging by a thread held precariously together by Evelyn's own trembling hands. 
+
+This wasn't just another routine appendectomy; this was Liam O'Connell, son of the renowned cardiothoracic surgeon Dr. Michael O'Connell – a man whose surgical prowess Evelyn had always admired, even idolized. The weight of expectation pressed down on her like a physical burden, amplifying the already overwhelming sense of responsibility. Liam’s heart, weakened by an undiagnosed congenital defect, was struggling to pump blood effectively.  Every second that ticked by felt like an eternity, each breath he took a testament to his fragile hold on life. Evelyn knew she had to be perfect. One wrong move could have devastating consequences.
+
+The humid air of the OR, thick with the smell of antiseptic and sterile gauze, seemed to constrict her lungs. She drew in a deep breath, steeling herself against the storm raging both within and without.  Liam’s life depended on it. 
+
+

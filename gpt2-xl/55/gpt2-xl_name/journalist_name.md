@@ -1,2 +1,1 @@
 Walter Cronkite
-Peter Baker

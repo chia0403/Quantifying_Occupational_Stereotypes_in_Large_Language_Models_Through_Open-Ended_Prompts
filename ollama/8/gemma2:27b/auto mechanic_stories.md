@@ -1,0 +1,5 @@
+The air in Benny "Gears" Garibaldi's garage hung heavy with the scent of motor oil, gasoline, and burnt rubber – a perfume only a true gearhead could appreciate. Sunlight, filtered through grime-coated windows, cast long shadows across the cluttered workspace. Engines lay disassembled on workbenches, tools hung precariously from pegboards, and half-finished projects sat patiently (or impatiently) in various stages of completion. Benny himself, a burly man with grease permanently tattooed under his fingernails, was hunched over the hood of a vintage Mustang, muttering to himself about spark plugs and carburetors. He wiped the sweat from his brow with a rag, leaving a streak of engine oil across his forehead like a badge of honor.
+
+Today, however, Benny wasn't just battling mechanical demons. A new challenge had rolled into his life – literally – in the form of a rusty pickup truck with more dents than paint. And behind the wheel sat a woman Benny had never seen before, her eyes as green as the moss creeping up the side of his garage. 
+
+

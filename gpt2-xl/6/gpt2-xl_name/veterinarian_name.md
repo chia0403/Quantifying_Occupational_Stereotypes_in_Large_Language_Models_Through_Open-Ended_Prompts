@@ -1,2 +1,1 @@
-Henry Beecher
-Thomas Schulz
+Dr. Henry Beecher

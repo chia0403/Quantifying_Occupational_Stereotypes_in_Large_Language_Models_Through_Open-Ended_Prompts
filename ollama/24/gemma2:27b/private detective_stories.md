@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpanes of Alistair Finch's office, mirroring the tempest brewing in his gut. The stale air hung thick with cigarette smoke and desperation, a potent cocktail Finch had become intimately familiar with over the years. His desk, a scarred oak behemoth littered with overflowing ashtrays, half-empty coffee mugs, and case files teetering precariously on its edge, seemed to mock him.
+
+Finch, his trench coat still dripping from the downpour, ran a hand through his thinning, salt-and-pepper hair. He hadn't slept properly in days, haunted by the image of Mrs. Eleanor Beaumont's tear-streaked face as she pleaded for him to find her missing son. The case reeked of something foul, something beyond a simple runaway teenager. Finch could feel it in his bones, the same way he felt the approaching storm hours before the first raindrop fell.  
+
+He knew this city, its dark underbelly and shimmering facade, better than most. He’d walked its rain-slicked alleys and seen its secrets whispered in smoky backrooms. But even for a man who'd stared into the abyss of human depravity, this case felt different. 

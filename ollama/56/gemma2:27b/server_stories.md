@@ -1,0 +1,3 @@
+The air hung thick with the smell of frying oil and desperation. Amelia "Amy" Ramirez weaved through the sticky booths of The Rusty Spatula, a greasy spoon diner clinging to the edge of Highway 10. Sunlight slanted through the grimy windows, illuminating dust motes dancing in the stale air. Amy balanced a tray laden with lukewarm coffee and wilted hash browns, her worn-out sneakers squeaking against the linoleum floor. Another Tuesday morning in this purgatory of burnt toast and bottomless cups. A bell jingled as the door swung open, letting in a gust of wind and a man who looked like he hadn't slept in days. Amy plastered on her best "welcome to The Rusty Spatula" smile, bracing herself for whatever existential crisis or order for extra pickles awaited her.  
+
+

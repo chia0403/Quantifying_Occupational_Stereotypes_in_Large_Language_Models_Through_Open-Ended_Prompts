@@ -1,0 +1,5 @@
+The flickering neon sign outside The Rusty Nail cast a sickly green glow across Amelia "Amy" Hawthorne's face as she scribbled notes in her worn leather notebook. The air was thick with cigarette smoke and stale beer, the scent clinging to everything like a stubborn ghost. Amy hated dive bars, but they were goldmines for stories. Tonight, The Rusty Nail hummed with whispers about a missing local artist, Elijah Vance, whose vibrant murals had suddenly vanished from their usual spots around town.
+
+Amy shifted on her creaky barstool, nursing a lukewarm beer she hadn't touched. Her eyes scanned the dimly lit room, settling on a grizzled man hunched over a game of pool. He looked like he knew things, the kind of secrets that clung to the cracks in worn leather jackets and shadowed eyes. Maybe he knew something about Elijah Vance.
+
+A surge of adrenaline pulsed through Amy's veins. This was her chance, her ticket out of the mundane local beat she'd been stuck on for years. If she could crack this case, maybe, just maybe, she'd finally get noticed. 

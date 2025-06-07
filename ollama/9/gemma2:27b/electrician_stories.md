@@ -1,0 +1,5 @@
+The whine of cicadas buzzed through the humid Charleston air, thick as molasses. Sweat trickled down Elias "Eli" Blackwood's neck, tracing a path through the grime that clung to his skin like a second shirt. He tugged at his faded yellow bandana, pushing it further back on his head. Above him, the ancient oak tree stretched its limbs towards the sweltering afternoon sun, casting dappled shadows across the peeling paint of Miss Hattie's porch. Eli squinted at the tangled mess of wires spilling out from the fuse box like a nest of venomous snakes.  "Lord have mercy," he muttered, pulling out his trusty multimeter. This wasn't going to be easy.
+
+Miss Hattie, bless her heart, had insisted on fixing the porch light herself after "those young whippersnappers charged me an arm and a leg". Eli knew better than to argue with a woman who could charm a gator into giving up its teeth. But this...this looked like a job for someone with more patience than a saint and twice the electrical know-how.  Still, he was Eli Blackwood, electrician extraordinaire, and he wouldn't back down from a challenge, even if it came in the form of Miss Hattie's cobbled-together wiring. 
+
+

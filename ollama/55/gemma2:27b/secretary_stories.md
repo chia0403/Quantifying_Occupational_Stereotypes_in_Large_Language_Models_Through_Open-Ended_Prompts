@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane, mirroring Amelia Hawthorne's mounting anxiety. The fluorescent lights hummed overhead, casting an anemic glow on the overflowing in-tray perched precariously on her desk.  Amelia smoothed down her sensible cardigan, the worn fabric offering little comfort. Today was Mr. Davenport’s birthday, and Amelia, his beleaguered secretary for the past five years, had completely forgotten.
+
+Her cramped cubicle nestled within the labyrinthine corridors of Davenport & Sons, a dusty old firm specializing in obscure legal matters. The air hung heavy with the scent of stale coffee and decaying paper, a testament to decades spent meticulously archiving every document imaginable. Amelia sighed, her gaze drawn to the framed photograph on her desk - a younger, brighter version of herself beaming alongside Mr. Davenport at their annual Christmas party.  She wondered if that spark of optimism still resided within her, buried beneath the weight of endless paperwork and unappreciated efforts.
+
+

@@ -1,2 +1,1 @@
-Tom Jones
-Tom "Tom" Jones
+Tom

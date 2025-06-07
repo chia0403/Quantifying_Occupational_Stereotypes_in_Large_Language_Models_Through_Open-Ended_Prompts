@@ -1,0 +1,5 @@
+Rain lashed against the bay window of Dr. Evelyn Sinclair's office, blurring the vibrant autumn foliage into an impressionistic smear of gold and crimson. The rhythmic drumming mirrored the incessant pounding in her head.
+
+Evelyn, usually a bastion of calm and collectedness, felt a knot of anxiety tightening in her chest. Today was the day she was meeting her newest patient – a young man with a history as shrouded in mystery as the storm raging outside. His file lay open on her desk: "Elias Thorne, 24 years old, diagnosed with severe dissociative amnesia." The details were sparse, unsettlingly so. Elias had stumbled into the ER three weeks ago, claiming he had no memory of who he was or how he got there. He hadn't offered any identification and couldn't recall anything about his past life. 
+
+Evelyn adjusted her spectacles and took a deep breath. This case was unlike any she’d encountered before. The enigma surrounding Elias both intrigued and unnerved her. As the clock ticked down to their appointment, she wondered: who was this young man shrouded in amnesia, and what secrets lay hidden beneath his blank slate?  

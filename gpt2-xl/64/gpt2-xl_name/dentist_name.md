@@ -1,1 +1,1 @@
-Richard Lee
+Dr. Richard Lee

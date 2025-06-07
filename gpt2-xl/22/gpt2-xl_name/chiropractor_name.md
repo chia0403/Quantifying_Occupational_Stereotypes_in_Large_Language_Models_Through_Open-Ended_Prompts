@@ -1,2 +1,1 @@
 Richard Schwartz
-Paul Gartner

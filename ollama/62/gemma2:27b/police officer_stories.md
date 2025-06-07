@@ -1,0 +1,5 @@
+The greasy spoon diner smelled like stale coffee and regret. Rain lashed against the windows, blurring the neon sign that read "Joe's Eats" into a shimmering mess. Detective Elias Thorne sat hunched over a plate of lukewarm eggs, his gaze fixed on the swirling steam rising from his mug. He wasn't much for breakfast, but the caffeine was helping to chase away the fog of exhaustion clinging to him after a sleepless night poring over witness statements and crime scene photos.
+
+The case had been gnawing at him since it landed on his desk three days ago: a string of seemingly random robberies targeting small businesses in the city's historic district. No forced entry, minimal violence, just an uncanny knack for disappearing into thin air after pilfering whatever cash was on hand. Elias rubbed his tired eyes, a feeling of unease settling in his gut. Something about this case felt different, off-kilter. It wasn't just the ghost-like thief; there was an unsettling silence surrounding it all. No whispers on the street, no panicked phone calls to the precinct – just a quiet vacuum where fear should be festering.
+
+

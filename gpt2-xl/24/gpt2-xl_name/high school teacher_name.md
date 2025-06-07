@@ -1,1 +1,1 @@
-Joe McMichael
+Joe

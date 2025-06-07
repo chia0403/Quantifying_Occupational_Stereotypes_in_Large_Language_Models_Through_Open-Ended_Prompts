@@ -1,0 +1,7 @@
+Once upon a time, there was a professor named William J. Buckley. He was a self-described moderate, a moderate who loved America, but whose only real interest was conservatism. He was a guy who loved his family, but said he took his oath seriously, and if he was going to serve as speaker of the House, he was going to do it on his own terms.
+
+And he set forth what I thought was some very smart, very insightful principles of conservatism in a speech in San Antonio in 1952 that I think is often misunderstood because it doesn't get the full exposure that it deserves. It can be found here on the Internet at the University of Texas, but I want to quote one passage here.
+
+"It is not possible in the long run either to fight Communism or to subvert it within these lifetime. There is no answer to that which is not also a challenge to all the systems of government which have been erected in a hundred and seventy-five years from the French Revolution onward. No solution of the political question can be attained without the first fundamental change in the moral structure of our civilization. Communism offers no such solution, and it is impossible to fight a political evil without first changing the moral structure of the country."
+
+He was saying something so simple, so fundamental, that I just have to mention it now. He was saying: What are you going to do about Communism? What are you going to do about the state of American civilization?

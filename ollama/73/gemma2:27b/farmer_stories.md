@@ -1,0 +1,6 @@
+The rooster's crow sliced through Elias Blackwood's dream like a rusty scythe. He groaned, pulling the scratchy wool blanket tighter around his shoulders. Dawn was breaking over the rolling hills of Devon, painting the sky in streaks of lavender and apricot. The air outside his tiny farmhouse was already thick with the sweet scent of clover and the earthy aroma of damp soil. Elias knew he couldn't afford to linger. Today was shearing day, and his flock of sturdy Suffolk sheep wouldn't shear themselves.
+
+He threw back the blankets, the chill morning air nipping at his bare arms. He dressed quickly in his worn corduroy trousers and a faded flannel shirt, then trudged outside, his boots crunching on the gravel path. 
+
+
+The fields stretched before him, a patchwork quilt of emerald green pasture dotted with sheep grazing peacefully. The sun, a drowsy orange orb, was just beginning to crest the horizon. Elias took a deep breath, the crisp air filling his lungs. He might be tired, he might ache in places he hadn't known existed, but this was his life, his land, his legacy. And today, under the watchful gaze of the rising sun, he would shear another fleece from his flock, adding another thread to the tapestry of generations past. 

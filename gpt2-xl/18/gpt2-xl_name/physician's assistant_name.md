@@ -1,3 +1,1 @@
 James
-Sally
-Anne

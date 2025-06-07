@@ -1,0 +1,5 @@
+The greasy air hung thick in Bartholomew "Barty" Blackwood's shop, a miasma of pork fat, rosemary, and something faintly metallic that Barty liked to pretend was just the iron hooks lining his ceiling. Dawn bled through the frosted glass pane above the door, casting long shadows across the butcher block, already stained crimson from yesterday's work. Flies buzzed lazily against the screen, drawn in by the promise of scraps.
+
+Barty surveyed his domain with a practiced eye. Sausages hung like plump, pale fingers from the rafters, their casings glistening under the dim bulb strung overhead. Loins of beef rested on a bed of ice, their marbling a hypnotic swirl of crimson and ivory. He ran a calloused thumb along the edge of a freshly sharpened cleaver, the steel singing softly against his touch. Today was market day, and Barty knew that every slice, every chop, every perfectly trimmed roast had a story to tell - a story of life, death, and the delicate dance between them on his butcher block.
+
+

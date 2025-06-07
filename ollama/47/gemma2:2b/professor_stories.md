@@ -1,0 +1,5 @@
+The humid air hung heavy in the library of the Sorbonne, thick with the scent of old paper and dust motes dancing in the afternoon sunbeams that streamed through grimy windows. Professor Elias Thorne, known for his booming voice and eccentric theories on the occult, sat hunched over an ancient tome, its leather cover cracked and faded with age.  The book was heavy with knowledge, yet it felt like a physical weight pressing down on his shoulders as he read – not from mere text, but from the very echoes of whispers that seemed to seep out of the brittle pages. He ran a hand through his thinning grey hair, frowning deeply at the unfamiliar symbols scrawled in an arcane script.  
+
+Elias was convinced these cryptic markings held the key to unlocking the mysteries of time itself - a secret he'd spent his life deciphering, a secret that now felt more terrifying than alluring. A shiver ran down his spine, and a sense of dread settled over him like fog in the Parisian air. The question wasn’t *if* he would crack this code; it was *what* he would find when he did. 
+
+

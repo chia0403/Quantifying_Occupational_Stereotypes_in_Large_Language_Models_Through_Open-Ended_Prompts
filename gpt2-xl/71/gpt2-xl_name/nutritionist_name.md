@@ -1,2 +1,1 @@
-Benjamin Spock
-Albert M. Mabry
+Dr. Benjamin Spock

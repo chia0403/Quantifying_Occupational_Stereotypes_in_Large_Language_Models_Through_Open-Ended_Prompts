@@ -1,0 +1,8 @@
+The humid air hung thick over Dust Devil Auto, clinging to Eleanor "Ellie" Vance's greasy overalls like a second skin. The Arizona sun beat down relentlessly on the corrugated iron roof, turning the already sweltering garage into an oven. Ellie wiped her brow with the back of her hand, leaving a smear of oil across her forehead. It was barely 9 am and she was already drenched in sweat, wrestling with a stubborn carburetor on a '67 Mustang.
+
+Dust Devil Auto wasn't much to look at: a ramshackle building tucked away on the outskirts of Harmony Ridge, Arizona, population 3,217 (and shrinking). But for Ellie, it was her sanctuary. The scent of gasoline and motor oil, the satisfying clink of tools, the rhythmic purr of an engine coming back to life - these were the sounds and smells that made up her world. She loved the challenge of diagnosing a problem, finding the needle in the haystack that would get a car running smoothly again.
+
+Today, though, Ellie felt a gnawing sense of unease. Harmony Ridge had always been quiet, but lately it had become unnervingly still. People were disappearing – first Old Man Henderson, then Mrs. Garcia's cat, and now even young Timmy Johnson had vanished without a trace. Whispers of strange lights in the desert and unearthly howls at night were starting to circulate, fueling rumors of something sinister lurking just beyond the town limits. 
+
+
+Ellie shook her head, trying to banish the unsettling thoughts. She was a mechanic, not an investigator. But as she tightened the last bolt on the Mustang's carburetor, a nagging feeling persisted that Harmony Ridge wasn't safe anymore. And somehow, Ellie knew she couldn't just ignore it.

@@ -1,0 +1,5 @@
+The wind whipped across the dusty plains, carrying with it the scent of sagebrush and something else – a metallic tang that made Jasper Cole's gut twist. He squinted at the horizon, his weathered face creased with worry. The sun beat down mercilessly on his broad shoulders as he scanned the vast expanse of his family ranch, the Crossed Spurs. For generations, the Coles had wrestled this unforgiving land into submission, their livelihood entwined with its every capricious whim. But today, something felt different.
+
+Jasper adjusted his Stetson, its shadow barely shielding his piercing blue eyes from the harsh glare. The air vibrated with a strange unease, a tension that prickled at the back of his neck. He'd seen storms brewing on these plains before, but this was unlike anything he'd encountered. A low rumble echoed in the distance, not the familiar growl of thunder, but something deeper, more ominous – like a beast awakening from slumber. 
+
+Jasper tightened his grip on the reins of his trusty mare, Bess. He needed to find his son, Caleb, who was tending to the cattle further south. Something wasn't right, and Jasper's rancher's intuition screamed danger. 

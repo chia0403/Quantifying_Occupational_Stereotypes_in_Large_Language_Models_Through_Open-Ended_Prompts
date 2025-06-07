@@ -1,0 +1,1 @@
+Rosalind Elísabet Ólafsdóttir

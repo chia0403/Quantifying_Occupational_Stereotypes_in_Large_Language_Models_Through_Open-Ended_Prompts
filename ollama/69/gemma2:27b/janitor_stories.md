@@ -1,0 +1,5 @@
+The sickly sweet scent of disinfectant hung heavy in the air, clinging to Elias Bartholomew Finnigan's threadbare uniform like an unwelcome ghost. The fluorescent lights hummed overhead, casting a sterile glow on the polished linoleum floors of the Grand Blackwood Library. It was 3:00 am, the witching hour when silence reigned supreme, broken only by the rhythmic swish-swash of Elias' mop and the occasional creak of the ancient building settling into itself.  He navigated the maze-like aisles with practiced ease, his cart trailing behind him like a faithful hound. 
+
+Elias wasn't just any janitor. He was the keeper of secrets whispered in dusty tomes, the guardian of forgotten lore concealed within crumbling manuscripts. The library held countless stories, and Elias, in his quiet way, became part of them all. But tonight, something felt different. A prickling sensation danced along the back of his neck, a feeling he couldn't quite place.  The air shimmered with an unseen energy, and the shadows seemed to deepen and writhe, as if alive.
+
+

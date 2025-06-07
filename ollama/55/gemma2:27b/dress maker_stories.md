@@ -1,0 +1,5 @@
+The late afternoon sun cast long shadows across Rue de la Paix, turning the cobblestones into shimmering stripes of gold and gray. The scent of roasting chestnuts drifted from a nearby vendor, mingling with the delicate perfume of lilies that spilled out from Madame Antoinette Dubois' atelier window. Inside, Elodie Moreau expertly maneuvered her needle through layers of silk organza, her brow furrowed in concentration as she coaxed a bodice into its perfect shape. Elodie wasn’t just any dressmaker; she was an artist who breathed life into fabric, sculpting dreams onto the bodies of Paris' elite.
+
+But today, the usually serene atelier buzzed with nervous energy. Tonight, Madame Dubois would be unveiling her latest collection to a room full of discerning eyes – critics, socialites, and even a renowned fashion editor from Vogue. Elodie knew that this collection held the weight of their future, a chance for their small atelier to finally step out of the shadow of larger houses and onto the grand stage of Parisian haute couture.
+
+

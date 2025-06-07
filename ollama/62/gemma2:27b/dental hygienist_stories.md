@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Elara Beaumont's head, casting a sterile, almost otherworldly glow over the small dental room. The smell of antiseptic hung heavy in the air, a scent she usually found comforting but today felt overwhelmingly cloying. Elara meticulously polished a set of stainless steel instruments, her movements precise and practiced. Outside, the Seattle drizzle beat against the windowpanes, mimicking the nervous drumbeat in her chest. Today wasn't just another Tuesday cleaning appointments.
+
+Today was the day Dr. Harris finally retired, leaving Elara in charge of his bustling practice. Excitement warred with anxiety in her gut. She was a skilled hygienist, beloved by her patients, but managing a whole team and the business side of dentistry felt like a gargantuan leap.  As the first patient of the day walked through the door – a nervous teenager with braces – Elara straightened her white coat, pasted on a reassuring smile, and took a deep breath. This was it. The beginning of a new chapter. 
+
+

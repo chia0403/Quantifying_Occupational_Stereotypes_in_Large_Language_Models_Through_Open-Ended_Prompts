@@ -1,0 +1,5 @@
+The flickering fluorescent lights buzzed overhead, casting an anemic glow on the deserted hallways of St. Sybil's Academy for Gifted Young Ladies.  Eleanor Beatrice Finchley, her graying bun perched precariously atop her head, pushed her battered cleaning cart down the corridor. The silence was broken only by the rhythmic squeak of its wheels and Eleanor's own measured breaths. 
+
+St. Sybil's, once a bastion of aristocratic education, now stood as a crumbling monument to faded grandeur. Its ornate carvings were obscured by dust, the marble floors scuffed and dull. Yet, even in decay, there was an unsettling beauty about the place, a whisper of forgotten secrets clinging to its aged walls. Eleanor, who had been tending to St. Sybil's for over thirty years, felt it acutely. The school held a peculiar allure, a hidden pulse beneath the stillness.  Tonight, though, something felt different. A prickle of unease danced on her skin as she rounded a corner, drawn by an unnatural chill that seemed to emanate from the very heart of the building. 
+
+

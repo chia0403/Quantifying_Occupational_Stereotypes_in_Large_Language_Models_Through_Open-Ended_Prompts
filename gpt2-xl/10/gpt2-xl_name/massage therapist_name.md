@@ -1,3 +1,1 @@
-Joseph Mercola
-Weston Price
-Iwasa Hayakawa
+Dr Joseph Mercola

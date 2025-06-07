@@ -1,0 +1,5 @@
+The midday sun blazed through the nursery window, painting stripes across the worn linoleum floor. Emilia Grace Cartwright, with her auburn braid hanging loose down her back and flour smudges on her apron, hummed along to "Wheels on the Bus" as she bounced three-year-old Leo on her knee. Outside, the cacophony of the city seemed a million miles away; within these pastel walls, it was just Emilia, Leo, and a handful of giggling toddlers building precarious towers out of brightly colored blocks.
+
+But beneath the cheerful surface, Emilia felt a knot tightening in her chest. Today was Leo's last day at Sunshine Daycare. Tomorrow, he would be starting preschool, joining a world beyond finger painting and nap time. While Emilia knew this transition was inevitable - even necessary for Leo's development - a bittersweet ache filled her. She had watched him grow from a clumsy crawler to a boisterous explorer, sharing in his every milestone and tantrum.  Now, the thought of not seeing his gap-toothed grin every morning brought a prickle to her eyes.
+
+

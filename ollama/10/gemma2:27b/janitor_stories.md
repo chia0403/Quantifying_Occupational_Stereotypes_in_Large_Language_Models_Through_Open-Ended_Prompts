@@ -1,0 +1,5 @@
+The flickering fluorescent lights buzzed overhead like agitated wasps as Bartholomew "Bart" Higgins wrestled with a stubborn mop handle wedged against the corner of the double doors leading into the grand ballroom. The air hung heavy with the ghosts of forgotten waltzes and spilled champagne, a sickly sweet scent clinging to the polished mahogany floor. Bart grunted, tugging harder, his wiry arms straining beneath his faded blue uniform shirt.
+
+It was past midnight, long after the last tuxedoed guest had stumbled out into the crisp autumn air, leaving behind a scattering of confetti and discarded champagne flutes like glittering casualties of a joyous battle.  Bart preferred these solitary hours to the frenetic bustle of the ballroom in its prime. In the hush, he could almost hear the whispers of history echoing off the gilded walls – tales of lavish soirées, clandestine meetings, and scandalous affairs. Tonight, though, the silence was broken by an unsettling sound: a faint, rhythmic tapping coming from the darkened balcony above. 
+
+

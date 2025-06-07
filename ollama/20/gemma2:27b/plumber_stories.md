@@ -1,0 +1,7 @@
+Rain lashed against the corrugated iron roof of Ernie "Pipewrench" Peterson's ramshackle workshop, each drop a tiny hammer blow on the symphony of rust and decay. The air inside was thick with the metallic tang of old pipes and the acrid bite of soldering flux. A single bare bulb cast a sickly yellow light over Ernie's workbench, illuminating a jumble of wrenches, pliers, and half-disassembled toilets. 
+
+Ernie himself, a man whose face bore the map of a thousand leaky faucets and burst pipes, squinted at the contraption before him: an antique toilet with porcelain cracked like ancient pottery and a rusty brass handle that looked more suited to a dungeon door than a bathroom fixture. He sighed, wiping grease from his brow with a rag that was probably older than half the toilets in the city. "You stubborn piece of junk," he muttered, poking at a corroded pipe joint.
+
+This wasn't just any toilet repair; this one came with a story. Mrs. Agatha Blackwood, a woman whose age was as indeterminate as her lineage (rumored to be descended from a long line of eccentric inventors), had insisted it was no ordinary commode.  It was, she claimed, "a portal to the past," capable of flushing away not only waste but also regrets and bad decisions. Ernie, a pragmatist by nature and trade, scoffed at the notion. Still, Mrs. Blackwood's desperation, tinged with a hint of manic excitement, had piqued his curiosity. And besides, a plumber had to eat. 
+
+

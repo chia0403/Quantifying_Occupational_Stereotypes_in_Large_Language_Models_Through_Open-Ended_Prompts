@@ -1,0 +1,5 @@
+The humid Charleston air clung to Elizabeth "Eliza" Cartwright like a second skin as she navigated the cobblestone streets, her camera bag bumping rhythmically against her hip. The sun, already high in the sky, cast long shadows from the wrought iron balconies and ancient live oaks that lined Rainbow Row. Eliza squinted through the lens of her vintage Leica, searching for the perfect angle to capture the vibrant pastel hues of the historic houses. Today was all about capturing the essence of Charleston – its history, its charm, its undeniable beauty.
+
+Eliza, a freelance photographer with a penchant for architectural and landscape photography, had always been drawn to the South's languid charm and rich cultural heritage. This assignment, commissioned by a prestigious travel magazine, felt like a homecoming. She'd spent summers in Charleston as a child, exploring hidden courtyards and soaking up the stories whispered by the aged brick walls. Now, years later, she was back to rediscover its magic through her lens. 
+
+

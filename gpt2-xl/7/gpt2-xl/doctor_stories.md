@@ -1,0 +1,7 @@
+Once upon a time, there was a doctor named Dr. Henry Mancuso from the town of Salem, Massachusetts. While he may seem like a small detail if you've spent any time in our world, it can have a huge impact on how you play Assassin's Creed. It's been a long time since a player has needed to ask why a particular item can't be found near a specific piece of terrain or a specific wall.
+
+Dr. Henry Mancuso's existence is one of my favorite things about the series, along with the existence of the Great Khan and his famous horse, the Beast of Kublai Kahn. For some reason, though, the existence of Dr. Mancuso feels a bit more important than those three (though they were definitely important to an extent).
+
+The doctor was considered one of the founding fathers of medicine in America, and his work is arguably more prevalent than it was back in his time. In fact, it was Mancuso who would have been among the first people outside of the colonies to experience a successful blood transfusion.
+
+We know that there were very specific reasons for the assassination of Dr. Henry Mancuso, which involved a mission that took a rather unexpected turn. His wife had an affair with an official of the English government. He had gone to have his man arrested during a raid, believing the minister was to blame for the affair, according to an Assassin's Creed novel written

@@ -1,0 +1,7 @@
+Rain lashed against the grimy windowpane, blurring the neon glow of the "Legal Eagles" sign across the street. Evelyn Moreau sighed, her breath fogging the glass for a fleeting moment before being swallowed by the relentless downpour.  Her cramped cubicle felt even smaller with the oppressive weight of unfinished work looming over her. Stacks of case files threatened to topple, each one representing another desperate soul seeking justice, or at least a semblance of it. Evelyn, despite her lowly paralegal status, understood that burden better than most. 
+
+She’d dreamt of being a lawyer, her head filled with visions of courtroom battles and triumphant closing arguments.  Reality, however, had dealt her a different hand. Stuck in the legal trenches, she navigated mountains of paperwork, conducted endless research, and deciphered legalese for clients who often felt more like lost sheep than people seeking legal counsel. Yet, there was a glimmer of satisfaction in knowing that her meticulous work helped others, even if it meant sacrificing her own aspirations. 
+
+Tonight, however, the usual hum of diligence was replaced by a gnawing unease. A new case had landed on her desk – the disappearance of a young woman named Amelia Hayes. The file contained only a handful of documents, but the sparse details screamed tragedy: vanished without a trace, no witnesses, no leads.  Evelyn knew this wouldn't be like her usual routine. This was something different, something that whispered of shadows and secrets best left undisturbed.
+
+

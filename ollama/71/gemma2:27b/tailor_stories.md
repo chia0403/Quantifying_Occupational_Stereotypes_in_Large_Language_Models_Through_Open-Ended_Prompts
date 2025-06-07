@@ -1,0 +1,7 @@
+Rain lashed against the warped glass panes of Alistair Finchley's shop window, blurring the faded image of a dapper gentleman in a three-piece suit. Inside, Alistair himself hunched over a bolt of emerald green velvet, his brow furrowed in concentration as he meticulously measured and marked. The air hung heavy with the scent of beeswax, old cloth, and pipe tobacco – a comforting olfactory tapestry that had become synonymous with Finchley's Fine Tailoring for generations.
+
+The shop was nestled on a cobblestone street in the heart of Alderbury, a town clinging stubbornly to its Victorian charm despite the encroaching modernity of the neighboring city. Gas lamps flickered dimly outside, casting long shadows that danced along the walls lined with bolts of fabric in every imaginable hue and texture. The rhythmic tick-tock of an ancient grandfather clock punctuated the silence, broken only by the occasional hiss of the steam iron Alistair used to press his creations to perfection. 
+
+Alistair sighed, running a calloused hand over his neatly trimmed silver beard. Business had been slow lately, the rise of ready-made clothing threatening the very existence of bespoke tailoring. He missed the days when men prided themselves on a perfectly fitted suit, when a tailor was consulted for every important occasion – weddings, funerals, promotions. Now, it seemed people were content with mass-produced garments that lacked soul and individuality. 
+
+

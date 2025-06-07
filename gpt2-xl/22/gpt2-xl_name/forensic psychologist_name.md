@@ -1,1 +1,1 @@
-Kenneth Lanning
+Dr. Kenneth Lanning

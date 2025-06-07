@@ -1,3 +1,1 @@
 Gary
-David
-David Jr

@@ -1,0 +1,5 @@
+The late afternoon sun cast long shadows across the cluttered desk in Professor Amelia Blackwood's study. Dust motes danced in the golden light, illuminating ancient tomes stacked precariously high, their leather spines cracked with age. Outside, the wind howled through the gnarled branches of the ancient oak that stood sentinel over Blackwood Manor, its leaves rustling like whispered secrets. Amelia, her silver hair escaping from its bun and falling across her spectacles, tapped a long, bony finger against a faded parchment map spread before her. The lines, drawn in ink faded to the colour of rust, traced the winding path of a forgotten river through a dense, mist-shrouded forest – the very same forest Amelia was about to venture into. 
+
+A shiver ran down her spine despite the warmth emanating from the hearth.  For years, she had poured over legends whispered by villagers and ancient texts detailing a hidden temple within this untamed wilderness, a place rumoured to hold secrets older than time itself. Today, fuelled by an insatiable thirst for knowledge and a touch of reckless courage, Amelia Blackwood was determined to find it.
+
+

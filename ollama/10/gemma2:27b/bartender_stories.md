@@ -1,0 +1,5 @@
+The neon sign outside flickered "The Drunken Mermaid" in shades of sickly green and bruised purple. Rain lashed against the grimy windows, blurring the reflection of the lone figure perched on a stool at the bar. Elias Thorne, his forearms corded with muscle from years of hauling kegs and wiping down sticky surfaces, polished a glass with a practiced hand, the rhythmic swish almost hypnotic in the dim light. He'd seen it all in this dive - broken hearts mended with cheap whiskey, fistfights fueled by bad decisions, whispered confessions drowned out by the jukebox crooning bluesy tunes.  Tonight, though, was different. A chill hung in the air, heavier than the usual humidity, and a prickle of unease danced down Elias' spine.
+
+The door creaked open, admitting a gust of wind and a figure shrouded in shadow. Elias paused his polishing, his gaze drawn to the newcomer. He couldn't see their face clearly, but something about the way they held themselves, the tension coiled tight like a spring, told him this wasn't just another weary soul seeking refuge. 
+
+

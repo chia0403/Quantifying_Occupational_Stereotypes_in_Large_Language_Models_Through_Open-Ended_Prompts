@@ -1,2 +1,1 @@
 River Thompson
-Amy Bennett

@@ -1,0 +1,5 @@
+The air hung thick with the smell of bay rum and freshly cut hair in Antonio "Tony" Esposito's barbershop. Sunlight streamed through the dusty windowpane, illuminating motes of dust dancing above worn leather chairs. Tony himself, his salt-and-pepper hair slicked back with pomade, stood expertly wielding a pair of silver shears, snipping away at a young man’s unruly curls. Outside, the bustling streets of 1950s Brooklyn echoed with the cacophony of car horns and street vendors hawking their wares. But inside Tony's shop, time seemed to slow, each snip of the shears a measured beat in a familiar rhythm.
+
+Tony was more than just a barber; he was a confidant, a therapist, and sometimes even a judge for his regulars. They came not just for a trim but for a slice of Tony’s wisdom, delivered with a wink and a wry grin. The barbershop, with its faded red-and-white checkered floor and walls plastered with framed photographs of boxing legends, was a sanctuary for the men of the neighbourhood, a place where they could shed their burdens and share their joys. 
+
+

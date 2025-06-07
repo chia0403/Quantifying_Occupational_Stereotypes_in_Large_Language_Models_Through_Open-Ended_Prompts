@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Dr. Elias Thorne's clinic, blurring the neon glow of the "Open 24 Hours" sign hanging precariously above the door. The air inside was thick with the smell of antiseptic and something faintly metallic, a scent Elias had come to associate with desperation. He sat hunched over his desk, the flickering fluorescent light casting harsh shadows across his face, highlighting the worry lines etched deep around his eyes. 
+
+His clinic, nestled in the heart of the decaying industrial district of Veridia City, was rarely frequented by those who could afford proper healthcare. Tonight was no different. A lone figure sat slumped in a chair by the door, coughing violently into a handkerchief that looked more like a tattered rag. Elias knew what he'd find: another case of Black Lung, the insidious disease that plagued the miners of Veridia.  His fingers tightened around his worn stethoscope. Another life hanging by a thread, another battle he wasn't sure he could win. 
+
+

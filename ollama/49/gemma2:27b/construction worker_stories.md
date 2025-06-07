@@ -1,0 +1,5 @@
+The midday sun beat down on Silas Jeremiah "Si" Blackwood's neck, turning his collar red. Sweat stung his eyes as he wrestled with a recalcitrant steel beam, its weight threatening to pull him off balance atop the skeletal frame of the new skyscraper. Below, the city sprawled like an unmade bed – a jumble of concrete and glass reflecting a million fragmented rays of sunlight. Si grunted, finally heaving the beam into place, the satisfying clang echoing through the construction site. He wiped his brow with a grease-stained handcloth, momentarily gazing out at the cityscape before returning to the familiar dance of hammering and welding. This was his world – a symphony of metallic groans, the scent of ozone and burnt concrete, the constant hum of power tools. 
+
+He wasn't sure what drove him to this life. Maybe it was the primal satisfaction of shaping steel and glass into something new, or perhaps it was the simple rhythm of hard work that kept his mind from straying too far into the past. Whatever the reason, Si Blackwood wouldn't trade it for anything. At least, not yet. 
+
+

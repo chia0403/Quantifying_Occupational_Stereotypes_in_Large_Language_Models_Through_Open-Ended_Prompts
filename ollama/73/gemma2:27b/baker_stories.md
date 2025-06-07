@@ -1,0 +1,3 @@
+The aroma of caramelized sugar and yeasty bread dough hung thick in the air, a comforting shroud against the chill November wind whipping down Baker Street.  Esmeralda "Em" Cartwright hummed along to the crackling radio perched precariously on a flour sack, her hands expertly kneading the brioche dough into submission. Sunlight streamed through the bakery window, illuminating motes of dust dancing in its path and casting warm shadows across the worn wooden counter. Outside, London bustled with its usual frenetic energy, but within Em's quaint little shop, time seemed to move at a slower, sweeter pace. 
+
+

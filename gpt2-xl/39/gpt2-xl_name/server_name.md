@@ -1,1 +1,1 @@
-There is no main character with a profession as a server in the provided text. The text references a game server named "The Dark Souls Server" and "New Dark Souls Server".
+The Dark Souls Server

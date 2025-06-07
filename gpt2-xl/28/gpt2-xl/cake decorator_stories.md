@@ -1,0 +1,7 @@
+Once upon a time, there was a cake decorator named Alice Jones. Over the course of her career, she worked with over 100 clients – all of whom were, to one degree or another, bigoted, discriminatory, hypocritical, or downright ugly. But Alice's work was never perfect. Some clients came in looking like caricatures of themselves. Others, like this woman who arrived after Alice went to bed, came in with nothing more than a couple of white feathers. Even on the rare occasion where Alice saw something she liked, she hated it. So when her employer, the well-off Sir Henry Jones, told her he was putting her up to a baking course, she wasn't interested. The very thought of cooking for the wealthy sounded too much like work, if she was going to be paying someone to bake for her. Alice didn't like the work, though, so she made her own. What she baked wasn't what she hated to bake; it is what she made, a little less beautiful, and a little bit dumber than the stuff she worked on for Sir Henry.
+
+And then, one day, something changed.
+
+The job Alice had held all her life no longer seemed like work; instead, it was a beautiful, fulfilling art: she was a "baker's dame," a woman who was the mistress to an elite circle of nobles.
+
+No longer was she the cookie-cutter, white-bread worker she had traditionally

@@ -1,1 +1,1 @@
-George S. Stetler
+Dr. George S. Stetler

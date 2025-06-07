@@ -1,2 +1,1 @@
 Harold Brown
-Harold

@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of Elara Thorne's makeshift office, each drop a miniature hammer blow against her concentration. The air hung thick with the scent of damp earth and woodsmoke, a peculiar mix that was strangely comforting in this ramshackle shed perched on the edge of a forgotten quarry.  Elara traced a calloused finger across the blueprint spread out before her, frustration etching lines onto her brow. This project - the renovation of the dilapidated Grandview Theatre - felt more like an archeological dig than architectural design. 
+
+The Grandview, a once-majestic Art Deco masterpiece now crumbling under decades of neglect, was both Elara's dream commission and her greatest nightmare. Its faded glory called to her soul, whispering tales of bygone eras filled with velvet seats, twinkling chandeliers, and the intoxicating scent of popcorn. But beneath that shimmering façade lay a labyrinth of structural nightmares: cracked foundations, warped beams, and a leaky roof that threatened to drown the entire building in a torrent of rain. 
+
+

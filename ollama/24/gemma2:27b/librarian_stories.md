@@ -1,0 +1,6 @@
+The scent of aging paper and dust motes danced in the afternoon sunbeams that slanted through the arched windows of the Blackwood Library. Eleanor Finch, her spectacles perched precariously on the bridge of her nose, adjusted the frayed spine of a leather-bound volume with practiced care. The silence of the library was broken only by the gentle rustle of pages and the distant tick-tock of a grandfather clock in the adjacent reading room.
+
+Eleanor, a woman whose age seemed to be perpetually suspended between forty and sixty thanks to her sharp wit and even sharper fashion sense (think tweed jackets, sensible shoes, and a brooch collection that could rival a museum), considered herself more custodian than librarian. The Blackwood Library wasn't just a repository for books; it was a living, breathing entity, filled with untold stories yearning to be discovered. And Eleanor, with her encyclopedic knowledge of every tome within its walls, was the key to unlocking them. 
+
+
+Today, however, a different kind of story awaited her. A faded envelope, tucked behind a dusty shelf in the restricted archives, promised an adventure unlike any she'd encountered before. Its wax seal bore a curious emblem - a crescent moon entwined with a serpent - and its contents whispered of a long-forgotten legend, one that Eleanor was determined to unravel. 

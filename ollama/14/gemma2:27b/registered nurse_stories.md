@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the clinic, each drop a staccato beat in the symphony of the storm.  Eleanor "Ellie" Vance, her auburn braid escaping its confines and damp against her neck, squinted at the flickering fluorescent light overhead. The power was capricious tonight, mirroring the unpredictable nature of life in this remote Guatemalan village. A cough rattled from the corner where a young boy, no older than five, lay shivering beneath a threadbare blanket. Ellie sighed, the weight of responsibility settling heavy on her shoulders. She needed to stabilize him, but the dwindling supply of antibiotics gnawed at her conscience.  Outside, thunder boomed like an angry god, echoing the fear that clenched Ellie's gut.
+
+This was her first solo rotation since graduating from nursing school, and she longed for the familiar comfort of her colleagues back home. Yet, despite the challenges, a flicker of determination ignited within her. She wouldn’t let this storm, or the lack of resources, defeat her. There were lives depending on her, and Ellie Vance was determined to be their beacon in the darkness. 
+
+

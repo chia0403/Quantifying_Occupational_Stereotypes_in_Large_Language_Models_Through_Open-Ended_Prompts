@@ -1,0 +1,4 @@
+The acrid smell of burnt garlic hung heavy in the air, mingling with the sweet scent of caramelized onions and the sharp tang of red wine vinegar. It was a familiar symphony to Camille Dubois, head chef of "Le Petit Coin," a bustling bistro tucked away on a cobblestone street in the heart of Montmartre. Rain lashed against the arched windows, mirroring the tempest brewing inside her. 
+
+
+Camille slammed a fist onto the stainless steel counter, sending a tremor through the rows of pristine knives. The latest Michelin review, scathing and unforgiving, lay crumpled beside the stove, its words like poisoned darts piercing her carefully cultivated confidence. "Bland," it sneered. "Uninspired." "A pale imitation of its former glory."  Camille had poured her heart and soul into Le Petit Coin for the past decade, transforming a dingy cafe into a culinary gem. Now, with one review, her world seemed to be crumbling around her. 

@@ -1,0 +1,3 @@
+The acrid smell of smoke stung Elias "Eli" Thorne's nostrils even before he saw the flames licking at the night sky. Sirens wailed, echoing off the brick facades of the historic district, a symphony of urgency and dread.  He gripped the steering wheel tighter, knuckles white against worn leather. This wasn't some routine kitchen fire; the inferno rising from the old textile mill was a beast hungry for everything in its path. Eli knew every nook and cranny of this building, had spent countless childhood hours exploring its cavernous spaces with his buddies. Now, those memories were tinged with fear as he raced toward the maw of the blaze, ready to face whatever horrors awaited him within.  
+
+

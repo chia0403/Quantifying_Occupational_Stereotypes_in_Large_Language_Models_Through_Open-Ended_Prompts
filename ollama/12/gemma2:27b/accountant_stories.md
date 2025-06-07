@@ -1,0 +1,7 @@
+Rain lashed against the grimy windowpane of Eleanor Vance's office, blurring the neon glow of the liquor store across the street into an impressionist painting of lurid greens and reds.  The air inside was thick with the scent of stale coffee and dusty ledgers, a familiar olfactory cocktail to Eleanor, who spent more hours staring at numbers than she did breathing fresh air. Tonight, however, the usual rhythm of her solitude was broken by a persistent tapping on the glass door.
+
+Eleanor sighed, pushing away the stack of invoices that threatened to engulf her desk.  She knew it wouldn't be a client – no one braved the storm for last-minute tax advice. It was probably just another lost soul seeking shelter from the downpour, someone who mistook her office for something more welcoming than it actually was. 
+
+Still, duty compelled her to investigate. With a tired groan, she rose and shuffled towards the door, each step echoing in the unnerving quiet of her cramped space. Peering through the rain-streaked glass, Eleanor saw a figure huddled beneath the awning, a man cloaked in shadows and shrouded by the storm's fury.  He was tall and lean, his face obscured by the brim of a fedora pulled low over his eyes. Hesitation flickered within her, but something about the man's posture, the way he stood with an air of quiet urgency, compelled Eleanor to unlock the door.
+
+"Can I help you?" she asked, her voice barely audible above the relentless drumming of the rain.

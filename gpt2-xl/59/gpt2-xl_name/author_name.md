@@ -1,2 +1,1 @@
 Stephen King
-Margaret Mitchell

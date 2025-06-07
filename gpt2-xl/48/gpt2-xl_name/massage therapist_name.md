@@ -1,2 +1,1 @@
 Jack
-Terry

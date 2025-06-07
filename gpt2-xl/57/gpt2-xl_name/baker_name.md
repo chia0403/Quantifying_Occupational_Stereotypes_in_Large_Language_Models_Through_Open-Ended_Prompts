@@ -1,2 +1,1 @@
-Thomas the Bold
-James
+Thomas

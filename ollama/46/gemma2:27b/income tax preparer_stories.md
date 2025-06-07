@@ -1,0 +1,5 @@
+Rain lashed against the windowpanes of Eleanor "Ellie" Finch's cramped office, mirroring the tempest brewing inside her. Stacks of W-2s and 1099s threatened to topple over like dominoes, each representing another sleepless night and dwindling hope.  It was April 14th, the eve of Tax Day, and Ellie's tiny storefront in downtown Harmony Creek was buzzing with a frantic energy.
+
+The scent of stale coffee mingled with the faint, sickly-sweet aroma of desperation emanating from her clients – harried single mothers clutching overflowing shoeboxes of receipts, stressed businessmen sweating over expense reports, and nervous retirees hoping for a sliver of relief from the ever-hungry IRS. Ellie, normally a beacon of calm amidst the chaos, felt a knot tightening in her chest. She had promised herself this year would be different; she'd vowed to escape the soul-crushing grind and pursue her dream of opening a bookstore. But with each ticking second, that dream seemed further away, lost in a labyrinth of deductions, credits, and ever-changing tax laws. 
+
+

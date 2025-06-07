@@ -1,0 +1,7 @@
+In the quaint town of Willowbrook, where cobblestone streets twisted around charming shops and vibrant flower boxes adorned every window, there stood a small yet inviting bakery named “Sugar Petal.” The air was fragrant with the scent of vanilla and freshly baked bread, and the soft chime of a bell tinkled every time the door swung open, welcoming both locals and tourists alike. 
+
+Ella Mae Kensington, a cake decorator with dreams as sweet as the confections she crafted, was busy at her workbench. Morning light streamed through the wide front window, casting a warm glow over her station cluttered with sprinkles, edible glitter, and tubes of vibrant frosting. With dexterous hands and an artist’s eye, she blended colors and flavors, creating masterpieces that echoed the beauty of the world outside.
+
+Today, however, was special. Ella had just received the biggest order of her career: a five-tier wedding cake for the town’s annual spring gala—a prestigious event that would put the spotlight on her work like never before. As she gathered her tools, a flutter of excitement danced in her chest, mingled with a hint of anxiety. This cake would not only be a reflection of her skill but also a chance to finally make a name for herself beyond the cozy confines of Willowbrook. 
+
+With a determined glint in her eye, Ella rolled up her sleeves. She was ready to transform her dreams into sugary reality, and nothing could stand in her way.

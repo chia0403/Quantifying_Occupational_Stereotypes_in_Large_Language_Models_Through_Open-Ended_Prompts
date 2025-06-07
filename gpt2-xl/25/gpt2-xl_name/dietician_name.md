@@ -1,1 +1,1 @@
-Thomas Ewing
+Dr. Thomas Ewing

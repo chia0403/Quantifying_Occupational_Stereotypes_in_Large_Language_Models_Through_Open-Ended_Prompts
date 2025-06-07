@@ -1,0 +1,3 @@
+Rain lashed against the grimy windows of the Watchtower, each drop exploding in a miniature geyser against the cobblestones below. Inside, the air hung thick with the stench of mildew and unwashed bodies. Silas Blackwood, his face etched with years of hard living and weary vigilance, sat hunched over a flickering lantern, its dim light barely penetrating the gloom. The storm had raged for three days straight, isolating the remote village of Oakhaven from the outside world. Silas, veteran guard of the village gates, felt a gnawing unease in his gut. It wasn't just the relentless rain; something else felt amiss, a prickling sensation on the back of his neck that whispered of danger lurking beyond the storm’s curtain.
+
+

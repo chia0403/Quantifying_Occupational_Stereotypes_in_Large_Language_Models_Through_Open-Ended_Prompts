@@ -1,1 +1,1 @@
-James Red Davis
+James "Red" Davis

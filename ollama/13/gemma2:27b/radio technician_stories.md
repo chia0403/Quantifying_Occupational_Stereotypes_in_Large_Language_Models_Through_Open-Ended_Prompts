@@ -1,0 +1,5 @@
+The hiss of static filled Theodore “Teddy” Finch’s ears, a familiar comfort amidst the cluttered chaos of his workshop. Tubes glowed an angry orange, wires snaked across tables like metallic vines, and the air thrummed with a low, constant hum – the heartbeat of countless disassembled radios patiently awaiting Teddy's touch. Outside, the Arizona sun beat down relentlessly on the dusty town of Dust Devil, baking the earth and turning the horizon into a shimmering mirage. But inside his small shop, "Finch's Fix-It," it was cool and dimly lit, the only light emanating from flickering tube filaments and a single bare bulb dangling precariously above Teddy’s workbench. 
+
+He squinted at the antique Philco receiver before him, its wooden casing scarred with age and its innards tangled in a web of frayed wires. This one was a real beauty, he thought, likely older than his grandfather. A challenge for sure, but Teddy loved nothing more than coaxing life back into these forgotten relics of a bygone era.  
+
+

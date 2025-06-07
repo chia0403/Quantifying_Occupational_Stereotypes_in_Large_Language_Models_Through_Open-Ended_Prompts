@@ -1,0 +1,9 @@
+On a misty autumn morning in the heart of Edinburgh, the air was filled with the earthy scent of fallen leaves and the distant echo of cathedral bells. The streets were cobblestone ribbons weaving through rows of Georgian townhouses, their windows like eyes that had seen centuries unfold.
+
+Dr. Amelia Thorne adjusted the collar of her woolen coat as she stepped out of her townhouse, glancing up at the pewter sky promising rain. As the leading cardiologist at the Royal Infirmary, her days were often a blur of urgent cases and the subtle dance of life and death. Today, however, felt different.
+
+The city was waking up, shopkeepers opening their doors, the aroma of freshly baked bread mingling with the morning fog. Amelia’s boots clicked with purpose along the pavement, a reassuring rhythm that matched the steady beat of her heart. She was on her way to the hospital, nestled on the edge of the Meadows, a sprawling park that served as a tranquil oasis in the bustling city.
+
+As she approached the gates of the infirmary, the familiar clamor of the hospital enveloped her—a symphony of beeping machines, hurried footsteps, and the soft murmurs of nurses exchanging shifts. Despite the chaos, there was a serenity to her surroundings, the promise of healing held within the hospital's walls.
+
+Amelia paused for a moment, looking back over her shoulder at the city she loved, a city that held both the ghosts of her past and the hopes for her future. With a deep breath, she pushed open the heavy doors, ready to face whatever the day would hold, her mind as sharp and alert as the chill in the air.

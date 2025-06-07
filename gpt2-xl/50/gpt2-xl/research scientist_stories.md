@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named Janna who worked for A.A.A. and was a member of the Research and Development Board. She was an excellent scientist with a knack for manipulating humans and animals for the greater good of mankind. That is who she was. But one day, she began her research and began to alter human beings to fit her own designs. Some of them had names; Janna herself kept a couple of them for a little while. After changing the subject, she explained this was what she was doing in order to save as many people as she could. She claimed that it was not only her duty but her nature.
+
+
+Unfortunately, that was when everything went horribly wrong which is why she disappeared soon afterward. That was only a few short years ago, though. This was when the A.A.A. system started to be abused by some members. Eventually, she was found and killed by two of its most powerful members.
+
+
+The following year, a human was found, still alive, in the wreckage of her car. His name was Michael and he was also a victim, but that is the entire story. He was brought back to A.A.A. and changed, becoming Janna's partner. The team soon followed the same process, changing the subjects of their experiments into their own personal "comrades." The victims soon followed. It was a vicious cycle, and Janna eventually felt her life was

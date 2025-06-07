@@ -1,2 +1,1 @@
 John Doran
-Peter Wong

@@ -1,0 +1,5 @@
+The rhythmic clatter of the typewriter was Amelia Thistlewick's constant companion. Not that she minded; its familiar click-clack was a comforting symphony in the sterile quietude of Mr. Hawthorne's office. Sunlight streamed through the tall windows overlooking Fifth Avenue, bathing the mahogany desk and brass fittings in a warm glow. But Amelia barely noticed. Her gaze was fixed on the crumpled letter before her, a missive from a desperate woman pleading for Mr. Hawthorne's intervention in a matter she couldn't disclose. Amelia chewed on her lower lip, debating whether to interrupt his meeting with the imperious Mrs. Van Derlyn, who sat primly across from him, fanning herself and emitting disapproval like heat from a furnace.
+
+The letter crackled in her hand. It smelled of lavender and desperation. Whatever this woman's plight, Amelia felt an undeniable pull towards it. Mr. Hawthorne was known for his pragmatism, but could he be persuaded to help someone who couldn't offer him anything in return? 
+
+

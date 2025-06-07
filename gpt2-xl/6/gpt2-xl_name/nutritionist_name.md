@@ -1,1 +1,1 @@
-Gary Taubes
+Dr. Gary Taubes

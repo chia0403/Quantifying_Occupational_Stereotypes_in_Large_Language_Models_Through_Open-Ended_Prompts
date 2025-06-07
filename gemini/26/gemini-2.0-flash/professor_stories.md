@@ -1,0 +1,11 @@
+## The Story Opening and Setting:
+
+**Opening:**
+
+The scent of old paper and leather hung heavy in Professor Eleanor Ainsworth's office, a comforting miasma that had permeated the very walls of the North Wing for decades. Rain lashed against the leaded glass windows, a rhythmic drumming that usually lulled her into a productive focus. Today, however, it only served to underscore the gnawing unease in her stomach. Eleanor hadn't felt this unsettled since the discovery of the "Ashworth Codex" in the crumbling archives of a forgotten monastery, a find that had simultaneously cemented her reputation as a brilliant linguist and plunged her into a vortex of scholarly obsession. Now, a week after deciphering its final passage, the same disquiet returned, sharper and more… *real*.
+
+She pushed the half-finished cup of Earl Grey away, its surface rippling with the tremors that now plagued her hands. It wasn't the Codex itself that troubled her; it was the Codex's subject. And even more disturbing, it was the sensation that the subject, whatever it might be, was suddenly very, very close.
+
+**Setting:**
+
+Professor Eleanor Ainsworth's office is located on the second floor of the North Wing of Greyhaven University, a venerable institution nestled in the Cotswolds hills of England. The North Wing, a Gothic Revival masterpiece, is home to the Department of Ancient Languages and Literature. Eleanor's office is a haven of organized chaos: towering bookshelves crammed with ancient tomes, linguistic atlases, and dog-eared paperbacks; a large, oak desk overflowing with notes, manuscripts, and forgotten teacups; and walls adorned with faded maps, scholarly diagrams, and photographs of archaeological digs from around the world. The room is bathed in the soft, diffused light that filters through the leaded glass windows, giving everything a slightly sepia-toned quality, as if the very air itself has aged alongside the books. A worn Persian rug covers the floor, muffling the sounds of footsteps and adding to the sense of quiet contemplation. Outside, the university grounds are a tapestry of manicured lawns, ancient oaks, and ivy-covered buildings, a picture of idyllic academic life, belying the secrets hidden within its ancient stones.

@@ -1,0 +1,7 @@
+Once upon a time, there was a florist named Bessie and a floral designer named Bill. Bessie was beautiful and Bill was busy designing flowers for weddings. Bill's life was perfect. Until she went blind and her husband left.
+
+
+Bill went home, told Bessie that he loved her, got on with his life and never looked back – that was until the day the flowers he designed for Bessie's wedding turned up missing. When Bessie found out about this, she immediately ran and yelled at Bill to get over to her house. She'd thought her husband would leave her and never ask her back, but something in him just refused to let him stop pursuing his life. So he asked her to come over and fix him some breakfast. That's when Bill got angry and said, "If you love me any more than that (pause) and will not bring me back, I'll see you in hell, Bessie."
+
+
+Bessie and Bill got into a passionate argument and Bessie kicked Bill out of her house. Bill was absolutely heartbroken. Because of this, she became obsessed with her lost flowers. Over the course of seven years, Bessie finally found Bill's wedding flowers and returned them to his home. Bessie decided to move in with her son. While Bessie was living her new life, Bill's wedding flowers waited. They were waiting for Bessie when her son was

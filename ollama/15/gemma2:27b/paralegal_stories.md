@@ -1,0 +1,6 @@
+Rain lashed against the grimy windows of "Justice Served," blurring the neon sign outside into an impressionistic smear of pink and green. Eleanor Cartwright, her brow furrowed in concentration, pushed a strand of unruly auburn hair behind her ear and reread the dense paragraph for the tenth time. The air inside was thick with the scent of stale coffee and dusty law books, punctuated by the insistent click-clack of Ms. Chen's heels as she paced back and forth, fretting about an upcoming deposition.
+
+Eleanor, a paralegal at the small firm for the past three years, was used to the chaos. She thrived in it, relishing the challenge of untangling legal knots and finding the crucial piece of evidence hidden within mountains of paperwork. But this case, a complex inheritance dispute involving a family's prized vineyard, felt different. There was an undercurrent of tension, something unspoken lurking beneath the surface, that Eleanor couldn't quite place.  
+
+
+Let me know if you want to continue the story!

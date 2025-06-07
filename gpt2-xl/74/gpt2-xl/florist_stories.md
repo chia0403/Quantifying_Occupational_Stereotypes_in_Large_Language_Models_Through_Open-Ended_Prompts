@@ -1,0 +1,7 @@
+Once upon a time, there was a florist named Ethel Greenleaf. She'd started out as a shop assistant, then moved up the chain to a position as manager for the largest flower shop in the region, and eventually became manager of all the flowers in the store. As a big fan of all things floral, I became a huge fan of Ethel when I was a little boy, so I've always felt a deep love for her. She was always great with the kids, and I remember her giving a lot of them a hug after school.
+
+A few years ago, she was diagnosed with cancer, and it was immediately apparent to all the staff that she was in too deep. And just after Christmas, when everyone returned from vacation, she passed away. It was a tragic, unexpected loss, but she didn't need a life of service to give us meaning or keep us connected.
+
+I know her, I know the love she brought to our house, and I think she deserves to be remembered. I'm not going to be able to say anything about her with anything more than the photos that I take myself each day and share as often as I can.
+
+Thanks to all the other florists who have been working with me lately to make us feel special with florist gifts from their hearts, and to everyone who has given of themselves with kindness and good will, too. Everyone makes their mark, and everyone deserves to be remembered.

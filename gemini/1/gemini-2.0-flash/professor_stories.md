@@ -1,0 +1,11 @@
+## Story Opening and Setting:
+
+**Opening:**
+
+The rhythmic tapping of rain against the leaded glass windows of Professor Eleanor Ainsworth's office was almost hypnotic. She hadn't noticed it start, lost as she was in the labyrinthine footnotes of a particularly dense manuscript on Byzantine funeral rituals. The scent of old paper and dried lavender – a small sachet tucked into the folds of a first edition Plutarch – hung heavy in the air, a comforting, almost sepulchral aroma that had permeated her life for as long as she could remember. Eleanor ran a hand wearily through her salt-and-pepper hair, pulling at a stray strand that had escaped her haphazard bun. Another dead end. Another ritual with no discernible explanation for the curious placement of the deceased's left hand. She was beginning to think she'd chosen the wrong career. Perhaps she should have followed her sister's path and become a baker. At least then, the mysteries she confronted would involve leavening agents and the perfect prove.
+
+A sharp rap on the door broke through her reverie, scattering her thoughts like frightened birds. "Come in," she called out, her voice a touch sharper than she intended.
+
+**Setting:**
+
+Eleanor Ainsworth's office, room 312 in the hallowed halls of St. Augustine's College, Oxford, was a testament to a life lived amongst the dead. Or at least, amongst their words. Floor-to-ceiling bookshelves, crammed with leather-bound volumes and brittle pamphlets, lined three of the four walls. The fourth wall housed the aforementioned leaded glass windows, overlooking a perpetually damp and verdant courtyard, where pigeons strutted with an air of scholarly disdain. A large, oak desk, inherited from her predecessor, Professor Emeritus Theodore Finch, dominated the room, its surface covered in a chaotic yet strangely ordered collection of manuscripts, notebooks, quill pens, and half-empty teacups ringed with tannin stains. A worn, Persian rug, its vibrant colors faded with age, partially obscured the ancient floorboards. The overall impression was one of comfortable chaos, a space perfectly tailored to the mind of a scholar who preferred the company of history to that of the present day.

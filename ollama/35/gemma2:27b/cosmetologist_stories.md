@@ -1,0 +1,5 @@
+The scent of jasmine and lavender hung thick in the air, a comforting blanket against the sharp bite of the November wind whipping outside. Elodie Moreau adjusted the vintage brass mirror on her workstation, catching her reflection – fiery red curls escaping their braid, freckled nose dusted with powder, emerald eyes sparkling with anticipation. She loved this time of day, just before her first client arrived, when the salon was still quiet and the possibilities for transformation shimmered like the gold flecks in her favorite hairspray. 
+
+Today's appointment was special. Elodie was expecting Camille Dubois, a renowned novelist known for her captivating tales of Parisian romance and intrigue. Rumors swirled that Camille was working on a new novel, one set in a vibrant, bohemian community much like Elodie's own neighborhood in Montmartre. Perhaps Camille needed a change – a bold cut to match her daring characters? Or maybe just a touch of color to reflect the fiery passion she poured into her words?  Elodie couldn't wait to find out.
+
+

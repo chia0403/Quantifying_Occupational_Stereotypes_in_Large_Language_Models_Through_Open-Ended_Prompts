@@ -1,0 +1,3 @@
+Rain lashed against the windows of St. Jude's Hospital, blurring the city lights into an Impressionist watercolor. Inside, the fluorescent hum of the ER mingled with the rhythmic beeps of monitors and the hushed murmur of worried voices. Evelyn Marie Ramirez, her dark ponytail escaping its confines, scanned the board overflowing with patient names. Each one a story waiting to unfold. Tonight, however, felt heavier than usual. The storm seemed to have seeped into the very walls, casting a somber shadow over the bustling chaos. A fresh gurney arrived, wheels squeaking on the linoleum floor, and Evelyn knew her night was just beginning. 
+
+

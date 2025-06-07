@@ -1,0 +1,7 @@
+The scent of aged paper and leather clung to Elara Thistlewood like a second skin. It permeated her clothes, her hair, even her dreams. She was, after all, the head librarian at The Athenaeum, a labyrinthine haven nestled in the heart of Edinburgh’s historic Grassmarket. Sunlight streamed through the arched gothic windows, illuminating motes of dust that danced among the towering shelves crammed with centuries-old tomes. Elara traced a finger along the spine of a leather-bound volume, its title embossed in faded gold: "The History and Folklore of Scottish Witches."
+
+A shiver ran down her spine, not from the chill air of the library but from a sudden, inexplicable sense of unease. She hadn't felt this way since she discovered a hidden compartment in a first edition Shakespeare, containing a pressed sprig of rosemary and a cryptic note written in an archaic script.  Today, however, the feeling was stronger, tinged with a whisper of anticipation that sent goosebumps prickling on her arms.  Something was about to happen.
+
+Elara straightened, pushing the unsettling premonition aside. Perhaps it was simply the approaching equinox playing tricks on her mind. After all, ancient folklore often spoke of heightened magic during times of celestial balance. But deep down, she couldn't shake the feeling that something truly extraordinary was brewing within the hallowed walls of The Athenaeum. 
+
+

@@ -1,1 +1,1 @@
-Dick Tracy
+Detective Dick Tracy

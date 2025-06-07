@@ -1,0 +1,5 @@
+The midday sun beat down on Elias "Eli" Hawthorne's neck, turning the back of his shirt into a scorching branding iron. Dust devils waltzed across the parched Nevada desert, whipping up gritty sand that stung Eli's eyes and rasped in his throat. The skeletal frame of the half-constructed casino loomed above him, its steel girders baking under the relentless heat. Eli wiped sweat from his brow with a calloused hand, leaving a streak of grime across his forehead.  He squinted at the blueprints spread out on a rickety table, frustration knotting in his gut.
+
+This wasn't how he envisioned his life. Growing up in a small Ohio town, Eli had dreamed of becoming an architect, designing soaring buildings that touched the sky. Life, however, had other plans. A series of unfortunate events - his father's illness, mounting debts, and a lack of funds for college - had forced him into the gritty reality of construction work.  He'd climbed the ranks from laborer to foreman, earning respect through sheer hard work and a meticulous eye for detail, but the dream of designing still lingered, a bittersweet phantom in his heart.
+
+

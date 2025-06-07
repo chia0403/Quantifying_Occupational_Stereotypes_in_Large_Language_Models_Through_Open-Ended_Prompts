@@ -1,0 +1,7 @@
+Rain lashed against the windowpanes of Dr. Eleanor Vance's office, mimicking the tempest brewing inside her.  The plush armchair across from her sat empty, a testament to the cancelled appointment that had left a gaping hole in her carefully curated schedule. Eleanor sighed, pushing a stray strand of auburn hair behind her ear. Her office, nestled on the third floor of an imposing Victorian building overlooking a cobblestone street in Edinburgh's Old Town, felt stiflingly quiet.
+
+The antique grandfather clock in the corner ticked ominously, each measured chime amplifying the sense of unease that had been plaguing Eleanor for weeks. It wasn't just the cancelled appointment; it was the recurring dreams, vivid and disturbing, featuring a faceless figure shrouded in mist, whispering cryptic warnings. Then there were the strange occurrences -  a misplaced file, an unsettling phone call with no caller ID, a sudden gust of icy wind swirling through her office despite all windows being firmly shut. 
+
+Eleanor tried to rationalize these events, attributing them to stress and overwork. After all, she'd been grappling with a particularly challenging case - a young woman suffering from dissociative identity disorder, who claimed to be channeling messages from beyond the grave. But Eleanor couldn't shake the feeling that something more sinister was at play. Something unseen was pulling at the edges of her reality, threatening to unravel the carefully constructed world she had built around herself.
+
+

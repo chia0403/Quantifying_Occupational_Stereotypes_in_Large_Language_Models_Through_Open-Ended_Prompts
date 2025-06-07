@@ -1,0 +1,5 @@
+The aroma of crayons and disinfectant hung thick in the air of Sunnyside Daycare. Emilia Rose Thompson, with her perpetually tangled brown curls escaping from their braid and the faintest smudge of finger paint on her cheek, surveyed the chaos with weary affection. A chorus of shrieks rose as little Liam attempted to climb the jungle gym while simultaneously wielding a plastic lightsaber. Emilia sighed, already bracing herself for the inevitable tumble.
+
+Outside, the late afternoon sun cast long shadows across the brightly coloured playground.  The air buzzed with the frantic chirping of cicadas, a soundtrack to the endless summer days that stretched on and on. But within the cheerful yellow walls of Sunnyside Daycare, Emilia knew the reality was far less idyllic. Budgets were tight, staff were overworked, and the constant barrage of tiny demands threatened to chip away at her patience. Today, however, something felt different. A prickle of unease danced along her spine, a feeling that this afternoon wouldn't be like any other. 
+
+

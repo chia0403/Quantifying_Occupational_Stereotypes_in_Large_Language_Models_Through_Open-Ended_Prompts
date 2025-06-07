@@ -1,0 +1,4 @@
+Rain lashed against the grimy windows of the Blackwood & Thorne accounting firm, blurring the neon glow of the "Open" sign hanging precariously above the entrance. Inside, Eleanor Ainsworth hunched over her typewriter, the rhythmic clatter barely audible above the storm's fury.  The air hung heavy with the scent of stale coffee and desperation. Stacks of invoices threatened to engulf her desk, each representing another late payment, another anxious client on Mr. Blackwood's ever-growing list of debtors. Eleanor sighed, pushing a stray strand of auburn hair back from her freckled face. She longed for the day she could escape the cramped office and its suffocating atmosphere, but for now, she was chained to this desk, her future as uncertain as the storm raging outside.
+
+
+Let me know if you'd like me to continue the story! 

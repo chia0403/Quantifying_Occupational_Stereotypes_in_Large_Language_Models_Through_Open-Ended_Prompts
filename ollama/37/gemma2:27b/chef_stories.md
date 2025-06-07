@@ -1,0 +1,5 @@
+The air hung thick with the scent of roasting garlic and rosemary, battling the persistent aroma of fish sauce clinging to the ancient brick walls of Le Petit Papillon.  It was 5:30 AM, the pre-dawn hush still lingering over the cobblestone streets of Vieux Lille. Inside the kitchen, however, a flurry of activity had already begun. Elodie Marchand, her blonde braid escaping its bun as she chopped vegetables with fierce precision, hummed along to Edith Piaf on the ancient radio crackling in the corner. Today was a crucial day:  Le Petit Papillon, Elodie's grandmother’s legacy and the only Michelin-starred restaurant in Lille, was hosting a renowned food critic.
+
+Elodie wiped her brow with the back of her hand, her heart pounding. The pressure was immense. Not only was she upholding a century-old tradition, but this review could make or break Le Petit Papillon's future.  She glanced at the handwritten menu on the chalkboard: Pan-seared scallops with saffron beurre blanc, followed by roasted duck breast with fig and port reduction, ending with her grandmother’s legendary crème brûlée. Every dish had to be perfect. 
+
+

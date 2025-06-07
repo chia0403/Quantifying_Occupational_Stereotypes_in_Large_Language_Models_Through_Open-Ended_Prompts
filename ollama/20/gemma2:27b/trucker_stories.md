@@ -1,0 +1,5 @@
+The air brakes hissed, releasing their hold on the eighteen-wheeler with a sigh that echoed Bartholomew "Bart" Higgins' own weariness. He leaned back in his seat, the vinyl groaning beneath him, and stared out at the dusty expanse of the Arizona desert. The sun, already high and merciless, beat down on the rusted hood of his rig, shimmering off the heat haze rising from the cracked asphalt. Bart squinted, trying to make out the distant silhouette of the rest stop he'd seen marked on his map. It promised shade, coffee, and hopefully a functioning restroom – luxuries he desperately craved after fourteen hours on the road hauling grain from Nebraska to Phoenix.
+
+The silence of the desert was broken only by the occasional whirring of cicadas and the mournful cry of a hawk circling high above. Bart felt a familiar ache in his lower back, a reminder of the countless miles he'd logged over the years. He longed for the open road, the freedom it represented, but lately, the loneliness had been creeping in, settling deep into his bones like the desert sand. 
+
+

@@ -1,3 +1,1 @@
 Robert Mapplethorpe
-Robert Mapplethorpe
-Mapplethorpe

@@ -1,2 +1,1 @@
-Kung Fu Fighting
 Ninja

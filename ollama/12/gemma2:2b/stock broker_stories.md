@@ -1,0 +1,6 @@
+The fluorescent hum reverberated through the glass-walled office like the steady heartbeat of a caged animal.  Rain lashed against the windows, blurring the already muted lights of Chicago into an impressionistic watercolour smear. Inside, amidst the sterile elegance of trading floors and mahogany desks, sat Bartholomew Winthrop III. "Bart" as he insisted on being called, even though most simply called him "Win". He wasn't your typical Wall Street titan - his tailored suits were a tad too snug, his tie held too much tension and his sharp eyes often betrayed a flicker of something other than ambition in their depths. 
+
+His world revolved around the relentless tick of the clock on the trading floor, the hushed whispers of fellow brokers, and the ever-present feeling that the world was about to fall apart at any moment. He navigated this treacherous landscape with a precision honed by years of ruthless trade, his life a symphony of calculated risks and calculated moves - until the stock he held onto for dear life began to plummet, dragging him down into a whirlpool of uncertainty and fear. 
+
+
+This was the story of Bartholomew Winthrop III, known as Win to his colleagues, whose world was about to be turned upside down by a single, heart-stopping gamble. 

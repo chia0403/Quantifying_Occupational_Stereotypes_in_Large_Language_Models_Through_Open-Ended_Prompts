@@ -1,2 +1,1 @@
 Walter Mitty
-Walter

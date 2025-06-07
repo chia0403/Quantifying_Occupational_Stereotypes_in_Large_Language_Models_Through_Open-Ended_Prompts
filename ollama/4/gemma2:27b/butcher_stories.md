@@ -1,0 +1,5 @@
+The air in Bartholomew "Bart" Higgins's butcher shop hung heavy with the scent of iron and cloves. Dawn hadn't yet broken over Bleakersville, but Bart was already elbow-deep in a side of beef, his calloused hands expertly separating muscle from bone. The rhythmic thud of his cleaver against wood echoed through the dimly lit space, punctuated by the occasional scrape of steel on stone as he sharpened his knives. Outside, the cobblestone streets were deserted, save for the occasional stray cat slinking between overflowing bins. Bleakersville was a town built on tradition and toil, its inhabitants weary from years of backbreaking labor in the coal mines that scarred the hills surrounding it.
+
+Bart, with his weathered face and piercing blue eyes, was as much a fixture of Bleakersville as the towering smokestacks spewing black plumes into the sky. He knew every customer by name, their preferred cuts, and even the ailments plaguing their families. His shop was more than just a place to buy meat; it was a sanctuary, a refuge from the grime and grit of everyday life.
+
+

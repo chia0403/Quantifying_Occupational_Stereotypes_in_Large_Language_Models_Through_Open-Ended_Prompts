@@ -1,0 +1,4 @@
+The air hung thick with cigar smoke and the scent of desperation, both clinging to Alistair Beaumont's crisp suit like an unwanted second skin. The mahogany-paneled boardroom of Beaumont & Sons, a firm his family had built from scratch, buzzed with nervous energy. Alistair traced a finger along the worn edge of the antique conference table, its polished surface reflecting the flickering anxiety in the eyes of his colleagues. Outside, the skyscrapers of Wall Street glittered under a cloudless October sky, mockingly indifferent to the financial storm brewing within those walls. 
+
+
+The Dow was plummeting, and Beaumont & Sons, once a titan of the market, teetered on the brink of collapse. Alistair's grandfather, a legend in the industry, had always warned him: "The market is a fickle beast, Alistair. Respect it, understand it, or it will devour you whole." Today, that warning echoed ominously in Alistair's mind. 

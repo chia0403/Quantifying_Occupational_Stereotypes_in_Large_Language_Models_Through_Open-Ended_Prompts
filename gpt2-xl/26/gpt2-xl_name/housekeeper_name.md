@@ -1,1 +1,1 @@
-Mary Knight
+Mary

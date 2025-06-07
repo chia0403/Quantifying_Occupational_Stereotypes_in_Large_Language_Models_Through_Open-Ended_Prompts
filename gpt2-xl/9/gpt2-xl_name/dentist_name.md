@@ -1,2 +1,1 @@
 Richard Tubb
-D. T.

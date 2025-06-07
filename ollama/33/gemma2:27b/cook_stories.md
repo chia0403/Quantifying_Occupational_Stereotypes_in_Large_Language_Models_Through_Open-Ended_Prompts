@@ -1,0 +1,5 @@
+The air in "Mama Rosa's" hung thick with the scent of simmering tomatoes, garlic, and oregano. Sunlight streamed through the dusty windowpanes, illuminating motes of flour dancing above the worn wooden counter where Evangeline "Eva" Rossi kneaded dough with practiced ease. Her strong hands, dusted white with flour, moved rhythmically, pushing and pulling the dough until it formed a smooth, elastic ball.  Outside, the cobblestone streets of Rome buzzed with the sounds of scooters and chattering vendors, but within Mama Rosa's kitchen, time seemed to slow down.
+
+Eva, her dark hair pulled back in a loose braid, hummed softly as she worked, lost in the familiar comfort of her craft. For generations, the Rossi family had run this small trattoria, tucked away in a quiet corner of Trastevere.  Eva's grandmother, Rosa, had instilled in her a love for food that bordered on reverence. Now, with Mama Rosa gone, it was Eva's turn to carry on the tradition, to weave stories into every dish and share the warmth of her family with the world.
+
+

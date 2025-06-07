@@ -1,0 +1,3 @@
+The humid New Orleans air hung thick as Ambrosia "Amber" Dubois adjusted the strap of her vintage Nikon F3. The sun dipped behind the wrought iron balconies of Bourbon Street, casting long shadows across the bustling scene.  Music spilled from doorways – bluesy riffs intertwining with the raucous laughter of tourists and the rhythmic clatter of a street performer's spoons on a tin can. Amber inhaled deeply, the scent of beignets and jasmine mingling with exhaust fumes. This was her city, a kaleidoscope of color and chaos that she captured through her lens. Tonight, she wasn't looking for posed portraits or staged perfection. Tonight, she wanted to capture the raw, unfiltered heartbeat of the French Quarter. 
+
+

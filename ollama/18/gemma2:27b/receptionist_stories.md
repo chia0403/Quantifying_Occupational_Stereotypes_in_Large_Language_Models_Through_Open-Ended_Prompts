@@ -1,0 +1,6 @@
+The insistent trill of the phone shattered Eloise Beatrice Cartwright's carefully constructed world of alphabetized folders and perfectly aligned sticky notes. She sighed, picking up the receiver with a practiced smile already plastered on her face. "Good morning, Cartwright & Sons Attorneys at Law, this is Eloise speaking. How may I direct your call?"
+
+Eloise's fingers danced across the worn surface of the mahogany desk as she spoke, mentally cataloguing each incoming query. She was the gatekeeper of Cartwright & Sons, a firm steeped in tradition and smelling faintly of old leather and forgotten lawsuits. Situated on the third floor of a grand Victorian building overlooking the bustling city square, their office window offered a panoramic view of pigeons squabbling over breadcrumbs, oblivious to the legal battles being waged within. Eloise, however, was acutely aware of those battles, her ears perpetually tuned to snippets of conversation as lawyers strode past her desk, muttering about precedents and injunctions. Today, though, felt different. A strange tension hung in the air, a buzzing anticipation that had Eloise feeling on edge. 
+
+
+Let me know if you'd like me to continue the story!

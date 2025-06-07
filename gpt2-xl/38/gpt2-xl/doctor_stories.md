@@ -1,0 +1,7 @@
+Once upon a time, there was a doctor named William Bennett, who treated his patients the same way he treated a snake: with cold water, burning incense and whipping, according to local folklore. "He made their skin fall off!" the villagers told the New York Times in the late 20th century.
+
+The medical treatment was an improvement over his predecessor, James Baker, who often used a scalpel and "treated the sick in a way that might best be likened to a fireman taking a brush to a raging fire." Baker's treatments were seen as an aberration in a country that long revered "traditional" healing methods, for example, using boiled and dried herbs to cure various illnesses and treating a person's ailment with the first dose of a particular herbal powder.
+
+However, after Baker's death in 1845, William Bennett's practices were largely suppressed until the 1890s, when a doctor named Dr. George D. Howard published The Modern Doctor. The medical community and the public was shocked—Howard was considered a controversial guru, having been accused of prescribing "quack medicine" like black salve or curing his patients with nothing more than chalk and water, although he insisted that he followed standard medical practice.
+
+During Howard's lifetime, his treatment of patients took a violent turn when he once saw a patient in labor and threw a thermometer down his throat. During Howard's lifetime, his treatment of patients took a violent turn when he once saw a patient

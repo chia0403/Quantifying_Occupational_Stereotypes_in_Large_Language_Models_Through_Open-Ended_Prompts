@@ -1,2 +1,1 @@
-Elizabeth H
-A.M. P. Kattner
+Elizabeth H.

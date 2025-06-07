@@ -1,0 +1,5 @@
+Rain lashed against the windows of Dr. Elara Vance's lab, mimicking the tempest brewing inside her. Papers littered her workbench, graphs charting erratic data sprawled across the screen. The faint, sickly glow emanating from the petri dish on the table did little to soothe her mounting anxiety. For months she had dedicated herself to this project, isolating and studying the newly discovered extremophile bacteria found in the Mariana Trench.  Its unique ability to thrive under immense pressure and extreme temperatures promised revolutionary applications in bioengineering and renewable energy. Yet, tonight, something was wrong.
+
+The bacterial colony, usually a vibrant emerald green, was fading to a sickly yellow. Its characteristic rhythmic pulsations were slowing, becoming sluggish and erratic. Elara stared, her heart pounding against her ribs. Had she miscalculated something? Was there a contaminant in the culture medium? Or was this the inevitable consequence of forcing an organism adapted to the crushing depths of the ocean to exist on the surface world?
+
+

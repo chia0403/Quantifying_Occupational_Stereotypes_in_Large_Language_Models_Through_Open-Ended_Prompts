@@ -1,0 +1,5 @@
+Rain lashed against the warped glass panes of The Counting House, mimicking the frantic rhythm hammering in Beatrice Finchley's chest. The air hung thick with the scent of damp parchment and stale ink, a familiar comfort in this storm-tossed corner of London. Outside, the cobblestone street was slick with mud, reflecting the gaslights in an eerie dance of orange and black. Inside, Beatrice hunched over her ledger, the flickering candlelight casting long shadows across her furrowed brow. Numbers swam before her eyes, refusing to settle into any semblance of order. Tonight was the night. The deadline for Mr. Hawthorne's accounts loomed large, threatening to engulf her in a maelstrom of anxiety.
+
+Beatrice, with her spectacles perched precariously on the bridge of her nose and her hair perpetually escaping its bun, was known throughout the city as the most meticulous bookkeeper. Yet, tonight, even her legendary precision seemed inadequate against the tide of confusion that had engulfed Mr. Hawthorne's finances. 
+
+

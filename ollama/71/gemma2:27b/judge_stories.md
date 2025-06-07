@@ -1,0 +1,5 @@
+Rain hammered against the leaded glass windows of Judge Eleanor Hawthorne's chambers, mimicking the relentless pounding in her chest. The mahogany desk, polished to a sheen that reflected the flickering gaslight, felt cold beneath her fingertips. Outside, London was awash in a torrent of November grey; inside, Eleanor grappled with a decision that threatened to crack the very foundation of her moral compass.
+
+The case file lay open before her, its contents as bleak and unforgiving as the storm raging beyond. A young chimney sweep, accused of stealing bread to feed his starving siblings. The evidence was circumstantial, the boy's plea for mercy heart-wrenching. Yet, the law demanded punishment, an unyielding testament to a society that often turned its back on its most vulnerable. Eleanor stared at the boy's face in the sketch accompanying the file, his hollow cheeks and haunted eyes mirroring her own internal struggle. Tonight, she wasn't just a judge; she was a woman torn between duty and compassion, facing a choice that would reverberate through both her life and the lives of those caught in its wake.  
+
+

@@ -1,0 +1,6 @@
+The air hung thick with the smell of diesel and dust as Elijah "Eli" Thorne wrestled his eighteen-wheeler onto the shoulder of Interstate 80. Wyoming stretched out before him, an endless tapestry of sagebrush and rolling hills painted in shades of ochre and rust under the unforgiving glare of the midday sun. The radio crackled with static, spitting out a weather report that promised nothing but more relentless heat. Eli sighed, wiping the sweat from his brow with a grimy hand.
+
+He'd been hauling this load of timber from Montana to Denver for three days straight, battling fatigue and loneliness in equal measure. The open road was his lifeblood, but sometimes the solitude felt like a crushing weight. He yearned for a conversation that didn't involve the gruff pronouncements of truck stop waitresses or the incessant drone of his CB radio. 
+
+
+Eli checked his mirrors, a familiar ache settling in his lower back as he shifted gears. The engine grumbled its assent, and the massive rig lurched forward once more, heading into the shimmering heat haze that distorted the distant mountains.  He had miles to go before he slept, but for now, all Eli could do was keep his eyes on the road and hope for a sliver of solace in the vastness of the Wyoming landscape.

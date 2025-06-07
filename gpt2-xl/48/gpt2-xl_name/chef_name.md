@@ -1,2 +1,1 @@
 Alton Brown
-David Chang

@@ -1,0 +1,5 @@
+The air in The Rusty Anchor was thick with the mingled scent of stale beer, fried onions, and desperation.  Rain lashed against the grimy windows, blurring the neon "Open" sign into a smear of red and green. Behind the mahogany bar, Elias Blackwood meticulously polished a chipped martini glass, his movements precise and practiced despite the weariness etched into his face. He'd seen it all in his fifteen years tending bar at this dimly lit waterfront haunt - broken hearts, drunken brawls, whispered confessions, and fleeting moments of joy. Tonight, though, the usual hum of weary chatter was punctuated by a silence so heavy it felt like another patron. Elias glanced up, catching the eye of a lone figure hunched over a glass of whiskey in the corner booth. A woman, shrouded in shadows, her face obscured by a wide-brimmed hat. 
+
+Elias knew better than to pry, but something about her stillness, her aura of concealed tension, pricked at his curiosity.  He finished polishing the glass and set it down with a soft clink. Time to see what this stranger's story was.
+
+

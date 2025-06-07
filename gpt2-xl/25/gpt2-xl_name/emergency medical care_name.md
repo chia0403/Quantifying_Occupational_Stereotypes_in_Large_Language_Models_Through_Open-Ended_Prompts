@@ -1,1 +1,1 @@
-Emergency Medical Paramedic Service of America
+the Emergency Medical Paramedic Service of America

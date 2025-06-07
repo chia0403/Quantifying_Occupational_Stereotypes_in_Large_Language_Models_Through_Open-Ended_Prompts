@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named Frank Hamer who, as they say, "taught us more about atoms than Newton did about gravitation." Like so many of his colleagues during the Second World War, the Canadian-born Hamer took part in the fight to defend liberty in Nazi occupied France. Then, in January 1948, while preparing to report his results from the Argonne National Laboratory in Chicago, he was arrested by the Gestapo without being told why. After a three-year ordeal, he was put in a concentration camp and sentenced to death for being a war criminal.
+
+As the first Jewish person ever jailed by the Nazi regime, Frank Hamer is, in his own way, the ideal leader of the climate science community
+
+This was followed by an almost equally punishing four years internment in the Dachau, Germany, concentration camp. As the first Jewish person ever jailed by the Nazi regime, Frank Hamer is, in his own way, the ideal leader of the climate science community, which has a long history of its own with the Nazis and is in a state of increasing crisis.
+
+His life story is a remarkable one, not least of all for the fact that a young man from the Middle East who had never met another person of a similar religious faith became the first person charged with crimes of apartheid as a result of his work at one of the most prestigious research and development laboratories in the world. Like so many others in

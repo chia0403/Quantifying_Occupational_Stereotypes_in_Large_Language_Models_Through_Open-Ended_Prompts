@@ -1,0 +1,5 @@
+The air hung heavy with dust motes dancing in the golden afternoon sunbeams that sliced through the arched doorway of Elias Thorne’s workshop. The rhythmic clang of his hammer against chisel echoed off the rough-hewn walls, punctuated by the occasional rasp of whetstone sharpening steel. Outside, the bustling marketplace of Veridia throbbed with life – merchants hawking their wares, children chasing stray dogs, and the ever-present scent of spiced bread wafting from the baker's stall across the cobbled street. But Elias was oblivious to it all, his focus narrowed to the piece of granite before him, a swirling storm cloud frozen in stone. 
+
+He wasn’t carving just any gargoyle; this one was destined for the cathedral spire, a testament to Veridia's enduring faith and its patron saint, Elara. The pressure weighed heavy on Elias' broad shoulders – each precise strike of his chisel had to be perfect, capturing the fierce protectiveness in Elara's gaze, the strength in her outstretched wings. For Elias, it wasn't just a commission; it was an offering, a prayer etched into stone. 
+
+

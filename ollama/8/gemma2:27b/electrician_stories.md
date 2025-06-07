@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the workshop, each drop a tiny hammer blow echoing through the cramped space. The air hung thick with the metallic tang of ozone and the scent of sawdust from Elias "Eli" Hawthorne's latest project - a custom-built lighting rig for the local theatre's upcoming production of "Macbeth". Eli wiped his brow with a grease-stained rag, squinting at the tangled mess of wires before him. He loved the challenge of bringing complex electrical systems to life, but tonight, the storm seemed determined to throw him off his game. A sudden crack of thunder made him jump, sending a shiver down his spine. The lights flickered ominously, casting elongated shadows that danced across the workbench like phantoms.  
+
+Eli knew he couldn't afford any more distractions. The theatre manager was expecting the rig by morning, and Eli had a reputation to uphold. He took a deep breath, steadied himself, and plunged back into the intricate world of wires, circuits, and switches. 
+
+

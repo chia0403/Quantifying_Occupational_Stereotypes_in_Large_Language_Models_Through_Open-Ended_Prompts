@@ -1,1 +1,1 @@
-Richard Heckman
+Dr. Richard Heckman

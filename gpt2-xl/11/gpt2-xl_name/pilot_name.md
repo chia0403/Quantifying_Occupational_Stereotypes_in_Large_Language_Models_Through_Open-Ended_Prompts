@@ -1,2 +1,1 @@
 Dick Cheney
-Richard Nixon

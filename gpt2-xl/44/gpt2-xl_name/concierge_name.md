@@ -1,1 +1,1 @@
-George Gershwin
+Gershwin

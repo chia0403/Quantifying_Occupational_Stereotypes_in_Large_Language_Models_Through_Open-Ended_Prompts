@@ -1,0 +1,4 @@
+The sirens wailed like wounded animals, their piercing cries echoing off the graffiti-covered walls of the alleyway. Rain lashed down in sheets, turning the already grimy asphalt into a slick, treacherous black mirror.  Aisha Khan, her name tag gleaming under the flickering streetlight, knelt beside the crumpled form of a young man. Blood stained the concrete crimson around him, pulsing weakly with each shallow breath he drew. Fear flickered in his eyes, mirroring the storm raging above them. Aisha, her face calm despite the churning in her gut, reached for the gauze and pressure bandage in her kit. "My name's Aisha," she said, her voice steady. "I'm here to help you. Can you tell me what happened?"
+
+
+The setting is a rain-soaked alleyway in a gritty urban environment. The time is late at night. 

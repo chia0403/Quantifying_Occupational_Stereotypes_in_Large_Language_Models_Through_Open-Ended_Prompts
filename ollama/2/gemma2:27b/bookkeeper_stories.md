@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane, blurring the neon glow of the "Open 24 Hours" sign outside.  Inside Millie Fitzwilliam's cramped office, tucked away above Mrs. Goldberg's falafel stand, the only light came from a sputtering fluorescent bulb that buzzed with an unsettling whine. The air hung heavy with the mingled scents of stale coffee, grease, and dusty ledgers. Millie, her spectacles perched precariously on her nose, chewed on the end of a stubby pencil as she scrutinized a column of figures.  The rhythmic clatter of her ancient typewriter was the only sound breaking the oppressive silence. 
+
+Tonight, however, the numbers swam before her eyes, refusing to cohere into anything resembling sense. Millie rubbed her temples, willing the insistent throbbing away. It had been a long day, filled with the usual parade of eccentric clients and their even more eccentric financial woes.  But something was different tonight. A prickling unease settled over her, a feeling that something was amiss, lurking just beyond the familiar comfort of her ledgers. 
+
+

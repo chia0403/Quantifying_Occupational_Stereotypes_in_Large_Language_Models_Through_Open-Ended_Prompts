@@ -1,0 +1,5 @@
+The neon sign outside flickered erratically, casting stripes of sickly green light across the rain-slicked alleyway. "The Gilded Griffin," it proclaimed in chipped, fading paint, barely visible through the curtain of water cascading down the grime-streaked brickwork. Inside, the air hung thick with the mingled scents of stale beer, spilled whiskey, and something faintly floral – perhaps lavender, from the perpetually wilting bouquet on the bartop.
+
+Elias Thorne, his name stitched in faded gold thread above the breast pocket of his worn waistcoat, expertly maneuvered a shaker between his calloused fingers. He caught the eye of a solitary figure hunched over a half-empty glass at the far end of the bar and nodded curtly before turning back to his task. Elias had seen it all in his years behind The Gilded Griffin’s mahogany counter – heartbreak, joy, desperation, fleeting moments of hope. Tonight, judging by the slumping shoulders and the whiskey glass clutched like a lifeline, he suspected he was about to witness another dose of despair. 
+
+

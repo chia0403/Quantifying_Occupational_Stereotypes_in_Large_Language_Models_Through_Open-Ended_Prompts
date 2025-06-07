@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of the abandoned warehouse, each drop a miniature hammer blow against the corrugated iron. The air hung thick with the scent of mildew and rust, punctuated by the acrid tang of ozone from the storm raging outside. Amelia "Amy" Blackwood crouched low behind a stack of warped wooden crates, her camera clutched tightly in her hands.  A single shaft of dim light pierced the gloom filtering through a broken window pane, illuminating swirling dust motes and casting long, distorted shadows across the concrete floor. This was it. The shot she'd been waiting for, the one that could finally launch her career beyond documenting birthday parties and high school graduations. 
+
+Tonight, Amy wasn't photographing the mundane. Tonight, she was capturing the raw, untamed beauty of urban decay, the forgotten spaces where nature reclaimed its dominion.  Her lens focused on a dilapidated crane looming in the distance, its metal skeleton twisted against the bruised twilight sky like a skeletal hand reaching for salvation. 
+
+

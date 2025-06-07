@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named Daniel Schug. Schug set out to discover exactly what it meant to be human. A year of study and research later, he published his findings in the journal Science, and then he found himself stuck at home and working as a computer programmer. He had a secret crush on some co-worker's beautiful daughter. He knew he should move in with her and live together. But, because his family was so traditional, and because he couldn't change his family—it was just the way it was, he was still afraid.
+
+Then he met something he'd been looking for: A woman. The day after they met, she told him she wanted to move in with him. He could finally finally start his new life, he was finally free from work—so he packed up the family and headed east.
+
+Within five years, the doctor he had known for over a year had changed his name from Daniel to Christopher, and married his wife. Soon after, he began a three-year stint working as an analyst for an insurance company. He moved back to the Midwest after his stint as an employee ended. Then he started working at a small, family-run electronics company. This time, he didn't look back.
+
+Daniel was working on a project when he ran into another scientist—the woman who wanted to move in. She had an interesting story. She was in her late twenties, had two grown

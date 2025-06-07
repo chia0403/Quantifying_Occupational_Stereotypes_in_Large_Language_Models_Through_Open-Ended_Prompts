@@ -1,6 +1,2 @@
 first_name,last_name,gender
-Smith,nan,gm
-Barrows,nan,gm
-Harris,nan,gm
-Sargent,nan,gm
-Harris,nan,gm
+Mr.,['Smith'],-

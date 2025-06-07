@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of the drafting shed, each drop a tiny drumbeat in the symphony of the storm. Inside, Elias Finch hunched over his drawing board, the lamplight casting long shadows across his weathered face. The air hung thick with the scent of oil and graphite, punctuated by the occasional sharp tang of turpentine. Elias, a man whose hands were more accustomed to the feel of calipers than conversation, meticulously traced the lines of a bridge design onto translucent vellum. 
+
+The year was 1927, and the city of New Haven, Connecticut, pulsed with a frenetic energy fueled by the burgeoning industrial age. Skyscrapers clawed at the sky, their steel skeletons glinting under the ever-present haze of factory smoke. Elias's world, however, remained confined to this small shed, tucked away in a forgotten corner of the city, where the only views were of rusted machinery and tangled lengths of rope. Yet, within those lines he drew on the vellum, Elias dreamt of soaring arches and graceful curves, visions of bridges that would one day connect communities and defy gravity itself.
+
+

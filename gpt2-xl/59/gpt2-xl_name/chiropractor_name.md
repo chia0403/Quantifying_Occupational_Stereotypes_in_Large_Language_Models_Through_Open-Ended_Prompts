@@ -1,1 +1,1 @@
-Robert D. Thiele
+Dr. Robert D. Thiele

@@ -1,0 +1,4 @@
+The humid Manhattan air clung to Bartholomew "Bart" Kensington like a second skin as he sprinted across the deserted 57th Street. His tailored suit was already plastered to his back, sweat stinging his eyes despite the midnight hour. The phone clutched in his hand felt slick and cold against his palm; each frantic beat of his heart echoing in his ear drum amplified the shrill ring of the unanswered call.  He had less than ten minutes to get to the penthouse suite, a rendezvous orchestrated with the utmost secrecy, where millions hung in the balance – not just dollars, but reputations, careers, perhaps even lives. 
+
+
+The setting: A gilded cage of luxury perched atop one of Manhattan's tallest skyscrapers. The cityscape sprawled beneath them like a glittering tapestry, oblivious to the drama unfolding within its confines.  

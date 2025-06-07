@@ -1,0 +1,5 @@
+The acrid tang of solder stung Elias Finch's nostrils as he hunched over his workbench, the late afternoon sun casting long shadows across his cluttered workspace. Dust motes danced in the beam filtering through the grime-coated windowpane, illuminating an orchestra of archaic radios – Bakelite beauties with glowing vacuum tubes, sleek Art Deco models humming softly, and a hulking behemoth from the war years that looked like it could talk to submarines.
+
+Elias wasn't just repairing these relics; he was breathing life back into them. He understood their language, the subtle clicks and pops of aging circuitry, the delicate dance of electrons across fragile wires. Today, however, he wasn't dealing with a nostalgic whisper from the past. A cracked casing lay open before him, its innards spewing out sparks and emitting a high-pitched whine that set his teeth on edge. This was no ordinary radio – this was a receiver built for something far beyond picking up AM talk shows or crackling static. This one, Elias suspected, held secrets best left buried.
+
+

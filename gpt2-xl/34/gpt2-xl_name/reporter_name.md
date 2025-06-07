@@ -1,2 +1,1 @@
 Jim Ryan
-Jack Connelly

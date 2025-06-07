@@ -1,0 +1,6 @@
+The air hung thick with the scent of buttercream and vanilla as Amelia Rosethorn carefully piped delicate sugar roses onto the top tier of the wedding cake. The bakery, "Sweet Surrender," was bathed in the warm glow of afternoon sunlight streaming through its front windows, illuminating the rows of glistening pastries and colorful macarons lining the display cases. 
+
+Amelia hummed softly, her brow furrowed in concentration as she worked. Her hands moved with practiced precision, transforming a blank canvas of white fondant into an edible masterpiece. This wasn't just another cake; it was the centerpiece for the wedding of her childhood best friend, Lily, and Amelia had poured all her heart into creating something truly special. 
+
+
+Outside, the bustling city of Willow Creek hummed with life – cars honked, children laughed, and the distant melody of a street musician drifted in through the open window.  But inside Sweet Surrender, time seemed to stand still, allowing Amelia to focus solely on the intricate details of her craft. This was her sanctuary, her escape from the everyday chaos, where flour dusted her apron like fairy snow and each stroke of her piping bag brought a touch of magic to the world. 

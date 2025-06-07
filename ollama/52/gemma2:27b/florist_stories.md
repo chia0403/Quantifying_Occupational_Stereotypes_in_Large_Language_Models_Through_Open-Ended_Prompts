@@ -1,0 +1,4 @@
+Rain hammered against the shop window, blurring the vibrant colours of the lilies, roses, and geraniums inside. Emilia Rosethorn sighed, tucking a stray auburn curl behind her ear as she surveyed the near-empty shop. It was Valentine's Day, typically a florist's busiest day of the year, but a ferocious storm had kept most customers away. The air hung heavy with the scent of lilies and damp earth, a bittersweet fragrance that mirrored Emilia's mood. Today should have been a triumphant culmination of weeks of meticulous planning and early mornings spent tending to her precious blooms. Instead, it felt like a symphony playing to an empty hall.
+
+
+Emilia straightened a drooping sunflower, its face mirroring her own dejection. Just then, the bell above the door chimed, announcing a customer braving the elements. Emilia's heart leaped with a flicker of hope. Perhaps this storm wouldn't ruin everything after all. 

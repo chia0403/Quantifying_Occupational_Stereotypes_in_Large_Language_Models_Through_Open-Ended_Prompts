@@ -1,0 +1,5 @@
+Rain lashed against the windows of Sunnyside Daycare, blurring the once-vibrant crayon drawings taped to the glass.  Inside, Amelia Rose Cartwright sighed, her gaze drifting from the chaotic scene before her to the storm raging outside. Three toddlers were engaged in an epic battle over a bright red truck, their shrieks punctuated by the clattering of plastic wheels. A group of preschoolers huddled around the reading corner, giggling uncontrollably as Mrs. Henderson animatedly narrated "The Very Hungry Caterpillar." Amelia loved these children, truly she did, but days like this, when the weather mirrored the storm brewing within her own soul, made her question everything.  
+
+Today was Liam's birthday. Liam, with his mop of unruly brown hair and eyes that sparkled with mischief, had been coming to Sunnyside since he was a babe in arms. Amelia remembered rocking him to sleep on countless afternoons, humming lullabies under the watchful gaze of pastel bunnies painted on the nursery walls. Now, he was turning five, and for the first time in years, she wouldn't be there to celebrate with him. 
+
+

@@ -1,0 +1,5 @@
+The rain lashed against the windows of Dr. Eleanor Vance's office, mimicking the tempest brewing within her. The scent of old paperbacks and chamomile tea did little to soothe the unease gnawing at her stomach.  Eleanor was used to dealing with troubled children, their anxieties and traumas laid bare on her worn leather couch. But this case was different. This time, it wasn't just a child struggling – it was an entire school teetering on the brink of chaos.
+
+Oakhaven Elementary, nestled in the quaint but rapidly changing town of Willow Creek, had always been known for its close-knit community and idyllic setting. Now, whispers of bullying, unexplained illnesses, and unsettling nightmares echoed through its once cheerful hallways. The principal, a flustered man named Mr. Hawthorne, had pleaded with Eleanor to uncover the source of this sudden darkness. As she stared at the stack of student files on her desk – each one a window into a troubled mind – Eleanor knew this wouldn't be an ordinary case. Something sinister lurked beneath the surface of Willow Creek, and she was determined to expose it. 
+
+

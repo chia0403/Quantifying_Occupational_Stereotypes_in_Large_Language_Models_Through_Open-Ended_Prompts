@@ -1,0 +1,5 @@
+The sun beat down on Elias "Eli" Blackwood's neck, turning his already tanned skin a shade darker. He adjusted his Stetson, shielding his eyes from the glare bouncing off the corrugated iron roof he was laying. Below him, the bustling streets of New Orleans pulsed with life: jazz music drifted from open doorways, street vendors hawked beignets and chicory coffee, and tourists gawked at the ornate balconies lining Bourbon Street. Eli, however, remained oblivious to the vibrant city below. His focus was solely on the task at hand: replacing the worn shingles with fresh, weatherproof material. 
+
+This particular roof, belonging to a grand old French Quarter townhouse, presented its own set of challenges. The steep pitch and intricately carved eaves demanded careful maneuvering. But Eli thrived on these intricate puzzles, finding satisfaction in bringing order to the chaotic world above. Today, though, a nagging feeling gnawed at him – a sense that something wasn't quite right. He couldn't shake off the feeling that he was being watched. 
+
+

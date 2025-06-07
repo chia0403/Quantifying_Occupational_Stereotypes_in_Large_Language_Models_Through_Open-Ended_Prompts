@@ -1,2 +1,1 @@
 Lisa
-Sweetie Rose

@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Eleanor Mae Cartwright's head, casting a sickly yellow glow over the aisles of discount groceries. The air hung thick with the scent of stale popcorn and cleaning products, punctuated by the occasional whiff of something vaguely meaty coming from the back room. It was Tuesday afternoon, the lull between the lunch rush and the after-school horde, and Eleanor Mae found herself idly scanning a tabloid magazine while she waited for the next customer. Her nametag, slightly crooked on her faded blue smock, proclaimed her as "Ellie," but nobody ever called her that. 
+
+Eleanor Mae preferred the formality of her full name, a legacy from a grandmother who believed in proper introductions and starched collars. She dreamt of escaping this fluorescent purgatory, of leaving behind the endless beeps of the cash register and the monotonous drone of announcements over the loudspeaker. For now, though, she settled for imagining herself elsewhere – perhaps somewhere with fresh air, sunlight, and the sweet scent of honeysuckle instead of industrial cleaner.
+
+

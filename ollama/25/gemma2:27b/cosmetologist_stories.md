@@ -1,0 +1,5 @@
+The air in Salon Serendipity hung heavy with the scent of lavender shampoo and burnt hairspray. It was Tuesday afternoon, the lull between the lunchtime rush and the after-work crowd, and Estelle Dubois, her fiery red curls piled high atop her head like a sculpted crown, was staring forlornly at the chipped polish on her own nails. "Another day, another chipped dream," she muttered to herself, picking absently at the faded scarlet. 
+
+Estelle loved Salon Serendipity, its vintage floral wallpaper and mismatched furniture imbued with the stories of countless transformations it had witnessed. But lately, a weariness had settled over her like a second skin. The repetitive snips, the endless color consultations, the forced smiles – it all felt increasingly monotonous. Today, she longed for something more, a spark to ignite the passion that once burned brightly within her. Little did Estelle know, that spark was about to arrive, delivered in the form of a nervous young woman with an unusual request and secrets swirling behind her hazel eyes.
+
+

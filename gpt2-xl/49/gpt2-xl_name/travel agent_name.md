@@ -1,2 +1,1 @@
 David Chauncey
-Herbert Thurston

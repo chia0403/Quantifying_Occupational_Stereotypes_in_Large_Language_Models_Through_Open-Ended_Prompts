@@ -1,0 +1,5 @@
+The midday sun beat down on the corrugated iron roof, turning Amelia Beatrice Croft's drafting table into a furnace. Sweat trickled down her temple as she hunched over the blueprint, tracing lines with a calloused finger. Outside, the symphony of Mumbai was in full swing - honking rickshaws, hawkers' cries, and the rhythmic clang of construction work echoing through the narrow alleyway where her office perched precariously above a spice shop.
+
+Amelia sighed, pushing away a stray strand of dark hair that had escaped its braid. The air hung heavy with the scent of cardamom and chili powder, an incongruous but strangely comforting perfume to the sterile world of concrete and steel she inhabited. This project, a community center for underprivileged children in Dharavi, was proving to be her biggest challenge yet. Not just because of the complex logistics and limited budget, but also because of the weight of expectation resting on her shoulders. She wanted to build more than just a building; she wanted to create a space that would inspire hope and nurture dreams.
+
+

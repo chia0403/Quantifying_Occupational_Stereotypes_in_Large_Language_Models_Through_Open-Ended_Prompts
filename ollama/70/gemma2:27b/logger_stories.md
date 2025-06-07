@@ -1,0 +1,7 @@
+The air hung thick with the scent of pine needles and damp earth as Jedediah "Jed" Blackwood wrestled another behemoth Douglas fir to the ground. Sunlight filtered through the towering canopy, dappling the forest floor in patches of emerald green. Jed wiped the sweat from his brow, leaving a streak of grime across his weathered forehead. Years of battling giants like this had etched lines into his face, each one telling a story of grit and perseverance. 
+
+He lived for these moments – the satisfying groan of wood as it yielded to his axe, the camaraderie of his fellow loggers echoing through the trees, the sense of accomplishment that came with felling a tree destined to become something new. This particular forest, nestled deep in the Cascade Mountains, had been Jed's stomping ground for nearly two decades. He knew its every twist and turn, every hidden creek and mossy hollow. It was more than just a workplace; it was his sanctuary, a place where he felt truly at home.
+
+But today, something felt different. A disquieting stillness hung in the air, punctuated only by the rhythmic chirping of unseen birds. The usual chatter of woodpeckers had vanished, replaced by an unsettling silence that pricked at Jed's instincts. He glanced towards his crew, their faces grim as they wrestled a fallen log onto the skidder. Even Big Earl, the burliest man Jed had ever met, seemed unusually quiet. Something was amiss, and Jed couldn't shake the feeling that it wasn't just the silence he needed to worry about.
+
+

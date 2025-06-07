@@ -1,0 +1,7 @@
+The rhythmic tap-tap-tap of Amelia Blackwood's pencil against her mahogany desk was the only sound breaking the silence of her cramped office. Outside, the Chicago wind howled like a banshee, rattling the windowpanes and sending shivers down Amelia's spine despite the warmth radiating from the ancient radiator beneath it. Her eyes scanned the endless columns of figures on the spreadsheet before her, each number a tiny puzzle piece in the vast, complex jigsaw that was Blackwood & Sons Accountants. 
+
+Amelia had inherited the firm from her grandfather, a stern but ultimately kind man who instilled in her a deep respect for numbers and their inherent order. Yet, lately, those numbers seemed to be conspiring against her. A particularly troublesome client, a flamboyant art dealer named Vincent De Vere, was behind schedule with his tax returns, threatening a hefty fine if not submitted soon. And then there was the mysterious new neighbor who had recently moved into the abandoned building next door. Amelia couldn't help but feel a strange sense of unease about him.
+
+The faint scent of clove cigarettes and something distinctly metallic wafted through the air vent connecting their buildings, further fueling her apprehension. Who was this enigmatic newcomer, and what secrets did he hold behind his perpetually drawn blinds?  Amelia knew she should focus on De Vere's impending deadline, but curiosity tugged at her like a persistent thread.
+
+

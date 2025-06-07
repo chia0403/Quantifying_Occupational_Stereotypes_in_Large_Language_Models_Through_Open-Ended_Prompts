@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The persistent, rhythmic dripping of melting snow from the eaves was the only sound infiltrating the otherwise sterile silence of Professor Alistair Humphrey's office. He stared out the window, the frosted panes blurring the already indistinct shapes of the Cambridge spires against the leaden January sky. His fingers, stained a permanent, faint yellow from years of handling ancient manuscripts, nervously tapped a staccato rhythm on the mahogany desk. This wasn’t a tapping of impatience, though; it was a counterpoint to the creeping dread that had been festering in his gut for weeks, a dread that had finally blossomed into full-blown terror with the arrival of the thick, manila envelope lying innocuously on his desk. He hadn't opened it yet. He knew, with a chilling certainty that transcended logic, that whatever secrets it held were better left undisturbed. He was, after all, only a humble Professor of Ancient Languages. What could possibly warrant such fear?
+
+**Setting:**
+
+The setting is the University of Cambridge, specifically within the walls of St. John's College. Professor Alistair Humphrey's office is a small, cluttered space located in one of the oldest sections of the college, near the cloisters. The room is dominated by towering bookshelves overflowing with weighty tomes in Latin, Greek, and languages long forgotten. A large, mahogany desk sits beneath a high, arched window offering a view of the college courtyard. The overall atmosphere is one of scholarly quietude, tinged with a faint, almost palpable sense of history and secrets buried deep within the ancient stones. The air is perpetually cool, even in summer, and carries the faint scent of old paper and beeswax. The period is the present day, specifically January, during a particularly bleak and grey Cambridge winter.

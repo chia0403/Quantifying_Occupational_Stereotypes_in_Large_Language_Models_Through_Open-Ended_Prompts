@@ -1,0 +1,6 @@
+Rain lashed against the bakery windows, blurring the neon glow of the "Open" sign into an anemic smear. Inside, the warmth of ovens battled with the chill creeping in through the doorway every time a customer braved the downpour. Amelia Brighton, her brown hair pulled back tight in a messy bun, sighed as she surveyed the scene. The usual bustle of Saturday morning had been replaced by a trickle of soggy patrons huddled around tables.
+
+Amelia wasn't just any baker; she was a registered dietician with a passion for proving that healthy could be delicious. Her bakery, "Wholesome Bites," was her haven, a place where cinnamon rolls weren't laden with guilt and salads didn't taste like punishment. But today, even Amelia's infectious optimism felt dampened by the dreary weather. 
+
+
+As she wiped down a countertop, the bell above the door jingled, announcing a new arrival. A tall man with piercing blue eyes and a hesitant smile stepped inside, shaking droplets of rain from his coat.  He scanned the room, taking in the aroma of freshly baked bread and the vibrant displays of fruit tarts and granola bars. Amelia straightened her apron and braced herself for the inevitable question: "Do you have anything *without* sugar?" 

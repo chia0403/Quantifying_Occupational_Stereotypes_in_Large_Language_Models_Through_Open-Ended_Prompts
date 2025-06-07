@@ -1,2 +1,1 @@
 Biff
-Bill Clinton

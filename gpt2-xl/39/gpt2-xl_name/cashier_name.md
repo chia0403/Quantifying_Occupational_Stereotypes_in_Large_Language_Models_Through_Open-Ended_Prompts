@@ -1,1 +1,1 @@
-Jimmy Carter
+Jimmy

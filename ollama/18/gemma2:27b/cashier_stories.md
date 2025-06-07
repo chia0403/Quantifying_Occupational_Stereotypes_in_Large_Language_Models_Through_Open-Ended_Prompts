@@ -1,0 +1,5 @@
+The fluorescent lights buzzed overhead, casting a sickly yellow hue over Amelia Cartwright's tired face.  She tapped her chipped acrylic nails against the worn counter, the rhythmic click-clack competing with the incessant beeping of the scanner and the muffled chatter from shoppers browsing aisle three. It was Tuesday afternoon at "Wally's Warehouse," and the air hung thick with the scent of stale popcorn and desperation. Amelia longed for the sweet relief of her break, a fleeting fifteen minutes where she could escape the purgatory of discount groceries and disgruntled customers. 
+
+Just then, a man in a greasy trucker hat shuffled up to her register, his eyes bloodshot and his expression bordering on manic. He slammed a crumpled pack of cigarettes and a can of lukewarm beer onto the conveyor belt with an unnecessary thud. Amelia sighed inwardly, bracing herself for another round of mumbled complaints about prices or misplaced items. This was Wally's Warehouse after all – where dreams went to die and the only solace came in the form of cheap, sugary snacks. 
+
+

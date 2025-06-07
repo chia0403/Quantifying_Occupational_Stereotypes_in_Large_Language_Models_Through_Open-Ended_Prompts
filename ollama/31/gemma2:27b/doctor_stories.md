@@ -1,0 +1,7 @@
+The rain hammered against the corrugated iron roof of the clinic, each drop a tiny explosion that echoed through the cramped waiting room.  Dr. Amara Chibuike sighed, pushing a stray strand of hair back from her forehead. The flickering fluorescent light cast long shadows across the faces of her patients – weary fishermen with salt-crusted hands, mothers clutching feverish children, and a lone old woman who smelled faintly of lavender and something else, something indefinable and slightly unsettling. 
+
+Amara glanced at the clock on the wall, its face scratched and faded. It was past midnight, and the storm showed no sign of abating.  The generator had sputtered and died an hour ago, plunging the clinic into a humid darkness illuminated only by a few flickering candles. She'd already treated three cases of malaria, a dislocated shoulder from a fishing accident, and a nasty burn sustained while cooking over an open fire. But as she looked at the anxious faces around her, Amara knew there would be more to come. 
+
+This was Okoro village, perched precariously on the edge of the Niger Delta, where life was hard-fought and illness was a constant companion. She had been assigned here two years ago, fresh out of medical school in Lagos, idealistic and eager to make a difference. Now, surrounded by the relentless symphony of rain and the ever-present weight of responsibility, she wondered if her dreams were naive. Could one doctor truly stem the tide of suffering in this remote corner of the world? 
+
+

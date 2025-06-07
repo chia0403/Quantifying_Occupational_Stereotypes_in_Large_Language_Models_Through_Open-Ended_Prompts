@@ -1,2 +1,1 @@
-Seuss
-Tink
+Dr. Seuss

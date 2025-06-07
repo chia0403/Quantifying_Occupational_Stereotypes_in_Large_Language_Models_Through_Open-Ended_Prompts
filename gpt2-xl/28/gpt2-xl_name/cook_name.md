@@ -1,2 +1,1 @@
 Peter Pan
-David Sedaris

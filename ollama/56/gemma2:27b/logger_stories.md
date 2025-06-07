@@ -1,0 +1,4 @@
+The air hung thick with the scent of pine needles and damp earth as Silas Blackwood hefted the monstrous Douglas Fir onto his shoulder. Sunlight slanted through the towering redwoods, casting long, dancing shadows across the forest floor. The saw's growl echoed off the ancient giants, a primal sound that had become Silas's lullaby for the past twenty years. He wasn't sure if it was the relentless rhythm of chopping and hauling or the solitude of the woods, but something about this life burrowed deep into his soul.  He wiped the sweat from his brow with the back of his calloused hand, glancing up at the imposing trunk still waiting to be felled. It was a behemoth, easily twice the size of any other in this section of the Redwood National Forest, and Silas couldn't help but feel a thrill of anticipation. 
+
+
+This one would be a story for the campfire.  

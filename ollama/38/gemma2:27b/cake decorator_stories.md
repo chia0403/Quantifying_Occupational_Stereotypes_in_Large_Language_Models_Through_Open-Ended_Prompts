@@ -1,0 +1,7 @@
+The humid Georgia air clung to Elara Josephine Bellweather like frosting on a warm summer day. Her fingers, dusted with powdered sugar, were already slick despite the generous layer of cornstarch she'd applied. Sweat beaded on her brow as she surveyed the towering creation before her: a five-tiered wedding cake adorned with cascading sugar roses and delicate filigree. It was a masterpiece, shimmering under the fluorescent lights of "Elara's Edible Elegance," her tiny bakery nestled in the heart of Savannah's historic district.
+
+But the clock on the wall mocked Elara with its relentless ticking. The bride, a high-strung socialite named Priscilla Winthrop, had stipulated a delivery time of precisely 4:00 p.m., and it was already 3:45. A bead of sweat slipped down Elara's temple and landed with a soft "plop" on the pristine white fondant.  Panic threatened to overwhelm her, but she shoved it aside, her gaze hardening with determination. She had one final touch to make – the delicate sugar butterfly that would crown the cake's apex.
+
+Suddenly, a crash from the back room shattered the tense silence. Elara froze, her heart hammering in her chest. What now? This wedding cake was everything - her reputation, her livelihood, and possibly even the key to finally securing a loan for her dream expansion.  She cautiously approached the door, her hand trembling as she reached for the knob.
+
+

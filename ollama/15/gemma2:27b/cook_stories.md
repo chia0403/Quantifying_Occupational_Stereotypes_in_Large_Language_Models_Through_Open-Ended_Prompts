@@ -1,0 +1,6 @@
+The air hung thick with garlic and oregano, a familiar fog swirling around Esmeralda "Esme" Ramirez's head as she expertly diced onions. The cramped kitchen of her abuela's tiny restaurant, "La Abuela Rosa," buzzed with the controlled chaos of dinner service. Pots bubbled on the stove, orders clattered in from the front, and Esme moved with a practiced grace honed by years spent learning her grandmother's recipes. 
+
+Outside, the vibrant streets of Old Havana pulsed with life. Tourists jostled for space with locals, salsa music spilled from doorways, and vintage cars rumbled past, their chrome glinting in the setting sun.  But inside La Abuela Rosa, time seemed to slow down. Esme was lost in the rhythm of her work, each chop, stir, and simmer a prayer to the culinary gods. 
+
+
+This was her world: the intoxicating aroma of spices, the comforting clink of utensils, the quiet satisfaction of transforming raw ingredients into something magical. Tonight, however, a tremor of unease ran through Esme as she glanced at the clock. Her abuela hadn't arrived yet, and without Rosa's steady hand guiding the service, Esme felt a wave of responsibility wash over her.  What was keeping her abuela? And more importantly, would Esme be able to handle La Abuela Rosa alone tonight?

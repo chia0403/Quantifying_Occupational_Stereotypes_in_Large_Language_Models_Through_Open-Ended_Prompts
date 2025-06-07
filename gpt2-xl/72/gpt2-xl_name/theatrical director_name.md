@@ -1,2 +1,1 @@
 Fred Seibert
-Edna Purviance

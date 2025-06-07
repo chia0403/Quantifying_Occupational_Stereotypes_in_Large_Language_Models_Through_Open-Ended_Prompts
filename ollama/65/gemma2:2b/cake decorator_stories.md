@@ -1,0 +1,5 @@
+The air hung thick with sugar dust and the sweet aroma of vanilla buttercream as Amelia "Amy" Thorne carefully piped delicate roses onto a wedding cake.  Her small bakery, 'Sugar Dreams,' nestled on a quiet street corner in Vermont, was usually bathed in the warm glow of afternoon sunlight. But today, the sky was grey and sullen, mirroring the unease that gnawed at Amy's heart. 
+
+It had been three weeks since her grandmother, Nana Rose, passed away.  Nana Rose, with her silver hair always dusted with powdered sugar, and her eyes that shimmered like caramel in the oven light, had run Sugar Dreams for decades. Now, it was just Amy, surrounded by unfinished cakes, a mountain of fondant flowers waiting to be assembled, and a sense of emptiness deeper than any flour-dusted void. 
+
+The wedding was tomorrow, and Amy's hands trembled as she meticulously smoothed out the icing on the cake tier. The bride, Amelia "Amy" Thorne wasn’t just her name - it was also Nana Rose’s maiden name; an echo of a life that felt increasingly distant.  

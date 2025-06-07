@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Story Opening:**
+
+The scent of hyacinth and heartbreak hung heavy in the air, a perfumed counterpoint to the rhythmic snipping of stems. Iris Mallory, her brow furrowed in concentration, meticulously placed a sprig of baby's breath into the arrangement. It was for Mrs. Abernathy, whose husband of sixty years had finally succumbed to the relentless tide of Alzheimer's. Iris knew the woman wouldn't truly *see* the delicate white blooms, not past the grief that had clouded her eyes, but Iris hoped, with a fierce, almost desperate optimism, that their simple beauty might offer a fleeting moment of peace. She'd made the arrangement as bright and cheerful as possible, pushing back against the mournful weight that seemed to permeate everything these days. Business, after all, was booming. But Iris felt like she was perpetually decorating caskets in vibrant hues.
+
+**Setting:**
+
+The setting is "Petal Pushers," a small, charming flower shop nestled on a quiet side street in the historic district of Savannah, Georgia. The shop itself is a converted Victorian house, painted a cheerful robin's egg blue with crisp white trim. Wrought-iron planters overflowing with cascading petunias and vibrant geraniums line the porch. Inside, the air is thick with the intoxicating aroma of a hundred different blooms. Sunlight streams through large, arched windows, illuminating displays overflowing with exotic orchids, delicate lilies, and the fragrant roses that Savannah is famous for. Walls are lined with antique shelves overflowing with vases, ribbons, and other floral paraphernalia. A large, wooden workbench dominates the center of the room, usually covered in a chaotic yet artful mess of stems, leaves, and wire. The floorboards creak pleasantly underfoot, and the faint hum of an old-fashioned refrigerator, keeping the more delicate flowers fresh, provides a constant, comforting background noise.

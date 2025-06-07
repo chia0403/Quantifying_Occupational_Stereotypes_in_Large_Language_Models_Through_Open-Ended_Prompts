@@ -1,0 +1,5 @@
+Rain hammered against the grimy windowpane of Elijah "Eli" Thorne's office, each drop a staccato beat in the mournful symphony playing outside. The neon glow from the "Thorne Investigations" sign flickered erratically, casting dancing shadows on the cluttered desk littered with crumpled case files and half-empty coffee mugs. Eli himself sat slumped in his chair, his trench coat still dripping puddles onto the threadbare rug. His face, weathered by years of hard living and even harder cases, was etched with a weary cynicism, a reflection of the city outside – Grimhaven, a sprawling metropolis perpetually shrouded in a veil of mist and mystery.
+
+The phone on his desk buzzed, jolting him from his contemplations. He squinted at the caller ID: "Unknown." Eli sighed, knowing it wouldn't be a pleasant conversation. Most calls these days were either desperate housewives looking for missing cats or down-on-their-luck gamblers begging for one last loan. But something about the insistent ringing, echoing through the silence of his office, compelled him to pick up. 
+
+

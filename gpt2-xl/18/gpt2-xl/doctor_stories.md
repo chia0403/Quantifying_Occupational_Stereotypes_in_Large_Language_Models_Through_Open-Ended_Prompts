@@ -1,0 +1,5 @@
+Once upon a time, there was a doctor named William O. Baker, who is an admitted conman. When a patient complained that he did not heal himself, the doctor performed a medical examination and learned: Baker had infected a patient, who he then performed an electrocution on to prove that he was the true healer.
+
+It is also possible that the doctor was also a conman. The doctor had a practice that was legal. He prescribed medicine that did indeed cure, he used drugs to help him operate on people without actually diagnosing patients, his medical exams were never performed by trained doctors, and he had a degree from one of the top schools in the country. His school has been debunked as bullshit by Snopes, but his diploma is still available.
+
+In the last few years there have been thousands of examples of conmen in the medical world. Here is a quick run down of the most notable in 2016.

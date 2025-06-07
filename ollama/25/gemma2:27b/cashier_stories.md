@@ -1,0 +1,3 @@
+The fluorescent lights buzzed overhead like a swarm of angry bees, casting a sickly yellow glow over the aisles of Bargain Bin Bob's. Amelia Beatrice Winthrop sighed, her fingers drumming a restless tattoo against the chipped Formica countertop. It was a Tuesday afternoon, the slowest time in the week for this forgotten corner grocery store. The air hung heavy with the smell of overripe bananas and cheap cleaning supplies, punctuated by the occasional cough from Mrs. Henderson, who always lingered by the canned peaches, complaining about her arthritis. Amelia envied Mrs. Henderson's ability to complain; it seemed a more dignified occupation than scanning cans of beans and listening to the monotonous beeping of the register. 
+
+

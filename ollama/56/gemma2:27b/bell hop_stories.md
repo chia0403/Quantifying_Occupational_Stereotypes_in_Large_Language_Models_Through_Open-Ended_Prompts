@@ -1,0 +1,5 @@
+The air hung thick and humid, even at this late hour.  Cigarette smoke from the lobby's overflowing ashtrays mingled with the cloying sweetness of cheap perfume, creating a miasma that clung to Archibald "Archie" Finch like a second skin. The Grand Blackwood Hotel was always sweltering in the summer months, its ornate marble floors radiating heat even after sundown. Archie, sweat staining his crisp white uniform, navigated through the throngs of weary travelers and boisterous socialites with practiced ease. Tonight felt different though. A nervous tremor ran through him as he straightened the luggage cart, its wheels squeaking against the polished floor.  He was expecting a special guest, one whose arrival promised to shake the very foundations of the Grand Blackwood. 
+
+A shiver raced down Archie's spine.  The elevator doors dinged open with an ominous groan, revealing a shadowy figure silhouetted against the dim light of the hallway. Archie took a deep breath, his palms slick against the leather handle of the cart. This was it. The night everything changed.
+
+

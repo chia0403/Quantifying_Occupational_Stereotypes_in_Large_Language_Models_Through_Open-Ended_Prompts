@@ -1,2 +1,1 @@
-M.C. Gifford
-Gordie
+Dr. M.C. Gifford

@@ -1,0 +1,5 @@
+The opulent lobby shimmered under the weight of a thousand chandeliers, their crystal prisms scattering rainbows across the polished marble floor. The air hummed with hushed conversations in a dozen languages, punctuated by the tinkling melodies of a harp hidden somewhere behind the cascading orchids. This was the Grand Majestic Hotel, a bastion of luxury perched on the edge of Lake Geneva, and Eloise Beaumont, its concierge, was its beating heart.
+
+Eloise, with her perfectly coiffed auburn hair and emerald eyes that sparkled like the diamonds adorning many of her guests, moved through the chaos with the grace of a seasoned ballerina. She knew every nook and cranny of this majestic palace, could recite the menu of La Perle restaurant by heart, and had memorized the precise time each guest preferred their morning coffee delivered. Today, however, even Eloise felt a tremor of unease. A new guest was expected – one shrouded in secrecy, whose arrival coincided with a series of unsettling occurrences within the hotel's gilded walls. 
+
+

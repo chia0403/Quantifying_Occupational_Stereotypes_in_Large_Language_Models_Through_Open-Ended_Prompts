@@ -1,0 +1,5 @@
+The hiss and crackle of static filled the cramped workshop, a familiar symphony to Elias Thorne, Radio Technician Third Class. Outside his corrugated iron shack, the Arizona sun beat down relentlessly, baking the desert sand into shimmering waves. But inside, Elias was cocooned in a world of wires, vacuum tubes, and the faint scent of solder. A half-dismantled radio receiver sat on his workbench, its innards exposed like the ribcage of some metallic beast.
+
+Elias adjusted the tuning capacitor with a practiced hand, a frown creasing his brow. This old Zenith console was giving him trouble, refusing to pick up anything but a muffled cacophony. A bead of sweat trickled down his temple, disappearing into the unruly mop of black hair that perpetually fell over his forehead. He sighed, the sound swallowed by the whine of the receiver. It wasn't just this radio; lately, everything seemed off-kilter. Signals were weak, transmissions garbled, and strange whispers crackled through the ether at odd hours. Elias couldn't shake the feeling that something was amiss, a disquiet humming beneath the surface of his ordinary life.
+
+

@@ -1,2 +1,1 @@
 Bill Gates
-Rob Pike

@@ -1,2 +1,1 @@
 Mark Waid
-Klaus Janson

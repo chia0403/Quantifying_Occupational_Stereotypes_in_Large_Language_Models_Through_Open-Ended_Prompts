@@ -1,0 +1,3 @@
+Rain lashed against the grimy windowpanes of Bartholomew Quill's tiny attic apartment, mimicking the rhythm of his heart as he hunched over his drafting table. The air was thick with the scent of graphite and stale coffee, a familiar comfort in the face of the swirling storm outside. Below him, the city of Veridia hummed with unseen life, its glittering towers shrouded in a veil of mist and downpour. Bartholomew, however, was oblivious to the urban symphony playing out beneath his window. His focus was solely on the intricate lines he meticulously etched onto the parchment before him – the blueprints for a revolutionary airship design that promised to reshape Veridia's skyline forever. 
+
+

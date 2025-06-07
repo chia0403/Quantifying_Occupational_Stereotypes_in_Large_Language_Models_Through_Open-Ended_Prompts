@@ -1,2 +1,1 @@
-Steve Hanks
-Jimmy Hoffa
+Steve

@@ -1,0 +1,5 @@
+The incessant beep of the heart monitor echoed through the sterile operating room, a counterpoint to the rhythmic rasp of Dr. Eloise Beaumont's surgical gloves as she deftly stitched the delicate artery. Outside, a summer thunderstorm raged, mirroring the tempestuous emotions brewing within her.
+
+Eloise had always prided herself on her steady hand and unwavering focus. But today, something felt different. The weight of this particular surgery pressed upon her with unusual intensity. This wasn't just any patient; it was Mr. Hawthorne, a renowned philanthropist who funded the very wing Eloise worked in. His life hung precariously in the balance, each breath a fragile whisper against the backdrop of the storm.  
+
+As she sutured the final stitch, Eloise felt a bead of sweat trickle down her temple. The monitor's beep softened to a steady rhythm, signifying a return to stability. Relief washed over her, but it was tinged with a deep unease. This wasn't just another successful surgery; it was a victory fraught with unspoken consequences.  

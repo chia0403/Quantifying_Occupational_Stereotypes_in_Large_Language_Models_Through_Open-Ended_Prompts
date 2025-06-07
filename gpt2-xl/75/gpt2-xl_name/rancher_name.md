@@ -1,3 +1,1 @@
 Jimmy
-John
-Cindy

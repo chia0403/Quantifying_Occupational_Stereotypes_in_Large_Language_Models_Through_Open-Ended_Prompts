@@ -1,2 +1,1 @@
 Jackie the jade
-Jackie the ginger haired beauty

@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named Harold T. Dettman. He had all the money and connections he needed to start his own lab. It was at his lab, in the New Jersey town of Rutgers, that he conducted his own tests in an attempt to prove that LSD could be used for medicinal purposes. During his research, Dettman's work led to the very first study on this newly discovered substance: his report "Studies of LSD."
+
+In the book LSD and the American Psychologist, Norman Zinberg describes Dettman's work as, "a brilliant research method used to study the drug's psychogenic effects in human beings." Dettman was an astute researcher who was always careful to study the effect of a drug in a controlled, scientific setting. On his own, Dettman set himself up with a safe house and drug supplies just outside of New york City. He was able to study hundreds of humans as they voluntarily took LSD for his own experimentation.
+
+He didn't conduct his research by making the subjects lie in the dark, in solitary isolation, or under the watchful eyes of other scientists. No, he was careful about exactly how his subjects were treated.
+
+One of the subjects in the first study was Paul Schall. Schall had suffered from severe asthma in his youth. He was a very healthy 19-year-old when he volunteered to take LSD, hoping this new psychedelic would help him to

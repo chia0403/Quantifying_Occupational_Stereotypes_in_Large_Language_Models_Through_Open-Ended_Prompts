@@ -1,0 +1,5 @@
+Rain lashed against the panoramic windows of Theodore "Theo" Alistair Cavendish's corner office, blurring the city lights into a shimmering watercolour. Theo himself, however, was unfazed by the tempest raging outside. His crisp, tailored suit seemed to deflect the chaos as effortlessly as his perfectly sculpted hair. He steepled his fingers, his sharp blue eyes focused on the glowing spreadsheet before him. The numbers danced and flickered, painting a grim picture of Cavendish Holdings' latest venture - a luxury eco-resort in the Maldives that was bleeding money faster than a punctured artery.
+
+The sleek glass and steel of Theo's office perched atop the Cavendish Tower, a monument to his family's legacy in the heart of Manhattan's financial district. But tonight, the cold efficiency of the space felt like a gilded cage. The weight of responsibility, inherited along with the empire, pressed down on him. He needed to turn this project around, not just for the sake of the company, but for his own reputation - the Cavendish name was synonymous with success, and failure wasn't an option he could afford.
+
+

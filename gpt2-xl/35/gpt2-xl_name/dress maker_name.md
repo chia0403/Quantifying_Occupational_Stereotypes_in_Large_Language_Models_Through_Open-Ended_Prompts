@@ -1,2 +1,1 @@
 Tula Stryker
-Lula Ries

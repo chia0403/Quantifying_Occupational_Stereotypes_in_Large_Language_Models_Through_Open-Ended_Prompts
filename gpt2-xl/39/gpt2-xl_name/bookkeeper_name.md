@@ -1,2 +1,1 @@
 Walter White
-Kim Dotcom

@@ -1,0 +1,5 @@
+The air hung thick with the scent of linseed oil and turpentine in Elara Thorne’s cramped studio apartment. Sunlight strained through the grime-coated windowpane, illuminating motes of dust dancing in its pale beam.  Stacked canvases leaned precariously against the walls, their surfaces a riot of unfinished landscapes and abstract expressions.  Elara, a woman with fiery red hair pulled back in a messy bun and paint smudged across her cheek, stood before a blank canvas, brush poised mid-air. Her emerald eyes stared intently at the white expanse, searching for inspiration that stubbornly refused to appear.
+
+She'd been working on this commission – a portrait of an eccentric local baker known for his elaborate gingerbread creations – for weeks, but something felt off. The baker's jovial demeanor, the twinkle in his eye, the way he dusted flour onto his nose like a benevolent pixie - none of it translated onto the canvas. It was as if her artistic vision had become clouded, replaced by a frustrating emptiness. 
+
+

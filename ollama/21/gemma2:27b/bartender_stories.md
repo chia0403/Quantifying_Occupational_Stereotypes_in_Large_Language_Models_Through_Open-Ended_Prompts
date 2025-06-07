@@ -1,0 +1,4 @@
+The neon sign outside flickered erratically, casting sickly green hues onto the rain-slicked cobblestones. A haze of cigarette smoke hung heavy in the air above The Siren's Call, barely disturbed by the mournful wail of the saxophone bleeding from within.  Elias Thorne, with his perpetually weary eyes and salt-and-pepper beard meticulously trimmed to a sharp point, wiped down the mahogany bar top for the tenth time that hour.  Business was slower than usual on this Tuesday night, the storm keeping even the most dedicated drinkers at bay. Elias sighed, glancing at the clock ticking relentlessly above the liquor bottles, each tick echoing his own sense of stagnation. 
+
+
+He had always dreamt of something more than slinging drinks in a dimly lit bar in the heart of New Orleans, but life, like the unpredictable currents of the Mississippi, often took you where you least expected. 

@@ -1,0 +1,5 @@
+The flickering neon sign outside "Paradise Found" cast sickly green streaks across Elara Finch's face as she adjusted her already-perfect lipstick in the greasy diner window. Rain hammered against the asphalt, each drop exploding into a miniature geyser. It was the kind of night that made even seasoned salespeople like Elara question their life choices. Tonight, her "Paradise Found" wasn't some idyllic island getaway; it was this rundown diner on the edge of nowhere, where she was supposed to pitch time-shares to retirees on fixed incomes who wouldn't know a jacuzzi from a bird bath.
+
+Elara sighed.  She had dreams bigger than selling vacation packages in forgotten corners of Florida. She yearned for something more, something that sparked her soul – maybe writing the novel she’d been tinkering with for years, or learning to sail, anything but this endless cycle of empty promises and lukewarm coffee. But bills piled up like dirty dishes, and a girl had to eat. So here she was, bracing herself for another night of convincing octogenarians they needed a second home they wouldn't live in.
+
+

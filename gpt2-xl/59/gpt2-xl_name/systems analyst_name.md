@@ -1,2 +1,1 @@
 William Bowers
-David Vonderhaar

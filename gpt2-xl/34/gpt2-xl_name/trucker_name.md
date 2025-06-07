@@ -1,1 +1,1 @@
-Ed Whitmore
+Ed "Whitey" Whitmore

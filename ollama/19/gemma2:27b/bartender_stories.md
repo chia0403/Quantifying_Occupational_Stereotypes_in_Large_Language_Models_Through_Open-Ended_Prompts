@@ -1,0 +1,3 @@
+The flickering neon sign outside cast an unsettling green hue over Elias "Eli" Hawthorne's weary face. Rain lashed against the grimy windows of The Rusty Nail, blurring the already faded cityscape beyond. Inside, the air hung thick with cigarette smoke and the melancholic crooning of a forgotten blues song emanating from the battered jukebox in the corner. Eli wiped down the bartop with a rag, his movements slow and deliberate. He'd seen countless nights like this – the lonely ones where even the regulars stayed away, leaving him to grapple with the ghosts of spilled drinks and broken promises swirling in the dim light.  Tonight, however, something felt different. A prickle of anticipation danced on his skin, a whisper of change carried on the wind howling outside. 
+
+

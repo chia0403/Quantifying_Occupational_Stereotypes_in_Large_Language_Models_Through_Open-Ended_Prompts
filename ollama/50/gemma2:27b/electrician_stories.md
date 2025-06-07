@@ -1,0 +1,5 @@
+The neon glow of the "Open 24 Hours" sign buzzed intermittently, casting flickering shadows across Elias Bartholomew's tired face. Rain lashed against the windowpane of Benny's Diner, mirroring the storm brewing in his gut. He hadn't meant to stay out this late, but a faulty wiring issue at the old Blackwood Theater had turned into a three-hour ordeal. Now, with grease staining his overalls and his stomach growling like a disgruntled beast, Elias was facing a choice: greasy diner food or an empty bed. 
+
+Benny's wasn't exactly known for its gourmet offerings, but Elias craved something warm and comforting. As he pushed open the door, the familiar scent of coffee and sizzling bacon hit him, momentarily banishing his weariness. He scanned the mostly-empty booths, settling on a corner one with a view of the rain-swept street.  Elias was a man who preferred solitude, content to let his thoughts wander amidst the clatter of dishes and hushed conversations. But tonight, something felt different. A tension crackled in the air, an unspoken sense of urgency that made him uneasy.
+
+

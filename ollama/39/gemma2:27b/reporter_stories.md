@@ -1,0 +1,5 @@
+The stale cigarette smoke hung heavy in the air, clinging to Eloise "Ellie" Moreau's trench coat like an unwelcome ghost. Outside, the rain hammered against the cracked windowpane of The Blue Parrot, a dimly lit dive bar nestled in the seedy underbelly of New Orleans. Ellie swirled the lukewarm bourbon in her glass, the amber liquid reflecting the neon glow from the dusty sign outside proclaiming "Live Music - Cheap Drinks." Her contact, a shifty-eyed man with a handlebar mustache that could rival Salvador Dali's, was late.
+
+Ellie had come to The Blue Parrot chasing a rumor, a whisper on the wind about a smuggling ring operating out of the city's port. It smelled like a story – one big enough to make her name in the cutthroat world of investigative journalism. But every lead she'd followed had been a dead end, a tangled web leading nowhere. Now, with only a fading photograph and a cryptic message scribbled on a napkin as her only clues, Ellie felt a familiar knot of doubt twisting in her gut.
+
+

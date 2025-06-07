@@ -1,0 +1,5 @@
+The flickering fluorescent lights in the abandoned factory buzzed like angry wasps, casting long, skeletal shadows across the dusty concrete floor. Elias Thorne, his forehead slick with sweat despite the chill air, squinted through the gloom.  His toolbox, heavy and reassuringly familiar, lay open beside him, its contents spilling out onto the grimy ground – screwdrivers, pliers, wire strippers – each a familiar extension of his calloused hands.
+
+Elias wasn't supposed to be here. This place was condemned, a decaying monument to a forgotten industry, whispered about in hushed tones by locals as haunted. But a desperate call from an old friend – a plea for help with "something strange" going on in the derelict building – had drawn him in.
+
+He tightened the grip on his flashlight, its beam cutting through the gloom to reveal a tangled mess of exposed wires hanging from the ceiling like morbid streamers.  Something wasn't right here, Elias could feel it.  The air crackled with an unseen energy, prickling at his skin like static electricity. 

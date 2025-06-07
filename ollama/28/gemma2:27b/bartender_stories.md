@@ -1,0 +1,5 @@
+Rain lashed against the dusty windows of "The Rusty Tap," blurring the neon sign into a shimmering mess. Inside, the air hung thick with the smell of stale beer, cigarette smoke, and desperation. Bartholomew "Bart" Alistair Sinclair, his salt-and-pepper hair slicked back beneath a worn bartender's cap, wiped down the already gleaming mahogany bar with a practiced hand. He wasn't sure why he bothered anymore. The regulars were few and far between these days, their faces etched with the same weary resignation that mirrored his own. 
+
+Tonight was no different. A lone figure hunched over a glass of whiskey in the corner booth, mumbling to himself, and two women argued loudly over a game of pool, their laughter tinged with bitterness. Bart sighed, wondering if he'd ever escape this town, this bar, this monotonous existence. He dreamt of opening a bookstore somewhere quiet, surrounded by the scent of old paper and the gentle rustle of turning pages. But for now, "The Rusty Tap" was his cage, its grimy floors and flickering lights holding him captive.
+
+

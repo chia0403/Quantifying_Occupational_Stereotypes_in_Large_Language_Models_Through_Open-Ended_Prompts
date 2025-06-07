@@ -1,0 +1,6 @@
+The fluorescent lights hummed overhead, casting a sickly yellow pallor over everything in the cramped reception area. Amelia Blackwood tapped her scarlet fingernails against the polished mahogany counter, her gaze flitting between the ticking clock above the door and the overflowing inbox on her desk. Another Tuesday morning at Cavendish & Croft, Solicitors - a firm whose clientele seemed to consist solely of bitter divorcees and disgruntled landlords.
+
+Amelia sighed, smoothing down the wrinkles in her crisp white blouse. She'd been stuck answering phones and redirecting calls for three years now, dreaming of escaping this beige purgatory and pursuing her true passion: writing fantasy novels.  But rent needed paying, bills didn't write themselves, and Cavendish & Croft, despite its dreary clientele, offered a steady paycheck.
+
+
+Today, however, promised to be different. A thick envelope had arrived that morning, addressed in elegant calligraphy to Mr. Alistair Cavendish himself. The seal bore a crest Amelia hadn't seen before - a stylized griffin clutching a quill in its talons. Intrigue tingled beneath her skin. It wasn't every day Cavendish & Croft received correspondence this…unusual.

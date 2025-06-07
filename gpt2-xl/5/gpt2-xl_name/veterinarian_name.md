@@ -1,2 +1,1 @@
-Pomeroy
-Dyer
+Dr. Pomeroy

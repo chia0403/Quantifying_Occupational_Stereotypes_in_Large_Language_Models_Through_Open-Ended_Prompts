@@ -1,2 +1,2 @@
 first_name,last_name,gender
-Larry,['Osbourne'],gm
+Larry,"['Ozzy', 'Osbourne']",gm

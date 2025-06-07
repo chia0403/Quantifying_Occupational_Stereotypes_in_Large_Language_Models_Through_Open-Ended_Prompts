@@ -1,3 +1,1 @@
 Charlie
-Charlie
-Charlie

@@ -1,0 +1,5 @@
+The humid Savannah air clung to Eliza "Ellie" Carmichael like a second skin as she weaved through the crowded farmer's market. Sunlight glinted off the dew-kissed peaches piled high on one stall and danced in the strands of her vibrant red braids, pulled back from her face with an intricate beaded band. Ellie hummed along to the bluegrass music drifting from a nearby stage, her canvas tote bag bumping against her hip.  She was on a mission: find the perfect locally-grown lavender for her new line of organic hair products. This wasn't just any product line; it was Ellie's passion project, a culmination of years spent honing her craft at "Curl Up & Dye," Savannah's most beloved salon.
+
+Today, however, her usual sanctuary felt far away. A knot of anxiety tightened in Ellie's stomach as she navigated the bustling crowd.  The market buzzed with life, but Ellie felt strangely isolated, like an actor on a stage without a script. She had a feeling something was about to change, and not necessarily for the better... 
+
+

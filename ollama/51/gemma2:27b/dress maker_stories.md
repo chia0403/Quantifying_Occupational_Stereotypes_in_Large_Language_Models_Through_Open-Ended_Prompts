@@ -1,0 +1,5 @@
+The scent of lavender and beeswax hung heavy in the air of Eloise Beaumont’s workshop, a symphony of smells only amplified by the late afternoon sun slanting through the grimy windowpane. Dust motes danced in its rays, illuminating the chaos of half-finished gowns, bolts of shimmering silk, and spools of thread that sprawled across her workbench like spilled jewels. Eloise herself, perched precariously atop a rickety stool, was lost in a world of delicate pleats and swirling skirts. Her nimble fingers darted with practiced ease, coaxing the crimson velvet into the sinuous curves she envisioned for Lady Cavendish’s ball gown.
+
+Outside, the clamor of London's East End pulsed – hawkers bellowing their wares, carriage wheels clattering on cobblestones, children's laughter echoing through the narrow alleys. Yet within Eloise's tiny attic workshop, nestled above Mrs. O’Malley’s bustling bakery, time seemed to stand still. Here, amidst the fragrant chaos and the rhythmic whirring of her treadle sewing machine, she was mistress of her own world – a world where dreams were stitched into reality, one exquisite garment at a time. 
+
+

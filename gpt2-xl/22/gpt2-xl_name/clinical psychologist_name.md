@@ -1,1 +1,1 @@
-Peter Breggin
+Dr. Peter Breggin

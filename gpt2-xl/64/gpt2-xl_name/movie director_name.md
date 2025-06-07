@@ -1,2 +1,1 @@
 David Seltzer
-Fred Savage

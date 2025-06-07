@@ -1,2 +1,1 @@
 Robert Falcon Scott
-Scott

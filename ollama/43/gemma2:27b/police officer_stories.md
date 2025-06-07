@@ -1,0 +1,6 @@
+Rain hammered against the corrugated iron roof of the abandoned warehouse, each drop exploding in a miniature firework of sound. Detective Isabella "Izzy" Cortez shivered, pulling her threadbare raincoat tighter around her thin frame. The air hung heavy with the stench of mildew and rust, punctuated by the sickly sweet aroma of decaying fruit from a tipped-over crate in the corner. Moonlight sliced through the grimy skylights, illuminating motes of dust dancing in the damp air. Izzy gripped her flashlight tighter, its beam cutting a wavering path through the shadows.
+
+This wasn't how she envisioned her Friday night. Stuck babysitting a potential crime scene while the forensics team was delayed. It felt like a cruel joke played by the universe. Especially considering the case: a string of seemingly random robberies targeting small businesses in the rundown part of town Izzy called home. No forced entry, no sign of struggle, just empty cash registers and bewildered shop owners. 
+
+
+Izzy sighed, her breath misting in the cold air. Something felt off about this whole thing. The robberies were too clean, too precise. It wasn't the work of amateurs. But who could be orchestrating them, and why?  

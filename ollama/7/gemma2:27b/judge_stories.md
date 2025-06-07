@@ -1,0 +1,5 @@
+The courtroom felt like an oven despite the whirring ceiling fan struggling valiantly overhead. Sunlight poured through the arched windows, illuminating motes of dust dancing in its path.  Judge Amelia Rosalind Beaumont adjusted her spectacles, pushing them further up her nose as she surveyed the scene before her. On one side sat a nervous young woman, her hands twisting in her lap, her eyes darting around the room with palpable anxiety. Across from her stood a man whose expression was as impassive as a stone statue, his arms crossed tightly over his chest, a lawyer flanking him like a loyal hound. 
+
+Judge Beaumont had seen countless cases in her thirty years on the bench, but this one, involving the alleged theft of a priceless heirloom necklace, held a peculiar weight. The young woman, Beatrice Hawthorne, claimed innocence while the evidence pointed squarely at her.  Yet, something about Beatrice's demeanor – a flicker of fear that seemed to mask a deeper truth – made Amelia hesitate. This case was more than just legal precedent; it was a puzzle begging to be solved.
+
+

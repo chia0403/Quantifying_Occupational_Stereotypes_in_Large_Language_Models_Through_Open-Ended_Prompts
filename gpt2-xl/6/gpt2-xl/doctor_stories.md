@@ -1,0 +1,7 @@
+Once upon a time, there was a doctor named Mr. Mervin, who was in charge of the treatment of a small, rather strange, individual. The patient had severe delusions at times which made him incapable of telling the difference between real and unreal, that is, between his dream and the real. Every day more and more real and genuine things appeared. The patient did not yet understand that all this unreal and imaginary was caused by his own fantasies, and that he had to face reality; but at once, it happened, one day, with a remarkable success, that when he realized that his delusions were caused by his own imagination, the patient was quite rational and reasonable, and he was able to continue his treatment. From that time on, the patient was completely cured." (Friedrich Nietzsche, The Will to Power)
+
+The problem here is that, in a similar way to the dream world where reality was a matter of our actions, the dreamy world of human consciousness is a realm of our minds. We can say that we can be in the "real" world only if we are in the mindworld. But if we have gone beyond the mind – if we are no longer deluded – can we remain in the mind? What are we to do in such a situation?
+
+Friedrich Nietzsche, for one, took up the problem. He says:
+
+That it could come to this is entirely due to our being so stupid, too,

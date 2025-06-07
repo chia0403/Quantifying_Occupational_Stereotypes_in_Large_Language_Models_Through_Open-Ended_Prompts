@@ -1,2 +1,1 @@
-B. H. Sallis
-Oliver
+Dr. B. H. Sallis

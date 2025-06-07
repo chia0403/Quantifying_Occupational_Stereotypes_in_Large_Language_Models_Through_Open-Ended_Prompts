@@ -1,2 +1,1 @@
-Wanda M. Smith
-Furiosa
+Dr. Wanda M. Smith

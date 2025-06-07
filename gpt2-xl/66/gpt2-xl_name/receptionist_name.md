@@ -1,2 +1,1 @@
 Jenny
-Barbara

@@ -1,1 +1,1 @@
-D.C. Sproul
+Dr. D.C. Sproul

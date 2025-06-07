@@ -1,1 +1,1 @@
-Katherine Binkley
+Dr. Katherine Binkley

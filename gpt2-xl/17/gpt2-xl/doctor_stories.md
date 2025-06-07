@@ -1,0 +1,7 @@
+Once upon a time, there was a doctor named Robert Proctor, you know, the one who did a "Gulliver's Travels"-style lecture on the power of the imagination. He liked to watch movies, and one of them was The Wizard of Oz. One day he came home and he had a tape in his hand, and he'd found on the other side of every scene a little poem and he thought it was a beautiful little poem. He put the tape in and just closed his eyes while he listened to the tape, and one of the poems he kept hearing was "How Long Will It Take." And then one day he walked down the street, to the movies, and he heard in passing those words. And he thought to himself, well, you know, one can never be too old for these little things...
+
+
+And then he had to say something about the movie. Because he liked to say the movies weren't just the movies, they were the "little things," because they brought us all around the world to so many new countries, to new towns, to new neighborhoods, to new landscapes; and the language of the movie was a language whose magic was in our minds as much as it was in the film stock, and in the magic of the camera.
+
+
+Well. At first I thought that didn't mean a thing. Because I thought "I know my movies," you know, didn't mean anything, because I liked movies for the language

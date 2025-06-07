@@ -1,0 +1,7 @@
+The air in the grand foyer hung heavy with the scent of lilies and regret. Amelia Thistlewick sighed, her breath fogging the already chilled air. Outside, the first snowflakes of winter were beginning to fall, swirling lazily down onto the manicured lawns of Blackwood Manor. It was December 20th, and the manor was eerily silent. The usual cacophony of laughter and boisterous conversation that accompanied the holidays was absent, replaced by a hollow emptiness Amelia felt deep in her bones.
+
+She adjusted the heavy silver tray laden with untouched teacups and scones, her gaze lingering on the portrait hanging above the grand staircase. It depicted Lord Blackwood, his steely blue eyes seeming to follow Amelia's every move. A flicker of sadness crossed her face; she remembered him fondly, a kind but distant man who always offered her a smile and a word of thanks for her hard work. But he was gone now, along with Lady Blackwood, leaving the manor in the care of their estranged son, Alistair, a brooding recluse Amelia had only glimpsed once or twice.
+
+Something about the silence tonight felt different, heavier. The wind howled outside, rattling the leaded glass windows like skeletal fingers tapping impatiently. Amelia couldn't shake the feeling that something was amiss. As she turned to leave the foyer, a faint scratching sound echoed from the darkened hallway leading to the library. 
+
+

@@ -1,0 +1,5 @@
+The scent of lilies, sweet and sharp like a summer storm, hung heavy in the air. Eliza Grace Hawthorne, her hands stained green with chlorophyll and dusted with pollen, hummed along to Billie Holiday's "God Bless the Child" as she arranged a cascade of blush pink roses for a wedding bouquet. Sunlight streamed through the dusty windows of "Flora's Folly," casting long shadows across the overflowing flower buckets and antique vases. Outside, cobblestones shimmered in the late afternoon sun, and the cheerful clatter of a nearby bakery mingled with the distant rumble of a trolley. Eliza paused, tucking a sprig of lavender into the bouquet for good luck, and sighed contentedly. This was her haven, a vibrant world of petals and perfume, where she could transform nature's raw beauty into expressions of joy, sorrow, and everything in between. 
+
+But today, a disquieting note had been inserted into Eliza's usual rhythm: a single, stark white lily with an unnervingly black center lay abandoned on her doorstep. 
+
+

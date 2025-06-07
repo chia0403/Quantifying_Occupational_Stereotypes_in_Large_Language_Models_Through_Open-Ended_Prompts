@@ -1,0 +1,6 @@
+The flickering neon sign outside cast stripes of sickly green light across Elias Thorne's trench coat as he leaned against his beat-up Ford Fairlane. Rain slicked the asphalt of Bleaker Street, reflecting the grimy cityscape above like a fractured mirror. The air hung heavy with the scent of rain, exhaust fumes, and something vaguely metallic that Elias couldn't quite place. 
+
+His office, tucked away above a greasy spoon called "The Hungry Hound," was just as bleak as the street it overlooked. The peeling paint on the walls mirrored the state of his finances – barely hanging on. He took a drag from his cigarette, the acrid smoke momentarily chasing away the persistent scent of cheap coffee that permeated the room. A crumpled note lay on his desk, the only clue to the case that had brought him to this damp corner of the city: "Find her. The Red Canary sings at midnight." 
+
+
+Elias Thorne wasn't a man easily fazed. He'd seen more than his fair share of shadows in his years as a private investigator. But something about the cryptic message, delivered anonymously in a crumpled envelope, sent a shiver down his spine. It smelled of danger, of secrets buried deep beneath the city's grime. And Elias Thorne had a nose for those kinds of secrets. 

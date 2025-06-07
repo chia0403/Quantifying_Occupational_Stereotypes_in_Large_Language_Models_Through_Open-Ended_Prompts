@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Dr. Eleanor Vance, casting an anemic glow on the cluttered workbench before her. The air hung thick with the scent of ozone and something metallic, like old blood.  Eleanor traced a gloved finger across a complex circuit board, its wires tangled like nervous limbs. Outside, the storm raged, wind howling against the corrugated metal walls of the research facility, each gust rattling the windows like skeletal fingers tapping for entry. The power flickered erratically, throwing grotesque shadows that danced along the grimy walls. 
+
+Eleanor was alone in her lab, a fact she usually relished. Solitude fostered concentration, allowed her to lose herself in the intricate dance of circuits and algorithms. Tonight, however, the silence felt oppressive, punctuated only by the storm's fury and the rhythmic ticking of a nearby chronometer, counting down the minutes until midnight. 
+
+
+Eleanor glanced at her reflection in the darkened screen of her monitor. Her face was pale, framed by unruly dark hair that had escaped its bun. Fatigue etched lines around her eyes, but there was a flicker of manic energy in their depths. She was close, she could feel it.  One final adjustment, one last test... and then everything would change. 

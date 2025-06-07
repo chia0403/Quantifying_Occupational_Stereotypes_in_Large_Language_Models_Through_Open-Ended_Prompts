@@ -1,1 +1,1 @@
-Arthur G. Thomas
+Dr. Arthur G. Thomas

@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Esmeralda Flores's head, casting a sterile glow on the stainless steel instruments laid out before her. The scent of peppermint toothpaste lingered in the air, battling with the faint, metallic tang that always seemed to cling to the dental office. Through the open door, she could hear Dr. Nguyen’s gentle voice as he chatted with his next patient, a nervous-looking teenager. Esmeralda sighed, picking up a scaler and carefully inspecting its tip. 
+
+It was a Wednesday afternoon, and the usual lull before the after-school rush had settled in. Outside, the California sun beat down on the bustling street, but within the cool confines of Dr. Nguyen's practice, time seemed to move at a different pace. Esmeralda, with her steady hands and reassuring smile, was a calming presence in this world of sharp tools and anxious patients. Today, however, a feeling of unease gnawed at her, a discordant note in the familiar symphony of dental hygiene. She couldn't shake the sense that something was about to change, something big. 
+
+

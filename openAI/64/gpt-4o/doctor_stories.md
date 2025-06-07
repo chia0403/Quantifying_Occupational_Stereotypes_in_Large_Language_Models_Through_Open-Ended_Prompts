@@ -1,0 +1,7 @@
+Dr. Amelia Sinclair had always found solace in the gentle whispers of the ocean waves, and it was this endless dance of water and wind that drew her back to the small coastal town of Windmere Bay. The town was a hidden gem along the rugged stretch of the New England coastline, where colorful clapboard houses clung to the hillsides, and the salty tang of the sea lingered in the crisp morning air.
+
+Nestled between the rocky cliffs and the vibrant, bustling harbor was Windmere General Hospital—a modest, weather-worn building with perhaps more character than efficiency. Its faded white walls bore the stories of countless patients who had walked through its doors, seeking care and comfort. It was here that Dr. Sinclair, with her tousled auburn hair and keen green eyes, had accepted a position after years of practicing in the heart of Boston.
+
+As the first light of dawn broke over the horizon, Dr. Sinclair stood on the hospital's rooftop terrace, a steaming mug of coffee warming her hands against the early morning chill. She inhaled deeply, savoring the crispness of the air, taking a moment to appreciate the sprawling view of the harbor below. Small fishing boats bobbed gently on the water, their silhouettes casting long shadows on the glistening surface.
+
+Dr. Sinclair had returned to Windmere Bay seeking not just a change of pace, but a renewal of purpose. The quiet strength of the community, along with the ever-present rhythm of the sea, offered her a sanctuary—a place where she hoped to heal others, and perhaps, in time, to find healing herself.

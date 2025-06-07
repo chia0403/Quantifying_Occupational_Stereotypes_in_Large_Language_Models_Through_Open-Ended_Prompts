@@ -1,2 +1,1 @@
-Kurt
 Kass

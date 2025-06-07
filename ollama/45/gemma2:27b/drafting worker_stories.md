@@ -1,0 +1,6 @@
+The fluorescent lights hummed a monotonous tune above Elara Finch's head, casting a sterile glow over her cluttered workspace. Blueprints sprawled across the desk like fallen leaves, each one a delicate symphony of lines and symbols representing buildings yet to be born. Elara traced a calloused fingertip along the precise outline of a planned skyscraper, its sleek silhouette piercing the imagined skyline. Outside her window, rain lashed against the glass, mirroring the storm brewing within her. 
+
+Elara had always dreamt of designing, not drafting. But reality, like the grid lines on her blueprints, was rigid and unforgiving. She poured her creativity into every line she drew, imbuing the mundane structures with a touch of unseen artistry. Today, however, even that spark seemed extinguished. The news she'd received earlier - a promotion denied, given to someone younger, less experienced - left a bitter taste in her mouth. 
+
+
+The rain intensified, blurring the city lights beyond her window into an impressionistic swirl. Elara stared out at the relentless downpour, feeling as trapped and confined as the lines on her paper. A decision was looming, one that could change everything. Should she stay and accept this crushing defeat, or finally dare to chase the dream she'd buried deep within?

@@ -1,0 +1,7 @@
+The rusty smell of jet fuel hung heavy in the air, clinging to Amelia Rose Cartwright's worn leather jacket like a persistent ghost. Dawn was breaking over the ramshackle airfield, painting the sky in bruised purples and oranges. The single runway, cracked and uneven, stretched out before her like a faded scar on the earth. Amelia ran a calloused hand over the nose of her battered Cessna 172, affectionately nicknamed "Rusty." Her reflection stared back – tired eyes framed by wind-whipped brown hair, a smattering of freckles across her nose. This wasn't the glamorous life she'd dreamt of as a kid, poring over aviation magazines in her tiny bedroom. But Amelia wouldn't trade it for anything.
+
+This airfield, nestled in the heart of the Mojave Desert, was her sanctuary. Here, amidst the endless dunes and whispering wind, she felt free. Free from the expectations of her family, the pressures of city life, and the ghosts of a past she couldn't outrun. Today, Amelia had a job – a clandestine delivery to a remote mining outpost further north. The details were vague, the pay suspiciously good. But Amelia wasn't one to question. She needed the money, and besides, a little mystery was always welcome in her otherwise mundane existence.
+
+As she climbed into the cockpit, the familiar scent of oil and leather enveloped her. Rusty coughed and sputtered, protesting against the early morning chill. Amelia smiled, patted his dashboard affectionately, and fired up the engine. Today was going to be a good day. She could feel it in her bones.
+
+

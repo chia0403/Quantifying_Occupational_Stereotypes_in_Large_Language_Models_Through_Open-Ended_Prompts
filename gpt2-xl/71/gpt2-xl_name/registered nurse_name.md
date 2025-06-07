@@ -1,2 +1,1 @@
-Diane Smith
-Barbara Smith
+Diane

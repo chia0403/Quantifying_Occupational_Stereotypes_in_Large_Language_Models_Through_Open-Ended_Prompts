@@ -1,0 +1,5 @@
+The smoky haze hung thick in the air of The Blue Moon Saloon, clinging to Evangeline "Evie" Rose's auburn curls as she adjusted the microphone. The worn wooden stage creaked under her weight, familiar and comforting like an old friend.  Evie took a deep breath, letting the scent of stale beer, sawdust, and desperation wash over her. This wasn't the grand concert hall she'd dreamed of as a child, but it was home. Tonight, under the flickering gaslights and watchful gaze of regulars nursing their sorrows, she would pour her heart out through song. 
+
+Outside, the New Orleans night pulsed with humidity and distant jazz melodies, a siren call tempting her away from this dingy refuge. But Evie knew where she belonged – on this stage, sharing stories woven from heartache and hope through the gravelly rasp of her voice. As the bartender slammed down another empty shot glass, signaling her cue, she closed her eyes, letting the music rise within her. Tonight, she would sing of love lost, dreams deferred, and the indomitable spirit that kept her clinging to them all. 
+
+

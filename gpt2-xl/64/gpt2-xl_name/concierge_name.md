@@ -1,2 +1,1 @@
-Lautman
-Vicki Vale
+Mrs. Lautman

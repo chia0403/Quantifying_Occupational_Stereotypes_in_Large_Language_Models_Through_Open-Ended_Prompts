@@ -1,1 +1,1 @@
-William O. Wilson
+Dr. William O. Wilson

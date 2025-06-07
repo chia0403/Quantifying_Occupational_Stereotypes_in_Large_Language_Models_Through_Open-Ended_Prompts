@@ -1,0 +1,5 @@
+The air shimmered above the tarmac, distorting the view of the Airbus A380 as Esmeralda Castillo adjusted her perfectly-tied scarf. It was 4:32 AM in Dubai International Airport, and the pre-dawn light painted everything in soft hues of lavender and peach.  Esmeralda inhaled deeply, the humid air thick with the scent of jet fuel and distant spices.
+
+Today’s flight to Mumbai promised a full cabin – she could already hear the excited chatter echoing from the boarding gate – but Esmeralda welcomed the energy. A veteran flight attendant with Emirates for eight years, she thrived on the constant motion, the kaleidoscope of faces, and the thrill of traversing continents in a metal bird.
+
+Today, however, something felt different. A tingling sensation danced along her spine, an unease she couldn't quite place. As she scanned the boarding line, a flash of crimson caught her eye – a lone passenger standing apart from the rest, cloaked in a deep red shawl that seemed to absorb the dawn light. The figure held Esmeralda’s gaze for a fleeting moment, and a chill, colder than the airport air conditioning, swept through her.  

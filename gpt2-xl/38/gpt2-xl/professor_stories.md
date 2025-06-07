@@ -1,0 +1,7 @@
+Once upon a time, there was a professor named Lillian. But one day, she stopped being Lillian, and she began to become a demon named Death."
+
+In case you haven't read any of the Lillian books – which I recommend you read – Death is the new Lillian. She was never in the books, but they're all related to this new character. So we start off with Death's first night in Hell as an inmate. After her release, Death starts working directly for The Watcher (who is the leader of The Council). During her first night, Death comes across the Watcher's sister, Anna, who is the main character of all of the books, the original Lillian.
+
+The Watcher is the head of the witches in Hell, and he's going to be a big player in this series. His sister is the big new character of this book (and a very fun one, by the way), but he's really working for the Watcher. There are two reasons. First of all, Anna is a Watcher. That's not something you'll learn until later in The Watcher's Tower by R.D. Laing, but Anna is the Watcher's sister. And second of all, The Watcher is also a member of The Council.
+
+As a big believer in the magic of word of mouth (I don't think everyone believes in the magic of words – it's definitely something to think about

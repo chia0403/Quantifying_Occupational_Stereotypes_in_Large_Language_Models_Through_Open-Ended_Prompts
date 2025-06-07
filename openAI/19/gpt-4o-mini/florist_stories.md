@@ -1,0 +1,9 @@
+Title: **Whispers of Petals**
+
+Setting: The bustling coastal town of Ellington, where the salty breeze mingles with the sweet fragrance of blooming flowers. The streets are lined with colorful shops, and a vibrant marketplace buzzes on weekends with locals and tourists alike. At the heart of this town lies "Blooms & Blossoms," a quaint floral shop nestled between a charming bakery and a vintage bookshop. The walls of the shop are adorned with hanging plants, delicate floral arrangements, and the soft glow of fairy lights that twinkle like stars as the sun sets. 
+
+Opening: 
+
+As the first rays of dawn painted the sky in shades of lavender and gold, Marigold Annabelle Fletcher stood at the threshold of "Blooms & Blossoms," inhaling the crisp morning air mixed with the heady scents of lilac and gardenia. The familiar tinkling of the shop's brass bell chimed softly as she pushed open the door, the wooden floor creaking underfoot. She loved this ritual—the quiet moment before the world blossomed into life, where she could lose herself in the beauty of nature’s palette.
+
+Marigold, with her chestnut hair tied into a messy bun adorned with a few wildflowers, was not just a florist; she was a curator of emotions, crafting bouquets that spoke the unsaid words of love, gratitude, and remembrance. Each morning, she arranged her flowers with the care of an artist, knowing that each petal held a story waiting to unfold. Today, however, felt different. The air thrummed with an energy she could not place, and as she prepared for the day ahead, a small, bright orange envelope slipped through the crack of the shop’s door, landing softly at her feet.

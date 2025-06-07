@@ -1,2 +1,1 @@
 Robert McElligott
-John Ross

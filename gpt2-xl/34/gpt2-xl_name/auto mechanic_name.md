@@ -1,2 +1,1 @@
-Max Sr
-Max Jr
+Max

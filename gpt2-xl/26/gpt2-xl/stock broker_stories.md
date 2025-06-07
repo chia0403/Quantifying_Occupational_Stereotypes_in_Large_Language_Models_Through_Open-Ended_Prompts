@@ -1,0 +1,7 @@
+Once upon a time, there was a stock broker named Ben, who went down to the bank every Saturday night and put a deposit of $50,000 with his broker. Because his account was in Ben's name, the bank kept his money, even when the sale came up. He did have a trust account, which was not secured, so the bank never gave to him any deposits of money that had come up from his deposit account in Ben's name. The trust account was just an accounting gimmick to pay off a bad investment that had been made by someone else. As the business grew, the trust account would shrink with each week, though, until the bank put him out of business and let someone else carry on his business.
+
+Ben had a few more problems. His accountant had warned him that if he made any more changes to the company than they were comfortable with, the accountant would be held liable for the profits. Ben took a few more steps that Ben thought were harmless, so he left some old equipment behind and he closed down the business. The accountant took it all away, and the bank won't release the money for him.
+
+The bank wants five hundred million. Five hundred million! This is too much of a loss for them.
+
+They don't want that, of course, but they'll do what they can until it disappears. They'll keep your money, just as long as they don't have to hand it over to you directly. This

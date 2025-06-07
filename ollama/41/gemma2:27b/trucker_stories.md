@@ -1,0 +1,7 @@
+The greasy spoon diner hummed with the low thrum of conversation and the clinking of silverware against chipped porcelain plates. Outside, the Arizona sun beat down on the asphalt parking lot, baking the air thick and heavy. Bartholomew "Bart" Higgins, a man built like a redwood tree with hands calloused from years of gripping steering wheels, stared out the window, his coffee growing cold in front of him. The chrome glint of his Peterbilt 389, christened "Betsy" in faded paint on her side, was barely visible through the shimmering heat haze.  
+
+Bart had been hauling freight across this country for longer than he cared to remember. He knew every twist and turn of Interstate 40 like the back of his hand, each rest stop and truck stop a familiar landmark in his nomadic existence. But today, a restlessness gnawed at him, a yearning for something beyond the endless ribbon of asphalt. It wasn't the job itself; Bart took pride in being a reliable cog in the machine that kept America running.  It was something else, a whisper on the wind, a sense that there was more to life than just hauling cargo from point A to point B. 
+
+As he stirred his coffee, Bart's gaze fell upon a crumpled newspaper clipping tucked into the corner of his wallet. It depicted a dusty desert town, nestled against a backdrop of towering red rock formations. "Sedona," the caption read, "Gateway to Spiritual Enlightenment."  Bart had never been one for spirituality, but something about that image tugged at him, like an unseen hand beckoning him towards the unknown.
+
+

@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Dr. Elias Thorne’s clinic, blurring the already dim streetlights into halos of orange. The air hung heavy with the scent of wet asphalt and woodsmoke, a familiar combination in this forgotten corner of New Orleans. Elias, his salt-and-pepper hair plastered to his forehead, peered out at the storm through a gap in the peeling paint. He sighed, the sound swallowed by the insistent drumming of the rain. Another night where the only patient he’d see was the ghost of regret that haunted his every waking moment.
+
+He turned away from the window and surveyed the cramped space: threadbare furniture, overflowing shelves crammed with dusty medical texts, a rusted sink stained with the patina of countless washes. This wasn't the gleaming operating room he'd once envisioned, but it was all he had left. A testament to his fall from grace. 
+
+The chime above the door tinkled, startling him. He hadn’t heard that sound in weeks.  Elias straightened his rumpled coat and cautiously approached the doorway, a flicker of hope battling with a familiar cynicism. Who would brave this storm, this forgotten street, to seek his help?

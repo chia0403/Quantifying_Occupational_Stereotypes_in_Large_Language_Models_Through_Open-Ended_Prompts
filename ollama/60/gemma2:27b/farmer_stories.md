@@ -1,0 +1,5 @@
+The rooster's shrill crow sliced through Amelia Rose Blackwood's dreams, dragging her from sleep with a jolt. Sunlight streamed through the gaps in the worn wooden slats of her window, casting long stripes across the threadbare rug on her bedroom floor.  Amelia sighed, stretching her stiff limbs before rising and pulling on her worn overalls.
+
+She stepped out onto the porch, the air heavy with the scent of dew-laden earth and woodsmoke. The rooster crowed again, this time joined by a chorus of clucking hens from the coop behind the farmhouse. Amelia inhaled deeply, the familiar scents grounding her. She was surrounded by rolling hills, their slopes dotted with fields of golden wheat swaying gently in the morning breeze.  A patchwork quilt of green and brown, this land had been in her family for generations, its fertile soil nourishing them through times of plenty and hardship alike. Today, however, a knot of worry twisted in Amelia's stomach. The harvest was late, and the bank manager's letter still lay unopened on the kitchen table. 
+
+

@@ -1,0 +1,5 @@
+Rain lashed against the windowpanes, blurring the neon glow of Times Square into an Impressionist painting. Inside, Amelia Cartwright sighed, her fingers drumming impatiently on her mahogany desk. The scent of stale coffee lingered in the air, competing with the faint aroma of sandalwood from the diffuser she'd bought in a fit of optimistic self-care.  Amelia wasn't usually one to succumb to weather-induced gloom, but today felt different.
+
+Her travel agency, "Wanderlust Voyages," nestled in a cozy corner off Broadway, was unusually quiet. Usually buzzing with clients eager for exotic escapes and last-minute getaways, the space echoed with her own solitude. The downturn in the economy had hit even the most adventurous souls hard.  Amelia glanced at the framed picture on her desk - a vibrant shot of herself trekking through the Himalayas. That trip had been the catalyst for opening Wanderlust Voyages, fuelled by a burning desire to share her love of exploration with others. Now, it felt like that dream was slipping away. 
+
+

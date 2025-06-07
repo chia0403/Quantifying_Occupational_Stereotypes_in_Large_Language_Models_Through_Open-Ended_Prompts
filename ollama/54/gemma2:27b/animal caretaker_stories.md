@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the shelter, each drop exploding in a miniature firework of sound. Penelope "Penny" Blackwood sighed, her breath fogging the windowpane she leaned against. The cacophony of barks and meows inside only intensified the feeling of bleakness pressing down on her.  It was a Tuesday, which meant adoption day at Whispering Willows Animal Sanctuary, but with the storm raging outside, Penny doubted anyone would brave the treacherous drive up their winding dirt road.
+
+Whispering Willows wasn't your typical shelter. Nestled in the foothills of the Blue Ridge Mountains, it was a haven for animals deemed "unadoptable" by others - senior pets, those with medical needs, and creatures who simply needed extra time and patience to blossom. Penny, with her kind heart and uncanny ability to understand even the most skittish animal, had poured her soul into making it a safe and loving place. Today, though, she felt the weight of responsibility heavier than usual. The sanctuary was running low on funds, and without adoptions, their future looked uncertain. 
+
+

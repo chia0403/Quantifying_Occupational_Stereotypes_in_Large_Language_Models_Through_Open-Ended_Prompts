@@ -1,0 +1,6 @@
+The air in the cramped drafting room hung heavy with the scent of graphite and stale coffee. Outside, the relentless August sun beat down on the steel roof of the factory, turning the space into a sauna. Elias Finchley squinted at his blueprints, the fluorescent lights casting harsh shadows across the intricate lines and notations. His hand, calloused from years of wielding pencils and rulers, moved with practiced precision as he sketched a revised iteration of a hydraulic pump housing. 
+
+Elias wasn't sure why he'd stayed in this job for so long. It paid the bills, sure, but it felt like his soul was slowly being chipped away by the monotony of lines and angles. He dreamed of something more – of designing buildings that soared towards the heavens, bridges that spanned vast chasms, maybe even a self-sustaining underwater city. But here he was, stuck in this dusty room, drafting pump housings for a company that seemed content churning out the same outdated designs year after year. 
+
+
+He sighed and leaned back in his chair, rubbing his tired eyes. A flicker of movement outside the window caught his attention. A lone figure stood silhouetted against the blinding sun – tall, with broad shoulders and hair the color of burnished copper. Elias felt a sudden pang of curiosity. Who was this stranger, and what were they doing here?

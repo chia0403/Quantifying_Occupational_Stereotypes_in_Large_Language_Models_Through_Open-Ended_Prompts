@@ -1,0 +1,3 @@
+The air hung thick with humidity and the scent of jasmine as Elara Songbird adjusted the microphone stand. The flickering gaslight cast long shadows across the worn wooden stage of The Rusty Lantern, a dimly lit tavern nestled in the heart of Port Azure.  Salt-laced wind whistled through the open doorway, carrying with it the raucous laughter of sailors and the tang of the sea. Elara took a deep breath, steeling herself against the familiar pre-performance jitters. Tonight was different. Tonight, a talent scout from the Grand Opera House in Veritas City was rumoured to be in the audience. This could be her chance - her ticket out of this dusty port town and onto a stage worthy of her voice.  
+
+

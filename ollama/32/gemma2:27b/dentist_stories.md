@@ -1,0 +1,5 @@
+Rain lashed against the dusty windowpanes of Dr. Amelia Blackwood's dental practice, mirroring the turmoil brewing inside her. The once-bustling waiting room was eerily empty, save for a single withered spider plant perched precariously on the reception desk.  Amelia sighed, tracing a finger along the chipped enamel of a molar model she kept on display. Five years ago, this place had hummed with life. Now, the silence was as heavy as the lead apron she wore during X-rays. The quaint seaside town of Oakhaven, once a haven for retirees seeking dental care, seemed to be losing its teeth, figuratively and literally.
+
+Amelia glanced at the clock - 3:15 pm. Not a single patient had walked through the door all day. It was becoming a familiar pattern, one that threatened to unravel her dreams and leave her adrift in a sea of debt. Just beyond the windowpane, the grey Atlantic churned relentlessly, mirroring Amelia's own churning anxieties. Was Oakhaven simply outgrowing its need for her services? Or was there something else at play, a darker secret lurking beneath the town's charming facade? 
+
+

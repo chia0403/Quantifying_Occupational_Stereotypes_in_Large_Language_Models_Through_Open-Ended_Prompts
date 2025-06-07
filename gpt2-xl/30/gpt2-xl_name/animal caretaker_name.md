@@ -1,1 +1,1 @@
-Rufus of the Bazaar
+Rufus

@@ -1,1 +1,1 @@
-John Miller
+John "Dick" Miller

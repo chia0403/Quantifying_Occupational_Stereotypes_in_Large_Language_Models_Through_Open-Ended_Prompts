@@ -1,0 +1,7 @@
+The rain hammered against the warped glass of Amelia Blackwood's office window, each drop exploding in a miniature firework display. The air inside was thick with cigarette smoke and the lingering scent of stale coffee, a perfect olfactory representation of Amelia's current state: frazzled, exhausted, and craving something stronger than caffeine. Outside, the neon glow of the "Lucky Dragon" diner cast an anemic orange light onto the slick asphalt streets of Chinatown, San Francisco.
+
+Amelia Blackwood, a woman whose sharp features were softened only by her wry smile, tapped a nicotine-stained fingernail against a grainy photograph. It showed a young woman with auburn hair cascading down her back, her emerald eyes shimmering with a mixture of defiance and fear. "Missing person," the client's voice echoed in Amelia's mind, gravelly and laced with desperation. "Find my daughter, Miss Blackwood. Please."
+
+The photograph seemed to mock Amelia from its perch on her cluttered desk. Another missing person case, another story etched in heartbreak and longing. But something about this one – the intensity in the young woman's gaze, the strange inscription on the back of the photo – tugged at Amelia's conscience. Maybe it was the relentless rain mirroring the storm brewing inside her, or perhaps it was the flicker of hope she saw in the client's eyes. Whatever it was, Amelia knew she couldn't turn this case away.
+
+

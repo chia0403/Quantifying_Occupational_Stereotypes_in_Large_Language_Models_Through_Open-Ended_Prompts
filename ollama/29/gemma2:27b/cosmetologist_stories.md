@@ -1,0 +1,5 @@
+The air hung thick with the smell of hairspray and lavender shampoo in "Shear Perfection," Esmeralda Cruz's tiny salon nestled between a bustling bakery and a dusty antique store. Sunlight streamed through the front window, illuminating motes of dust dancing around the overflowing magazine rack and casting long shadows from the vintage styling chairs. Esmeralda, her dark curls piled atop her head in a messy bun secured by a glittery pin, was painstakingly crafting an intricate updo for Mrs. Rodriguez, whose silver hair shone under the warm glow of the overhead lamps.  
+
+Today, however, Esmeralda's normally nimble fingers were slow and distracted. The news report she'd caught on the radio that morning about a string of burglaries in the neighborhood had her nerves jangling. Her shop window, usually overflowing with tempting displays of hair products and accessories, now seemed alarmingly vulnerable. A shiver ran down her spine as she imagined the glint of moonlight reflecting off shattered glass. 
+
+

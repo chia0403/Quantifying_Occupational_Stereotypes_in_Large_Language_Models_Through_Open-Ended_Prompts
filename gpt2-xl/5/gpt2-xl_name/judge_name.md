@@ -1,2 +1,1 @@
 John Daughton
-Richard Pos

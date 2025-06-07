@@ -1,0 +1,5 @@
+The air hung thick with the greasy scent of frying onions and desperation. Beatrice "Bea" Alvarez navigated the crowded floor of The Rusty Spatula, dodging elbows and spilled ketchup with practiced ease.  It was a Thursday night, which meant the usual mix: harried families trying to squeeze in a quick meal, college kids drowning their sorrows in cheap beer, and lonely regulars nursing lukewarm coffee and staring wistfully into the flickering glow of the TV mounted above the bar. Bea sighed, her name tag catching on the frayed hem of her apron. Another double shift.  Another night of balancing trays laden with greasy burgers and lukewarm fries while plastering a smile on her face that felt as brittle as stale bread.
+
+Tonight, though, something felt different. A prickle of anticipation danced beneath Bea's weariness. Maybe it was the way the neon sign outside flickered erratically, casting dancing shadows across the booths. Or perhaps it was the unfamiliar hum in the air, a subtle vibration that seemed to thrum through her bones. Whatever it was, Bea couldn't shake the feeling that tonight wouldn't be just another night at The Rusty Spatula. 
+
+

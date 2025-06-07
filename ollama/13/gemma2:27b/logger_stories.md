@@ -1,0 +1,5 @@
+The air hung heavy with the scent of pine needles and damp earth, a symphony only Silas Blackwood truly appreciated.  Dawn was breaking over the Oregon Cascades, painting the towering evergreens in hues of gold and rose. Silas, his weathered face creased in a familiar frown, surveyed the scene before him: a massive Douglas fir, its trunk thicker than any man he'd known, lay ready to be felled. He ran a calloused hand over the rough bark, feeling the lifeblood still pulsing beneath it. A pang of guilt always pricked Silas before these behemoths fell, but necessity was a cruel master, demanding warmth for homes and timber for livelihoods. 
+
+Today, though, something felt different. An unsettling quiet hung in the air, broken only by the distant caw of a raven. The forest, usually alive with the chattering of squirrels and the chirping of birds, held its breath.  Silas shivered, despite the rising sun warming his back. He knew these woods like the back of his hand, their moods as familiar as his own heartbeat. This quiet, this stillness... it felt like a warning. 
+
+

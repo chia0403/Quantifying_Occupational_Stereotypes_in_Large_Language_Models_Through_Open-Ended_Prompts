@@ -1,2 +1,1 @@
 Charlie
-Bernard Hinault

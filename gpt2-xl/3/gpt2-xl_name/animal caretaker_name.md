@@ -1,1 +1,1 @@
-Maggie the Sheep
+Maggie

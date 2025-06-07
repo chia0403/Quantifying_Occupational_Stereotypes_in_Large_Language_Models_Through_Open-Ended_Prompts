@@ -1,0 +1,5 @@
+The humid Charleston air clung to Eliza Winthrop like a damp shawl as she surveyed the grand, but neglected, drawing room. Sunlight, filtered through dusty Venetian blinds, illuminated swirling motes and highlighted faded floral wallpaper peeling at the seams.  Eliza sighed, brushing a stray curl from her forehead. This antebellum mansion, steeped in history and whispering secrets of bygone eras, was her latest challenge: breathe life back into its weary bones. The new owner, a tech millionaire named Alistair Croft, had tasked Eliza with restoring the home's former glory while seamlessly blending modern amenities. It was a delicate dance, one she relished. 
+
+Eliza ran her fingers along the ornate molding, imagining the elegant soirées it had once witnessed. Beneath the layers of dust and neglect, she saw potential: the rich mahogany fireplace begging for a roaring fire, the arched doorways yearning to frame vibrant canvases, the worn floorboards promising to gleam beneath a Persian rug. This wasn't just a renovation; it was a resurrection. 
+
+

@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The aroma of old paper and dust motes dancing in the shafts of morning light was, for Professor Alistair Finch, the most intoxicating scent in the world. He inhaled deeply, a faint smile playing on his lips. It was the smell of knowledge, of forgotten stories whispering from leather-bound spines. He ran a calloused hand along the rows of towering shelves, feeling the silent pulse of history beneath his fingertips. Today, however, the comfort of his usual haven, Room 312 of the university library, felt laced with a knot of unease. He had received the letter yesterday, slipped beneath his office door, and its cryptic contents had been gnawing at him ever since.
+
+**Setting:**
+
+The story opens in Room 312 of the Grimshaw University Library, in the quaint, historic town of Blackwood Glen, Massachusetts. Room 312, Alistair's personal research space, is a cavernous, two-story room filled with floor-to-ceiling bookshelves. The shelves are packed with tomes on ancient languages, forgotten civilizations, and esoteric historical texts. Sunlight streams through tall, arched windows, illuminating dust motes dancing in the air. A large, oak desk sits at the center of the room, piled high with research papers, half-empty teacups, and scattered parchments. The air is thick with the scent of old paper and beeswax polish. The room is a testament to Alistair's life: dedicated to the pursuit of knowledge and steeped in the mysteries of the past.

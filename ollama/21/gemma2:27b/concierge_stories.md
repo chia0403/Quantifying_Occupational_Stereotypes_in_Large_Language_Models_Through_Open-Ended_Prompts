@@ -1,0 +1,7 @@
+The air in The Grand Blackwood Hotel hung heavy with jasmine and regret. Eleanor Beatrice Sinclair adjusted her silver brooch, the intricate raven design catching the dim light filtering through the stained-glass window behind the mahogany reception desk. A sigh escaped her perfectly glossed lips as she surveyed the opulent lobby: a sea of marble, velvet, and gilded extravagance, all populated by guests who seemed perpetually dissatisfied.
+
+Eleanor had been the concierge at The Grand Blackwood for ten years, witnessing countless honeymoons turn sour, business deals collapse, and lost luggage spark existential crises. Tonight was no different. A frazzled couple argued over misplaced room keys while a portly gentleman in a silk dressing gown complained about the temperature of his bathwater. Eleanor navigated these dramas with practiced grace, her smile never faltering, her voice always soothing. Yet, beneath the surface, a longing simmered. She yearned for something more than placating the whims of the privileged; she craved adventure, a story to call her own.
+
+Little did Eleanor know that fate was about to deliver just that, arriving in the form of a mysterious telegram tucked discreetly under the ornate clock on the wall. It read simply: "Midnight. Rose Garden. Urgent."  The anonymous sender and cryptic message ignited a spark of curiosity within Eleanor, threatening to break free from the gilded cage she'd built around herself. 
+
+

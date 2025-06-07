@@ -1,0 +1,4 @@
+The humid Georgia air hung heavy, thick with the scent of magnolia blossoms and something else, something metallic and sharp that Amelia Carmichael couldn't quite place. It clung to her scrubs as she hurried through the double doors of Grady Memorial Hospital, her worn sneakers squeaking on the linoleum floor. The fluorescent lights hummed overhead, casting a sterile glow on the harried faces around her. A gurney zipped past, its occupant veiled in white sheets, sirens wailing faintly from somewhere deeper within the labyrinthine hospital. Amelia took a deep breath, trying to quell the flutter of anxiety in her chest. Today was her first solo shift as a Physician Assistant in the ER, and the weight of responsibility pressed down on her like the oppressive Georgia heat.
+
+
+Let me know if you'd like me to continue the story! 

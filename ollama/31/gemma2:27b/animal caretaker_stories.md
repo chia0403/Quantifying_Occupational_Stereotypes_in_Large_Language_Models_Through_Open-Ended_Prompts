@@ -1,0 +1,7 @@
+The pungent aroma of disinfectant mingled with the earthy scent of cedar shavings as Esmeralda "Esme" Diaz surveyed her domain.  Sunrise spilled through the dusty windows of the Redwood Creek Wildlife Rehabilitation Center, painting the rows of cages in shades of orange and gold. Outside, the insistent chirping of sparrows vying for territory provided a lively soundtrack to the day's beginnings. 
+
+Esme inhaled deeply, the familiar smells grounding her. Today was feeding day for the orphaned raccoons, always a chaotic but endearing affair. She loved their playful antics, even if it meant getting sprayed with eau de raccoon more often than she liked.  But this wasn't just any feeding day. Today marked the arrival of a new patient - an injured owl with a wing too broken to fly. Esme couldn't help but feel a surge of nervous excitement; owls were her favorite, their silent grace and piercing gaze always captivating her. 
+
+She adjusted the brim of her faded baseball cap, its inscription reading "Save the Wild Ones," and set about her morning routine. First, the injured squirrels, then the baby opossums, followed by the grumpy but charming family of skunks who resided in a spacious enclosure near the back. As she moved through the center, she couldn't shake the feeling that today would be different - that this new patient held something special, a chance to make a real difference. 
+
+

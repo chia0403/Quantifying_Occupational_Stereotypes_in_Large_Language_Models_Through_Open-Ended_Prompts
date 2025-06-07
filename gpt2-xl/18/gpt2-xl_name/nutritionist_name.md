@@ -1,1 +1,1 @@
-T. Colin Campbell
+Dr. T. Colin Campbell

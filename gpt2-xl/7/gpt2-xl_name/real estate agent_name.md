@@ -1,3 +1,1 @@
 Jack Triggers
-Paul
-Rosemary

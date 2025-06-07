@@ -1,2 +1,1 @@
 Fred Flattery
-Joe McNeil

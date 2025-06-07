@@ -1,0 +1,9 @@
+Rain lashed against the greenhouse roof like angry fingers drumming on glass.  Inside, Amelia Hawthorne was battling her own inner storm - one that had nothing to do with the weather outside. The usual soothing symphony of water cascading from the orchids' heavy leaves was drowned out by the incessant ticking of the grandfather clock in the corner. Each tick seemed a sharp stab at Amelia's chest. 
+
+Amelia was known for her vibrant, intricate floral arrangements.  She could coax life out of wilted blooms and transform their withered stems into masterpieces that brought joy to even the most stoic soul. But lately, she hadn't been able to focus on any creation, not even the elaborate arrangement she’d begun for Mrs. Hemmingsford’s 80th birthday. Every detail - from the single ruby red poppy nestled among the lilies to the delicate green ivy spiraling up a vintage glass vase – felt like an eternity away. All that was left in her heart was a gnawing emptiness, and it felt as if it were bleeding into every petal she touched. 
+
+It had been two months since William's death.  His sudden passing had ripped through Amelia's life like a rogue windstorm, leaving her shattered and adrift. The familiar hum of the shop, usually an anchor in the tumultuous sea of grief, felt distant and almost painful. Her own vibrant floral magic seemed to be struggling against the dull grey clouds that threatened to consume her. 
+
+And then there was Mrs. Hemmingsford.  She had always been a fixture in Amelia's life, a beacon of light amidst the dark corners of sadness she often found herself stumbling into. But now, even the prospect of creating an arrangement for Mrs. Hemmingsford felt like standing on a precipice and peering down into an abyss.   
+
+The ticking continued.  With every heartbeat, Amelia was reminded: The storm wasn't about to subside. 

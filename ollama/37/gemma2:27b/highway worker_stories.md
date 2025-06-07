@@ -1,0 +1,7 @@
+The sun beat down on Elias "Eli" Blackwood's neck, turning his collar red despite the thick layer of sunscreen slathered across it. Sweat stung his eyes, blurring the shimmering asphalt ahead. A chorus of cicadas thrummed from the scrubby brush lining the highway shoulder, a relentless soundtrack to Eli's unending task. He hefted the heavy jackhammer, its pneumatic hiss drowning out even the insects as it chewed through the cracked concrete. 
+
+This stretch of Interstate 15 had seen better days. Years of blistering sun and punishing desert winds had left it a fractured wasteland. Eli's crew was tasked with replacing a mile-long section, a Sisyphean task that felt like trying to tame the unforgiving Mojave itself. The endless blue sky pressed down on him, mirroring the vastness of the work ahead. But Eli wasn’t one to complain. He knew this road was a lifeline for countless travelers, a ribbon connecting distant towns and dreams. And he, along with his fellow asphalt warriors, were making sure those dreams wouldn't crumble.
+
+ Today, however, something felt different. A prickling sensation at the back of Eli's neck told him it wasn't just the heat. He glanced around, but nothing seemed out of place – just the endless highway stretching towards the hazy horizon, and his crew rhythmically chipping away at the road. Yet, he couldn’t shake off the feeling that something was watching him from the scrub beyond the guardrail…
+
+

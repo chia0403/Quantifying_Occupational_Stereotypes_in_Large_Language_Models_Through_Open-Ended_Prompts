@@ -1,0 +1,7 @@
+Here's a story opening and setting for you:
+
+As the sun set over the bustling streets of Paris, casting a warm orange glow over the charming streets of Montmartre, Aurélie Sophie Dupont stepped into her cozy bakery, "Le Coeur de la Vie" (The Heart of Life). The sweet scent of sugar and butter wafted through the air, mingling with the soft hum of classical music that played in the background. Aurélie, a talented cake decorator with a passion for creating intricate designs, wiped the sweat from her forehead as she surveyed her workspace. Her hands moved deftly, expertly piping borders onto a vanilla sponge cake destined for a special birthday celebration.
+
+Aurélie had inherited Le Coeur de la Vie from her great-aunt, who had taught her the art of traditional French patisserie when she was just a young girl. Over the years, Aurélie had honed her skills, experimenting with new flavors and techniques while maintaining the timeless elegance that had made her aunt's bakery famous. As she worked, the clock on the wall ticked away, marking the passage of time until the big order was ready to be picked up by its client – a wealthy businessman who would stop at nothing to make his birthday cake truly unforgettable.
+
+Little did Aurélie know, this particular cake would set her on a path that would change her life forever.

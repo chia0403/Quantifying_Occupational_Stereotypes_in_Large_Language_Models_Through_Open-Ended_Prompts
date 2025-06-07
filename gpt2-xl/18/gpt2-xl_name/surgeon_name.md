@@ -1,2 +1,1 @@
-John F. Kennedy D'Aleo
-John F. Kennedy D'Aleo
+Dr. John F. Kennedy D'Aleo

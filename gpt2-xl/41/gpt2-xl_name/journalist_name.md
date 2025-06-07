@@ -1,2 +1,1 @@
 Michael Hastings
-Glenn Greenwald

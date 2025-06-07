@@ -1,0 +1,8 @@
+Rain lashed against the grimy windows of Dr. Eleanor Vance’s makeshift clinic, blurring the already-dim streetlamps into hazy halos.  The air hung heavy with the stench of fish and decay, a constant reminder of the ramshackle docks that bordered her tiny corner of Port Royal. Eleanor sighed, her breath fogging the cracked glass pane as she stared out at the tempestuous sea. The storm was mirroring the chaos brewing within her.
+
+Her clinic, tucked away in a forgotten alley between a boisterous tavern and a crumbling apothecary, was usually overflowing with the city’s less fortunate souls – dockworkers with mangled fingers, sailors stricken with fever, children coughing up blood. But tonight, it was eerily silent. The storm had kept even the most desperate huddled indoors, leaving Eleanor alone with her anxieties.
+
+The letter clutched in her hand felt like a brand, searing through her gloves. It bore the unmistakable seal of the Royal Medical Society, summoning her to the grand city of Whitehall.  They'd finally caught wind of her unorthodox healing practices – the poultices made from swamp herbs, the bone-setting techniques passed down from her grandmother, the whispered rumours of cures deemed impossible by "proper" physicians. 
+
+
+Eleanor knew this summons could be her undoing. She could face censure, expulsion, perhaps even imprisonment. Yet, a flicker of defiance ignited within her. The letter was not an indictment, but an opportunity – a chance to prove that her methods, born from necessity and honed through years of tireless service, were not mere quackery, but a valid form of healing. 

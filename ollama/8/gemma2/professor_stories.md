@@ -1,0 +1,6 @@
+The air in Professor Amelia Hawthorne's office hung thick with the scent of old paper and pipe tobacco. Dust motes danced in the weak afternoon sunlight that slanted through the grimy windows, illuminating swirling patterns on the antique globe that dominated one corner. The walls were lined floor to ceiling with books, their spines faded and cracked, testament to years of dedicated study and countless hours spent poring over forgotten lore. 
+
+Amelia sat at her desk, a worn leather monstrosity inherited from her grandfather, the previous Professor of Mythological Studies at the esteemed Blackwood University. Her fingers, gnarled with age but still surprisingly nimble, tapped impatiently against the antique brass letter opener resting beside a stack of yellowed parchments.  A telegram lay on top, its message stark and unsettling: "Seek the Crimson Codex. Time is short." 
+
+
+Amelia knew this wasn't just another crank letter from an enthusiastic student. This was different. A chill snaked down her spine, prickling at the hairs on the back of her neck. The cryptic warning felt like a whisper from the past, echoing through generations and calling to her, beckoning her into a world she thought long forgotten.

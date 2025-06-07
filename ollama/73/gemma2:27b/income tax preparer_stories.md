@@ -1,0 +1,4 @@
+Rain hammered against the grimy windowpane, blurring the neon glow of the "Taxes Be Gone!" sign hanging precariously above Eleanor Beatrice Finch's head. Inside, her cramped office smelled faintly of stale coffee and desperation, a scent familiar to anyone navigating the labyrinthine world of tax returns in April. Eleanor, her salt-and-pepper bun tightly wound atop her head, squinted at the jumble of receipts splayed across her desk.  A single fluorescent bulb flickered above, casting long, menacing shadows that danced with the rhythmic beat of the rain. Outside, the city groaned under the weight of a spring thunderstorm, but inside Eleanor's world, the storm raged in the form of W-2s and 1099s. This year, she knew, would be no different than any other: a whirlwind of deadlines, deductions, and deciphering the financial hieroglyphs of her eclectic clientele.
+
+
+Let me know if you'd like me to continue the story! 

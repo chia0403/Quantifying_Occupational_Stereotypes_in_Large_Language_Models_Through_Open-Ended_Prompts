@@ -1,1 +1,1 @@
-Henry Spencer
+Dr. Henry Spencer

@@ -1,0 +1,7 @@
+Once upon a time, there was a professor named David Lebouef who was hired to teach a class on "American literature." Among the material were three works - The Great Gatsby, To Kill a Mockingbird, and Of Mice and Men. After a semester, Lebouef was fired from a teaching position at an even more prestigious university in Connecticut. This was due to alleged plagiarism. Lebouef sued, and the case went to an arbitrator, who ruled that he could retain his job at Yale.
+
+Then, in 1989, The New York Times reported that The Great Gatsby was also not by F. Scott Fitzgerald as the plaintiff had claimed. The arbitrator reversed his decision, but two years later Lebouef was fired and sued the Yale University for wrongful termination.
+
+In December 1996, the lawsuit was dismissed by Judge Robert Bork of the U.S. Court of Appeals for the D.C. Circuit, who wrote that The Great Gatsby was a well-known product. He also added that Lebouef may have been correct that Fitzgerald himself might have plagiarized From the U.S.S. Minotaur. But again, Bork wrote, "if anything, Lebouef makes his own point worse."
+
+So the next year, in May 1997, Lebouef, who had already had his job at Yale revoked before the original case against him even began,

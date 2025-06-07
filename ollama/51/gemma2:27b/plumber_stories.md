@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of Bartholomew "Bart" Higgins' rusty van, each drop echoing like a miniature explosion in the already cramped space. The air inside was thick with the scent of mildew, old coffee, and something vaguely metallic – Bart suspected it was the lingering aroma of his latest plumbing triumph: a corroded pipe he'd wrestled into submission beneath an elderly lady's sink. He sighed, running a calloused hand through his damp, ginger hair. The downpour showed no sign of relenting, and Bart knew this meant another late night.
+
+He squinted at the address scribbled on a greasy napkin – 13 Grimstone Lane. It sounded ominous enough.  Grimstone Lane was notorious in Oakhaven for its crumbling Victorian houses, overgrown gardens, and peculiar inhabitants. Bart had heard whispers of strange lights flickering in attic windows and disembodied voices echoing through the mist-shrouded streets. He wasn't easily spooked, but a shiver ran down his spine nonetheless.
+
+

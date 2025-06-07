@@ -1,0 +1,9 @@
+**Story Opening:**
+
+The morning sun spilled golden light across the cobbled streets of Willow Creek, waking the quaint town from its slumber. Shopkeepers opened their doors with the familiar jingle of bells, and the scent of freshly brewed coffee curled invitingly out of local cafés. But it was the fragrant allure of Anabelle Iris’s flower shop, "Petal & Bloom," that captured the heart of the town. Nestled between a charming bookshop and a cozy bakery, the shop was adorned with a riot of colors—vivid bouquets and lush greenery spilled from pots and vases, as butterflies flitted through the air with lazy grace.
+
+**Setting:**
+
+Anabelle Iris, a whimsical florist with a passion for all things botanical, stood behind the rustic wooden counter, her hands delicately arranging a bunch of peonies and lilacs. Her bright green apron was speckled with bits of soil; the sleeves of her white shirt were rolled up, revealing slender wrists that danced expertly with each blossom she tucked into place. The scent of earth mingled with sweetness, wrapping around her like a warm embrace as she hummed softly to herself.
+
+The walls of Petal & Bloom were painted a soft, pastel yellow, adorned with framed photographs of different flower varieties she had grown and nurtured over the years. An antique mirror, a treasure from her grandmother, hung behind her, reflecting the overstuffed armchair in the corner—a favorite spot for her regulars to sip tea and chat. Today, the bells above the door jingled with a familiar chime, and Anabelle looked up, her emerald eyes shimmering with anticipation. Little did she know, this ordinary morning would unfurl into a bouquet of unexpected adventures, and the simple act of arranging flowers would lead her to the heart of a mystery she never saw coming.

@@ -1,3 +1,1 @@
-Martin Luther King Jr.
-James J. Watson
-Sidney Lewis
+Dr. Martin Luther King Jr.

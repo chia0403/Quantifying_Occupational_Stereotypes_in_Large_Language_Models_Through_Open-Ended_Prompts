@@ -1,0 +1,5 @@
+The air in "Nails by Natalia" was thick with the scent of acetone and lavender, a strangely soothing combination. Sunlight streamed through the large window onto Natalia Petrova's nimble fingers as she expertly sculpted a client's acrylic nails into delicate almond shapes. Outside, the Miami heat shimmered off Biscayne Bay, but inside, the rhythmic hum of the electric file and Natalia's soft Russian accent created a haven of calm. 
+
+Natalia wasn't just good at manicures; she was an artist. Each nail she touched became a miniature canvas, adorned with intricate designs, shimmering embellishments, and vibrant colours that mirrored her clients' personalities. Today, however, something felt different. A knot of unease twisted in Natalia's stomach as a woman she'd never seen before walked through the door. Her face was obscured by a wide-brimmed hat, and a long, dark coat concealed her figure even in the sweltering heat.  Something about her sharp gaze and the way she clutched a small, worn leather bag made Natalia instinctively reach for the pepper spray hidden beneath the counter.
+
+

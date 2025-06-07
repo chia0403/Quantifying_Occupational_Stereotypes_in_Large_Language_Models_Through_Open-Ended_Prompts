@@ -1,0 +1,6 @@
+Rain lashed against the windows of Dr. Elias Thorne's office, mimicking the tempest brewing inside him. The plush leather armchair across from his mahogany desk sat vacant, a stark reminder of the appointment he'd just cancelled. For fifteen years, Elias had prided himself on being a beacon of calm in the storm for his patients. He dissected their anxieties, untangled their emotional knots, and helped them find their way back to the light. But today, the storm raged within him, threatening to extinguish the very flame he nurtured in others. 
+
+The news had arrived like a rogue wave, crashing down on his carefully constructed life. His wife, Amelia, the woman who'd been his anchor for two decades, was gone. A sudden illness, they said. A cruel twist of fate that left him stranded on a desolate shore of grief.  
+
+
+Elias stared out at the rain-soaked cityscape, the twinkling lights blurring into an abstract painting of despair. He had always believed himself prepared for anything life threw his way. Yet, this blow had shattered his composure, leaving him adrift in a sea of unfamiliar emotions. Could he, the man who guided others through their darkest hours, find his own way back to the light? 

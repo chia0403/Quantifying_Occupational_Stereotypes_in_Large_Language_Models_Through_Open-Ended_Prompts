@@ -1,2 +1,1 @@
 Steven Spielberg
-John Landis

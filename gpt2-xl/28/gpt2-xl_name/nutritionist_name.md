@@ -1,1 +1,1 @@
-Richard Bernstein
+Dr. Richard Bernstein

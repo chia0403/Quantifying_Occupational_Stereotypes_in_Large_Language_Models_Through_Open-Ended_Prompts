@@ -1,0 +1,4 @@
+The sun beat down on Elias "Eli" Ramirez's neck as he wrestled with a stubborn length of rebar. Sweat stung his eyes, but he didn't dare wipe it away; not with these calloused hands. One slip and the steel would bite into his skin, drawing blood faster than his first aid kit could patch him up. The air hung heavy with the scent of concrete dust and ozone, a familiar cocktail for anyone working on this behemoth of a skyscraper. Eli squinted at the towering structure, its skeletal frame reaching towards the hazy blue sky like a steel titan yearning to touch the heavens. 
+
+
+He wasn't one for lofty metaphors; he was just trying to get through another day, another paycheck, another step closer to fixing up his abuela's leaky roof. But today felt different. A strange energy crackled in the air, making the hairs on the back of Eli's neck stand on end. Maybe it was just the heat playing tricks on him. Or maybe... something else entirely. 

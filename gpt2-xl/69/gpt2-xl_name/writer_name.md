@@ -1,2 +1,1 @@
 John Gardner
-John Steinbeck

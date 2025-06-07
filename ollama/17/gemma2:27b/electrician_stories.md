@@ -1,0 +1,5 @@
+The air in the abandoned warehouse hung thick with dust motes dancing in the feeble shafts of sunlight piercing through grimy skylights.  Every footstep Elijah "Eli" Carter took echoed ominously off the concrete floor, the silence punctuated by the occasional drip from a rusted pipe overhead. He adjusted the heavy toolbox slung over his shoulder, its weight familiar and comforting. Eli wasn't one for fancy jobs - sleek office buildings or glittering mansions didn't appeal to him.  He preferred the grit, the challenge of bringing life back into forgotten spaces like this dilapidated warehouse.
+
+Today's job was a peculiar one. A cryptic message from an anonymous client simply stated: "Restore power, 3rd floor, southwest corner. No questions asked." Eli wasn't usually one to pry, but something about the secrecy and the ominous location - this place had whispers of a dark past - made his pulse quicken. He hefted his toolbox higher, a shiver running down his spine as he ascended the creaking metal staircase leading to the third floor. 
+
+

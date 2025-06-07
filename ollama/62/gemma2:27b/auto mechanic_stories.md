@@ -1,0 +1,6 @@
+Grease stained his fingertips, etched lines into the calloused skin like tiny rivers carving through granite. Elias "Eli" Thorne tightened the last bolt on the carburetor with a grunt, wiping sweat from his brow with the back of his hand. The midday sun hammered down onto the corrugated roof of Eli's Auto Repair, a symphony of clangs and whirs echoing from the open bay doors. 
+
+The air hung thick with the scent of motor oil and gasoline, punctuated by the acrid tang of burnt rubber. Eli's garage wasn't much to look at - a squat brick building nestled on the edge of Rust Creek, a town swallowed whole by the rusting tendrils of forgotten industry. But within its walls lay a world of intricate machinery, where Eli's hands could coax life back into sputtering engines and mend broken dreams on wheels. 
+
+
+Today, however, Eli wasn't wrestling with a temperamental engine. He was facing a different kind of beast - a hulking figure in a worn leather jacket, whose steely gaze held the promise of trouble. The man had arrived just as Eli was finishing up a '67 Mustang, its cherry red paint gleaming under the harsh sun. Now, he stood impatiently tapping his foot, a greasy wrench clutched in his hand like a weapon. 

@@ -1,0 +1,5 @@
+The Grand Blackwood Hotel hummed with the ceaseless symphony of travel. Suitcases thumped on marble floors, laughter spilled from the opulent ballroom, and whispers of deals done and romances kindled drifted through the air thick with perfume and cigar smoke. Elias Bartholomew Croft III, or "Bart" as everyone called him, weaved through this human tide with practiced ease.  His bellhop uniform, crisp and navy blue, held a reassuring weight against his lean frame. Beneath the neatly pressed cap, Bart's brow furrowed in concentration. He wasn't just moving luggage; he was deciphering the subtle anxieties etched on faces, anticipating needs before they were voiced.  
+
+Today, however, a new arrival had thrown him off his game. A woman, cloaked in shadows and a veil of emerald silk, emerged from a black limousine as silent and enigmatic as a sphinx. Her eyes, the colour of a stormy sea, met Bart's for a fleeting moment before she vanished into the hotel, leaving behind a whisper of jasmine and an unsettling curiosity that gnawed at him. 
+
+

@@ -1,2 +1,1 @@
-Lucky
 The Big Server

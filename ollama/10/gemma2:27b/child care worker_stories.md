@@ -1,0 +1,5 @@
+The stale smell of Cheerios and desperation clung to Amelia Rose Thompson like perfume. It was 7:45 am, barely past breakfast but already chaos reigned in the Sunshine Room at Little Wonders Daycare. Three-year-old Leo was wailing because his "dino truck" had gone missing (probably wedged under a bookshelf), while six-month-old Lily was performing her own brand of operatic screaming from her bouncy chair. Amelia sighed, expertly navigating around a scattering of Legos and stray crayons as she scooped up Lily, bouncing her gently against her hip. 
+
+Little Wonders, nestled in a bustling suburban neighborhood, wasn't exactly glamorous. The paint on the walls was chipped, the carpet perpetually sticky, and the toy bin smelled faintly of vomit. But for Amelia, it was her haven. She loved the messy chaos, the endless stream of giggles, the chance to make even the smallest difference in these tiny lives. Today, though, she felt a knot of anxiety tightening in her stomach. Something wasn't right. It had been simmering beneath the surface all week, an unsettling feeling she couldn't quite place.
+
+

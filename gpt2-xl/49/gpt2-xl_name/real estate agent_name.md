@@ -1,2 +1,1 @@
-X
-John Saller
+Mr. X

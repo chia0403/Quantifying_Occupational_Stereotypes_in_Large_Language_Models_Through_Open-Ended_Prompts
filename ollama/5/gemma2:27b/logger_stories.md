@@ -1,0 +1,5 @@
+The air hung thick with pine sap and woodsmoke, clinging to Elijah "Eli" Blackwood's beard like a second skin. Dawn was just beginning to bleed through the towering redwoods, casting long shadows across the clearing where Eli stood sharpening his chainsaw. The rhythmic rasp of metal on stone echoed in the stillness, punctuated only by the occasional caw of a raven circling overhead. He worked with practiced ease, his calloused hands moving with a familiarity born from years spent wrestling giants of the forest.  Today's task: felling a gargantuan Douglas Fir, its crown brushing against the clouds and its trunk wider than Eli's cabin. It was a behemoth, a king amongst trees, but for Eli, it was just another day's work. He inhaled deeply, the crisp air filling his lungs with a sense of quiet purpose.
+
+Today, however, something felt different. A prickle of unease ran down Eli's spine as he surveyed the ancient woods around him. The usual symphony of birdsong seemed muted, replaced by an unsettling silence broken only by the drip-drip of melting frost. He shook his head, attributing it to pre-dawn fatigue. Still, a sliver of doubt lingered in his mind. 
+
+

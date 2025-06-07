@@ -1,2 +1,1 @@
 Elizabeth R. Thomas
-Elizabeth

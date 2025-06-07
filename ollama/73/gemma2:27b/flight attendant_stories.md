@@ -1,0 +1,5 @@
+The stale air hung heavy in the galley, thick with the scent of reheated coffee and anxiety. Amelia Rose Davenport gripped the metal handle of a trolley overflowing with miniature bottles of liquor and sighed. Outside, somewhere beyond the thin aluminum walls of the Boeing 747, a storm raged. Lightning cracked through the bruised sky, illuminating the endless ocean below for fleeting moments.  Amelia could feel the plane shuddering under the force of the wind, the rhythmic hum of the engines struggling against the gale. It wasn't unusual for transatlantic flights to encounter turbulence, but this felt different. This felt ominous. 
+
+She glanced at her reflection in the polished stainless steel of the trolley: a tired smile plastered on her face, blonde hair escaping its meticulously braided bun. Amelia forced herself to straighten her uniform and smooth out the wrinkles. Passengers needed reassurance, not a frazzled flight attendant. But beneath the practiced calm, Amelia couldn't shake the unsettling feeling that something was terribly wrong.
+
+

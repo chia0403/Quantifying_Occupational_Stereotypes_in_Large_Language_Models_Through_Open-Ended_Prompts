@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Dr. Elias Thorne's laboratory, blurring the neon glow of the city skyline beyond. The relentless drumming echoed the insistent throb in Elias's temple, fueled by three days of caffeine and frustration. Spread out on his workbench, amidst tangled wires and half-eaten takeout containers, lay the heart of the problem – a shimmering orb pulsating with an otherworldly light. It had arrived weeks ago, nestled within the debris field of a meteor shower, radiating an energy signature unlike anything he'd encountered in his twenty years studying astrophysics. Now, it pulsed erratically, threatening to overload the containment field Elias had painstakingly constructed around it. 
+
+Elias ran a trembling hand through his already dishevelled hair. He knew the risks. The scientific community scoffed at his theories – that this orb wasn't just an unusual celestial body but a conduit to another dimension. But Elias was convinced.  Tonight, he would finally prove them wrong. Or perhaps, tonight, he would pay the ultimate price for his convictions. 
+
+

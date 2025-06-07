@@ -1,0 +1,5 @@
+The Nevada desert shimmered under the merciless sun, turning the endless asphalt into a rippling mirage.  Dust devils danced on the horizon, swirling red sand like phantom ballerinas. The air hung heavy, thick with the scent of sagebrush and exhaust fumes. This was Reginald "Red" McAlister's domain – a lonely stretch of highway 93 where his eighteen-wheeler, christened "The Iron Duchess," rumbled along like a mechanical beast. Red squinted at the shimmering road ahead, his weathered face etched with lines as deep as the canyons flanking him. He chewed on a toothpick, the only sound louder than the steady purr of the engine. Today's haul was a load of fresh produce heading from Reno to Las Vegas – a far cry from the heavy machinery he used to transport back in his younger days. 
+
+But Red wasn't complaining. The open road, the freedom it offered, that was all he needed. He glanced at the faded picture dangling from the rearview mirror – a young woman with laughing eyes and auburn hair, clutching a worn teddy bear. His daughter, Lily. She was the reason he kept going, the reason he pushed through exhaustion and loneliness. 
+
+

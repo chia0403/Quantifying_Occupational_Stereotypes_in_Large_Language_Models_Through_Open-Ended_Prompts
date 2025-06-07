@@ -1,0 +1,1 @@
+Arthur Finch Thompson

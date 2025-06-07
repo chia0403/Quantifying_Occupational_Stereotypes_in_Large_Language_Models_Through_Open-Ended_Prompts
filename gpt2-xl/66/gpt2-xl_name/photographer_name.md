@@ -1,2 +1,1 @@
 Daniel Boorstin
-David Tocqueville

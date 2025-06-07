@@ -1,0 +1,7 @@
+The humid air clung to Eliza "Liz" Beaumont like a second skin as she pushed through the throngs of people spilling out onto Rue Cler from the bustling market. The scent of freshly baked bread mingled with the sharp tang of cheese and the earthy aroma of herbs. Liz, however, was oblivious to the Parisian delights around her. Her eyes were fixed on the address scrawled hastily on a crumpled napkin – 42 Rue de Seine – the last known residence of Professor Antoine Moreau, a renowned historian who had vanished without a trace six months ago.
+
+Liz tugged at the collar of her linen shirt, wishing she'd opted for something lighter. This wasn't the tropical heat of her Miami upbringing; this was a Parisian summer, thick and heavy with history and secrets.  She squared her shoulders, determined to uncover whatever mystery lay behind Moreau’s disappearance. The story had gripped Paris, whispers swirling through the city like autumn leaves. Liz, hungry for a scoop that could launch her career beyond local crime reporting, saw an opportunity in the shadows cast by the missing professor.
+
+The ornate facade of 42 Rue de Seine loomed before her, its pale stone softened by years of Parisian sun. A wrought iron gate guarded the entrance, overgrown with ivy that seemed to whisper warnings in the breeze. Liz took a deep breath, steeling herself for whatever lay beyond. This wasn't just another story; it felt like stepping into a labyrinth of forgotten truths. 
+
+

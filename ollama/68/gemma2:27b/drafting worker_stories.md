@@ -1,0 +1,5 @@
+Rain lashed against the grime-coated windows of the drafting room, blurring the city lights beyond into an impressionistic watercolour. The steady thrum of the old ventilation system, wheezing like a chain smoker with emphysema, competed with the rhythmic tapping of Elias Finch's mechanical pencil against his drawing board.  Elias, a man whose age was perpetually somewhere between thirty and forty thanks to the perpetual dimness of the drafting room, squinted at the intricate blueprints spread before him. 
+
+The air hung heavy with the smell of stale coffee and graphite, punctuated by the occasional whiff of ozone from the sputtering photocopier in the corner. Stacks of rolled-up blueprints leaned precariously against the walls, forming a silent testament to years of forgotten projects and unrealized dreams. Elias sighed, rubbing his weary eyes. He was staring down the barrel of another all-nighter. This latest commission – designing a retractable roof for the new opera house - was proving more challenging than anticipated. 
+
+

@@ -1,2 +1,1 @@
 Mike Leigh
-Quentin Tarantino

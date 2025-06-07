@@ -1,0 +1,4 @@
+Rain lashed against the grimy windows of Davis & Thorne, blurring the neon glow of the liquor store across the street. Eleanor Davies, her chin resting on a stack of case files that threatened to topple, sighed and swiveled in her creaky chair. The air hung heavy with the scent of stale coffee and desperation. Another Thursday night at the legal sweatshop, where dreams went to die beneath fluorescent lights and mountains of paperwork. 
+
+
+Eleanor tapped a manicured nail against a file labeled "The Blackwood Estate." A seemingly straightforward probate case, it had somehow morphed into a tangled web of family secrets, hidden assets, and whispered accusations. The deceased, Cornelius Blackwood, was a reclusive millionaire who'd left behind a trail of fractured relationships and unanswered questions. Eleanor couldn’t shake the feeling that something wasn't quite right, a disharmony lurking beneath the surface of the case. 

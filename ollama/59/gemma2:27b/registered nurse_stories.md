@@ -1,0 +1,5 @@
+Rain lashed against the windows of Mercy Hospital, blurring the cityscape beyond into an impressionist painting of grays and yellows. Inside, the air hung heavy with disinfectant and the muted hum of machinery.  Eleanor Rose Cartwright, her auburn hair pulled back tight in a bun, tapped her pen nervously on the nurses' station counter. She checked the clock for the tenth time – 3:17 am. Another quiet night on the cardiac floor.
+
+Eleanor was known for her calm demeanor and steady hands, qualities honed during years of navigating the unpredictable world of emergency medicine before transitioning to this quieter ward. But tonight, a gnawing unease settled in her stomach. It wasn't the storm, nor the usual pre-dawn lull; it was a feeling, an intuition that something was about to shift.  As she glanced down the hallway towards Mr. Henderson’s room – his rhythmic beeping monitor a constant reassurance – Eleanor couldn't shake the feeling that the night held more than just rain and silence. 
+
+

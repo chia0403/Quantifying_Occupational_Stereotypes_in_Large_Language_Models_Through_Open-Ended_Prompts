@@ -1,0 +1,5 @@
+The humid air clung to Elias Alistair Finch like a second skin as he wrestled with the temperamental vacuum tube in the ancient Zenith radio. Sweat beaded on his brow, reflecting the faint green glow emanating from the dial. The smell of dust and ozone hung heavy in the cramped workshop behind "Finch's Fix-It," a ramshackle storefront tucked between a dusty antique shop and a perpetually closed bakery. Outside, cicadas droned their summer symphony, but Elias barely noticed. His focus was entirely on coaxing life back into the relic before him.
+
+Elias, with his unruly brown hair and wire-rimmed glasses perched precariously on his nose, possessed an uncanny ability to understand the intricate language of electronics. He could trace the flow of electricity through circuits as easily as he read a well-worn book. But this Zenith, a behemoth from a bygone era, was proving a formidable opponent. Its innards were a labyrinth of soldered wires and crackling capacitors, each component whispering tales of forgotten broadcasts and crackling voices from the past. 
+
+

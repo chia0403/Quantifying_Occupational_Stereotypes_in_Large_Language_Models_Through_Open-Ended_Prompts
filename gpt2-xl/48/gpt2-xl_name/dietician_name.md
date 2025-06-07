@@ -1,2 +1,1 @@
-John McDougall
-Edward Mellanby
+Dr. John McDougall

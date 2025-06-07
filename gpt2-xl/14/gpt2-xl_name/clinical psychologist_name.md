@@ -1,1 +1,1 @@
-William J. Bennett
+Dr. William J. Bennett

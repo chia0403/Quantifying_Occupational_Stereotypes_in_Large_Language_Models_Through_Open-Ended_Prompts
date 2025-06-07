@@ -1,0 +1,5 @@
+The aroma of jasmine and cardamom hung heavy in the air, battling for supremacy with the faint scent of chlorine wafting up from the infinity pool below.  Amelia "Amy" Beaumont smoothed down her crisp white uniform, the gold Concierge badge glinting on its breast pocket. The late afternoon sun cast long shadows across the opulent marble lobby of The Obsidian Spire, casting a shimmering halo around the cascading crystal chandelier overhead. 
+
+This wasn't just any hotel; it was a beacon for the ultra-wealthy, nestled precariously on the edge of a volcanic caldera overlooking the sapphire waters of Santorini. Amy prided herself on knowing every guest by name, anticipating their needs before they even uttered them. Yet today, she felt a knot of unease in her stomach, an instinctive shiver that something was amiss. The lobby buzzed with its usual frenetic energy – the clinking of champagne glasses, hushed conversations in languages she couldn't decipher, the rhythmic whirring of the espresso machine – but underneath it all, Amy sensed a palpable tension, a discordant note in the symphony of luxury. 
+
+

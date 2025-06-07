@@ -1,2 +1,1 @@
 John Mackey
-Sam Kass

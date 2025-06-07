@@ -1,0 +1,5 @@
+The acrid smell of burnt coffee and desperation hung heavy in the air of "Deals & Dreams," a used car lot that looked like it hadn't seen a fresh coat of paint since the Reagan administration.  A lone pigeon strutted across the cracked asphalt, pecking listlessly at a discarded candy wrapper. Beatrice "Bea" Holloway adjusted her too-bright pink blouse and sighed. This was not how she envisioned her life after graduating top of her class in Business Administration. Yet here she was, peddling beat-up jalopies to unsuspecting customers, praying for a miracle that would whisk her away from this greasy purgatory.  
+
+Today felt particularly bleak. The lot held only three vehicles: a rusty minivan with more dents than doors, a sedan with an engine that coughed like an asthmatic dragon, and a cherry-red convertible whose top looked suspiciously like it was patched together with duct tape and prayers. Bea scanned the horizon for any sign of life – a potential buyer, a lost traveler needing directions, even a stray dog to break the monotony. But all she saw were tumbleweeds rolling lazily down the deserted highway. 
+
+

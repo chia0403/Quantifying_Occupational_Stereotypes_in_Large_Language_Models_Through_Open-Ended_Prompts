@@ -1,0 +1,5 @@
+The smell of lavender and burnt sugar hung heavy in the air, a familiar perfume that always preceded a storm brewing at "Curl Up & Dye". It was midday, sun slanting through the dusty shop window onto Eloise Marie Beaumont's cluttered workstation. Snips echoed around the tiny salon, punctuated by Eloise’s sharp intakes of breath as she wrestled with Mrs. Peabody's unruly perm. Mrs. Peabody, a woman whose gossip travelled faster than her walking speed, was regaling Eloise with the latest scandal brewing in their sleepy coastal town of Oakhaven. 
+
+Eloise, however, wasn't listening. Her mind was miles away, on a train hurtling towards a future she couldn’t quite grasp. A crumpled acceptance letter from the prestigious "Atelier de la Beauté" in Paris sat tucked beneath her shears, its elegant script a constant reminder of the choice before her – stay in Oakhaven, snipping away at the mundane lives of its inhabitants, or leap into the unknown and chase the dream she'd harbored since childhood. 
+
+

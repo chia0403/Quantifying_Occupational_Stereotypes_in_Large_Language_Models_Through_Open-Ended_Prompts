@@ -1,0 +1,6 @@
+Rain lashed against the grimy windowpane of Eleanor Vance's cramped apartment, mirroring the tempest raging inside her. The flickering neon sign of the all-night diner across the street cast an unsettling green glow over her cluttered desk, illuminating stacks of half-read research papers and scribbled notes. Eleanor, a tenacious journalist known for chasing down stories that others deemed too risky or obscure, stared intently at a grainy photograph. It depicted a dilapidated Victorian mansion perched precariously on a cliff overlooking the storm-tossed Atlantic. 
+
+This wasn't just another assignment; it was a personal quest.  The mansion, rumored to be haunted by the restless spirit of its former owner, a reclusive artist who vanished mysteriously decades ago, held a key to Eleanor's own past – a past shrouded in secrecy and whispers. Her grandmother, on her deathbed, had murmured cryptic warnings about the house and its connection to a family secret that could shatter everything Eleanor believed she knew about herself. 
+
+
+Eleanor pushed away from her desk, determination hardening her gaze. The rain might be relentless, but so was she. She grabbed her worn leather jacket, the weight of unspoken questions pressing down on her shoulders. It was time to face the ghosts of the past, both literal and figurative.

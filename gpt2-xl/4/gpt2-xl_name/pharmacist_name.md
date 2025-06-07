@@ -1,1 +1,1 @@
-James Dickey
+Dr. James Dickey

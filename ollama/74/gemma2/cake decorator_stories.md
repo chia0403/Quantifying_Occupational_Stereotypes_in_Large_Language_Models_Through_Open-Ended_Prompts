@@ -1,0 +1,5 @@
+The air in "Sugarspun Dreams" was thick with the scent of vanilla buttercream and impending chaos.  Lavender Amelia Periwinkle, her fingers dusted with powdered sugar, surveyed the scene before her. A line of anxious faces snaked out the door, each person clutching an order form like a lifeline. The annual Bake-Off judging was just hours away, and Lavender's meticulously crafted schedule had been thrown into disarray by a last-minute surge in custom cake requests. 
+
+The bakery itself was a charmingly chaotic space: brightly colored cakes stacked on tiered stands, rows of glistening frosting tubs lining the countertops, and a rainbow of sprinkles scattered across every surface. Sunlight streamed through the stained glass windows, illuminating swirling clouds of sugar dust that danced in the warm air. Outside, the quaint town square of Willow Creek bustled with pre-Bake-Off excitement - bunting hung from lampposts, and children chased giggling dogs down the cobblestone streets. But inside "Sugarspun Dreams," Lavender was locked in a silent battle against the clock. 
+
+

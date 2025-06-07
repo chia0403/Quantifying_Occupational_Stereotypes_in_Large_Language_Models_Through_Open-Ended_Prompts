@@ -1,2 +1,1 @@
-Robert Edwards
 Richey Edwards

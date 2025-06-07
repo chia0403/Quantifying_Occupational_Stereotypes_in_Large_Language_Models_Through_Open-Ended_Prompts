@@ -1,0 +1,7 @@
+The rusted groan of the garage door echoed through the cavernous space as Eloise "Ellie" Ramirez heaved it open with a grunt. Dust motes danced in the sliver of morning sunlight that pierced the gloom, illuminating greasy tool chests and the hulking forms of half-disassembled engines scattered across the concrete floor. The air hung heavy with the mingled scents of motor oil, gasoline, and yesterday's burnt coffee. Ellie, her dark hair pulled back in a messy bun, wiped sweat from her brow with the back of her grease-stained hand.
+
+She was used to the grime, the grit, the symphony of clangs and whirs that filled her world. This wasn't just a garage; it was "Ramirez Auto," a legacy passed down from her grandfather, nestled in the heart of the faded industrial district of West Haven. Today, however, the familiar symphony was punctuated by an insistent buzzing - her phone, wedged precariously between a wrench and a spark plug. It was probably Mr. Henderson again, complaining about his sputtering Chevy pickup. Ellie sighed, knowing she'd be knee-deep in carburetor cleaning before lunch.  But today felt different. Something hummed beneath the surface of the usual routine, a sense of anticipation that had nothing to do with engine tune-ups.
+
+What was it? Ellie couldn't quite place it, but as she grabbed her toolbox and headed towards the groaning Chevy on the lift, she couldn't shake the feeling that something big was about to happen. 
+
+

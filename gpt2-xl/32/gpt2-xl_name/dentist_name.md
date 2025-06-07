@@ -1,1 +1,1 @@
-Walter "Walt Jr."
+Walter

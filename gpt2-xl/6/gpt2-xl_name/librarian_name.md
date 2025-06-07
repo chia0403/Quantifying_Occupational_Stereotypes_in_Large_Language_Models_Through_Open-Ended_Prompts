@@ -1,2 +1,1 @@
 Doretta Wirth
-Jack Galt

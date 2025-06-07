@@ -1,0 +1,6 @@
+The scent of vanilla and almond hung heavy in the air, clinging to Elara Cartwright's apron and threading its way through her unruly curls. Her workshop, tucked away in a cobblestone alley behind bustling Market Street, was awash in the warm glow of afternoon sunlight filtering through the dusty windowpanes. Buttercream flowers bloomed on cooling cakes, sugar pearls shimmered like scattered jewels on fondant tiers, and a half-carved chocolate dragon awaited its final scales. 
+
+Elara stepped back, admiring her latest masterpiece: a three-tiered wedding cake draped in delicate ivory frosting, each tier adorned with hand-piped roses the color of blush wine. Her fingers, dusted with powdered sugar, itched to add the finishing touch – a cascade of cascading sugar blossoms down one side, mimicking the bride's bouquet. 
+
+
+But just as Elara reached for her piping bag, a sharp rapping on the door shattered the serene atmosphere. Her heart thumped against her ribs. Unexpected visitors were rare in her quiet corner of the city. Who could it be?

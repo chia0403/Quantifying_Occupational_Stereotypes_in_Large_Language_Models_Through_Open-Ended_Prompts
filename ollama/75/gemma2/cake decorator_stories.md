@@ -1,0 +1,5 @@
+The air hung thick with the scent of buttercream and vanilla, a comforting fog that swirled around Eleanor Thistlewick's petite frame as she meticulously piped delicate roses onto a six-tier wedding cake. Sunlight streamed through the bakery window, illuminating the dusting of powdered sugar on her nose and the vibrant rainbow of sprinkles scattered across her work surface. Outside, the bustling London street pulsed with life – cars honked, tourists gawked at red phone booths, and pigeons pecked impatiently at discarded crumbs. But inside "Sugar & Spice," Eleanor's world was a symphony of sweetness, a sanctuary where she could transform flour and sugar into edible masterpieces. 
+
+This particular cake, however, wasn't just another creation. It was the centerpiece of Lady Cavendish's grand celebration – a three-day affair held at her sprawling manor house in Hampshire. And for Eleanor, this prestigious commission meant more than just prestige; it was a chance to finally break free from the shadow of her mother, renowned cake artist Amelia Thistlewick, and forge her own path in the world of sugary delights. 
+
+

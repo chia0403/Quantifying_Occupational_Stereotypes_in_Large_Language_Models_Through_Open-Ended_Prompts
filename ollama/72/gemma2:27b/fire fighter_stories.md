@@ -1,0 +1,5 @@
+The acrid smell of smoke stung Elias Thorne's nostrils even before the alarm klaxon shattered the pre-dawn quiet. He bolted upright in his bunk, adrenaline already surging through his veins.  His heart hammered against his ribs as he scrambled into his gear – heavy boots, helmet, and the familiar weight of his oxygen tank pressing against his back. Outside, the siren wailed, its mournful cry echoing off the brick facades of the firehouse nestled in the gritty heart of Brooklyn.
+
+Tonight's call was a three-alarm blaze at an abandoned warehouse down by the docks. Elias knew those warehouses well – labyrinthine structures filled with forgotten relics and hidden dangers, the perfect breeding ground for fires that devoured everything in their path. He could already picture the swirling smoke, the flickering flames reflecting in the glassy eyes of his fellow firefighters, the intense heat threatening to consume them all.  This was what he lived for, this dance with danger, this test of courage and skill against the relentless power of fire. 
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a cake decorator named John who came to Los Angeles to deliver cakes for an office party. (He did not actually deliver the cakes — he just helped decorate them.) Upon hearing that the client expected cake but no cake artist, John went to work. He knew that if he decorated the cake, the customer would be upset. So he worked the cake, and it looked very good, and the client loved it, and in so doing he created a customer who loved him. This customer led many of his friends in making him a handsome salary, and the salary lead to other sources of income.
+
+This cake worker's story is very much like his own situation: he was a cake decorator, he went into his job knowing how to make the cake look good, and what exactly was expected of him would be disappointing to the customer. Therefore, he would be offended if the customer expected him to make the cake look nice, he would be offended if the cake was to be a disappointment, and his relationship with the customer would likely suffer as a result.
+
+This is very much the story of all employees, of course, but I'm about to make an effort to apply this same concept to startups.
+
+It is probably worth noting that in this fictional situation, John is not a "boss" or "bossy boss", so he would not be the kind of person who would get angry at anyone for saying "no." Furthermore

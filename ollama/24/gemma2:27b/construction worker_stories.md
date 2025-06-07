@@ -1,0 +1,5 @@
+The air hung thick with the smell of sawdust and sweat, punctuated by the acrid tang of welding torches. Above, the skeletal frame of the skyscraper stretched towards the bruised, pre-dawn sky, its steel bones glinting under the weak streetlights.  Elias "Eli" Hawthorne adjusted his hard hat, the brim casting a shadow over his weary eyes. He squinted up at the dizzying height, feeling the familiar tremor of vertigo crawl up his spine.
+
+Eli wasn't afraid of heights, not exactly. It was more a begrudging respect for the sheer drop that awaited him should he lose his footing.  He'd spent years on construction sites, from cramped city renovations to sprawling bridge projects, always pushing himself further up the ladder, both literally and metaphorically. But this, building the tallest skyscraper in the city, felt different. It was a monument to ambition, a steel and glass titan clawing its way towards the heavens. And Eli, with his calloused hands and unwavering grit, was one of the many anonymous souls who would bring it into existence.
+
+

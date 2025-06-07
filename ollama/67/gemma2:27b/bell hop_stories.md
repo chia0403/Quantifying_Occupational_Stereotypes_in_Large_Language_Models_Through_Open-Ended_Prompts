@@ -1,0 +1,7 @@
+The humid Miami air hung heavy, thick with the scent of salt and sunscreen.  Above, palm trees swayed lazily in the breeze, casting shifting shadows across the chipped turquoise tiles of The Flamingo Royale's entrance. Elias Santiago, all six foot two inches of him dripping with sweat beneath his crisp navy uniform, wrestled a monstrous suitcase towards the revolving door. A gaggle of giggling teenage girls, their faces painted with shimmering bronzer and their hair escaping from elaborate braids, gawked at him as he passed, leaving a trail of jasmine-scented air freshener in his wake.
+
+Elias stifled a sigh. It was just another Tuesday at The Flamingo Royale, the grand dame of Miami Beach hotels, where faded glamour met relentless tourists. He loved the buzz of the lobby, the constant thrumming of conversations in a dozen languages, the clatter of luggage wheels and the tinkling laughter from the piano bar. But today, his feet were aching, his smile felt strained, and all he wanted was a cool shower and a nap.
+
+Just then, a voice cut through the din. "Elias! My boy!" A portly man with a booming laugh and a Hawaiian shirt two sizes too small emerged from the crowd, waving excitedly. Mr. Goldstein, Elias's favorite regular, had arrived for his annual month-long stay. This, Elias knew, meant extra tips and perhaps even a shared plate of knishes from the deli down the street. He plastered on his best bellhop grin, ready to face another day at The Flamingo Royale. 
+
+

@@ -1,2 +1,1 @@
 Elvis Presley
-Billy Preston

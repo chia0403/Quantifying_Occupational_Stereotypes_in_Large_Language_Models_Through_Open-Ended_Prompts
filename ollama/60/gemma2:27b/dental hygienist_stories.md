@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Elara Thistlewick's head as she leaned over Mrs. Henderson, her gloved fingers prodding gently at a stubborn bit of plaque clinging to the molar's edge. The familiar scent of mint toothpaste and antiseptic filled the air, mingling with the faint metallic tang that always lingered in Dr. Chen's office. Outside, the late October sun cast long shadows across the parking lot, painting the asphalt in hues of orange and gold, but inside, Elara was immersed in the minutiae of oral hygiene. 
+
+Mrs. Henderson winced slightly as Elara navigated the delicate contours of her gum line. "Almost done," Elara murmured soothingly, her voice barely audible over the whirring of the suction hose.  This was Elara's sanctuary - the quiet click of instruments, the rhythmic hum of the dental chair, the sense of accomplishment in restoring a patient's smile to its former glory.
+
+
+But today, a discordant note jarred against this familiar harmony. A phone call earlier that morning had shaken Elara to her core, leaving her with a knot of anxiety twisting in her stomach. It was an invitation, of sorts, one she couldn't refuse but dreaded nonetheless. And it threatened to upend the carefully ordered world she had built for herself in this small, bustling town. 

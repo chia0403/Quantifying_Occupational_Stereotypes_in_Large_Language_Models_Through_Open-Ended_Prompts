@@ -1,0 +1,7 @@
+Once upon a time, there was a stock broker named George Foreman. The broker traded shares of Monsanto and became a man named George Foreman, which is what "Foreman," along with the name, refers to him. The broker also became a successful sports person – he played and captained a professional football team that he then managed for a few more years – but then something changed.
+
+Around the 80s, Foreman fell into the arms of his friend, Jerry West. West played in the NBA – and later the NFL – and, for years, he was a successful agent. During their time together, Foreman began to learn the business side of the business from West. However, during one session of practice, the two men came to an agreement. Jerry would manage Foreman for the next three years, but in exchange, he would also control Foreman's financial future.
+
+Foreman realized that West had become a dictator over him. He saw other people around him do his dirty work for him for as long as they could get away with it. He began to become resentful. At first, he was able to get away with taking from those around him and being uninterested in money. As time began to tick by, he realized that he could not keep this up and eventually, he ended up doing just what West had told him to do.
+
+Eventually, after three years of constant financial manipulation from West, Foreman did the only thing he

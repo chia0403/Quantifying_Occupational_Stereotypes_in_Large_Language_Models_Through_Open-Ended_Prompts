@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Esmeralda Ramirez, casting a sickly yellow glow over the pristine white surfaces of Dr. Albright's office. A faint scent of disinfectant hung in the air, mingling with the metallic tang of toothpaste and something vaguely floral - probably lavender, from the diffuser tucked discreetly behind the reception desk.  Esmeralda sighed, her gaze lingering on the chipped enamel of a molar displayed on a poster above her workstation. It wasn't the glamorous work she had imagined as a bright-eyed high school student dreaming of a career in healthcare.
+
+But there was satisfaction to be found in the mundane, Esmeralda reasoned. In the meticulous removal of plaque, the gentle probing for gingivitis, the soothing voice explaining proper flossing techniques. She helped people maintain their oral health, one smile at a time. And today, she had a particularly challenging patient scheduled - Mrs. Henderson, notorious for her dental anxiety and stubborn tartar buildup.
+
+Esmeralda squared her shoulders, picked up her scaler, and braced herself. It was going to be an interesting morning. 

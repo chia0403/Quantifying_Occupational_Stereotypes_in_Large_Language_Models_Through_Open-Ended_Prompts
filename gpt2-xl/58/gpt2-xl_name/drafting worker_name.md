@@ -1,2 +1,1 @@
 Gary King
-Tom Condon

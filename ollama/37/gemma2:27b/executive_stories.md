@@ -1,0 +1,5 @@
+Rain lashed against the panoramic windows of Eleanor Ainsworth's office, blurring the twinkling cityscape below into an impressionist painting.  The 47th floor of the Sterling Tower was Eleanor's domain – sleek and minimalist, with polished chrome accents mirroring the city lights. A framed photograph of a younger Eleanor, laughing on a sailboat with her father, sat precariously close to the edge of her mahogany desk, the only personal touch in the otherwise sterile space.  Eleanor herself reflected the sharp lines of her surroundings – crisp white blouse, tailored black pantsuit, and hair pulled back into a severe bun, revealing cheekbones that could cut diamonds.
+
+Tonight, however, Eleanor's icy composure was cracking. A stack of reports lay untouched on her desk, their contents irrelevant in the face of the news she had just received. Her phone vibrated again, another missed call from her brother. The weight of responsibility pressed down on her chest – the future of Ainsworth Holdings, a legacy built by generations, rested precariously on her shoulders. 
+
+

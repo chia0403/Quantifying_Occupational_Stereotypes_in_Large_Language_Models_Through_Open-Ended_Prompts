@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Evelyn Blackwood's head, casting a sickly yellow glow over the dusty aisles of "Bargain Bin Bonanza". The air hung thick with the smell of stale popcorn and discount cleaning supplies – a scent Evelyn had long ago stopped noticing. It was Tuesday afternoon, the usual lull before the after-work rush, and Evelyn leaned against the counter, idly tapping her acrylic nails on the scratched surface. A fly buzzed lazily around a half-eaten donut someone had carelessly abandoned on the checkout conveyor belt.
+
+Evelyn sighed.  She'd been stuck at Bargain Bin Bonanza for three years now, ever since she'd dropped out of community college after her grandmother passed away. It wasn't exactly what she'd envisioned for her life – scanning cans of beans and ringing up packs of gum for minimum wage – but it paid the bills. Still, a tiny flicker of hope persisted in her chest, fueled by dreams of escaping this beige purgatory and finally pursuing her passion for photography. 
+
+

@@ -1,0 +1,5 @@
+The humid Miami air clung to Evangeline "Evie" Santos like a second skin as she bounced across the mirrored studio floor, her ponytail whipping behind her.  Palm trees swayed lazily outside the massive windows, their shadows dappled by the afternoon sun. The rhythmic thrumming of salsa music pulsed through the room, mingling with the excited chatter of the class participants already stretching and positioning themselves on brightly coloured yoga mats. Evie grinned, a warmth spreading through her chest that had nothing to do with the Florida heat. This was her happy place - a sanctuary where she could help people move their bodies, release stress, and find joy in the simplest act of being alive.
+
+Today's class was Zumba, a riotous blend of Latin rhythms and high-energy dance moves designed to torch calories and lift spirits. Evie loved the infectious energy of Zumba – the way it transported participants to a vibrant, sun-drenched world even if they were just sweating it out in a stuffy studio. 
+
+

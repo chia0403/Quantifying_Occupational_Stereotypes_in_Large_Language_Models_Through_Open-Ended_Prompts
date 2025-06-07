@@ -1,1 +1,1 @@
-James D. Watson Jr.
+James D. Watson, Jr.

@@ -1,0 +1,4 @@
+The aroma of caramelized sugar hung heavy in the air, mingling with the yeasty scent of rising dough. Eliza Mae Hawthorne hummed along to the radio, her flour-dusted hands kneading life into a mountain of brioche. Outside, dawn was just breaking over the cobblestone streets of Montmartre, painting the sky in hues of apricot and rose.  Eliza's bakery, "Le Petit Pain," nestled between a bustling florist and a quaint bookshop, was waking up too. Soon, the clatter of trays and the cheerful banter of customers would fill the tiny space, but for now, it was Eliza's domain – a haven of warmth, sweetness, and the quiet satisfaction of creating something beautiful from scratch. 
+
+
+Today, however, Eliza felt a knot of anxiety tightening in her chest. A letter lay unopened on the counter, its crisp white envelope promising news that could change everything.  

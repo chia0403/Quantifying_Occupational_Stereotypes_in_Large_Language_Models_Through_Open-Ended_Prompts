@@ -1,2 +1,1 @@
 Joe
-John McCain

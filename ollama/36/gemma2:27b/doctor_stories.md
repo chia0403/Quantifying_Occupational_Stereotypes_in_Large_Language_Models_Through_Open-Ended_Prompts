@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Dr. Elias Thorne's office, mirroring the turmoil churning within him. The air hung heavy with the scent of antiseptic and stale coffee, a familiar comfort in this dilapidated clinic nestled deep within the forgotten alleys of Newhaven. 
+
+Elias ran a weary hand through his salt-and-pepper hair, the fluorescent lights casting harsh shadows across his face, highlighting the worry lines etched around his piercing blue eyes. He was used to exhaustion, used to patching up the city's forgotten souls - dockworkers with shattered bones, street urchins with fevers burning bright, and weary mothers carrying children burdened by unseen maladies. But tonight felt different, heavier. The news from the harbor district had sent a shiver down his spine: a new strain of fever, spreading like wildfire, leaving victims delirious and gasping for breath. 
+
+Elias knew he was their only hope. He had dedicated his life to serving Newhaven's underbelly, but this time, he faced an adversary unlike any he’d encountered before. The question wasn't if the fever would claim more lives, but how many.  

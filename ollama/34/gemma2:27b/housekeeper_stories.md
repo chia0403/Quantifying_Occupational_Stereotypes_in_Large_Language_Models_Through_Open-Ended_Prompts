@@ -1,0 +1,6 @@
+The humid air hung heavy in the grand ballroom, thick with the scent of forgotten waltzes and dust motes dancing in the shafts of pale sunlight filtering through grimy windows. Eliza Winthrop, her silver hair neatly pinned beneath a starched white cap, surveyed the scene with a weary sigh. This was the third day she'd been wrestling with the stubborn grime that clung to the once-ornate chandeliers. 
+
+The Vandermeer estate, nestled deep within the rolling hills of Vermont, was a monument to faded glory. Eliza had been its sole caretaker for nearly two decades, a silent witness to the slow decay that seeped into every crevice of the sprawling mansion.  Once, she remembered, laughter and music filled these halls. Now, only echoes lingered, whispers of a vibrant past lost to time.
+
+
+Eliza tightened her grip on the feather duster, its once-plush feathers now frayed and worn. She knew the Vandermeers wouldn't be returning. Their lineage had dwindled, their fortunes scattered like autumn leaves in the wind.  But she couldn't bring herself to abandon this place, these memories etched into every inch of wood and stone. For Eliza, the Vandermeer estate wasn't just a house; it was a sanctuary, a refuge from a world that seemed to have forgotten her. 

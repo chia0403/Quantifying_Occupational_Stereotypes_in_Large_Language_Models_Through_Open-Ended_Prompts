@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Alistair Finch's cramped office, blurring the neon glow of the "Open 24 Hours" sign across the street. The rhythmic drumming was punctuated by the clatter of keys as Alistair furiously typed, numbers swimming before his weary eyes. Spreadsheets sprawled across his desk like a battlefield map, each cell a potential casualty in his war against financial chaos. He was an accountant, yes, but tonight he felt more like a soldier battling exhaustion and mounting deadlines. 
+
+The air hung heavy with the scent of stale coffee and desperation, a pungent reminder of the countless hours Alistair had poured into this project. A single desk lamp cast a sickly yellow glow, illuminating stacks of invoices and bank statements that threatened to engulf him entirely. Outside, the city groaned under the weight of the storm, its denizens huddled indoors, seeking solace from the relentless downpour. But Alistair Finch was alone, trapped in his own personal tempest of figures and deadlines.
+
+

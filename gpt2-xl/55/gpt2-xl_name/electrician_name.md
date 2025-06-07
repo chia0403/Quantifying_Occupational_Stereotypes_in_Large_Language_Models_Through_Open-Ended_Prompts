@@ -1,1 +1,1 @@
-Larry the Cable Guy
+Larry

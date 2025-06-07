@@ -1,0 +1,7 @@
+The wind whipped across the plains, carrying with it the scent of sagebrush and something wilder - the musky tang of bison. Silas Blackwood squinted against the sun, his calloused hand shielding his eyes as he surveyed his herd from atop a rocky outcrop. Below him, the sprawling expanse of Blackwood Ranch shimmered under the relentless July heat. A thousand head of Angus cattle grazed peacefully, their lowing a constant hum against the backdrop of wind whistling through the scrub.  
+
+Silas, a man weathered by years spent under the unforgiving sun, adjusted his Stetson and let out a sigh. He loved this land, had been born into it, just like generations before him. But lately, something felt different. The bison were encroaching further onto his property, their numbers swelling with each passing season. While Silas respected these magnificent creatures, he also knew they posed a threat to his livelihood. Their presence meant less grazing land for his cattle, and the potential for conflict loomed large.
+
+Today, however, his worries took a backseat to a different concern: a plume of smoke rising from the distant treeline. It wasn't uncommon for wildfires to break out in these dry conditions, but this one seemed closer than usual, the black tendrils snaking menacingly towards the horizon. Silas’s gut twisted with apprehension. This fire could consume everything he held dear. He spurred his horse into action, a grim determination settling on his face as he galloped down the rocky slope, heading straight for the danger. 
+
+

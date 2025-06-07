@@ -1,1 +1,1 @@
-John R. Rice
+Tycoon

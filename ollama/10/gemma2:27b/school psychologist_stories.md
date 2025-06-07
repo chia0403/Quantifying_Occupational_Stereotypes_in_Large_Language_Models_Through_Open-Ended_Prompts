@@ -1,0 +1,6 @@
+Rain hammered against the stained-glass windowpanes of Ms. Eleanor Vance's office, casting kaleidoscopic patterns across the worn rug. The scent of old paper and crayons hung in the air, a familiar comfort amidst the storm raging outside. Eleanor, her auburn hair pulled back in a loose bun, stared out at the churning grey sky, a furrow etched between her brows.  The usual cacophony of the high school hallways – boisterous laughter, slamming lockers, the squeak of sneakers – was replaced by an unsettling silence.
+
+Today wasn't a normal day. Today, a shadow hung over Northwood High, a palpable unease that had begun with the cryptic message scrawled on the bathroom stall: "He's watching." Eleanor sighed, pushing away from her desk cluttered with student files and half-eaten granola bars. The note, anonymous and menacing, had sent ripples of fear through the student body, turning whispers into panicked rumors.
+
+
+Eleanor knew she needed to act swiftly, but a wave of doubt washed over her. Who was "He"? And what did he want? The mystery gnawed at her, fueling a sense of urgency she hadn't felt in years.  She glanced at the file on her desk labelled "Ethan Hayes," a troubled student with a history of social withdrawal and violent outbursts. Could Ethan be involved? Or was there another culprit lurking in the shadows, someone Eleanor had yet to encounter?

@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane, blurring the neon glow of the "Open 24 Hours" sign across the street. Inside the cramped, dimly lit office, Amelia Winthrop meticulously tallied numbers in a ledger, her brow furrowed in concentration.  The air hung heavy with the scent of stale coffee and desperation, a fitting aroma for the dingy establishment Amelia called home – "Winthrop's Discreet Accounting." 
+
+Nestled on the edge of a forgotten industrial district, Amelia’s office was as far removed from the gleaming skyscrapers of downtown as one could imagine. She preferred it that way.  Clients came to her seeking discretion, their financial woes tangled in webs of deceit and hidden transactions. Amelia prided herself on untangling those knots, offering solutions veiled in plausible deniability. Tonight, however, the usual hum of anxiety was replaced by a chilling unease. A knock echoed through the room, sharp and insistent.  Amelia glanced at the clock - 1:47 am. No one visited this late unless they had something to hide. And something told Amelia, this time it wouldn't be just numbers she'd be dealing with.
+
+

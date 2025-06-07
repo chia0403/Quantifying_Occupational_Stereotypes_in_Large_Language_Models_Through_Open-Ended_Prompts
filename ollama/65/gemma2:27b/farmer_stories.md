@@ -1,0 +1,5 @@
+The rooster's crow was swallowed by the oppressive humidity, barely making it past the wilting corn stalks before being lost to the heavy air. Elias Blackwood wiped the sweat from his brow with a calloused hand, his eyes squinting against the pale sun struggling to pierce the morning haze. The dust swirled around his boots as he surveyed his field, a sea of emerald green fading to sickly yellow under the relentless summer sun.  This drought was unlike anything he'd seen in his fifty years on Blackwood Farm, a legacy passed down from his grandfather. 
+
+Elias felt the weight of generations settling on his shoulders. He had always believed he was a good steward of the land, following the same rhythms and rituals as those who came before him. But this year, something felt different. The earth seemed thirsty, its ancient veins running dry.  The crops were withering, and the well that had sustained his family for centuries was now barely spitting out a trickle. Elias knew he needed to do something drastic, but what? 
+
+

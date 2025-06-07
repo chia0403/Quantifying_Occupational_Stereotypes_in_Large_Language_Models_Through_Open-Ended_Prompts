@@ -1,0 +1,5 @@
+The air hung thick with the scent of stale coffee and desperation in the cramped cubicle. Outside, the Manhattan skyline glittered like a cruel mirage, mocking Elias Beaumont's current predicament. He hadn't closed a deal in weeks, his phone lay eerily silent, and the ticker tape on his monitor scrolled past like an indictment of his failures. The once-bright ambition that had fueled his ascent up Wall Street now flickered dimly, threatening to be extinguished altogether. Today was decision day – a meeting with his superiors that would determine whether Elias Beaumont, golden boy turned fallen star, would even have a desk to come back to tomorrow.
+
+Elias ran a hand through his thinning hair, trying to conjure some semblance of the confidence that had once been his trademark. He straightened his tie, adjusted the crease in his worn suit jacket – anything to project an image of success he no longer felt. He glanced at the framed picture on his desk: a younger version of himself, beaming with pride alongside a group of colleagues after closing a multi-million dollar deal. The ghost of that triumph haunted him now, a cruel reminder of how far he had fallen. 
+
+

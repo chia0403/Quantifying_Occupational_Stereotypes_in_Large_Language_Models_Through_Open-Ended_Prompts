@@ -1,0 +1,5 @@
+The early morning mist clung to Elias Blackwood's greying beard as he surveyed the sprawling lawns of Hawthorne Manor. The grand old house, with its ivy-choked walls and mullioned windows, loomed over him like a watchful giant. Dawn was just breaking, painting the sky in hues of lavender and rose, but already the scent of dew-kissed roses mingled with the earthy aroma of freshly turned soil. Elias loved this time of day. The world felt hushed and expectant, and he, a solitary figure amongst the manicured hedges and whispering trees, felt a sense of profound peace.
+
+Elias wasn't just any groundskeeper. For over thirty years, he had been the meticulous caretaker of Hawthorne Manor's gardens, treating each flowerbed and rose bush as a treasured friend. He knew every inch of the sprawling estate, from the hidden grotto behind the weeping willow to the secret garden where rare orchids bloomed in fragrant profusion. But today, something felt different. A subtle shift in the air, a prickling sensation on his skin – a premonition perhaps – told him that this day would not be like any other. 
+
+

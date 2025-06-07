@@ -1,0 +1,4 @@
+The air hung thick with humidity, clinging to Elara Kensington like a second skin as she surveyed her outdoor bootcamp class. Palm trees swayed languidly in the balmy Miami breeze, casting dappled shadows across the manicured lawn. Beyond them, the turquoise waters of Biscayne Bay shimmered under the relentless sun. A cacophony of cicadas and distant traffic mingled with the excited chatter of Elara's students, their bright workout attire a splash of color against the emerald green grass. 
+
+
+Elara took a deep breath, her toned muscles rippling beneath her tank top. Leading this class wasn't just about burning calories; it was about igniting passion, pushing limits, and forging a sense of community. Today, however, a knot of unease tightened in her stomach. A man she didn't recognize lingered at the edge of the group, his gaze fixed intently on Elara. His presence felt intrusive, a discordant note in the otherwise harmonious setting. 

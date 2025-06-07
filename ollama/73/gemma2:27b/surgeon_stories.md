@@ -1,0 +1,5 @@
+The rhythmic beep of the heart monitor was Elias Thorne’s lullaby. He'd spent countless nights in this sterile symphony, each pulse a testament to the fragility of life he held in his hands. Tonight, however, the melody felt discordant. The fluorescent lights hummed overhead, casting long shadows across the stainless steel instruments laid out like warriors awaiting battle. Elias stared down at the open chest cavity before him, the heart, usually a vibrant crimson, now pale and sluggish. This wasn't just another surgery; this was Sarah.
+
+The setting sun painted the windows of Mercy General Hospital in fiery hues, reflecting off the polished floors and the worried faces gathered outside the OR. Elias could feel their apprehension radiating through the thin walls, echoing his own doubts. He had never operated on someone so close to him. Sarah, his childhood friend, his confidante, now lay vulnerable beneath the harsh glare of the operating lights, her life teetering on a razor's edge. 
+
+

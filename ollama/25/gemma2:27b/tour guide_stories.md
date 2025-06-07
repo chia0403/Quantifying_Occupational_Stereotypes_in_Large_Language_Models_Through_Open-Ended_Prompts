@@ -1,0 +1,5 @@
+The humid air hung heavy in Savannah's historic district, thick with the scent of jasmine and decay.  Eliza Winthrop adjusted her straw boater hat, its faded blue ribbon fluttering against the gentle breeze that carried whispers of Spanish moss from the ancient oaks lining Jones Street. Her smile was bright, professional, even as a bead of sweat trickled down her temple. "Welcome, everyone," she announced to the small group gathered around her, their faces flushed with the Georgia sun. "To the hauntingly beautiful city of Savannah, where history whispers on every cobblestone and shadows dance in the moonlight."
+
+Eliza had been leading walking tours through Savannah for five years, each cobblestone a familiar friend, each wrought iron gate a whispered secret. But today felt different. The air crackled with an unseen energy, making the hairs on her arms prickle. As she started down the street, weaving tales of antebellum elegance and tragic loss, Eliza couldn't shake the feeling that something was watching her, lurking just beyond the veil of time...
+
+

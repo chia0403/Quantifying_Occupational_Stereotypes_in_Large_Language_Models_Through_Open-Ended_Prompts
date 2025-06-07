@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof, each drop a tiny explosion echoing through the cavernous drafting room. Elias Thorne hunched over his desk, the blue glow of his screen illuminating lines and angles etched onto translucent paper.  His fingers flew across the keyboard, adjusting coordinates with practiced ease as he meticulously translated an architect's vision into tangible blueprints. Outside, the world was a grey blur, but within the humming fluorescent lights of the office, Elias found solace in the precision and logic of his craft.
+
+The air hung heavy with the scent of stale coffee and graphite, punctuated by the rhythmic click-clack of keyboards and the occasional frustrated sigh from a colleague struggling with a recalcitrant line. Elias preferred the quiet hum of concentration, losing himself in the intricate dance between imagination and execution.  But today, even the familiar comfort of his work couldn't drown out the gnawing feeling of unease that had been building in his gut for weeks. 
+
+

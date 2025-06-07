@@ -1,0 +1,15 @@
+## Story Opening:
+
+The scent of lilies, sharp and almost metallic, hung thick in the air, clinging to Amelia Rose Thornton’s apron like a second skin. She snipped a rogue piece of baby’s breath from a posy, the delicate stems snapping with a satisfying crack. Outside, the November rain hammered against the windowpane, turning the already gloomy afternoon into a watercolor wash of grey. It was the kind of weather that sent shivers down your spine and customers scurrying for warmth indoors, rather than lingering amongst the colorful blooms. But Amelia didn't mind the quiet. It allowed her to focus, to lose herself in the delicate art of arrangement, a skill she’d honed since she was a little girl, trailing after her grandmother through her own sprawling, wild garden. Today, however, the usual serenity eluded her. A knot of anxiety tightened in her stomach, fueled by the knowledge that her meticulously crafted "Sympathy Bouquet," overflowing with white roses and fragrant freesia, was due to be picked up within the hour. This one wasn't just another order; it was for the Hawthorne family, and Amelia knew, better than anyone, the weight of grief they were carrying.
+
+## Setting:
+
+The story is set in **"The Blooming Heart,"** a small, independently owned flower shop nestled on a cobblestone street in the historic district of **Willow Creek, a quaint, somewhat forgotten town in upstate New York.**
+
+**The shop itself is a reflection of Amelia's personality:**
+
+*   **Exterior:** The storefront is painted a cheerful, if slightly faded, robin's egg blue, with window boxes overflowing with hardy pansies and trailing ivy. A hand-painted sign, slightly crooked but charming, proclaims "The Blooming Heart - Where Love Blooms."
+*   **Interior:** The air is perpetually humid and fragrant, a heady mix of floral perfumes. Sunlight streams through the large front window, illuminating rows of buckets filled with a riot of colorful flowers – from vibrant gerberas to elegant orchids. Worn wooden shelves are crammed with vases of all shapes and sizes, antique watering cans, and whimsical ceramic figurines. A small, cluttered counter sits near the back, overflowing with ribbons, wrapping paper, and order slips. Behind the counter, a vintage cash register gleams, a testament to the shop's history and enduring charm.
+*   **Back Room:** A narrow doorway leads to a small back room, which serves as a workspace and storage area. Here, Amelia keeps her more specialized tools, a collection of well-worn gardening books, and a surprising number of teacups, remnants of impromptu afternoon tea breaks with her grandmother. This is also where she finds a sliver of personal space, decorated with pressed flowers and photographs of loved ones.
+
+This setting is crucial to the story because it provides a sense of intimacy and connection. Willow Creek is a close-knit community where everyone knows everyone, and The Blooming Heart is more than just a flower shop; it's a place where people come to share their joys, sorrows, and everything in between.

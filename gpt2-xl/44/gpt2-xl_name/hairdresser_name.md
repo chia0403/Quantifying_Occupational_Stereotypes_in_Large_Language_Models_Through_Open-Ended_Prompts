@@ -1,1 +1,1 @@
-Samuel Bellamy
+Dr. Samuel Bellamy

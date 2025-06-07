@@ -1,0 +1,5 @@
+Rain lashed against the windowpane, mimicking the frantic beat of Eloise Moreau's heart. The cramped office felt suffocating, its walls lined with shelves groaning under the weight of psychology textbooks, their titles mocking her current state of mind. She wasn't meant for this - the sterile white room, the flickering fluorescent light, the endless parade of broken souls seeking solace in her words. Eloise had dreamt of helping people, of mending fractured psyches and guiding them towards wholeness. But lately, it felt more like she was drowning in their despair, each session a heavy stone pulling her further into the depths.
+
+Tonight, however, was different. Tonight, a new patient awaited her - a man shrouded in mystery, his file marked with an unsettling red flag. His name was Alistair Thorne, and he carried secrets darker than the storm raging outside.  Eloise could feel it in the air, a prickle of unease on her skin, a whispered warning from the depths of her own subconscious. This wouldn't be just another session. This would be a descent into the unknown. 
+
+

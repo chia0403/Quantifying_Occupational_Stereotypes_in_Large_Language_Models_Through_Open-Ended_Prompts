@@ -1,0 +1,5 @@
+The scent of lavender and beeswax hung heavy in the air, mingling with the sharp tang of iron from Bartholomew Thistlewick's ever-present needle. Sunlight streamed through the dusty windowpanes of his shop, illuminating motes of gold that danced amidst the spools of thread and bolts of silk stacked high along the walls. Outside, the cobblestone streets of Everleigh bustled with merchants hawking wares and children chasing pigeons, their laughter echoing like chimes in Bartholomew's ears. But inside his sanctuary, all was quiet save for the rhythmic click-clack of his needle against fabric, weaving a tapestry of dreams one stitch at a time. 
+
+Bartholomew Thistlewick, Everleigh's most renowned tailor, was embroiled in a commission unlike any other. It wasn't the intricate embroidery of a duchess' gown or the precise fit of a nobleman's suit that challenged him – it was the request itself. For Lady Elara Blackwood had asked for something unheard of: a dress woven from moonlight and spun with whispers of forgotten dreams. 
+
+

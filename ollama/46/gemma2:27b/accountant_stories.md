@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Alistair Finch's office, mirroring the tempest brewing inside him. Spread across his desk lay a mountain of invoices, receipts, and bank statements – the chaotic financial lifeblood of "The Rusty Sprocket," a once-thriving steampunk clockwork repair shop now teetering on the brink of ruin. Alistair, with his neatly parted hair and spectacles perched precariously on his nose, had been tasked with untangling this mess by the shop's eccentric owner, Mr. Thaddeus Cogsworth, a man who seemed to value gears and gizmos more than profit margins.
+
+The air hung heavy with the scent of oil and ozone – remnants of Cogsworth's latest tinkering project, a gargantuan mechanical dragon head that now sat dormant in the corner, its copper scales dulled by neglect.  Beyond the rain-streaked windowpanes lay the cobbled streets of Lower Cogtown, a labyrinthine district choked with smog and the rhythmic clang of blacksmith hammers. It was a world Alistair barely understood, a world far removed from the neat ledgers and precise calculations he cherished. 
+
+

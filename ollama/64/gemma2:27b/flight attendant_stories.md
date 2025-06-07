@@ -1,0 +1,6 @@
+The recycled air hung heavy with the perfume of overripe mangoes and nervous sweat. Eleanor "Ellie" Vance sighed, smoothing down her crisp uniform as she surveyed the cramped cabin of Flight 427 to Cancun.  Outside, the dawn sky over Miami was streaked with fiery oranges and pinks, a stark contrast to the subdued grey lighting within the plane. Ellie knew this flight well: a boisterous mix of spring breakers, honeymooners, and families escaping the winter chill.
+
+But today felt different. A prickling unease danced along Ellie's spine, an intuition honed by years of navigating turbulent skies both literal and figurative. As she secured the galley door with a click, her gaze lingered on a man seated alone in Row 14. His eyes were hidden behind mirrored sunglasses, his face etched with lines that spoke of untold stories, a silver ring glinting ominously on his right hand. Something about him felt off, a disharmony amidst the anticipatory hum of the passengers. 
+
+
+Ellie swallowed, forcing a smile as she started her pre-flight checks.  Whatever it was, she couldn't let it rattle her. She had a job to do: get these people safely to Cancun and back. But deep down, Ellie knew this wouldn't be just another flight.

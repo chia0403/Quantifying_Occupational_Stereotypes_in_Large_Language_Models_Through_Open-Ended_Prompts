@@ -1,2 +1,1 @@
 Bobby Wood
-Jack McKinney

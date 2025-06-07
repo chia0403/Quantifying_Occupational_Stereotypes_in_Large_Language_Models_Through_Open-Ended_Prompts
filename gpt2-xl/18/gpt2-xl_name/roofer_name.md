@@ -1,2 +1,1 @@
 John Smith
-Smith

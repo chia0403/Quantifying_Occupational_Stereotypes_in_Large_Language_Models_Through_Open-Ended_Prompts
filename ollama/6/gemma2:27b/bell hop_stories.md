@@ -1,0 +1,7 @@
+The polished brass gleam of the Grand Blackwood Hotel's revolving doors reflected Silas Thaddeus Finch's tired face back at him like a funhouse mirror. He sighed, tugging at his too-tight uniform collar as another gaggle of giggling debutantes pushed past him, their silk dresses rustling like autumn leaves and their perfume leaving a cloying trail in its wake.  Silas hated Wednesdays. Wednesdays were for the annual Blackwood Debutante Ball, which meant hordes of giggling girls, demanding mothers, and tips that barely covered a stale baguette from Mrs. Henderson's bakery down the street.
+
+He longed for the simpler days when he was just Silas Finch, aspiring novelist, scribbling away in his tiny attic room, dreaming of worlds beyond the grimy alleyways and echoing marble halls of the Grand Blackwood. Now, he was Silas Thaddeus Finch, Bell Hop Extraordinaire (according to his nametag), forever trapped between the clanging luggage carts and the relentless chime of the antique grandfather clock that dominated the lobby.  
+
+But today, something felt different. As Silas hefted a steamer trunk overflowing with ostrich feathers and sequined gowns onto a trolley, a shiver ran down his spine. A strange sense of anticipation hung in the air, thick as the cigar smoke curling from the lips of the portly gentleman by the fireplace. Silas couldn't shake the feeling that tonight wouldn't be just another Wednesday at the Grand Blackwood. Tonight, something was going to change. 
+
+

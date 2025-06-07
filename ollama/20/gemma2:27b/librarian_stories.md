@@ -1,0 +1,5 @@
+The late afternoon sun slanted through the arched window of the Grand Blackwood Library, casting long shadows across the polished oak floor. Dust motes danced in the golden light, illuminating rows upon rows of towering bookshelves that stretched towards the vaulted ceiling like silent sentinels. Eleanor Winthrop, her silver hair pulled back in a neat bun, adjusted her spectacles and peered down at the tattered, leather-bound volume in her hands. The scent of aged paper and faint vanilla, a peculiar fragrance unique to this library, filled her nostrils. 
+
+Eleanor had been the head librarian of Grand Blackwood for over thirty years, a guardian of its whispered secrets and untold histories. Today, however, felt different. A shiver ran down her spine as she traced the faded inscription on the book's cover: "The Grimoire of Shadows." This wasn't just any ancient text; legend spoke of it containing powerful, forbidden magic. And Eleanor had a feeling this dusty tome held more than just words.
+
+

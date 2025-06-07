@@ -1,0 +1,4 @@
+The aroma of burnt sugar and sizzling bacon hung heavy in the air, a familiar perfume that usually brought comfort to Eliza Mae Cartwright. Today, however, it felt oppressive, mirroring the knot of anxiety twisting in her stomach. It was Saturday morning at Benny's Diner, the greasy spoon she'd called her second home for the past three years, and the usual cheerful clatter of plates and chatter felt amplified, like a buzzing swarm stinging her nerves. 
+
+
+Eliza adjusted her apron, its faded blue fabric worn thin from countless washes and spills. She glanced at the clock above the grill: 8:15 am.  The breakfast rush was just beginning, a wave of hungry locals about to crash upon her already fragile composure. Today was different. Today, Mr. Henderson, the diner owner and Eliza's gruff but kind-hearted boss, had promised a visit from a "very important person" who might hold the key to Eliza’s dream: culinary school in New Orleans.

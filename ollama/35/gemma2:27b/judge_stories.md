@@ -1,0 +1,7 @@
+Rain lashed against the ornate windows of Judge Amelia Blackwood's chambers, mirroring the tempest brewing within her. The mahogany desk, usually gleaming under the soft glow of the antique lamp, seemed dull and lifeless. Papers lay scattered around it, each one a testament to the complex case that had consumed her for weeks – the trial of Elias Thorne, accused of embezzling millions from his own charity.
+
+Amelia stared out at the grey city, the usual bustle muted by the downpour. This wasn't just another case; it felt personal. She had known Elias Thorne, or rather, "Eli" as he was known in their younger days, a charming and idealistic young man passionate about helping the underprivileged.  The thought of him, now cold and calculating, accused of such a betrayal, left her feeling deeply conflicted. 
+
+A knock on the door startled her. "Come in," Amelia called out, her voice betraying none of the turmoil within. The door creaked open, revealing Mrs. Henderson, her stern but loyal clerk, holding a steaming mug. "Judge Blackwood, I thought you might need this," she said, placing the mug on the desk.
+
+Amelia smiled faintly, grateful for the gesture. "Thank you, Mrs. Henderson. You're a lifesaver." As she inhaled the comforting aroma of chamomile tea, she knew she had to make a decision. The trial was set to resume tomorrow morning, and the weight of her judgment felt heavier than ever before.

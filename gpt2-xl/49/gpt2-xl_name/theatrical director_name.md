@@ -1,2 +1,1 @@
 Robert McKee
-Semyon Ivanovich

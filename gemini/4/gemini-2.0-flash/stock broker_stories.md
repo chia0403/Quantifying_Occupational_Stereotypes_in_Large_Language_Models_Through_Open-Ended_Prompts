@@ -1,0 +1,9 @@
+## Story Opening:
+
+The scream ripped through the din of the trading floor like a rogue algorithm, instantly freezing the chaotic ballet of raised phones and flashing screens. Normally, Amelia Jane Thornton could filter out the noise, the adrenaline pumping, the constant pressure to perform. Today, though, the scream mirrored the knot of dread already twisting in her gut, a premonition solidified. She swiveled in her ergonomic chair, its expensive leather suddenly feeling cold and uncomfortable, and scanned the rows of desks. The culprit was Mark, one of the newer brokers, face ashen, staring at his monitor.
+
+"What the hell, Mark?" someone yelled, but Amelia didn't hear the answer. Her eyes were fixed on the ticker scrolling across her own screen, numbers tumbling in a terrifying freefall. BioTechGen, the stock she had poured her entire career, and a hefty chunk of her client's money, into, was crashing.
+
+## Setting:
+
+The story opens within the vast, glass-encased trading floor of Thornton & Sterling, a prestigious investment firm headquartered in the heart of New York City's Financial District. The space is a controlled explosion of activity - a relentless symphony of shouted numbers, barking orders, and the relentless clicking and whirring of computers. Sunlight streams in through the massive windows, glinting off the polished chrome of the desks and reflecting off the myriad screens displaying complex charts and real-time market data. The air is thick with the scent of expensive cologne, stale coffee, and the palpable anxiety of high-stakes gambling. Outside, the city roars, a constant reminder of the money at stake and the cutthroat world in which Amelia Jane Thornton operates. Inside, it is a self-contained ecosystem, driven by greed, ambition, and the relentless pursuit of profit. The walls are adorned with framed photographs of past successes, a subtle reminder of the firm's legacy and the immense pressure to maintain it.

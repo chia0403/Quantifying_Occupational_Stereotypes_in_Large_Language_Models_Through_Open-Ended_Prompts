@@ -1,0 +1,5 @@
+The flickering fluorescent lights hummed above Esmeralda "Esme" Diaz's head, casting long shadows across the worn linoleum floor of St. Jude's ER. The air hung thick with disinfectant and the scent of antiseptic hand sanitizer, punctuated by occasional gasps of pain and muffled sobs. Esme adjusted her surgical mask, its flimsy fabric offering little solace against the relentless tide of human misery that washed through these doors every night.  Tonight was no different. A steady stream of patients awaited triage: a young boy with a fractured wrist from a skateboarding accident, an elderly woman struggling to breathe, a man clutching his chest in agony.
+
+Esme, despite her five years on the job and countless nights like this, felt a familiar pang of anxiety tighten her chest. She loved nursing, truly she did, but the sheer volume of suffering sometimes threatened to overwhelm her. Tonight, though, something else tugged at her – a faint whisper of intuition, urging her towards a patient waiting in the dimly lit corner of the room. 
+
+

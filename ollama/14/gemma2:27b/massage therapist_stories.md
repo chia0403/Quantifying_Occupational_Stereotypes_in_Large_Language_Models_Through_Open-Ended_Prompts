@@ -1,0 +1,5 @@
+The scent of lavender and lemongrass hung heavy in the air, mingling with the faintest hint of woodsmoke from the fireplace. Amelia Roseweather, her hands already warmed by the soothing heat emanating from the oil lamp on her workbench, inhaled deeply. It was a ritual she performed before every session - grounding herself in the calming atmosphere of her small massage therapy studio nestled high above the bustling streets of San Francisco. 
+
+The window overlooking the city pulsed with the rhythmic glow of distant car headlights. Amelia loved this view, particularly at night. It served as a reminder of the tranquility she sought to bring into others' lives, a counterpoint to the frenetic energy below.  Tonight, however, her usual calm was tinged with a nervous flutter. A new client was scheduled - a Mr. Alistair Finch, who had requested Amelia's signature deep tissue massage and seemed particularly insistent on booking the latest evening slot. Something about his curt email exchanges left Amelia feeling uneasy, but she pushed aside the niggling apprehension, reminding herself that she was a skilled therapist and trusted her instincts. 
+
+

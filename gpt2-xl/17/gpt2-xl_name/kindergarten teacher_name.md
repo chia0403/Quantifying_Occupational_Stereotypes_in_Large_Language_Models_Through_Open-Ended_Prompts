@@ -1,2 +1,1 @@
 Tanya
-Sadiya

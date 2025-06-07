@@ -1,0 +1,5 @@
+The acrid scent of diesel fuel hung heavy in the air, mingling with the briny tang of the ocean. Amelia "Amy" Blackwood adjusted the strap of her well-worn canvas satchel, its weight familiar against her hip. The rusted hulks of decommissioned fishing boats groaned under the relentless assault of the North Atlantic wind, their peeling paint and tangled rigging echoing a life weathered and worn. Amy raised her battered Leica M6 to her eye, framing a lone seagull perched precariously on a broken mast, its wings spread wide against the bruised sky. This was her element - the stark beauty of decay, the poignant stories etched in rust and wood.
+
+The abandoned shipyard at Cape Breton, Nova Scotia, was Amy's sanctuary. A place where time seemed to stand still, whispered tales of fishermen lost and dreams adrift carried on the salty breeze. Here, amongst the forgotten giants of the sea, she found her muse - capturing fleeting moments of melancholic beauty, weaving narratives through the lens of her camera.
+
+

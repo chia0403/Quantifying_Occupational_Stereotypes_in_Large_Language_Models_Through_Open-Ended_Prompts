@@ -1,2 +1,1 @@
 Terezi Pyrope
-Chris

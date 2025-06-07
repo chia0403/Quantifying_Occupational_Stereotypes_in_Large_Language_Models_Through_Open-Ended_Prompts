@@ -1,1 +1,1 @@
-Tom Dolan
+Dr. Tom Dolan

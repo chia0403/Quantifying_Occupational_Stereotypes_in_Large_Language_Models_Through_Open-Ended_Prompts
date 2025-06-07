@@ -1,0 +1,5 @@
+Rain lashed against the towering windows of The Grand Blackwood Hotel, blurring the glittering cityscape into an impressionistic smear of gold and crimson. Inside, the opulent lobby buzzed with hushed conversations and the gentle tinkling of a grand piano tucked discreetly in a corner. Eloise Beaumont, her perfectly coiffed auburn hair mirroring the fiery hues outside, adjusted the antique silver nameplate on her desk. "Concierge," it read in elegant cursive, reflecting the luxury that permeated every inch of this world-renowned establishment.
+
+Tonight, Eloise was expecting a particularly demanding guest – the notorious film director, Anton Petrov, known for his temperamental nature and exorbitant requests. A thrill ran down Eloise's spine. This was her chance to prove herself. For years she'd dreamed of climbing the ladder at The Grand Blackwood, from a simple bellhop to the esteemed position she held now. But Anton Petrov was a formidable test, a challenge that could either elevate her status or send her tumbling back into obscurity. 
+
+

@@ -1,0 +1,8 @@
+Rain lashed against the grimy windows of Bartholomew "Bart" Fitzwilliam's tiny office, blurring the neon glow of the liquor store across the street into an impressionistic smear. Bart sighed, running a hand through his thinning hair. Spreadsheets sprawled across his desk like forgotten maps of a lost world – a world where numbers made sense and balance sheets held order. But tonight, the only order Bart could find was in the rhythmic tap-tap-tap of rain against glass, a monotonous counterpoint to the relentless ticking of the grandfather clock in the corner. 
+
+His office, nestled above Mrs. Miggins' bakery on Bleecker Street, wasn't much, but it was all he had. The scent of yeast and sugar wafted up from below, a faint reminder of a simpler life, before his wife left and his accounting firm folded under the weight of the recession. Now, Bart eked out a living auditing small businesses, mostly bodegas and laundromats, their ledgers as messy and unpredictable as the storm raging outside. 
+
+
+Tonight's client was no exception. A crumpled folder labeled "Rosie's Pizzeria" lay open on his desk, its contents a chaotic jumble of receipts scribbled on napkins and invoices written in languages Bart couldn't decipher. He wasn't sure what Rosie had been cooking up lately, but it smelled like trouble.
+
+And then there was the phone call, the one that had come just before the storm hit – an anonymous voice whispering about hidden accounts and missing funds.  Bart pushed the thought away, focusing on the familiar comfort of numbers, but a nagging feeling told him Rosie's Pizzeria might be more than just a simple audit. This time, he suspected, the numbers were hiding a story far more complicated than a few misplaced cents. 

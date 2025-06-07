@@ -1,0 +1,5 @@
+The air hung thick with woodsmoke and the sharp tang of rosemary, clinging to Esmeralda "Esme" Delacroix's apron like a second skin. Dawn was just breaking over the cobbled streets of Lyon, painting the ancient buildings in hues of rose and apricot. Esme, her hands already dusted with flour, kneaded dough on a worn wooden table, its surface scarred with years of culinary battles. Outside, the clatter of delivery carts echoed through the narrow alleyway, announcing the start of another day at the bustling Marché de la Croix-Rousse. 
+
+Today, however, felt different. A shiver danced down Esme's spine as she glanced at the weathered photograph tacked above her workstation: a younger version of herself beaming beside her grandmother, the legendary chef who had passed on her passion for food and secrets of Lyon's cuisine. The annual "Concours du Goût" – the Taste Contest – was upon them, and Esme knew this year held a weight unlike any other. This wasn't just about winning; it was about proving herself worthy of her grandmother's legacy.  
+
+

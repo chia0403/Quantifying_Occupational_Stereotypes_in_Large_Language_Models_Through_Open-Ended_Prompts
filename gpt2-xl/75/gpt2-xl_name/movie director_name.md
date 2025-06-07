@@ -1,2 +1,1 @@
 Stanley Kubrick
-Maya Deren

@@ -1,0 +1,3 @@
+The neon sign of the "Blue Flamingo" flickered erratically, casting an unsettling purple hue on Evelyn Blackwood's face as she stared into the grimy window. Rain lashed against the cracked glass, mirroring the storm brewing inside her.  She'd been following this lead for weeks, a whisper about a smuggling ring operating out of this very dive bar in the heart of New Orleans' French Quarter. The smell of stale beer and desperation wafted from within, mingling with the pungent aroma of rain-soaked asphalt. Evelyn adjusted her fedora, her reflection distorted in the warped glass. Tonight, she hoped to finally crack the case wide open.
+
+

@@ -1,0 +1,5 @@
+The midday sun beat down on Elias "Eli" Blackwood's neck as he wrestled a sheet of plywood into place. Sweat stung his eyes, but he didn't dare stop. Foreman Kowalski's gaze was like a laser, burning into Eli from across the bustling construction site. The air vibrated with the whine of saws, the clang of hammers, and the rhythmic beeping of reversing dump trucks. Eli felt dwarfed by the skeletal steel frame rising around him – a testament to human ambition, but also a relentless reminder of his own insignificance in the grand scheme of things.
+
+Today was different though. A strange unease gnawed at Eli's gut. It wasn't just the usual fatigue that came with eight-hour days hauling lumber and mixing cement. Something felt...off.  Maybe it was the persistent crow cawing from atop a half-finished wall, or the way the wind seemed to carry whispers instead of simply rustling through the scaffolding. Whatever it was, Eli couldn't shake the feeling that something hidden lurked beneath the surface of this seemingly ordinary construction project.
+
+

@@ -1,0 +1,5 @@
+The midday sun beat down on Florence, turning the terracotta rooftops into shimmering ovens. Elena Rossi shielded her eyes, squinting up at the Duomo's dome, its intricate mosaic tiles glowing like molten gold. A wave of familiar vertigo washed over her as she gazed upwards – a feeling not uncommon for an architect who spent her days poring over blueprints and sketching impossible angles.
+
+Today, however, Elena wasn't studying the Duomo for inspiration. She was on a mission. Tucked away in a quiet alleyway behind the Ponte Vecchio, a crumbling palazzo with faded frescoes awaited her. Rumored to be designed by Brunelleschi himself, the building had fallen into disrepair, its once grand façade now hidden beneath layers of grime and creeping ivy.
+
+Elena adjusted the strap of her leather satchel, her fingers brushing against the worn sketchpad within. This wasn't just any restoration project; it was a chance to uncover a lost masterpiece, to breathe life back into a piece of Florence's history. 

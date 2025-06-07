@@ -1,0 +1,5 @@
+The rhythmic clacking of Evelyn Beatrice Cartwright's typewriter was the only sound that dared disturb the hushed sanctity of Mr. Hawthorne's office. Sunlight, filtered through the heavy velvet drapes, painted long rectangles across the Persian rug and illuminated motes of dust dancing in the air. Outside, the city roared with its midday frenzy - horns honking, vendors hawking their wares, the distant rumble of a trolley car – but here, in this oak-panelled sanctuary perched on the 17th floor, time seemed to slow. Evelyn preferred it that way.
+
+She inhaled deeply, savouring the scent of old books and pipe tobacco that perpetually clung to the air. Mr. Hawthorne's office was a museum dedicated to his success: framed diplomas from Harvard Law adorned the walls, alongside antique maps and busts of Roman emperors. It was a space that whispered power and prestige, and Evelyn, perched behind her mahogany desk with its neat stacks of correspondence, felt a thrill knowing she was a part of it, even if only in the periphery.
+
+

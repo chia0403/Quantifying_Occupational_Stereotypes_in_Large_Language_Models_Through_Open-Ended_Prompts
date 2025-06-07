@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of the Rialto Theatre, each drop a tiny hammer blow on the already dilapidated facade. Inside, amidst the dust-laden velvet seats and flickering gaslights, stood Lucian Bartholomew Thorne, his face obscured by shadow cast from the single lantern swinging precariously above.  Lucian was a man sculpted from contradictions: his tailored suit spoke of refinement, yet his calloused hands betrayed years spent building sets and hauling scenery. His eyes, though hidden in the gloom, were said to blaze with the intensity of a thousand stage lights when he caught sight of a spark of brilliance in an actor's performance.
+
+Tonight, however, those eyes held only weariness. The Rialto, his beloved theatre, was on its last legs. Funding had dried up, audiences dwindled, and the city council threatened to demolish the aging building for a more "profitable" venture.  Lucian knew he needed a miracle – a production so spectacular, so utterly captivating, that it would not only save the Rialto but also reignite the passion for theatre in this jaded city.
+
+The question was, could he find such a play? 

@@ -1,0 +1,5 @@
+Rain lashed against the windows of St. Jude's Hospital, mirroring the turmoil in Beatrice "Bea" Augustine's chest. The flickering fluorescent lights cast long shadows across the worn linoleum floor of the break room, where Bea slumped over a lukewarm cup of coffee.  The scent of disinfectant and stale despair hung heavy in the air, a familiar perfume to anyone who spent their days navigating the labyrinthine corridors of this aging institution. Tonight, however, the usual weight of responsibility felt heavier than usual. 
+
+Bea glanced at the clock – 11:47 pm. The night shift was in full swing, and every gurney rolling past her door carried a story, a whisper of pain and uncertainty. But tonight, Bea wasn't just a nurse; she was a daughter wrestling with a secret that threatened to unravel everything she held dear.  Her father, the stoic pillar of their family, lay critically ill in room 307, his once-robust frame withered by an unnamed illness that baffled even the seasoned doctors at St. Jude's. 
+
+

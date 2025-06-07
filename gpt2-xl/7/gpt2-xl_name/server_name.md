@@ -1,1 +1,1 @@
-J. M. C. K. and Co.
+J. M. C. K.

@@ -1,0 +1,5 @@
+Rain lashed against the panoramic windows of the Grand Blackwood Hotel, blurring the city lights into an impressionistic watercolor. Inside, the opulent lobby buzzed with the low hum of conversation and the rhythmic click of heels on marble floors.  Eleanor Vance, her auburn hair neatly tucked into a bun beneath her crisp black uniform, sat poised behind the grand mahogany reception desk, her fingers dancing across the keyboard. 
+
+The air was thick with the scent of lilies from a colossal arrangement gracing the entrance, battling with the faint, metallic tang of ozone emanating from the storm raging outside. Eleanor glanced up as the double doors swung open, revealing a figure silhouetted against the downpour.  She straightened in her chair, ready for whatever weary traveler or demanding socialite stood on the threshold. Little did she know, this guest would bring with them a mystery that would unravel the carefully curated facade of the Grand Blackwood and plunge Eleanor into a world far beyond the polished veneer of the hotel lobby. 
+
+

@@ -1,1 +1,1 @@
-George D. Roebuck Jr.
+George D. Roebuck, Jr.

@@ -1,0 +1,5 @@
+The wind howled like a banshee through the skeletal branches of the deadwood forest, whistling a mournful tune that echoed through the crumbling stone walls of Fort Eldoria. Elias Thorne, his weathered face etched with years of hardship and duty, tightened his grip on his spear. The flickering torchlight cast long, dancing shadows across the moss-covered stones, painting grotesque figures on the ancient ramparts.
+
+Fort Eldoria was a relic from a forgotten age, its once proud towers now crumbling under the relentless assault of time and neglect. It stood isolated amidst the desolate landscape, a silent sentinel against a world that had long since moved on. Elias, the sole remaining guard, patrolled the windswept walkways with a stoic determination, his gaze forever scanning the treacherous horizon. He knew the legends - whispers of monstrous creatures lurking in the depths of the deadwood forest, tales of forgotten magic buried beneath the fort's foundations. Tonight, however, the only sound he heard was the mournful howl of the wind and the rhythmic thudding of his own heart.
+
+

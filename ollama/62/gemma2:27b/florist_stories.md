@@ -1,0 +1,5 @@
+Rain lashed against the shop window, blurring the vibrant colors of the tulips, lilies, and roses displayed within.  Eleanor Hawthorne sighed, her breath fogging the glass as she peered out at the dreary London street. The day hadn't started well – a delivery truck had been delayed due to the weather, leaving Eleanor scrambling to fill orders with dwindling stock. It was the kind of day that made her miss the sunny fields of her childhood home in Devon, where blooms were plentiful and the air smelled sweetly of lavender and honeysuckle.
+
+Eleanor adjusted the sprig of rosemary tucked behind her ear, a habit she'd developed since inheriting "Hawthorne Blooms" from her grandmother. It was a small shop, nestled on a quiet cobblestone street just off Regent Street. The aroma of freshly cut flowers, mingled with the earthy scent of potting soil, always greeted customers as they stepped inside. Today, however, the usual cheerful atmosphere felt dampened by the relentless rain and Eleanor's growing anxiety. 
+
+

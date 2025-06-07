@@ -1,0 +1,4 @@
+The morning mist clung to Silas Elijah Blackwood's weathered face like cobwebs as he surveyed his fields. Rows of corn, still green but beginning to tassel, stretched towards the horizon, bathed in the soft, pale light filtering through the fog. He inhaled deeply, the scent of damp earth and burgeoning harvest filling his lungs. A crow cawed from atop a gnarled oak, its voice jarring against the peaceful symphony of rustling leaves and chirping sparrows. Silas wiped a calloused hand across his brow, pushing back a lock of greying hair that had escaped his worn cap. The fields were his lifeblood, this land he'd inherited from generations past whispering tales of hard work and quiet resilience in its very soil.  But today, a knot of worry tightened in Silas's gut, heavier than the sack of seed corn slung over his shoulder. 
+
+
+Something wasn't right.

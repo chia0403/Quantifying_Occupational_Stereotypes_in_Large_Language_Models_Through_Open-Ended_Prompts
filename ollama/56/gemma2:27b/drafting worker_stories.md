@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Elias Thorne, casting a sickly yellow glow over his cluttered drafting table. Blueprints littered the surface like fallen leaves, their crisp lines blurred by smudges of graphite and coffee stains. Outside the grimy window, the city groaned under a blanket of perpetual twilight smog. It was another day in Neo-Sheffield, a sprawling metropolis choked by industry and shadowed by towering factories spewing plumes of black smoke into the sky. Elias sighed, running a weary hand through his greasy hair. The rhythmic clatter of drafting tools from the neighboring cubicle did little to soothe his mounting anxiety. He had a deadline looming – a critical one that could determine his future at Sterling Steelworks.  
+
+Elias wasn't cut out for this life. He yearned for something more, something beyond the monotonous grind of blueprints and specifications. But in Neo-Sheffield, opportunity was as rare as clean air. And so he continued, meticulously tracing lines on a sheet of vellum, dreaming of escape with every stroke.
+
+

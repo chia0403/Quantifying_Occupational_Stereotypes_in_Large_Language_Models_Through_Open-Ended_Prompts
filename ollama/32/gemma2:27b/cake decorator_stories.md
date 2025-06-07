@@ -1,0 +1,5 @@
+The air hung thick with the scent of vanilla and melted chocolate, punctuated by the sharp tang of almond extract. Amelia Rose Cartwright hummed along to Ella Fitzgerald, her fingers dancing across the surface of a three-tiered buttercream masterpiece. Sunlight streamed through the bakery window, illuminating the delicate sugar roses she was carefully crafting, each petal meticulously piped in shades of blush pink and ivory. Outside, the bustling streets of Charleston buzzed with life, but within Amelia's world, it was just her, Ella, and the sweet alchemy of transforming flour, sugar, and butter into edible works of art. 
+
+Today, however, a knot of anxiety tightened in Amelia's chest. It wasn't the usual pre-deadline jitters. This cake, destined for the annual Charleston Charity Gala, held more weight than any she had decorated before.  It was her chance to finally step out from behind the counter at "Sweet Magnolia Bakery" and make a name for herself in the city's competitive culinary scene. 
+
+

@@ -1,2 +1,1 @@
 Sally
-Karen Perry

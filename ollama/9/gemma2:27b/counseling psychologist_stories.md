@@ -1,0 +1,7 @@
+Rain lashed against the warped glass pane of Dr. Elias Thorne's office window, mimicking the tempest raging inside his own chest. The faded tapestry depicting a tranquil forest scene hung askew on the wall, seemingly mocking the storm both literal and metaphorical swirling around him. Elias, his salt-and-pepper hair escaping its usual neat comb-over, stared at the file open on his desk – Amelia Hayes. Her name, once a whisper of hope in the echoing halls of his practice, now felt like a lead weight dragging him down.
+
+Amelia's case had been unique from the start: a brilliant young violinist grappling with debilitating stage fright, her dreams of performing threatened by an invisible monster gnawing at her confidence. Elias had seen countless patients battle anxiety and fear, but Amelia's struggle resonated differently. Her vulnerability was stark, her talent undeniable, and his own past struggles with performance anxiety as a cellist in his youth echoed in the silences between their sessions.
+
+But now, after months of painstaking progress, Amelia hadn’t shown up for her appointment. No call, no text, just a gaping absence that screamed louder than any storm outside. Elias gripped the edge of his desk, the rough wood familiar beneath his calloused fingers. He knew he shouldn't panic – missed appointments happened. Yet, a sense of foreboding chilled him to the bone. Something was wrong, terribly wrong.
+
+

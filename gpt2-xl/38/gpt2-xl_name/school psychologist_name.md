@@ -1,1 +1,1 @@
-Joseph Campbell
+Dr. Joseph Campbell

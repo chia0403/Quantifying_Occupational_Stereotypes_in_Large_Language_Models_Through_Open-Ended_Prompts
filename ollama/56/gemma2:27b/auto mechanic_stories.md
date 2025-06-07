@@ -1,0 +1,5 @@
+The rusted bell above the garage door clanged with a tired sigh as Amelia "Amy" Santiago pushed it open, letting in the humid Charleston air thick with the scent of honeysuckle and salt. The late afternoon sun cast long shadows across her cluttered workshop, illuminating dust motes dancing in the golden light. Grease stained her hands, and a stray smudge of engine oil adorned her cheek, a badge of honor in Amy's world.  She surveyed the scene: a hulking '67 Chevy Impala with a sputtering carburetor awaited her attention, while a vintage Vespa scooter sat patiently on the lift, its chrome gleaming under the single bare bulb hanging overhead. Today was shaping up to be another typical day at Santiago's Garage - a symphony of clanking tools, the guttural growl of engines, and Amy's steady, confident touch bringing life back into forgotten machines.
+
+But today felt different. A nervous flutter danced in her stomach as she reached for her toolbox.  A phone call this morning had stirred something within her – an opportunity that could change everything. 
+
+

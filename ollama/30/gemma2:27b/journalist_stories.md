@@ -1,0 +1,7 @@
+The air in the cramped Bangkok alley hung heavy with the smell of fish sauce, exhaust fumes, and jasmine incense. Rain slicked the uneven cobblestones, reflecting neon signs from nearby street stalls selling everything from fried crickets to pirated DVDs.  A lone stray cat darted across Elara Song's path, its emerald eyes glinting in the dim light cast by a sputtering streetlamp.
+
+Elara, her notebook clutched tightly in one hand and a battered Nikon camera slung over her shoulder, paused to catch her breath. The humidity clung to her like a second skin, making the flimsy cotton of her shirt cling uncomfortably. Sweat beaded on her brow, threatening to sting her eyes. She pushed a stray strand of dark hair behind her ear, her gaze fixed on the dilapidated building across the alley. A faded sign above the doorway proclaimed it "The Lucky Dragon Karaoke Bar," but the only sound emanating from within was the distant thrum of a broken air conditioner.
+
+This wasn't Elara's usual beat. She was used to covering political rallies and human rights violations, her articles appearing in The Bangkok Post, Thailand's leading English-language newspaper. But this assignment was different. This one involved whispers of a smuggling ring, hidden behind the veneer of a seedy karaoke bar. It was dangerous, but Elara craved the story, the adrenaline rush that came with peeling back layers of deception and uncovering the truth. 
+
+

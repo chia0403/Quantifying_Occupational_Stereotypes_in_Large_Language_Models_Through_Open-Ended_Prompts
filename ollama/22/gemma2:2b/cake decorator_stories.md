@@ -1,0 +1,5 @@
+The air in "Sugar & Spice" hung thick with the intoxicating aroma of vanilla and cinnamon. Flour dusted the ceiling like fallen snowflakes, and buttercream swirls swirled on every surface—a testament to Amelia "Amy" Bell's artistry.  Her small shop was tucked away in a quiet corner of a bustling city, hidden from the cacophony of cars and crowds outside. But inside, Amy’s world was pure magic. Here, amidst mountains of sugar, she transformed simple cakes into edible masterpieces: intricate floral designs on wedding cakes, miniature landscapes for children's parties, even whimsical creatures for shy newborns—all brought to life with precision and passion. 
+
+This morning, however, a strange tension buzzed through Amy’s carefully constructed calm. A delivery boy stood at the door, his face grim.  "Amy," he announced in a low voice, "it's for you." He held out a heavy, rectangular box. A feeling of foreboding chilled Amy to her core. 
+
+**Who is Amy? What kind of story do you envision for this opening scene?**

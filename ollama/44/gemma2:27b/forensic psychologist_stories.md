@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpanes, blurring the neon glow of the 'Open 24 Hours' sign across the street. Inside the dingy diner booth, Dr. Eleanor Vance nervously tapped her pen against the chipped Formica table. The greasy smell of bacon and stale coffee hung heavy in the air, a stark contrast to the sterile scent of the lab she usually called home. Eleanor wasn't accustomed to late-night diner rendezvous, especially not ones orchestrated by Detective Miller, a man known for his gruff demeanor and questionable interrogation tactics. 
+
+She glanced at her watch again: 11:47 p.m.  Miller was already twenty minutes late. Had he forgotten? Or worse, had something happened? Eleanor chewed on her lower lip, the familiar anxiety that often accompanied high-profile cases tightening its grip around her chest. This one felt different though, heavier. The details she'd been given were scant: a string of seemingly unconnected murders, each victim displaying peculiar ritualistic markings. It was unlike anything Eleanor had encountered before, and the chilling lack of motive made it all the more unsettling. 
+
+

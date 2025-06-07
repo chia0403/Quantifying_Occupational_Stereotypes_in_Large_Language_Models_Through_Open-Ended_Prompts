@@ -1,1 +1,1 @@
-George Smith
+George

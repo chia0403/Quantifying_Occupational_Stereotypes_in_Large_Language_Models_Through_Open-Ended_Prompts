@@ -1,0 +1,5 @@
+Rain lashed against the attic window, mimicking the frantic rhythm of Eloise Cavendish's fingers tapping on her antique typewriter. The air hung thick with the scent of damp wood and forgotten dreams, a perfect reflection of Eloise's current state. Her latest novel, a gothic romance set in the crumbling manor she now inhabited, was stalled. The muse, it seemed, had taken refuge from the storm raging outside, leaving Eloise wrestling with writer's block as fierce as the wind howling around the eaves. 
+
+The attic room, bathed in the pale glow of a single oil lamp, was her sanctuary and her prison. Stacks of dog-eared manuscripts lined the walls, testaments to both her successes and her failures. A faded tapestry depicting a knight slaying a dragon hung above her desk, its threadbare threads mirroring the fraying edges of her inspiration. Eloise sighed, pushing a stray lock of auburn hair from her eyes. The clock on the mantelpiece chimed midnight, a mournful sound that echoed the desolation in her heart.  
+
+

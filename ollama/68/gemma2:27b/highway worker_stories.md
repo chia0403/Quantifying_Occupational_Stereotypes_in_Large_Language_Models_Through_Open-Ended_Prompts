@@ -1,0 +1,6 @@
+The asphalt shimmered under the relentless July sun, radiating heat waves that danced in Elijah Bartholomew's peripheral vision. The air hung heavy and thick, buzzing with cicadas and the drone of distant traffic. Elijah wiped a bead of sweat from his brow with the back of his calloused hand, leaving a streak of grime across his forehead. He was perched precariously on the edge of a fresh asphalt patch, using a long-handled tamper to compact the steaming black material.
+
+Highway 10 stretched out before him, a ribbon of grey bisecting the sprawling Arizona desert. Mountains loomed in the distance, their jagged peaks dusted with a pale, ethereal blue haze. The only sounds were the rhythmic thwack of the tamper against the asphalt and the occasional whoop from his colleagues down the road where a monstrous paver was laying down a fresh lane.
+
+
+Elijah loved the simplicity of his work: hot asphalt, heavy machinery, and the satisfaction of seeing a smooth, unbroken road emerge from the dust.  But today, something felt different. A prickling unease crept up his spine, a feeling he couldn't shake off. Perhaps it was the oppressive heat, or maybe it was the unnerving silence that had settled over the normally bustling worksite. Elijah glanced around, noticing his fellow workers were unusually subdued, their eyes darting nervously towards the horizon. 

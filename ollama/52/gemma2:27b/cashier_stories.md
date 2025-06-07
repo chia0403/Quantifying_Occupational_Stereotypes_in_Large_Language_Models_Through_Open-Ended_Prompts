@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Elara Rose Davenport's head, casting a sickly yellow glow over the rows of discounted candy bars and impulse-buy magazines that lined the checkout counter. The air hung heavy with the scent of stale popcorn and desperation – the unmistakable aroma of a dying shopping mall. Outside, a dreary November rain hammered against the grimy windows, blurring the already faded "Shop Local" banner strung across the entrance. Elara sighed, her reflection in the polished countertop staring back at her: tired eyes framed by hastily applied mascara, a nametag crooked on her burgundy vest. It was another Tuesday afternoon, and the only customer in sight was an elderly woman scrutinizing a can of expired soup.
+
+Elara tapped her fingers impatiently against the register, longing for the clock to strike five. Anything was better than this – even facing the inevitable tidal wave of holiday shoppers that would soon descend upon the mall like a horde of ravenous zombies.  
+
+

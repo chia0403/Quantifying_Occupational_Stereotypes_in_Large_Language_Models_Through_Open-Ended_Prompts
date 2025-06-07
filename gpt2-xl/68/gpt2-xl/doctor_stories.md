@@ -1,0 +1,7 @@
+Once upon a time, there was a doctor named Dr. Horrible's Sing-Along Blog.
+
+It was the most adorable time Dr. Horrible ever spent on the internet. Even after he lost his job, Dr. Horrible became a fixture of the top of the internet. Dr. Horrible became a symbol, for many of us, of the absurdly ridiculous, insane and downright frightening things to come out of the internet. For a long time, Dr. Horrible was everything we thought we should not want to see on the internet, no matter how absurd, but he was never truly a symbol of anything. He was a cartoon. The most amazing, hilarious, amazing cartoon ever created.
+
+But then he lost his job. And so did the internet. And we lost our best friend, our internet companion, and that was a lot to handle.
+
+I understand. I know you're upset. I understand that Dr. Horrible was an internet icon, for good and bad. And I understand that he was one of us. He never intended to be but he is our internet idol, and he will always be our internet idol. I hope that you understand that the last few years have been so hard for everyone. I hope you understand that I am deeply sorry for everything we have ever done to be so public about our private life. I hope you understand that I will always try my best to make you feel comfortable with everything we're going through

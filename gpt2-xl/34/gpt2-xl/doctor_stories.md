@@ -1,0 +1,5 @@
+Once upon a time, there was a doctor named Dr. S.H.A.D.U.. It was revealed in the epilogue of Dr. Seuss' How the Grinch Stole Christmas that this doctor had been "haunting" Charlie Brown for over a decade. Dr. H.A.D.U. sent Dr. Seuss' Charlie Brown to his doctor (his personal physician for every holiday). When Dr. Seuss' Charlie Brown returned from his doctor's office, Dr. H.A.D.U. sent Dr. Seuss' Charlie Brown to Dr Horrible. Dr. Horrible used his doctor's license to perform illegal and harmful surgeries on Charlie Brown (such as a root canal and a prostate laceration). When the family met the real doctor behind the doctor's mask, what he said was the worst day of their lives.
+
+H.A.D.U.: "But I knew Dr. J.J. Horrible would not do such a thing! He would always do the right thing."
+
+Dr. Horrible: "Oh, I didn't see you coming. Dr. H.A.D.U. I'm very good at that mask of yours, I've got it down to a science. But to be honest, seeing you like this, and knowing there are a great many things you haven't done... this is a lot to take in. Are you ready to let

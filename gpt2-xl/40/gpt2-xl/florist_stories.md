@@ -1,0 +1,7 @@
+Once upon a time, there was a florist named Eileen who had this habit. A lady of the church would come and give her flowers or flowers of all sorts if there wasn't something wrong with it.
+
+Today's Eileen was not a lady of God; she was an elderly woman who, if not for her daughter's guidance, would have completely committed suicide when she became a widow. She was the kind of lady who spent most of her days sitting around the house eating noodles and talking about how beautiful flowers are. Her daughter came to her house one day one morning and Eileen told her about the flower shop and her daughter went, "Haha? This lady who was always giving flowers and making them look good for a lady of God, are you some sort of lunatic? I'm not sure who I should believe." She then told her daughter that she would be staying at the flower shop for six months.
+
+Eileen started off by telling her daughter about the difference between men and women, the difference between love and lust, and the differences between friendship and romance. They also discussed Eileen's son, but since he was too old for her to teach him how to read and write, she decided he just had to die, just like he wanted because Eileen didn't want him to leave any children (she had six of them). Eileen left the house, but not before giving the daughter a kiss on the cheek.
+
+At the

@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of The Rusty Quill pub, mimicking the tempest brewing inside Elias Thorne. His notebook lay open on the table, the ink already blurring under the relentless assault of droplets. It wasn't the weather bothering him - Elias was practically a son of the stormy North Sea coast he called home.  It was the interview that had gone awry. Old Man Finnigan, notorious for his cryptic ramblings and uncanny knowledge of local legends, had clammed up tighter than a ship in a hurricane. 
+
+Finnigan had promised Elias information about "the Siren's Song," a chilling melody rumored to lure sailors to their doom off the treacherous cliffs of Widow's Point. Now, the old man was staring into his ale with vacant eyes, muttering something about tides and whispers on the wind. Elias chewed on his thumbnail, frustration rising like the tide. This story could be his big break, the one that finally got him out of this sleepy town and onto a bigger stage. But how could he get Finnigan to talk?  The pub clock chimed nine, its mournful toll echoing the desperation in Elias's heart.
+
+

@@ -1,2 +1,1 @@
 Bob
-Susan B. Anthony

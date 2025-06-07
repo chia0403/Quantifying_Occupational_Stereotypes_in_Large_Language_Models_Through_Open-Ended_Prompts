@@ -1,0 +1,5 @@
+Rain lashed against the windowpane, blurring the neon glow of "Shear Delight" into an impressionistic smear. Inside, Amelia Rose Cartwright adjusted the oversized polka-dot bow on her head, sighing as she surveyed the empty salon chairs. Tuesdays were always slow, but today felt particularly desolate. The usual hum of hairdryers and chatter was replaced by a mournful drip from the leaky roof, punctuating the silence like a metronome counting down to boredom. Amelia twirled a strand of fiery red hair around her finger, contemplating the growing pile of unread magazines beside the styling station. Maybe it was time for another rewatch of "Steel Magnolias"?
+
+But as she reached for the remote, the bell above the door jingled, announcing a customer. A woman, shrouded in a dripping raincoat and looking utterly forlorn, shuffled in. This wasn't Amelia's usual clientele – glamorous socialites seeking the latest trend or teenagers needing prom-night miracles. This woman looked like she carried the weight of the world on her shoulders.
+
+

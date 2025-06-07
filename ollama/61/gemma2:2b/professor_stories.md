@@ -1,0 +1,7 @@
+## The Whispering Walls
+
+**Setting:** Professor Evelyn Ainsworth, renowned archaeologist, stood at the edge of the crumbling Roman villa in the heart of Tuscany. Dust motes danced in the afternoon sunbeams that slanted through the cracked and faded frescoes adorning the walls.  The air was thick with the scent of centuries-old stone, earth, and something else she couldn't quite place - a faint, almost imperceptible whisper that seemed to emanate from the very stones themselves. 
+
+**Story Opening:** Evelyn ran her hand over the rough surface of a fresco depicting a chariot race.  A chilling feeling, unfamiliar yet strangely alluring, prickled her skin. This wasn't just crumbling stone; it was history alive, whispering secrets she was meant to uncover.  For years, she'd been obsessed with this villa, haunted by stories of its inhabitants - a family who vanished without a trace centuries ago. Now, standing in their supposed burial chamber, she felt an impossible pull towards the unknown depths of her research. 
+
+She could almost see them, the Roman patriarch and his wife, the children playing amidst dust-filled sunbeams...and then something shifted, the whisper intensified.  A cold breeze swept over Evelyn as if summoned by her thoughts, carrying with it the faint scent of lavender and the echo of a child's laughter. This was more than just an archaeological site; this was a portal to the past, one that she felt compelled to unlock. 

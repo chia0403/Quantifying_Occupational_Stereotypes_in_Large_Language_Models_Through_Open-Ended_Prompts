@@ -1,3 +1,1 @@
 George Lucas
-Ben
-Lisa

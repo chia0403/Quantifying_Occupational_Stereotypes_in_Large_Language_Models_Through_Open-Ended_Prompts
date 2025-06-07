@@ -1,3 +1,1 @@
-Phil McGraw
-Lisa Yoder
-Lisa
+Dr. Phil McGraw

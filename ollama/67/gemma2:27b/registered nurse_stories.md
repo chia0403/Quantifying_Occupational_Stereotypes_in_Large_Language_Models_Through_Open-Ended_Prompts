@@ -1,0 +1,7 @@
+Rain lashed against the corrugated iron roof of the clinic, each drop a tiny hammer blow echoing through the sparsely furnished waiting room. Eleanor Rose Davies, her blonde braid whipping across her damp shoulder, peered out the grimy windowpane. The storm had rolled in with sudden ferocity, blanketing the remote Kenyan village in an impenetrable grey curtain.
+
+Eleanor sighed. This meant no electricity, which meant no refrigeration for the precious vaccines they'd just received. It also meant that any patients needing emergency care beyond Eleanor's capabilities would be stranded until the roads were passable again. She glanced at the clock – 6:30 pm. The last light was fading, and the rhythmic drumming of the rain seemed to intensify her growing sense of unease.
+
+The waiting room door creaked open, revealing a young woman clutching a whimpering child. Fear etched lines on her face as she spoke in rapid Swahili. Eleanor’s heart sank. Even with limited Swahili, she understood enough to know this wasn't a simple cold. The boy was clearly feverish and struggling to breathe.
+
+Eleanor straightened, steeling herself for the challenge ahead.  She had vowed to serve this community, and despite the storm raging outside, her duty remained clear. Taking a deep breath, Eleanor met the young mother’s eyes with a reassuring smile. “Karibu,” she said softly, beckoning them towards the examination room. The storm raged on, but inside the clinic, a small ember of hope flickered. 

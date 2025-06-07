@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the ramshackle barn, each drop exploding in a miniature burst of sound.  A chill wind whistled through the gaps in the wooden walls, carrying the scent of damp earth and hay. Elara Blackwood, her auburn braids plastered to her cheeks, shivered as she scooped another shovelful of manure from the goat pen. Despite the miserable weather, a smile softened her weathered face. This wasn't just any barn - it was the heart of Whispering Pines Sanctuary, a haven for rescued animals nestled in the foothills of the Appalachian Mountains. 
+
+Elara had dedicated her life to caring for these creatures who had been abandoned, abused, or simply forgotten. From the gruff old boar with a penchant for headbutting fences to the timid squirrel missing half its tail, each animal held a piece of Elara's heart. Today, however, a sense of unease tugged at her. Something wasn't right. The wind carried an unfamiliar scent, sharp and metallic, mingling with the earthy aroma of the barn. And then she heard it - a low growl, guttural and menacing, coming from beyond the ramshackle walls.
+
+

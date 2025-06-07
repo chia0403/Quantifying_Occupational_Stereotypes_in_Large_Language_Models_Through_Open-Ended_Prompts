@@ -1,2 +1,1 @@
-Ray Ginger Garmire
-Edie
+Edie's Dressing Room

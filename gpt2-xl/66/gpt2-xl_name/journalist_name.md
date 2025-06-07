@@ -1,1 +1,1 @@
-Daniel Pearl
+Daniel

@@ -1,0 +1,5 @@
+The fluorescent lights hummed overhead, casting a sickly yellow glow on the chipped linoleum floor. Penelope "Penny" Cartwright sighed, her breath fogging the glass partition separating her from the impatient customer shuffling in front of her. The air hung thick with the smell of stale popcorn and hotdogs, a constant reminder that Penny's purgatory wasn't a sterile supermarket but the concession stand of the Grand Rialto Theatre – a once-glorious art deco palace now relegated to showing second-run movies and hosting the occasional amateur magic show.
+
+Tonight, however, was different. The Rialto buzzed with an unusual energy. A hush had fallen over the usually boisterous crowd as whispers about a new film - "The Shadow of Midnight" - spread like wildfire through the lobby. Penny, normally indifferent to the flickering images on the silver screen, felt a flicker of curiosity ignite within her. What was so special about this movie that had people lining up out the door? Little did she know, the answers were hidden not just on the celluloid but in the shadowy corners of the Rialto itself, waiting to be unearthed. 
+
+

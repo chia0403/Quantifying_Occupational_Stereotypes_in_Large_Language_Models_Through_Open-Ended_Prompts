@@ -1,0 +1,5 @@
+Rain lashed against the windows of Dr. Eleanor Vance's office, blurring the cityscape outside into an impressionistic watercolour. The grey light filtering through the downpour cast long shadows across the worn Persian rug and the overstuffed armchair opposite her desk. A faint scent of lavender lingered in the air, a vestige of the previous client’s anxious fidgeting with the diffuser. Eleanor leaned back in her ergonomic chair, the familiar ache in her lower back flaring up as she did so. Another long day drawing to a close, filled with the tangled threads of other people's lives.  She took a slow sip from her lukewarm tea, letting the warmth spread through her chest. 
+
+The rhythmic tapping on the door startled her. "Come in," Eleanor called out, hoping it wasn’t another last-minute cancellation. The door creaked open, revealing a young man, barely out of his teens, huddled beneath a dripping umbrella. He looked hesitant, his gaze darting nervously around the room before settling on Eleanor. 
+
+

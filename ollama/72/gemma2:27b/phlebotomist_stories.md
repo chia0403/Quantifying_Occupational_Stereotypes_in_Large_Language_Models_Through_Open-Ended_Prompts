@@ -1,0 +1,6 @@
+The fluorescent lights hummed overhead in the small, sterile room, casting an unforgiving glare on Eleanor Finch's worn-out scrubs. The scent of antiseptic hung heavy in the air, mingling with a faint metallic tang that was always present in the lab. Eleanor sighed, her fingers drumming a restless rhythm against the countertop as she waited for the next patient. It was Wednesday afternoon, and the clinic was already bustling with its usual mix of weary coughs, sniffles, and anxious murmurs. 
+
+
+Eleanor loved her job – there was something strangely satisfying about drawing blood, about being the one who eased the fear and uncertainty that often accompanied a visit to the doctor. But lately, a sense of ennui had been creeping in. The routine, once comforting, now felt stifling. She craved something more, something beyond the predictable rhythm of veins and vials.  
+
+Today, as she glanced at the patient chart for her next appointment – a Mr. Silas Blackwood – Eleanor couldn't shake a strange feeling of anticipation. His name was unfamiliar, and his reason for visit simply stated: "Routine bloodwork." But there was something about the neat, precise script on the chart that piqued her curiosity. It felt...different.

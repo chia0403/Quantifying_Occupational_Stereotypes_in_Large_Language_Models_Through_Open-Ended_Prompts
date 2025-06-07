@@ -1,0 +1,5 @@
+The fluorescent lights hummed a discordant symphony above Theodore "Teddy" Bartholomew's head as he pushed his mop across the sticky linoleum floor of the Grand Majestic Theatre. Dust motes danced in the pale yellow light, swirling around him like miniature, shimmering ghosts. The air hung thick with the phantom scent of popcorn and stale perfume – remnants of a thousand bygone nights when the theatre bustled with laughter, gasps, and applause. Now, it lay mostly silent, except for the rhythmic squeak of Teddy's mop and the occasional groan of settling wood.
+
+Teddy preferred the quiet. He was a man who found solace in routine, in the predictable rhythm of emptying overflowing bins, scrubbing grimy bathrooms, and polishing brass railings until they gleamed like new. The theatre, with its faded grandeur and echoing emptiness, felt like a refuge – a place where he could disappear into the mundane tasks that anchored him to reality. But tonight, something felt different. A strange unease prickled at the back of his neck, a subtle shift in the atmosphere that whispered of secrets hidden beneath the dust and shadows. 
+
+

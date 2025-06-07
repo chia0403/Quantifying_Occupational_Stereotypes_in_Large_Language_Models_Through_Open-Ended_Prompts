@@ -1,0 +1,5 @@
+The sun beat down on Elijah "Eli" Carter's neck, turning his already weathered skin the color of sunbaked clay. Dust devils danced across the cracked asphalt of Highway 49, mocking him with their freedom while Eli wrestled with a stubborn bolt on a rusted guardrail post. Sweat stung his eyes, but he dared not blink, lest the wrench slip and send him sprawling onto the unforgiving shoulder. 
+
+He was halfway through replacing the mangled railing – a casualty of last month's hailstorm – when the rumble of an engine broke the silence. Eli squinted towards the horizon, his hand shielding his eyes from the glare. A battered pickup truck, its paint faded and scratched like a forgotten childhood toy, chugged towards him, kicking up a plume of dust in its wake. As it drew closer, Eli could make out the silhouette of a woman behind the wheel, her face hidden by a wide-brimmed hat. Something about the truck – the way it seemed to strain against the incline, the rusting dent on its passenger door – told Eli this wasn't just another commuter passing through. This was someone with a story to tell.
+
+

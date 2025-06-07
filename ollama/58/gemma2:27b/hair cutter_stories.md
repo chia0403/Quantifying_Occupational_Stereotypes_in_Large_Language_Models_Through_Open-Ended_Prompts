@@ -1,0 +1,5 @@
+The whirring of clippers punctuated the air in "Snip It Good," a quaint barbershop nestled on Elm Street, its neon sign casting a vibrant pink glow against the twilight sky. Elias Montgomery, his salt-and-pepper beard perfectly trimmed and his fingers calloused from years of wielding scissors, leaned back against the worn leather barber chair, surveying his handiwork with satisfaction. 
+
+Mr. Henderson, a regular with thinning hair and a penchant for quoting Shakespeare, beamed at his reflection in the antique mirror. "Thou art a master, Elias," he declared, chuckling as Elias playfully ruffled his newly styled silver mane.  But the smile vanished from Elias's face as the bell above the door jingled, announcing a new customer. It was a young woman, her face obscured by a thick hood and her shoulders slumped in a posture of dejection. Elias felt a familiar pang – a mixture of curiosity and apprehension. Every stranger who walked through his door carried a story, and he knew this one wouldn't be simple.
+
+

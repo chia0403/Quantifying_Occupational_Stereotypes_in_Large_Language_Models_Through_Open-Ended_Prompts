@@ -1,2 +1,1 @@
-John C. Bennett
-Bennett
+Dr. John C. Bennett

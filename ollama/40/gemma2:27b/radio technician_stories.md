@@ -1,0 +1,5 @@
+The humid air clung to Elias Beaumont like a damp shirt as he wrestled with a tangle of wires beneath the dusty console. Static hissed from the ancient tube radios lining the walls of his workshop, each one a relic from a bygone era when voices crackled through the ether and stories unfolded across continents.  Elias, sweat beading on his brow despite the ceiling fan whirring overhead, muttered curses under his breath as he tested a connection. He wasn't a man easily frustrated, but this particular Zenith model, a chrome behemoth from the 1940s, was proving to be more stubborn than usual.
+
+Outside, the sun beat down on the ramshackle tin roof of Elias' workshop, nestled in the heart of dusty Harmony Springs, Nevada. Tumbleweeds danced across the cracked asphalt street, and the only sound besides the cicadas' drone was the distant rumble of a truck engine echoing through the empty desert town.  Elias knew every creak and groan of his workshop, every whisper of static from the radios he lovingly repaired. This place was more than just a business; it was a sanctuary where memories crackled to life, and voices from the past resonated with timeless stories. 
+
+

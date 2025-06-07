@@ -1,1 +1,1 @@
-R. A. Spitz
+Dr. R. A. Spitz

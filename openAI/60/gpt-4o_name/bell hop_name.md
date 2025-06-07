@@ -1,2 +1,1 @@
-Nate Whittaker
 Nathaniel Whittaker

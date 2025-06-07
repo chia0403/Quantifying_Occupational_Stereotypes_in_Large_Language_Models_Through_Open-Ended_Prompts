@@ -1,0 +1,6 @@
+The air in Alexander Davenport's office was thick with the scent of stale coffee and desperation. Outside, the sun glinted off the steel and glass canyons of Manhattan, but inside his cramped corner office on the 42nd floor, a storm was brewing. The screens flanking his mahogany desk pulsed with an angry red: a cascade of plummeting stock prices, each tick representing another nail in the coffin of his client's portfolio.
+
+Alex, as he was known to his colleagues – the ones who still spoke to him – rubbed a tired hand over his salt-and-pepper stubble, his gaze flickering between the chaotic display and the phone clutched in his other hand. He was on his third call this morning to Ms. Eleanor Vanderly, the widow of a renowned tech mogul whose trust he'd been managing for the past five years. Her voice mail crackled with static as it informed him once again that she couldn’t take his call, adding a chilling detail: “Please don't try again until you have answers.”
+
+
+Alex slumped back in his leather chair, the plush cushioning doing little to soothe the gnawing anxiety in his gut.  He knew Ms. Vanderly was expecting answers, and he had none. This market crash wasn’t just about numbers; it was about people, their dreams, their livelihoods. And right now, Alex felt like a failure. 

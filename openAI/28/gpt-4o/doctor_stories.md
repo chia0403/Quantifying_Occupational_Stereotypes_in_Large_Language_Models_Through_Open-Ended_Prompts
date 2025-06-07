@@ -1,0 +1,5 @@
+Dr. Emilia Cartwright stood at the edge of the weather-beaten cliff, the Atlantic Ocean roaring beneath her like the relentless pulse of life itself. The sun hung low in the sky, casting a golden hue across the jagged rocks of the rugged Cornish coastline. As the bracing wind tugged at her lab coat, she closed her eyes, savoring the cool salt air that filled her lungs, temporarily freeing her from the sterile confines of the hospital.
+
+In the small village of Porthglen, nestled precariously between the crest of the moorland and the endless sea, Dr. Cartwright had become a fixture over the past decade. The village, with its cluster of slate-roofed cottages and narrow streets winding down to the harbor, had initially seemed too isolated for someone used to the bustling pace of city life. But now, she couldn’t imagine practicing medicine anywhere else.
+
+Porthglen was a place where stories of old lingered in the whisper of the wind and the crash of the waves. It was a community steeped in tradition, where everyone knew each other's names—and their ailments. Here, she wasn’t just another doctor; she was a healer, a confidant, and to many, a friend.

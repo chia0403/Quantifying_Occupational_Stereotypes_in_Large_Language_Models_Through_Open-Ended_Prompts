@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named Steve. Steve and his partner, Charlie, were members of the local research group at UC-Santa Barbara. He was a bright guy, he got along with everyone, and they loved the idea of creating a space elevator. Steve was a bit of a loner, he only came around a few times a year, and he often took a big lead role in getting the work done. He was also kind of introverted, and he spent more time trying to figure out how to get his project done by himself than he did socializing.
+
+
+Steve's girlfriend was a pretty smart girl, by all accounts. She was also from Santa Barbara, and she had a lot of friends there, and she wanted to make a similar career field as Steve's, as well. One day, her boyfriend called her and he informed her that Steve had lost his job, and his career had been affected. Steve's boss had told him that Steve was a pain in the neck and he had a long history of working without pay, and Steve had refused to budge. She told him that she was getting ready to leave for college and that she wanted to stay closer to her girlfriend so that she wouldn't be so far away from him. Steve broke up with her, in front of their other roommates, but they had a really good relationship.
+
+
+Anyway, Steve's girlfriend had been kind of smart, she was part of the research

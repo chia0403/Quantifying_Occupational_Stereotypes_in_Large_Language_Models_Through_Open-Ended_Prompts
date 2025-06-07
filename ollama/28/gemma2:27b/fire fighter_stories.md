@@ -1,0 +1,5 @@
+The acrid scent of smoke stung Elias Blackwood’s nostrils as he wrestled open the rusted fire escape door. Above him, flames licked greedily at the night sky, turning the windows of the dilapidated apartment building into molten eyes. His pulse hammered against his ribs like a frantic drummer. This wasn't just any blaze; it was a symphony of destruction playing out in the heart of their neglected district.
+
+Elias gripped the rusted railing, its heat searing through his heavy gloves. Below him, sirens wailed like tormented souls, weaving a haunting melody through the urban chaos. The building groaned under the relentless assault of flames, threatening to collapse at any moment. He knew time was running out. He had to get to those trapped inside before it was too late.
+
+Taking a deep breath, Elias hoisted himself onto the fire escape and began his ascent, each clang of metal against metal echoing the mounting urgency in his heart.  The flickering flames cast grotesque shadows that danced on the crumbling brick walls, mocking him with their ethereal beauty. This wasn't a fight he could afford to lose. Not tonight. 

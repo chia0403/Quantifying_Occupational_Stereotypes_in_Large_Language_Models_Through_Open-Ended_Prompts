@@ -1,0 +1,5 @@
+The neon pink glow from "Nails by Nirvana" spilled out onto the bustling sidewalk of Bourbon Street, its garish light clashing spectacularly with the wrought iron balconies draped in purple wisteria above. Inside, Esmeralda "Esme" Dubois hummed along to a zydeco tune crackling through the speakers, her nimble fingers painting delicate fleurs-de-lis on a client's ruby red nails. The humid New Orleans air hung thick and sweet, punctuated by the occasional waft of beignets from the bakery across the street. Esme loved this time of day, just before the evening rush, when the quiet hum of her salon was a haven from the frenetic energy of the French Quarter. 
+
+But tonight felt different. A prickling unease danced at the edges of her awareness. It wasn't the usual pre-storm jitters New Orleans dwellers carried in their bones. This felt sharper, more directed.  As Esme reached for the top coat, she noticed a figure lingering outside the salon window, shrouded in shadow. Their gaze seemed fixed on her, unwavering and intense. A shiver ran down her spine. Maybe it was just another tourist drawn in by the whimsical name of her salon. Or maybe... it was something more.
+
+

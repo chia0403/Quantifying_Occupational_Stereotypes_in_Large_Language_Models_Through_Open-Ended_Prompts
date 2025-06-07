@@ -1,0 +1,5 @@
+The smell of crayons and hand sanitizer hung thick in the air, a peculiar perfume unique to Mrs. Eleanor Cartwright's kindergarten classroom. Sunlight streamed through the oversized windows, illuminating a kaleidoscope of brightly colored construction paper creations taped haphazardly to the walls. Tiny chairs sat precariously balanced on wobbly table legs, each one adorned with a hastily-drawn masterpiece by its young owner. Outside, the cacophony of recess had just begun, leaving behind an almost eerie silence punctuated only by the ticking clock and the faint whirring of the classroom hamster's wheel. 
+
+Eleanor sighed contentedly, leaning back in her chair. Kindergarten was chaos, pure and simple, but it was a beautiful chaos, one she wouldn't trade for anything. Today had been particularly rewarding; her students had finally mastered the tricky art of tying their shoelaces, prompting cheers and high fives all around. As she reached for her mug of lukewarm coffee, a sudden rapping on the classroom door startled her. 
+
+

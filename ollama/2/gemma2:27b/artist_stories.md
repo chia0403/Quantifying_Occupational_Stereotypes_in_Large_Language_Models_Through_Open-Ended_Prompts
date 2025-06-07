@@ -1,0 +1,6 @@
+The salty tang of the sea air hung heavy in Amelia "Amy" Cartwright's studio, a converted boathouse perched precariously on the edge of a craggy Cornish cliff. The roar of the waves below was a constant companion, crashing against the rocks with relentless fury, mirroring the tumult within Amy herself. Her canvas sat blank, mocking her with its pristine emptiness. 
+
+Sunlight streamed through the dusty windows, illuminating motes of dust dancing in the air and casting long shadows across the cluttered space. Easel stood beside easel, laden with unfinished canvases: swirling seascapes frozen mid-storm, ghostly figures wandering fog-shrouded moors, portraits of weathered faces etched with stories untold. Each one a testament to her struggle, a reflection of the creative wellspring within her that had run dry.
+
+
+Amy clutched a paintbrush, its bristles stiff and unyielding in her hand. The weight of expectation pressed down on her: the looming deadline for the prestigious Trevelyan Gallery exhibition, the whispers of doubt from those who questioned if she could truly live up to her early promise.  But most importantly, the gnawing emptiness within, a void that no amount of paint or canvas seemed capable of filling. 

@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane, blurring the neon glow of the "Open 24 Hours" sign into an impressionistic smear. Inside the convenience store, fluorescent lights hummed overhead, casting a sickly yellow pallor on the aisles stacked with instant ramen, brightly colored candy bars, and dusty cans of energy drinks. The air hung thick with the aroma of stale coffee and microwaved hotdogs.
+
+Elara Rose Finch sighed, idly twirling a strand of her fiery red hair around her finger. Her name tag, slightly crooked, declared her "Elara," but everyone called her "Ellie" – a nickname she secretly resented for its cloying familiarity. Another hour until her shift ended, another hour spent scanning barcode after barcode, listening to the monotonous drone of the cash register and the occasional muffled coughs from the lone customer hunched over a magazine in the back corner. Tonight, even the usual dull throb of boredom was punctuated by a gnawing sense of unease, a prickling awareness that something wasn't quite right. 
+
+

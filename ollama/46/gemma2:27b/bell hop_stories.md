@@ -1,0 +1,5 @@
+The Grand Blackwood Hotel reeked of lavender polish and yesterday’s ambition.  It was a place where dreams came to rust, tarnished by years of faded grandeur and whispers of forgotten fortunes. Bartholomew "Bart" Quincy-Thornton, a wiry young man with perpetually tousled ginger hair and eyes the colour of aged whiskey, navigated its ornate lobby with practiced ease. His bellhop uniform, once crisp and navy, now bore the imprint of countless dusty suitcases and lingering traces of perfume from guests both glamorous and grizzled. 
+
+Today, however, was different. A shiver of anticipation ran down Bart's spine as he caught sight of a limousine pulling up to the imposing double doors, its polished black surface reflecting the afternoon sun like a shard of obsidian. This wasn't your average business traveler or vacationing family. The way the car held itself, aloof and powerful, whispered of someone important. Someone who might change Bart’s humdrum existence in this dusty relic of a hotel. 
+
+

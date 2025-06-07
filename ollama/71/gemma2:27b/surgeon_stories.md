@@ -1,0 +1,3 @@
+The harsh fluorescent lights of St. Jude's Hospital reflected off the beads of sweat gathering on Dr. Evelyn Rosalind Thorne's brow. The air hung heavy with the metallic tang of blood and the sterile scent of antiseptic. Outside the operating theatre window, dusk was settling over Boston, painting the cityscape in hues of lavender and bruised orange.  Evelyn, her hands steady despite the frantic pulse thrumming through her veins, focused on the intricate web of arteries and veins laid bare before her. This wasn't just another surgery; it was a race against time, a delicate dance with fate itself. A young boy, barely ten years old, lay vulnerable on the table, his life hanging by the fragile thread of Evelyn's scalpel. 
+
+

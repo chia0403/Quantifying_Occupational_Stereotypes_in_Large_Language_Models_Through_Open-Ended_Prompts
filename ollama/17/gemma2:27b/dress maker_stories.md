@@ -1,0 +1,5 @@
+The air in Elodie Beaumont's workshop hummed with the quiet industry of her Singer sewing machine. Sunlight, filtered through the dusty windowpane above her worktable, cast long shadows across the spools of thread and bolts of silk that lined the walls. Outside, the cobblestone streets of Paris throbbed with the energy of a late summer afternoon, but Elodie was lost in the meticulous world she'd created within these four walls. 
+
+Her needle danced through layers of shimmering emerald satin, stitching the bodice of a gown destined for the Duchess de Montfort’s upcoming soirée. The fabric, imported from Lyon, felt cool and luxurious beneath her fingertips, whispering promises of elegance and allure. Elodie inhaled deeply, savoring the scent of beeswax and lavender that hung heavy in the air, mingled with the faint aroma of roasted chestnuts wafting in from a vendor outside.
+
+This was her sanctuary, her haven from the bustling city beyond. Here, amidst the rustling silks and the rhythmic whirring of the machine, Elodie could weave dreams into reality, transforming fabric into exquisite garments that would adorn some of Paris's most influential figures. 

@@ -1,0 +1,9 @@
+## Setting: A desolate corner of the American Southwest
+
+Dust swirled in the midday sun, coating everything with a fine film of red sand. The air was heavy and still, thick with the scent of juniper and sagebrush.  Even the wind seemed to hold its breath on this desolate stretch of Arizona mesa, nestled between two towering but unforgiving rock formations. Professor Elias Thorne stood before his weathered study office, the only sign of human life on the otherwise expansive landscape. 
+
+He was a man built like an old oak, broad shouldered and strong, with calloused hands that had learned to wield power as easily as a pen. His eyes, though lined with time and the weight of countless years spent chasing knowledge across continents, still held a spark of youthful curiosity. He ran a weathered hand through his salt-and-pepper beard, its familiar texture grounding him in a moment of quiet contemplation.  The setting sun cast long shadows across his worn leather desk, illuminating stacks of journals, maps, and dusty artifacts that told the story of his life's work. 
+
+His name, Elias Thorne, was whispered with reverence by academics around the globe. He had dedicated his life to unraveling the mysteries of an ancient civilization lost to time – a civilization whose secrets he had meticulously pieced together from fragments of forgotten texts and cryptic symbols etched on weathered stones. Now, however, as he stared out at the endless expanse before him, Elias felt a growing unease stir within him. His recent obsession with deciphering a strange, archaic inscription on a recently discovered artifact had awakened something... unsettling. 
+
+He was about to venture deeper into this enigmatic world when his eyes fell upon a faint shimmer in the corner of his study.  It pulsed slowly like a beating heart, beckoning him towards the unknown.   

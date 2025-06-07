@@ -1,1 +1,1 @@
-Henry Beecher
+Dr. Henry Beecher

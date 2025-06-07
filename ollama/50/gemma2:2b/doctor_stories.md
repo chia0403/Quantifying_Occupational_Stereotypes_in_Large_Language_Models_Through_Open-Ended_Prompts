@@ -1,0 +1,7 @@
+The air hung heavy with humidity and the scent of salt, a familiar aroma to Dr. Amelia “Amy” Hawthorne, who stood on the bustling dock of Oakhaven Harbor.  A harsh wind whipped her dark hair across her forehead as she surveyed the scene: fishing boats bobbed against the turbulent water, their nets spilling back onto the weathered planks of the dock, and gulls shrieked overhead in a symphony of complaints. It was the kind of place where time moved at its own pace, dictated by the ebb and flow of tides and the whispers of wind-swept trees. 
+
+The flickering light of the distant lighthouse cast long shadows across the harbor, mirroring the troubled thoughts churning within Amy's mind. Today was no ordinary day in Oakhaven Harbor.  It was the annual town meeting, and there was a somber air that clung to the cobblestone streets like fog. The source of this tension? A series of unsettling illnesses plaguing the once-vibrant community - fevers with unknown causes, bouts of crippling lethargy, even inexplicable hallucinations.  Amy, an esteemed doctor known for her sharp mind and unflinching resolve, was tasked with unraveling the mystery behind these peculiar ailments. She steeled herself, a familiar knot forming in her stomach; this wasn’t just another patient case - it felt different, like a puzzle piece that wouldn’t fit into any ordinary picture.  
+ 
+Amy, ever resourceful, pulled out a worn leather-bound notebook and tapped her pen against its cover. Tonight, she was going to play detective. 
+
+

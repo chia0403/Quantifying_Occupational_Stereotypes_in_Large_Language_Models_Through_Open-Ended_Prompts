@@ -1,0 +1,5 @@
+The neon sign outside flickered erratically, casting an epileptic strobe effect across the rain-slicked street.  "The Rusty Wrench," it proclaimed in bold, garish letters, promising cheap drinks and questionable company. Inside, the air was thick with cigarette smoke, spilled beer, and the low murmur of hushed conversations. Bartholomew "Bart" Quill leaned against the mahogany bar, polishing a chipped glass with practiced movements. His reflection stared back – tired eyes framed by salt-and-pepper hair, a face etched with lines born from years of late nights and listening to people's woes.
+
+He was the king of this crumbling castle, a master craftsman behind the bar who could conjure up any drink imaginable with a flick of his wrist and a knowing wink. He knew every regular by name, their preferred tipple, their usual seat. But tonight, something felt different. A prickle of anticipation ran down his spine, a sense that the familiar rhythm of The Rusty Wrench was about to be disrupted. 
+
+

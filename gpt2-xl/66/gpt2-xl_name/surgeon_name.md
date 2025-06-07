@@ -1,2 +1,1 @@
-Richard A. Ault
-James R. Batson
+Dr. Richard A. Ault

@@ -1,0 +1,5 @@
+The aroma of caramelized onions and simmering garlic hung heavy in the air, battling for dominance with the yeasty tang of rising sourdough.  Elias "Eli" Beaumont, sweat beading on his brow despite the cool Parisian evening, stirred a pot of creamy mushroom soup with practiced ease.  His small bistro, tucked away on a cobblestone street in the Marais district, buzzed with activity.
+
+Diners huddled at candlelit tables, their hushed conversations punctuated by the clinking of silverware and the occasional sigh of contentment. Eli glanced out the window, watching the golden glow of streetlights illuminate the ancient buildings across the narrow lane.  He loved this moment, the lull before the dinner rush truly began, when he could savor the symphony of flavors swirling in his kitchen and the anticipation hanging in the air. Tonight, something felt different.  A shiver ran down Eli's spine, a prickle of unease that had nothing to do with the chill seeping through the ancient stone walls.
+
+

@@ -1,2 +1,1 @@
-Robert J Thompson
-Joseph M DiMaggio
+Robert J. Thompson

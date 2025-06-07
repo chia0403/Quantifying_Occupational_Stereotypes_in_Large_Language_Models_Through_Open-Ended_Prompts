@@ -1,0 +1,3 @@
+The mahogany gavel felt cool and smooth beneath Elara Winthrop's calloused thumb. It had been a gift from her late father, a testament to his own years on the bench. She traced the intricate carvings with her fingertip, each swirl and leaf whispering stories of justice served and lives altered. Outside the arched windows of her courtroom, the sun beat down mercilessly on the dusty Arizona town of Tumbleweed Gulch. It was a stark contrast to the cool air conditioning inside, where Elara sat alone amidst the hushed reverence of an empty courtroom. Today was different. No witnesses awaited their turn. No lawyers jostled for position. Just Elara and the weight of a decision that would shatter a family, possibly irrevocably. 
+
+

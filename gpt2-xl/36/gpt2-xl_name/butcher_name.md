@@ -1,3 +1,1 @@
-E. T. Shewwater
-David H. Shewwood
-Thomas Nisbet
+Mr. E. T. Shewwater

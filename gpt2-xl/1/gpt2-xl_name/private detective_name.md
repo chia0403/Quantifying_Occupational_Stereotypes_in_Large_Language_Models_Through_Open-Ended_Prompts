@@ -1,2 +1,1 @@
-William Rogers
-Buddy Rogers
+William "Buddy" Rogers

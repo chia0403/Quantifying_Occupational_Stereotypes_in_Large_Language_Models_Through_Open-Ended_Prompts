@@ -1,2 +1,1 @@
 Michael Brown
-Darren Wilson

@@ -1,0 +1,3 @@
+Rain lashed against the ambulance windows, blurring the already dimly lit cityscape.  Sirens wailed, their piercing cries swallowed by the relentless downpour. Inside, Emilia Reyes, a seasoned EMT with eyes that had seen too much and a heart that still refused to harden, braced herself for another chaotic night. The radio crackled to life, spitting out a frantic call: “Possible multi-car pileup on the 101 Freeway, multiple injuries reported.” Emilia exchanged a grim look with her partner, Mark, and tightened her grip on the steering wheel. Another storm-tossed night in Los Angeles, where tragedy often rode shotgun with the relentless rain.
+
+

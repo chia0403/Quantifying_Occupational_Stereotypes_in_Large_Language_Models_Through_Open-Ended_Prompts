@@ -1,0 +1,6 @@
+The air in the Grand Blackwood Hotel lobby hummed with the quiet symphony of luxury: the clink of champagne flutes against polished marble, the rustle of silk gowns gliding across Persian carpets, the murmur of hushed conversations in languages spanning the globe.  Eleanor Sinclair, her posture as impeccable as the starched white collar of her uniform, surveyed the scene with a practiced eye. For twelve years, she had been the Grand Blackwood's concierge, its ever-smiling, ever-helpful guardian angel. She knew every nook and cranny of the opulent building, from the secret wine cellar tucked beneath the ballroom to the hidden balcony overlooking the city where lovers often stole kisses under the moonlight.
+
+Tonight, however, a disquiet lingered in Eleanor's chest.  A new guest had arrived, his name whispered with hushed awe throughout the staff: Mr. Lucian Thorne. A recluse, they said, with eyes as dark as midnight and a past shrouded in mystery. He had booked the Blackwood Suite for an indefinite stay, requesting complete solitude and absolute discretion. Eleanor's curiosity, usually tempered by years of professional decorum, was piqued. 
+
+
+What secrets, she wondered, did this enigmatic Mr. Thorne hold?

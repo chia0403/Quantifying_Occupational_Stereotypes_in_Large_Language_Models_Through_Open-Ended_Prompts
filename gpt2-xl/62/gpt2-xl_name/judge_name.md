@@ -1,1 +1,1 @@
-William H. Thompson
+Thompson

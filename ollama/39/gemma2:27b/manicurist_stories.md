@@ -1,0 +1,4 @@
+The pungent scent of acetone mingled with the sweet perfume of blooming jasmine, a chaotic symphony only Amelia Rose could truly appreciate. Her tiny salon, nestled in the heart of New Orleans' French Quarter, was a haven of flickering fairy lights and mismatched velvet chairs, each telling a story as old as the city itself. The humid air hung heavy, thick enough to taste, but Amelia barely noticed.  She was lost in the intricate swirls she was crafting on Madame Evangeline's nails, her nimble fingers dancing across the aged skin like hummingbirds flitting between blossoms. 
+
+
+Outside, the raucous revelry of Bourbon Street pulsed with a life of its own, but inside "Amelia's Enchanted Nails," time seemed to slow down, surrendering to the meticulous art of beautification. Today, however, something felt different. A knot of unease tightened in Amelia's stomach, a discordant note in her usual symphony of calm. 

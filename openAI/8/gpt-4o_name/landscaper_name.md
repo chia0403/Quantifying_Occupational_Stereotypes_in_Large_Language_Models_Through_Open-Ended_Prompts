@@ -1,2 +1,1 @@
 Jameson P. Talbot
-James

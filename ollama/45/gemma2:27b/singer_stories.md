@@ -1,0 +1,4 @@
+Rain lashed against the grimy windows of The Blue Note, a dive bar tucked away in a forgotten corner of New Orleans. Inside, the air hung thick with cigarette smoke and the scent of stale beer. A lone spotlight illuminated the stage where Elara Rose LeBlanc, her fiery red curls escaping from beneath a battered fedora, gripped the microphone stand like a lifeline. Her voice, raw and powerful as a hurricane, soared above the murmur of conversation, weaving tales of heartbreak and resilience into the bluesy melody.
+
+
+Elara's eyes were closed, lost in the music, her soul poured out in every note. This wasn't just a performance; it was a catharsis, a way to exorcise the demons that haunted her. But even as she sang, a gnawing fear lingered in the back of her mind – tonight was her last chance. The Blue Note's owner had warned her, "One more empty house, Elara, and I gotta pull the plug." 

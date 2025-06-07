@@ -1,2 +1,1 @@
 Jack Geller
-Henry Irving

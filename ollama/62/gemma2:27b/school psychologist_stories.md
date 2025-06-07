@@ -1,0 +1,5 @@
+Rain lashed against the windows of Dr. Evelyn Sinclair's office, mimicking the storm brewing inside her. The beige walls felt suffocating, closing in on her as she stared at the file splayed open on her desk. Michael Anders, age 15, diagnosed with severe anxiety and social phobia. His case was complex, riddled with layers of trauma and isolation. Evelyn sighed, pushing a stray strand of auburn hair behind her ear.  She'd been at Willow Creek High School for five years, but Michael felt different. There was something in his file, in the carefully crafted words describing his withdrawn nature and panic attacks, that whispered of a deeper struggle.
+
+Willow Creek High wasn't known for its warmth. Nestled amidst rolling hills dotted with aging Victorian homes, it carried an air of melancholy, echoing the anxieties of its student body. The halls were perpetually tinged grey from the overcast skies, and even the laughter seemed hesitant, muffled by unspoken fears. Evelyn felt a pang of empathy for Michael, picturing him navigating this unforgiving landscape, alone in his storm. She had to help him, but how do you reach through the walls someone has built so high? 
+
+

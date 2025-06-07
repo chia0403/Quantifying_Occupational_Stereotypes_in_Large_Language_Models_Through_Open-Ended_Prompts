@@ -1,0 +1,5 @@
+The neon sign outside flickered erratically, casting a sickly green glow across the rain-slicked cobblestones.  "The Siren's Song," it proclaimed in bold, uneven letters, promising something alluring yet tinged with danger. Inside, the air hung thick with cigarette smoke and the melancholic strains of Billie Holiday crooning from a dusty jukebox in the corner. Elias Blackwood, his salt-and-pepper hair slicked back and a wry smile playing on his lips, expertly polished a whiskey glass, the rhythmic swish a counterpoint to the mournful melody. He knew every inch of this place, its creaking floorboards, the faded velvet booths, even the stubborn stain shaped like a martini glass near the pool table. Elias wasn't just a bartender; he was The Siren's Song's keeper, its silent guardian against the storm raging outside and the storms brewing within each soul that crossed his threshold.  Tonight, the rain seemed to be falling harder, mirroring the heavy weight in Elias' chest. He had a feeling, a prickle of unease that whispered of something unusual, something about to change the rhythm of The Siren's Song forever.
+
+And then, she walked in. 
+
+

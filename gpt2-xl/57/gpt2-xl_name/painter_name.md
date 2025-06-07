@@ -1,2 +1,1 @@
 Richard Adams
-Jason Latour

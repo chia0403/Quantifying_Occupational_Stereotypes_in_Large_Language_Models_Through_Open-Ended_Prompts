@@ -1,0 +1,5 @@
+The humid Florida air hung heavy, thick as buttercream frosting. Emilia Rose Bellini dabbed her brow with a flour-dusted handcloth, sighing as she surveyed the towering monstrosity before her. It wasn't supposed to be monstrous; it was meant to be whimsical, a three-tiered strawberry cake adorned with sugar flowers and playful woodland creatures for little Lily's fifth birthday party. 
+
+But the fondant squirrels were lopsided, their tails drooping dejectedly like forgotten balloons, and the buttercream sky looked more like stormy seas than the cheerful azure Emilia had envisioned. Lily's mother, a woman named Brenda whose smile was as tight as her designer jeans, loomed over Emilia's shoulder, her perfectly manicured nails drumming impatiently on the marble countertop of Emilia's Miami bakery, "Sweet Surrender."
+
+Brenda cleared her throat, the sound sharp enough to slice through a dozen delicate macarons. "Emilia," she said, her voice saccharine sweet yet laced with a thinly veiled threat, "Lily simply *must* have a perfect cake. It's essential for Instagram, you understand." 

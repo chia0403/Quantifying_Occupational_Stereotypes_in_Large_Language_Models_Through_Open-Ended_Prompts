@@ -1,0 +1,5 @@
+The air hung thick with the scent of vanilla and buttercream, a symphony of sweetness only interrupted by the rhythmic whirring of the stand mixer. Eloise Persephone Bellweather hummed along to a vintage jazz record crackling on the turntable, her nimble fingers delicately piping rosettes onto a tiered wedding cake, each one perfect and precise. Sunlight streamed through the dusty windows of "Eloise's Enchanted Cakes," illuminating the whimsical wonderland she’d created within the cramped Victorian storefront in downtown Willow Creek. Shelves overflowed with colorful sprinkles, fondant cutters shaped like miniature unicorns, and jars filled with glistening edible glitter. 
+
+Willow Creek, a sleepy town nestled amidst rolling hills and apple orchards, had always been Eloise's sanctuary. Its cobblestone streets, charming boutiques, and friendly faces offered a comforting contrast to the bustling, impersonal world she’d left behind when she’d decided to pursue her passion for cake decorating.  But today, a strange tension crackled beneath the sugary sweetness, a tremor in the air that hinted at something unexpected about to unfold. 
+
+

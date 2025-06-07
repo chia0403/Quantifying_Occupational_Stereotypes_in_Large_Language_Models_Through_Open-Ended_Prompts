@@ -1,0 +1,5 @@
+The air hung heavy with the scent of freshly cut grass and honeysuckle, a familiar perfume to Elara Rosalind Finch, head landscaper at Willow Creek Estate.  Sunlight slanted through the ancient oaks lining the cobblestone drive, dappling the manicured lawn in emerald patches. Elara knelt by a bed of crimson roses, carefully pruning away dead blooms with her weathered shears. Her calloused fingers moved with practiced ease, each snip precise and deliberate. 
+
+Willow Creek was more than just a job for Elara; it was a sanctuary.  The sprawling gardens, bursting with life and color, offered a solace she hadn't found anywhere else in the world. Today, though, a disquietude gnawed at her. The usual symphony of birdsong seemed muted, replaced by an unsettling stillness. And then there was the crumpled note tucked beneath the rose bush, its edges browned by the morning dew. Curiosity warred with apprehension as Elara unfolded the paper, revealing a cryptic message scrawled in hurried handwriting: "The raven knows."
+
+

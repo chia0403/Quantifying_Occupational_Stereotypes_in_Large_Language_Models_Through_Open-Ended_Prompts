@@ -1,0 +1,7 @@
+The air hung heavy with the scent of beeswax, lavender water, and something faintly metallic – the lingering ghost of blood from a recent alteration on a cavalry captain's tunic. Elias Hawthorne ran a practiced hand over the plush velvet he was currently shaping into a waistcoat for a wealthy merchant. Outside his shop window, dusk painted the cobblestone streets of Veridia in hues of violet and bruised orange, casting long shadows that danced with the flickering gas lamps. 
+
+Elias worked by the fading light filtering through the stained glass panel above his workbench, its colours reflecting in the sharp gleam of his needle.  He was a man of quiet intensity, his brow furrowed in concentration as he coaxed the fabric into submission, each stitch precise and purposeful. Veridia bustled with life beyond his shop door – hawkers calling out their wares, children chasing pigeons through the square, the clatter of carriages on cobblestones – but within the haven of his workshop, there was only the gentle rasp of shears against cloth and the rhythmic tick-tock of the grandfather clock in the corner.  
+
+Tonight, however, the familiar hum of Elias's world felt off-kilter. A letter lay unopened on his workbench, its wax seal bearing the unfamiliar crest of a foreign noble house. It had arrived earlier that day, delivered by a rider who seemed oddly hesitant to linger. The sender requested an audience with Elias Hawthorne, "the most discreet tailor in Veridia," for a matter of utmost urgency. 
+
+

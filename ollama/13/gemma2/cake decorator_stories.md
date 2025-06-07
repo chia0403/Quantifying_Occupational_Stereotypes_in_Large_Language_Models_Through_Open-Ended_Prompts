@@ -1,0 +1,5 @@
+The air hung thick with the scent of buttercream and burnt sugar in Amelia Rose Cartwright's tiny shop, "Whimsical Wishes." A rainbow of sprinkles spilled across the worn countertop like confetti after a parade, and flour dusted the air like a perpetual snowfall.  Amelia, her face flushed from the heat of the oven and the exertion of piping delicate roses onto a towering wedding cake, wiped her brow with the back of her hand, leaving a streak of powdered sugar on her cheek. 
+
+Outside, the late summer sun beat down on the sleepy town square of Willow Creek, casting long shadows that stretched across the cobblestone streets.  Amelia's shop, nestled between a dusty antique store and a bustling bakery, was usually a haven of quiet creativity. But today, a buzz of anxious energy crackled in the air. It was the day of the annual "Willow Creek Bake-Off," a competition Amelia had entered for the first time, her heart pounding like a hummingbird's wings with a mixture of excitement and dread. 
+
+

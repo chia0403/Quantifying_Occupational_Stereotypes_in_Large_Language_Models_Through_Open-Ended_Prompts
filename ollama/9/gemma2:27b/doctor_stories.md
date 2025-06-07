@@ -1,0 +1,6 @@
+The insistent chirping of cicadas filled the humid air, a relentless soundtrack to Eleanor Vance's mounting frustration. Sweat beaded on her brow despite the feeble whirring of the ceiling fan. Outside, the midday sun beat down on the ramshackle clinic, turning the tin roof into a sizzling skillet. Inside, it was barely cooler, the only respite a sliver of shade cast by a dusty potted palm in the corner.
+
+Eleanor sighed, running a hand through her already disheveled bun. Three days she'd been here in San Pedro de Atacama, a remote village nestled amongst the otherworldly salt flats and towering volcanoes of northern Chile. Three days of patching up sunburns, setting broken bones from precarious llama rides, and dispensing penicillin for everything from coughs to suspected curses. She hadn't seen a single case that challenged her intellect, let alone ignited her passion for medicine. 
+
+
+Eleanor longed for the complex cases she used to handle at the bustling city hospital in Santiago – the heart transplants, the intricate brain surgeries, the ethical dilemmas that kept her up at night poring over medical journals. This felt like purgatory, a penance for some unknown sin. Yet, here she was, stranded by a washed-out road and a dwindling supply of antibiotics, wondering if this dusty outpost was where her career would end.

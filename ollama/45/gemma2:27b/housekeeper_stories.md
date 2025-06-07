@@ -1,0 +1,5 @@
+The scent of lemon polish hung heavy in the air, battling for supremacy with the faint aroma of cigar smoke that clung stubbornly to the Persian rug. Amelia Thistlewick knelt, her bony fingers scrubbing tirelessly at a stubborn stain on the antique mahogany floor. Sunlight streamed through the arched windows of the opulent drawing room, illuminating dust motes dancing in the air and painting stripes across the faded velvet upholstery. Outside, the manicured lawns of Blackwood Manor stretched towards the distant, hazy hills, an idyllic scene that Amelia barely registered. Her world was confined to these four walls, a gilded cage where she navigated the complex labyrinth of expectations laid out by the Blackwood family.
+
+Today, the air crackled with a peculiar tension. Amelia could feel it in the hushed whispers of the other staff, see it reflected in Mrs. Blackwood's tightly pursed lips and Mr. Blackwood's uncharacteristically curt greetings. Something was amiss, and Amelia, ever the keen observer, knew it had something to do with the unexpected arrival of a young man who had been ushered into the manor that morning. 
+
+

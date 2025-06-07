@@ -1,3 +1,1 @@
-Einhorn
-Joss Whedon
-Marvel
+Mr. Einhorn

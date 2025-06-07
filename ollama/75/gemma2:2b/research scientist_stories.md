@@ -1,0 +1,7 @@
+## The Whisperer's Archive
+
+**Setting:**  A dilapidated Victorian manor nestled deep within the Scottish highlands. Rain lashed against the grimy windows, casting long, dancing shadows across the cavernous halls. Inside, dust motes pirouetted in the weak beams of an ancient gas lamp. The air hung heavy with the smell of decaying wood and forgotten dreams.
+
+**Character:** Dr. Elspeth MacTavish, a renowned bio-engineer known for her groundbreaking work on human consciousness.  Her once brilliant career had crumbled into obscurity after a series of controversial experiments with dormant neural pathways. Now, shunned by the scientific community, she lived in this crumbling mansion, haunted by whispers of what went wrong. 
+
+**Story Opening:** A weathered leather-bound journal lay open on Elspeth's cluttered desk. Its pages, brittle and stained, whispered secrets from a forgotten age. The handwriting was frantic, each line revealing a desperate struggle against the encroaching darkness. "The Whispers... they are multiplying... must find a way to contain them," it read in shaky, uneven script.  Elspeth’s breath caught in her throat as she reread the final, scrawled sentence: "Heirloom code. The key lies within." A shiver ran down her spine. She had always believed she was chasing a ghost, but now, it seemed she might have found something real - something far more sinister and powerful than she ever imagined. 

@@ -1,2 +1,1 @@
 Frank Sinatra
-Christine Ford

@@ -1,0 +1,5 @@
+The flickering fluorescent lights cast elongated shadows across the linoleum floor, each swipe of Elias Bartholomew's mop echoing like a mournful sigh in the cavernous silence of the abandoned science lab. Dust motes danced in the pale luminescence, swirling around beakers filled with murky solutions and Bunsen burners coated in a thick layer of grime. Outside, a storm raged, whipping rain against the grimy windows and sending an occasional shiver through the building's aging bones. Elias, his thin frame hunched beneath the weight of a overflowing trash bag, paused, listening to the wind howl like a tormented beast.
+
+He wasn't supposed to be working this late. His shift ended hours ago. But something about the lab, with its forgotten experiments and ghostly whispers of scientific discovery, kept him coming back. Tonight, it felt different. An unsettling hum vibrated beneath his feet, a low frequency thrum that pulsed in sync with the storm outside. Elias hesitated, glancing nervously at the rows of sealed cabinets, each one holding secrets he wasn't meant to uncover. 
+
+

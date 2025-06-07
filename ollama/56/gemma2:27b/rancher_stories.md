@@ -1,0 +1,5 @@
+The wind whipped across the plains, carrying with it the scent of sagebrush and distant rain. Dust devils danced in the distance, swirling up red earth like miniature tornadoes. Bartholomew "Bart" McKinley squinted against the glare, his weathered face etched with lines that spoke of years spent under the unforgiving sun. He tugged at the brim of his Stetson, a worn leather relic as old as he was, and surveyed his domain: the sprawling McKinley Ranch, generations old and stretching out before him like a patchwork quilt stitched together from fields of golden wheat and pastureland dotted with grazing cattle. 
+
+Bart's calloused hands gripped the railing of the porch overlooking the valley. Today marked ten years since his father, Elijah, had passed away, leaving Bart to shoulder the responsibility of the ranch. Ten years of hard work, relentless drought, and the constant struggle against nature's whims. But there was a deep satisfaction in knowing that he carried on the legacy, the land humming with life under his care.
+
+

@@ -1,0 +1,6 @@
+The humid Georgia air clung to Dr. Eloise Beaumont like a second skin as she stepped out of Mercy Hospital.  Fireflies winked in the dying light, their tiny luminescence barely piercing the gathering dusk. Spanish moss dripped from the ancient oaks lining the hospital driveway, swaying gently in the breeze like spectral curtains. A symphony of cicadas thrummed in the background, a constant, buzzing hum that underscored the stillness of the evening. Eloise, her face flushed from a particularly harrowing shift in the ER, ran a hand through her short, dark hair, wishing for a cool shower and a glass of something strong. But duty called. A phone call had come mid-shift, informing her about a serious accident just outside town, a multiple vehicle collision with potential fatalities.  
+
+Eloise sighed, knowing there were lives hanging in the balance. Mercy Hospital was the only facility for miles around, their small staff stretched thin by the demands of rural life. 
+
+
+She reached into the trunk of her battered Ford Ranger and pulled out her medical bag, its worn leather comforting against her palm. The weight of responsibility settled heavily on her shoulders, but Eloise Beaumont never shied away from a challenge. Tonight, she was all that stood between chaos and hope.  

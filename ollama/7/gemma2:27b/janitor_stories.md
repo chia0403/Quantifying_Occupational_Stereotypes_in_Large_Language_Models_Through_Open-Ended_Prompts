@@ -1,0 +1,9 @@
+The flickering fluorescent lights hummed an off-key symphony as Elroy Thornton mopped his way down the deserted hallway of the Blackwood Institute. The scent of disinfectant mingled with the faint whiff of stale coffee and something indefinably metallic, like blood dried beneath layers of paint. It was a smell Elroy had grown accustomed to in his 20 years tending to the hallowed halls of this once-prestigious scientific institution.
+
+Blackwood used to be a beacon of innovation, its labs churning out groundbreaking discoveries in everything from bioengineering to theoretical physics. Now, it stood half-abandoned, a monument to past glory shrouded in whispers and shadows. The once-bustling research teams had dwindled to a handful of tenacious scientists clinging to their dwindling grants. Funding dried up after the "Blackwood Incident," a hushed-up event that sent shockwaves through the scientific community and left Blackwood with a reputation it couldn't shake off.
+
+Elroy pushed his mop cart past a dusty laboratory, its windows fogged with age and neglect. Through the grime, he glimpsed an array of tangled wires and deactivated machinery, ghosts of experiments long abandoned. He shuddered involuntarily, remembering the rumors - whispers of warped realities, unethical experiments, and something monstrous lurking in the basement levels.
+
+Tonight, however, Elroy's focus was on the mundane task at hand: mopping up spilled coffee near the entrance to the main auditorium. It was a thankless job, but it paid the bills and kept him away from the loneliness of his tiny apartment. As he worked, a flicker of movement caught his eye. In the reflection of a darkened windowpane, he saw something shift in the shadows at the far end of the hallway. Something large, moving with an unnatural grace.
+
+

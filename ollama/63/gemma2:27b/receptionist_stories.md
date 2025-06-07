@@ -1,0 +1,5 @@
+The incessant chirp of the antique phone on Eleanor Beatrice Finch's desk grated on her nerves like sandpaper against raw skin. She idly twirled a lock of auburn hair around her finger, watching the dust motes dance in the sliver of sunlight slicing through the grimy windowpane. The waiting room of "Dr. Thaddeus Blackwood & Associates: Purveyors of Fine and Unusual Antiquities" was eerily silent, save for the rhythmic tick-tock of a grandfather clock whose pendulum seemed to swing with the languid boredom Eleanor had come to embody. 
+
+Outside, the bustling city of Arkham roared with its usual symphony of honking cars, screeching trams, and distant shouts. But within these four walls, tucked away in a dimly lit corner on the third floor of an aging Victorian townhouse, time seemed to move at its own languid pace. Eleanor longed for something, anything, to break the monotony. A glimpse into the dusty artifacts lining the shelves, a peek at the mysterious clientele that frequented this peculiar establishment, even just a stray thought beyond the drudgery of answering phones and filing invoices – anything but this suffocating stillness.
+
+

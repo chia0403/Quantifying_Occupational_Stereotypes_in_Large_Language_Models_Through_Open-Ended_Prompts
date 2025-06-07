@@ -1,0 +1,7 @@
+The stale smell of cigarette smoke and chlorine hung thick in the air, a familiar perfume to Elias "Eli" Finch, bellhop extraordinaire at the Grand Palms Hotel. The lobby shimmered with an artificial sun, casting long shadows from the towering palm trees that decorated the faux-tropical oasis. It was all brass and marble, chandeliers dripping diamonds of light onto tourists who looked perpetually lost or slightly overwhelmed. Eli weaved through them, his bellhop cart clattering behind him like a loyal steed.
+
+He knew every inch of this place, from the creaky elevator to the secret stairwell used by the staff for illicit cigarette breaks. He'd seen it all – honeymoons turning sour, business deals going bust, and even the occasional ghost story whispered in the dead of night. But today was different. Today, a feeling crackled in the air, a tension Eli couldn't quite place. It started with the arrival of a peculiar guest, a woman draped in shadows, her face hidden behind a wide-brimmed hat. She spoke in hushed tones, requesting a room on the top floor, away from prying eyes.
+
+Eli wheeled her luggage towards the elevator, his curiosity piqued. He'd met all sorts, but this woman had an air of mystery about her, a dangerous glint hidden in the depths of her veiled eyes. As he pressed the button for the penthouse suite, Eli couldn't shake the feeling that their encounter was just the beginning of something extraordinary, and possibly terrifying. 
+
+

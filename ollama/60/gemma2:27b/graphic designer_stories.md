@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpanes of Eloise "Ellie" Davenport's tiny studio apartment, mimicking the frantic drumming of her fingers on the worn keyboard. Outside, the neon glow of the city bled into the grey sky, turning it an unsettling shade of bruise-purple. Ellie squinted at the screen, her reflection superimposed over a garish mock-up for a new energy drink: "Volt," it screamed in electric blue lettering, punctuated by lightning bolts and a grinning cartoon character with muscles bulging out of its spandex suit.
+
+Ellie grimaced. This wasn't exactly the kind of design work she'd dreamt of when she'd graduated top of her class from the Rhode Island School of Design. Her portfolio, once brimming with elegant typography and minimalist aesthetics, was slowly being overtaken by these garish commissions – the price to pay for rent in a city that devoured dreams as readily as it consumed overpriced coffee. Still, Ellie clung to a sliver of hope. Somewhere out there, a client needed her unique vision, a project worthy of her talent. Tonight, though, she was stuck with Volt.  
+
+

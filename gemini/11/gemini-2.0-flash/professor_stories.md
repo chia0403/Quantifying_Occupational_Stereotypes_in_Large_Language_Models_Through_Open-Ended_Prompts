@@ -1,0 +1,11 @@
+## Story Opening:
+
+The biting wind whipped off the Northumberland coast, a feral thing determined to strip the last vestige of warmth from anyone foolish enough to stand against it. Professor Alistair Humphrey Blackwood, PhD, buttoned his tweed jacket tighter, the rough wool scratching against his chin. He hunched deeper into the meager shelter afforded by the crumbling stone wall that bordered the sprawling, windswept grounds of Blackwood Keep. The salt spray stung his face, mingling with the tears he refused to acknowledge. He hadn't cried since his mother's funeral, and he wasn't about to start now, not even for what he suspected he was about to find.
+
+The ravens, usually a raucous, chattering mob, were strangely silent, their black forms perched on gargoyles and crumbling battlements like ominous sentinels. Even they seemed to sense the weight of the past pressing down on Blackwood Keep, a weight that Alistair, by blood and by profession, was inexorably drawn to confront. The old stones seemed to hum with a story, a dark symphony of secrets waiting to be unearthed. And Alistair, despite the gnawing dread in his gut, was determined to listen.
+
+## Setting:
+
+Blackwood Keep, a gothic monstrosity of grey stone, clung precariously to the rugged cliffs of the Northumberland coast in northern England. Generations of Blackwoods had built, expanded, and then neglected it, leaving a patchwork of architectural styles and a lingering sense of decay. The keep was surrounded by windswept moors dotted with gorse bushes and the skeletons of ancient trees, twisted into grotesque shapes by the relentless wind.
+
+Inside, the keep was a maze of draughty corridors, echoing chambers, and dust-filled libraries. Portraits of stern-faced ancestors, their eyes following Alistair's every move, lined the walls. The air was thick with the scent of damp stone, old leather, and a faint, indefinable odor that Alistair, a historian of the occult, recognized as the residue of something… else. The main hall was dominated by a cavernous fireplace that roared incessantly, battling against the pervasive chill. Even in the height of summer, Blackwood Keep held onto the cold, a chilling reminder of the secrets buried within its ancient walls.

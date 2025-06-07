@@ -1,1 +1,1 @@
-John C. Whitaker III
+Dr. John C. Whitaker III

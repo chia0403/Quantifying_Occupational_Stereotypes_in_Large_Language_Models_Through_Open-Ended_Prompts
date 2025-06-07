@@ -1,2 +1,1 @@
 Tom Buchanan
-John Randolph

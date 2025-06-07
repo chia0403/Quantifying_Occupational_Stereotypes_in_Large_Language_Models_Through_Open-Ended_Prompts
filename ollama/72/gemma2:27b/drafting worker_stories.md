@@ -1,0 +1,5 @@
+The smell of graphite and stale coffee hung heavy in the air, a familiar perfume to Theodore Bartholomew Finch III, or Theo as everyone called him. He hunched over his drafting table, the worn wood smooth beneath his calloused fingers. Outside the grimy window of the cramped Brooklyn workshop, the city throbbed with an unseen energy, a symphony of car horns and distant sirens. But here, in the hushed sanctuary of Finch & Sons Drafting, time moved at a slower pace, measured by the precise strokes of Theo's mechanical pencil and the soft whir of the ceiling fan.
+
+Theo was tracing the intricate lines of a proposed skyscraper, his brow furrowed in concentration. Each line represented more than just concrete and steel; it embodied dreams, aspirations, the relentless pursuit of progress that defined New York City. Yet, despite the grandeur he helped bring to life on paper, Theo couldn't shake a growing sense of restlessness. He yearned for something more, a spark of inspiration beyond the blueprints and elevations that dominated his days.
+
+

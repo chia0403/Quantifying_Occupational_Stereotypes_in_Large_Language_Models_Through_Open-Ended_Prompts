@@ -1,0 +1,6 @@
+The air in Reginald Bartholomew Tremont III's office was thick with the scent of old money and stale ambition. Sunlight, filtered through a haze of city smog, glinted off the brass eagle perched atop his mahogany desk. Outside, Wall Street roared like a caged beast, its cacophony filtering through the double-paned windows. Reginald, or Reggie as he insisted everyone call him, tapped his manicured nails against his phone – an antique flip phone, a statement of defiance in a sea of sleek touchscreens. He was waiting for a call, one that could either solidify his position at the top of the financial food chain or send him tumbling into obscurity. 
+
+
+His gaze swept over the cluttered desk: half-eaten sushi, crumpled stock reports, and an antique silver cigarette case – a relic from a more decadent era.  He craved a cigarette, but he'd sworn off tobacco weeks ago. The doctor had given him that lecture about cholesterol and blood pressure, again. 
+
+Reggie pushed the sentiment aside. Today was not about his health; today was about survival. Today, the fate of Tremont & Sons rested on his shoulders, hanging by a thread thinner than the margin he'd been trying to secure for the last month. The phone buzzed, shattering the tense silence. This call could change everything.  

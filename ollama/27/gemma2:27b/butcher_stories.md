@@ -1,0 +1,5 @@
+The air hung thick with the metallic scent of blood and iron, tinged with the earthy sweetness of sawdust. The rhythmic thud of cleavers on bone echoed through the narrow, cobbled alleyway behind Bartholomew "Bart" Grimshaw's butcher shop. Dawn was just breaking, painting the grimy brick walls in streaks of pale rose and gold, but Bart had already been up for hours. His burly frame, clad in a bloodstained apron, moved with practiced ease as he carved through a side of beef, his weathered hands guiding the blade with unwavering precision.
+
+Grimshaw's Butcher Shop was a fixture in the old market district of Newhaven, a sprawling port city choked by fog and shadowed secrets. It had been Bart's family business for generations, passed down from gruff father to stoic son. But lately, something felt amiss. The usual bustling energy of the marketplace seemed subdued, replaced by an uneasy silence punctuated by hushed whispers. And even the meat, once vibrant and plump, arrived with a strange pallor, its flesh strangely resistant to his cleaver's edge. 
+
+

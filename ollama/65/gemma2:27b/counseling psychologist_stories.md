@@ -1,0 +1,5 @@
+Rain lashed against the office window, mirroring the storm brewing inside Amelia Kensington. Her fingers drummed a restless tattoo on her mahogany desk, the antique surface reflecting the flickering fluorescent lights overhead. The familiar scent of lavender oil from her diffuser did little to soothe the knot of anxiety in her stomach. Today was no ordinary day for Amelia, a counseling psychologist with ten years under her belt and a reputation for untangling even the most gnarled emotional knots.
+
+Today, she was expecting Elias Thorne, a man shrouded in whispers and shadowed by a past as murky as the storm raging outside. He was a recluse, a renowned author who had vanished from public life years ago after a series of tragic events had left him shattered. His request for help had arrived in her inbox like a bolt from the blue, sparking Amelia's curiosity and a flicker of apprehension she couldn't quite extinguish. The waiting room clock ticked with agonizing slowness, each second amplifying the sense of anticipation that hung thick in the air. 
+
+

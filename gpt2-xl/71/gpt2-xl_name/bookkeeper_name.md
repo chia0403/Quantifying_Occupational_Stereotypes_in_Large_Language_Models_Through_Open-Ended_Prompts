@@ -1,2 +1,1 @@
-James P. Jones
-Jim Jones
+James P. "Jim" Jones

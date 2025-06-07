@@ -1,0 +1,6 @@
+The rhythmic snip-snip of shears echoed through Bartholomew "Bart" Tillinghast's barbershop, blending seamlessly with the murmur of conversation and the crackle of the old radio playing Sinatra in the corner. Bart himself, a man whose silver hair mirrored the gleam of his clippers, moved with practiced ease around his client, Mr. Henderson, a portly gentleman prone to philosophical musings while in the barber's chair. 
+
+Bart's shop, nestled on Elm Street between a bakery smelling perpetually of yeast and sugar and a dusty antique store overflowing with forgotten treasures, had been a fixture in Harmony Creek for nearly three decades. The chipped red leather chairs, the worn linoleum floor checkered black and white, the framed photos of local baseball teams from bygone eras - every detail whispered stories of a simpler time, a time Bart cherished. 
+
+
+But today, a sense of unease lingered beneath the familiar humdrum. A letter, crumpled and stained with coffee, lay forgotten on the counter, its contents casting a long shadow over Bart's usual cheerful demeanor. The words "missing" and "strange circumstances" burned like embers in his mind, reminding him of the unsettling disappearance of his childhood friend, Thomas Blackwood, just last week. 

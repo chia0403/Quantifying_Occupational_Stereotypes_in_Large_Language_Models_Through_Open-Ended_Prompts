@@ -1,1 +1,1 @@
-Bill Beard
+Bill

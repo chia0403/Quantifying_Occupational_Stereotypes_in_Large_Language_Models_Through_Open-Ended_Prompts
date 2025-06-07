@@ -1,2 +1,1 @@
 Petra Lawson
-Thomas Lawson

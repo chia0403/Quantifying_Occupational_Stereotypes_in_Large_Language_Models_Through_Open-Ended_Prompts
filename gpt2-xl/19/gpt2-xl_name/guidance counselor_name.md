@@ -1,2 +1,1 @@
-Gilda Bass
-Steve Deace
+Dr. Gilda Bass

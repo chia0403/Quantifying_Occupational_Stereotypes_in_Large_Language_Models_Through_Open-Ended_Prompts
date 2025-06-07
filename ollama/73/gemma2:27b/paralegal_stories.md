@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of the office building, mirroring the tempest brewing inside Eleanor Cartwright. Stacks of legal documents towered precariously on her desk, each file representing another soul caught in the relentless churn of the justice system. Eleanor, a paralegal with more empathy than ambition, stared at the clock ticking relentlessly towards five o'clock. She hadn't even begun to organize the mountain of evidence for the upcoming arson case, and the lead attorney, Mr. Hawthorne, was notorious for his explosive temper when deadlines weren't met.
+
+The air hung thick with the smell of stale coffee and desperation, a familiar aroma in their underfunded legal aid office nestled amongst the decaying grandeur of downtown Chicago. Outside, the city lights blurred through the rain-streaked glass, reflecting Eleanor’s own hazy vision of a brighter future, one where she could fight for justice instead of drowning in paperwork.  Today, however, felt like just another day in the trenches, a Sisyphean struggle against an indifferent system. 
+
+

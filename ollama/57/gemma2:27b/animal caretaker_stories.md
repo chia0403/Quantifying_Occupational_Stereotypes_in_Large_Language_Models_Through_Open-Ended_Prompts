@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the barn, each drop a tiny hammer blow against Amelia Blackwood's already frayed nerves. The wind howled like a banshee through the ancient oak trees lining the property, threatening to rip their gnarled branches from their moorings. Inside, the air hung thick with the smell of damp hay and animal musk. Amelia shifted on her stool, her gaze sweeping over the menagerie huddled in makeshift stalls: a one-eyed sheepdog whimpering softly, a skittish goat chewing nervously on its own flank, and a rescued barn owl blinking owlishly from its perch.
+
+Tonight felt different, heavier somehow. It wasn't just the storm raging outside; a gnawing unease had taken root in Amelia's gut since she'd discovered the strange tracks leading up to the barn earlier that day - prints unlike anything she'd seen before, large and strangely humanoid, but with claws instead of toes. The rational part of her brain scoffed at the idea of mythical creatures lurking in the woods surrounding her isolated farm. But deep down, a primal fear whispered warnings, urging her to be cautious. 
+
+

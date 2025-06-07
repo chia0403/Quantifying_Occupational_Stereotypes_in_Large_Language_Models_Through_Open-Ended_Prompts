@@ -1,0 +1,6 @@
+Rain lashed against the windows of Dr. Eleanor Vance's office, mimicking the relentless pounding in her head. The fluorescent lights hummed overhead, adding to the oppressive atmosphere. Papers littered her desk, each one representing another shattered life, another glimpse into the darkest corners of the human psyche. She took a deep breath, attempting to steady herself before diving back into the case files sprawled before her.
+
+Eleanor specialized in criminal profiling, working closely with law enforcement agencies to understand the motives and psychological makeup of perpetrators. This particular case had her stumped. A string of seemingly random arson attacks had plagued the city for weeks, leaving a trail of devastation and unanswered questions. The victims seemed unconnected, the locations disparate, the only common thread being the sinister, almost artistic way the fires were set. 
+
+
+Eleanor ran a hand through her short auburn hair, her hazel eyes focused on the grainy security footage captured moments before one of the blazes erupted.  She needed to find the connection, the spark that ignited this inferno of chaos. She owed it to the victims, to the city teetering on the edge of panic, and most importantly, to herself – she couldn't bear the thought of another innocent life being consumed by the flames. 

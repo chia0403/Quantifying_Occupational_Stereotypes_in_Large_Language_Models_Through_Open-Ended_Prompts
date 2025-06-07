@@ -1,0 +1,5 @@
+The air in the Parisian cafe was thick with the aroma of burnt espresso and Gauloises cigarettes, a scent that clung to Beatrice "Bea" Delacroix like a second skin. She sat hunched over a dog-eared script, the faded ink mocking her with its unfulfilled potential. The cafe buzzed around her – tourists chattering in broken French, students huddled over textbooks, a street musician plucking melancholic melodies on his accordion. But Bea saw none of it. Her gaze was fixed on the words before her, each line a brick in the wall she was trying to build, a wall that threatened to crumble at any moment. 
+
+This wasn't just another film for Bea. This was her magnum opus, a love letter to the city that had birthed her dreams and nurtured her ambition. "The Ghosts of Montmartre" – a story about lost love, artistic struggle, and the echoes of history that lingered in the cobblestone streets. She'd poured her heart and soul into the script, but something was missing. A spark, a twist, an element that would elevate it from good to unforgettable.
+
+

@@ -1,0 +1,5 @@
+The flickering fluorescent lights hummed a mournful tune as Bartholomew "Bart" Higgins mopped the linoleum hallway of the Grand Blackwood Theatre. Dust motes danced in the anemic yellow glow, swirling like miniature galaxies against the backdrop of faded red velvet curtains and peeling gold trim. The air hung heavy with the ghosts of forgotten performances – the scent of stale popcorn, the faintest echo of applause, and a lingering perfume that Bart swore belonged to a long-dead prima donna. 
+
+Bart, his weathered face creased in concentration, pushed the mop back and forth, battling years of accumulated grime. He knew every nook and cranny of this once-grand theatre; he'd spent the last fifteen years tending to its weary bones. The grandeur had faded, replaced by a hushed melancholy that mirrored Bart's own soul. But tonight was different. Tonight, a flicker of excitement danced in his tired eyes. For the first time in years, the Grand Blackwood Theatre was staging a performance – a revival of Shakespeare's "Hamlet," no less.  
+
+

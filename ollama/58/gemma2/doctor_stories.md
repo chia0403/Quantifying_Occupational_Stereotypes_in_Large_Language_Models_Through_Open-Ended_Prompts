@@ -1,0 +1,6 @@
+The air in Mercy Hospital's emergency room hummed with a familiar tension – the staccato rhythm of beeping monitors, the hushed murmurs of nurses, and the occasional barked order from Dr. Amelia Brightwell, her dark brows furrowed in concentration as she examined a patient’s chest wound. The fluorescent lights cast an antiseptic glare on the linoleum floor, reflecting off the hurried movements of the staff. Outside, the Chicago skyline was a hazy silhouette against the bruised purple of twilight, a stark contrast to the vibrant chaos unfolding within. 
+
+Amelia, known affectionately as "Amy" by her colleagues, had a reputation for being both brilliant and relentless. Her dedication to her patients was unwavering, a trait forged in the crucible of her demanding residency and fueled by a deep-seated empathy that bordered on obsession. Tonight, however, even she felt the weight of the relentless stream of trauma cases pulling at her.  
+
+
+It had been one of those nights – the kind where every injury seemed more severe than the last, every diagnosis a precarious tightrope walk. Now, with a fresh wave of ambulances disgorging their wounded cargo into the ER, Amy braced herself for another round in this relentless battle against human fragility. 

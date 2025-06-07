@@ -1,0 +1,6 @@
+Rain lashed against the corrugated iron roof of the clinic, mimicking the relentless hammering in Dr. Eleanor Vance's chest. The flickering fluorescent lights cast long shadows across the cluttered examination room, amplifying the sense of unease that had been gnawing at her since dawn. 
+
+It wasn't the storm, though it was a beast of one, howling like a wounded animal and threatening to rip the old oak tree outside clean from its roots. It was the patient on the table - a scrawny ginger cat with eyes as wide and terrified as Eleanor's own. The creature trembled beneath her touch, its ribs clearly visible through matted fur. She'd seen countless strays in her years running the small animal clinic in the heart of Oakhaven, a sleepy coastal town tucked away on the rugged cliffs of Maine. But this one felt different. Something about its haunted gaze, its desperate meows that sounded more like pleas than protests, stirred a primal fear within her. 
+
+
+Eleanor knew she couldn't ignore it. This wasn't just another lost soul seeking refuge from the storm. There was something more at play here, something whispered in the rustle of wind against the windowpane and echoed in the frantic beating of her own heart.  

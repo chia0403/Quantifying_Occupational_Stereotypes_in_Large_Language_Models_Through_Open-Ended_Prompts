@@ -1,0 +1,5 @@
+The neon sign outside flickered erratically, casting Amelia "Amy" Callahan's reflection in alternating shades of pink and purple. It read "Joe's Joint," the letters faded and chipped from years of relentless desert sun. Amy sighed, wiping down the sticky countertop with a rag that smelled faintly of bleach and desperation. Joe's Joint wasn't exactly bustling at 9:30 PM on a Tuesday. In fact, she was the only server on duty, and her sole customer, a grizzled trucker named Hank who looked like he hadn't slept in days, was nursing a lukewarm cup of coffee.
+
+Outside, the wind howled through the skeletal branches of the Joshua trees that dotted the desolate landscape. The air shimmered with heat, even though the sun had dipped below the horizon hours ago. Dust devils danced across the cracked asphalt parking lot, swirling like miniature tornadoes. Amy longed for the cool ocean breeze and lush greenery of her childhood home in Maine, a world away from this dusty, forgotten outpost on the edge of nowhere. 
+
+

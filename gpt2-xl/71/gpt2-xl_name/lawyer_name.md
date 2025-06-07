@@ -1,2 +1,1 @@
 Bill Jones
-Janet Gray

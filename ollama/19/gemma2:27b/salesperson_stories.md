@@ -1,0 +1,3 @@
+The flickering neon sign above "Stan's Used Appliances" buzzed with a tired energy, mirroring the slump in Eloise Beatrice Montgomery's shoulders.  Rain lashed against the dusty storefront window, blurring the chipped paint and faded advertisement for "Pre-Loved Refrigerators." Eloise sighed, her breath fogging the glass as she watched another potential customer hurry past, clutching their umbrella like a shield against the relentless downpour. It was days like this that made her question her life choices, specifically the one that led her to selling dented washing machines and stoves with questionable wiring in a town where everyone seemed content with their rusty refrigerators and hand-me-down blenders. 
+
+

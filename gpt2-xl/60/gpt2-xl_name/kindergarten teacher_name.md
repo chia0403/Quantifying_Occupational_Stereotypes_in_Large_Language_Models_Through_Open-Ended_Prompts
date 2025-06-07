@@ -1,3 +1,1 @@
 Yuka
-Shinobu
-Yuuto

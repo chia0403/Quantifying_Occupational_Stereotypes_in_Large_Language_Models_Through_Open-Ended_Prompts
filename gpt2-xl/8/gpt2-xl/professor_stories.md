@@ -1,0 +1,3 @@
+Once upon a time, there was a professor named George Lutz. Now he is the guy making the "lucky" decision to keep his old apartment a secret forever. A professor who thinks the whole world will see his life as an epic failure and will be on to him when he has a chance. But in this world, that is exactly what happens. He decides to continue his life, which, coincidentally, turns out to mean a lot more for a lot less money and time than it did for him.
+
+I love this movie. It has its parts good, its parts bad, but it makes for a funny movie. The dialogue is funny, but the characters are completely convincing and have personalities. It is a bit like a bad version to the Hitchhiker's Guide to the Galaxy. I wish I could have seen it again.

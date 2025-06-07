@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Eloise Beaumont's head, casting a sickly yellow glow over the beige reception desk. The air conditioning wheezed, struggling against the oppressive July heat that seeped through the ill-fitting windowpane. Eloise idly tapped her manicured nails on the chipped Formica surface, the rhythmic click the only sound breaking the silence of the deserted lobby. It was 3:47 pm, a full thirteen minutes before closing time, and not a single soul had graced The Hawthorne Institute with their presence all afternoon.
+
+Eloise sighed, tugging at the itchy collar of her starched blouse. A receptionist's life wasn't exactly brimming with excitement, especially at an antiquated research facility like this one. Days blurred into weeks, punctuated by the monotonous ping of the intercom announcing deliveries and the occasional disgruntled researcher complaining about missing staplers. Today, however, felt different. There was a prickling unease in the air, a sense that something was amiss, something beyond the usual tedium. Eloise couldn't shake the feeling that she was being watched.
+
+

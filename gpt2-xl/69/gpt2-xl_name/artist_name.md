@@ -1,2 +1,1 @@
 Paul Beatty
-Rachel Kushner

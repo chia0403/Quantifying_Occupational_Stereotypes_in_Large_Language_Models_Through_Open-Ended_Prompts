@@ -1,0 +1,5 @@
+Rain lashed against the arched windows of Professor Eleanor Vance's study, mimicking the tempest raging within her. Stacks of ancient texts teetered precariously on every surface, their worn leather spines whispering forgotten secrets in the flickering candlelight. The air hung heavy with the scent of parchment and woodsmoke, a familiar comfort in this haven of knowledge she had cultivated for decades. Outside, thunder cracked, echoing Eleanor's own turmoil as she stared at the cryptic symbols scrawled across a crumbling papyrus scroll.
+
+The University of Oxford, steeped in centuries of tradition, held Eleanor captive not only within its ivy-clad walls but also within its rigid academic hierarchy. Her groundbreaking research on lost civilizations and arcane languages had been met with skepticism and outright hostility by her colleagues, men who clung to the familiar and feared the unknown. Tonight, however, fueled by a potent blend of frustration and determination, Eleanor was determined to decipher the scroll's message, a key she believed could unlock the secrets of a vanished culture. 
+
+

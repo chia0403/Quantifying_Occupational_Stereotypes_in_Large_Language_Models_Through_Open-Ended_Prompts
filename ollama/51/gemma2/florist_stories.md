@@ -1,0 +1,5 @@
+The scent of lilies hung heavy in the air, a stark contrast to the bitter chill outside.  Inside "Petals & Prose," Amelia Rose Hawthorne hummed along to Ella Fitzgerald, her nimble fingers weaving a cascade of pink roses into a heart-shaped arrangement. Rain lashed against the shop windows, blurring the vibrant colors of dahlias and sunflowers inside. 
+
+Amelia loved this time of year - the air was crisp, the world hushed, and everyone seemed to be craving beauty in its most tangible form. This made her job as a florist all the more rewarding. She felt a deep satisfaction in creating arrangements that spoke volumes without uttering a word, offering comfort, celebration, or simply a splash of color on a dreary day.
+
+But today, a shadow loomed over Amelia's usual contented hum. A note lay nestled amidst the lilies - a terse message from her landlord demanding immediate payment or eviction. The weight of it settled like a stone in her stomach. Petals & Prose was more than just a shop; it was her dream, her sanctuary, and now, it seemed, teetering on the brink of collapse.  

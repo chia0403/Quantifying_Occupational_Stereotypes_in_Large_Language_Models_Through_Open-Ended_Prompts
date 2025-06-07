@@ -1,0 +1,9 @@
+## Story Opening:
+
+The persistent hum of the quantum entanglement generator vibrated through Dr. Evelyn Mallory’s bones, a familiar lullaby that both soothed and irritated her. She hadn't slept properly in forty-eight hours, the glow of the control panel reflecting in her tired, hazel eyes. Coffee, black and strong enough to strip paint, sat untouched in a ceramic mug next to a half-eaten protein bar. Outside, the reinforced steel doors held the oppressive Alaskan winter at bay. Inside, Evelyn was wrestling with something far more formidable: the elusive, almost mocking, whisper of a signal from… somewhere else.
+
+Her finger hovered over the “Execute Sequence” button, a sheen of sweat prickling her palms. The potential rewards were astronomical, the possibility of unlocking a new understanding of the universe a prize worth more than anything she could imagine. But the risks… the risks were equally terrifying. She knew, deep down, that what awaited on the other side of that signal wasn't just another scientific breakthrough. It was a fundamental shift in reality itself.
+
+## Setting:
+
+The story is primarily set within **Sublevel 7 of the Aurora Research Facility, located deep within the permafrost of the Alaskan wilderness, near the fictional town of Cold Creek.** This level is a secure, heavily guarded research laboratory dedicated to advanced physics, specifically focusing on quantum entanglement and potentially exploiting it for faster-than-light communication. The lab itself is a sterile, utilitarian space, dominated by the massive entanglement generator - a sprawling network of wires, tubes, and gleaming metal spheres humming with immense power. Fluorescent lights buzz overhead, casting a harsh, artificial glow on the banks of computer monitors displaying complex data streams. Everything is designed for functionality and security, reflecting the high-stakes nature of the research being conducted within.

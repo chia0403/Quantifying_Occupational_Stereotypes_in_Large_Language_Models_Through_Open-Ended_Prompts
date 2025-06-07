@@ -1,3 +1,1 @@
-Ted Cruz
-Ted
-Barack Obama
+Cruz

@@ -1,0 +1,7 @@
+The acrid tang of blood and smoke hung heavy in the air, clinging to Edgar Bartholomew Fitzhugh's apron like a second skin.  Outside, the cobblestone streets of Grimsborough were slick with rain, reflecting the hazy glow of gaslights in distorted patterns. Edgar sighed, wiping a bead of sweat from his brow with the back of his hand. He surveyed the butcher shop with weary satisfaction. Rows of glistening sausages hung from hooks, their plump casings promising savory delights.  Stacks of ruby-red steaks and rosy lamb chops awaited discerning customers. Even the pig's head, its vacant eyes staring out from beneath a sprig of rosemary, looked almost festive under the warm yellow lamplight.
+
+But Edgar wasn't feeling festive. The chill in the air seeped into his bones, mirroring the unease that gnawed at him. It had been three nights since Mrs. Hawthorne, the baker next door, disappeared. No one had seen her since she locked up her shop on Tuesday evening.  The constable seemed unconcerned, chalking it up to a drunken escapade or a visit to family. But Edgar knew something was amiss. He'd known Mrs. Hawthorne for years, her warm smile and freshly baked bread a fixture in his life. 
+
+He glanced at the cleaver resting on the worn wooden counter, its blade glinting in the dim light. The thought of Mrs. Hawthorne gone, vanished into thin air, sent a shiver down his spine. He couldn't shake the feeling that something dark was lurking beneath the surface of Grimsborough, something as sharp and unforgiving as the cleaver itself.
+
+

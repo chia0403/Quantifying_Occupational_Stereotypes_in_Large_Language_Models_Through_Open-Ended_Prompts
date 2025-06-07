@@ -1,0 +1,7 @@
+The humid Florida air clung to Elias "Eli" Reyes like a second skin as he hoisted another cinder block onto the skeletal frame of the beachfront condo. Sweat stung his eyes, blurring the turquoise expanse of the Atlantic beyond the scaffolding. The relentless sun beat down on Miami Beach, turning the sand into a shimmering mirage and the construction site into an oven. Eli wiped his brow with the back of his calloused hand, grumbling under his breath about choosing this career path. He'd dreamt of being a marine biologist as a kid, exploring coral reefs and swimming with dolphins – not hauling bricks in sweltering heat.
+
+But life, like a crooked foundation, rarely went according to plan. Eli had bills to pay, a sick mother to care for, and dreams were a luxury he couldn't afford. Still, staring out at the endless horizon, he felt a pang of longing for something more than concrete and steel. Today, however, something was different. As Eli reached for another block, a glint caught his eye – something metallic buried beneath the sand where the new foundation would be laid. Curiosity sparked within him, overriding the exhaustion that gnawed at his bones. 
+
+He crouched down, sifting through the hot sand with his calloused hands. What he unearthed sent a shiver down his spine – a tarnished silver locket, intricately engraved with a seashell motif. Eli felt an inexplicable pull towards this relic from the past, as if it held a secret waiting to be unlocked.  
+
+

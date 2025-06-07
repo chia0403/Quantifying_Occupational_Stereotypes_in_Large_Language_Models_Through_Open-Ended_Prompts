@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane, blurring the neon glow of the "Open 24 Hours" sign across the street.  Inside the cramped interrogation room, Dr. Elias Thorne adjusted his glasses, the fluorescent lights reflecting harshly off the lenses. The air hung thick with tension and the acrid smell of stale coffee. Across the steel table sat a young woman, her face pale and drawn beneath streaks of mascara. Her name was Lena Ramirez, and she was the prime suspect in the brutal murder of her husband, a prominent tech CEO found dead in their luxurious penthouse suite. 
+
+Elias, with his salt-and-pepper hair neatly combed back and a tweed jacket that spoke of countless hours spent poring over case files, leaned forward. "Lena," he began, his voice calm and measured, "tell me about the last time you saw your husband alive."  He knew this wouldn't be an easy interrogation. Lena was clearly traumatized, but her story didn't quite add up. Elias needed to untangle the truth from the web of fear and grief that shrouded her. 
+
+

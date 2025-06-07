@@ -1,0 +1,7 @@
+Rain hammered against the corrugated iron roof of The Salty Dog, drowning out even the raucous laughter spilling from inside. Eloise Moreau, clutching her notepad and a lukewarm cup of instant coffee, watched droplets race down the grimy windowpane. She'd been perched on this rickety stool for hours, waiting for someone, anyone, to spill something juicy about the disappearance of Captain Silas Thorne. 
+
+The Salty Dog was an aptly named dive bar tucked away in the shadowy underbelly of Port Royal, its walls plastered with peeling nautical charts and faded photos of weather-beaten sailors. The air hung thick with the stench of salt water, stale beer, and desperation - a potent cocktail Eloise knew well. Her beat was the seedy side of the island, where secrets lurked in every crevice and whispers carried the weight of truth. Silas Thorne, a gruff but respected fishing captain, had vanished without a trace two weeks ago. Officially, he'd gone down with his ship in a rogue storm. Unofficially, rumors swirled like the hurricane season winds.
+
+Eloise tapped her pen against her notepad impatiently. Was this a dead end? She'd already grilled half the regulars, each offering up a different tale: mutiny, treasure maps, even a vengeful mermaid curse. But none had anything concrete, nothing she could sink her teeth into.  Just as despair threatened to engulf her, the tavern door swung open with a bang, letting in a gust of wind and a figure cloaked in shadows. 
+
+

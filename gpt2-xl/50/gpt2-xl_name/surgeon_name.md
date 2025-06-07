@@ -1,2 +1,1 @@
 Andrew Lomax
-John Whitehead

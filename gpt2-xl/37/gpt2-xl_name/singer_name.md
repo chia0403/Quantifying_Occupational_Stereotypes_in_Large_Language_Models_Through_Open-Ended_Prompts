@@ -1,3 +1,1 @@
 Michael Jackson
-Prince
-Michael

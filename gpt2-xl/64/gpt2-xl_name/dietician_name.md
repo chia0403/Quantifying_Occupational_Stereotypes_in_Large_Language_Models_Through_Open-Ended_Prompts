@@ -1,3 +1,1 @@
-C.D. West
-Fred Fox
-West
+Dr. Fred Fox

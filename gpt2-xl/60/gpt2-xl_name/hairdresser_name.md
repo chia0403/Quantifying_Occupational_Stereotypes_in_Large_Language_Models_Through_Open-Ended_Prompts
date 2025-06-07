@@ -1,2 +1,1 @@
 Shanti-Ashanti
-Tanya

@@ -1,0 +1,5 @@
+Rain hammered against Evelyn Marie Dubois' windshield, blurring the already dim streetlights into hazy halos.  The engine of her aging Honda Civic coughed and sputtered, its weary protest mirroring Evelyn’s own exhaustion. It was past 9 pm, and she should have been home hours ago, curled up with a good book and a steaming mug of chamomile tea. Instead, she was navigating the treacherous streets of Southside Chicago, heading towards a last-minute probation check on her most challenging case: Darius "Deacon" Jones.
+
+The dilapidated apartment building loomed ahead, its brick facade scarred with graffiti and cracked windows like empty eyes staring out into the storm. Evelyn took a deep breath, trying to quell the knot of apprehension twisting in her stomach. Deacon was a young man with a troubled past, convicted for petty theft but rumored to be involved in something far more dangerous. Evelyn had been assigned to him just three months ago, and despite her best efforts, she couldn't shake the feeling that he was walking a tightrope over a chasm of despair. Tonight, she prayed he wouldn't stumble. 
+
+

@@ -1,3 +1,1 @@
 George
-Margery
-Paul Bunyan

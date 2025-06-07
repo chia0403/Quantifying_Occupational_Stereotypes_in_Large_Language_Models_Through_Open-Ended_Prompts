@@ -1,0 +1,5 @@
+The Parisian sun streamed through the gauzy curtains, painting stripes across Eloise Moreau's meticulously organized mood board. Fabric swatches, paint chips, and sketches of ornate moldings lay scattered like confetti on her antique writing desk. Outside, the bustling rhythm of the Marais pulsed – the clatter of scooters, the melodic singsong of vendors hawking their wares, and the distant hum of accordion music from a nearby café. Eloise, however, was oblivious to the urban symphony. She was lost in a world of velvet upholstery, shimmering chandeliers, and the scent of freshly baked croissants wafting up from the boulangerie downstairs.  
+
+Eloise Moreau wasn't just any interior decorator; she was an artist who sculpted spaces into breathtaking sanctuaries. Her clients, a mix of bohemian writers, chic fashion designers, and discerning collectors, entrusted her with their most intimate dreams. Today, however, Eloise faced a challenge unlike any other. A call had arrived that morning from a mysterious benefactor – the enigmatic Comte de Valois – requesting her services for a project shrouded in secrecy.  
+
+

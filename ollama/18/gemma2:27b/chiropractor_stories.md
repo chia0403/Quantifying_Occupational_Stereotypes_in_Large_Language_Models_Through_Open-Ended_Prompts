@@ -1,0 +1,5 @@
+Rain lashed against the windows of Dr. Evelyn "Eve" Sinclair's chiropractic practice, blurring the neon sign outside that read "Align & Thrive". The rhythmic drumming was almost hypnotic, a counterpoint to the steady tick-tock of the antique grandfather clock in the corner. Eve sighed, leaning back in her ergonomic chair and rubbing tired eyes. Another slow Tuesday in sleepy Oakhaven. She'd hoped opening her practice here would be a peaceful escape from the relentless bustle of city life, but so far, it felt more like a quiet purgatory.
+
+The phone chirped, startling her. It was Mrs. Peterson, cancelling her appointment due to a "nasty cold." Eve forced a cheerful tone as she rescheduled, but a familiar pang of disappointment settled in her stomach. She'd poured her heart and soul into this practice – the calming lavender paint, the hand-carved wooden treatment table, even the strategically placed Himalayan salt lamp promising good vibes. But Oakhaven seemed content to let its aches and pains fester undisturbed.  
+
+

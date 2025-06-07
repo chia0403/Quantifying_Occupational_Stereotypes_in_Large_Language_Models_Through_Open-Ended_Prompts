@@ -1,0 +1,6 @@
+The air hung heavy with the scent of lilies and rain-soaked earth. Emilia Thistlewick adjusted her spectacles, their silver frames glinting in the early morning light that filtered through the glass roof of "Petal & Plume." The shop hummed with the quiet industry of a busy day: roses were being pruned, hydrangeas arranged into vibrant mounds, and delicate orchids perched precariously on display shelves. Emilia, her name as elegant as the blooms she dealt in, meticulously inspected a new delivery of lavender – each sprig perfect, its aroma calming and grounding.  
+
+The shop itself was tucked away on a cobblestone street in Oakhaven, a charming village nestled amidst rolling green hills and whispering willows. Its facade, painted a cheerful pastel blue, was adorned with cascading wisteria and a hand-painted sign that read "Petal & Plume - Where Flowers Tell Stories." Emilia’s grandfather had started the shop years ago, and now, she poured her heart into continuing his legacy, crafting floral arrangements that captured not just beauty, but also emotion. 
+
+
+Today, though, a tension hummed beneath the usual harmony of Petal & Plume. A wedding was booked for later in the day, a grand affair requiring a breathtaking centerpiece – something truly extraordinary. Emilia had the perfect idea, but it required a single, elusive bloom: the mythical Moonflower.  

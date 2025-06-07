@@ -1,0 +1,5 @@
+The August sun beat down on Elias "Eli" Hawthorne's neck like a branding iron as he hoisted another cinder block onto the second floor. Sweat stung his eyes, mingling with the grit that perpetually coated his face. Below him, the city of Port Haven stretched out like a crumpled map, a patchwork of red brick and weathered grey stone buildings huddled against the sapphire expanse of the harbor. Eli loved the view from up here, a panorama rarely seen by those who scurried through the narrow cobblestone streets. 
+
+Today, however, the beauty couldn't penetrate the gnawing unease settling in his gut. It started with the discovery of an ancient iron key nestled amongst the rubble yesterday, its intricate carvings hinting at a forgotten history. Now, strange whispers seemed to drift on the salty breeze – murmurs that echoed the key's cryptic design and spoke of secrets buried beneath Port Haven's foundations. Eli dismissed them initially as the heat playing tricks on his mind, but as the day wore on, he couldn't shake the feeling that something was amiss.
+
+

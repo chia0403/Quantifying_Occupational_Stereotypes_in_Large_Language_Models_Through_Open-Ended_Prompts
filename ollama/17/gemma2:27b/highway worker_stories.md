@@ -1,0 +1,5 @@
+The relentless Arizona sun beat down on Elijah "Eli" Montgomery's weathered neck as he adjusted the orange cone marking the freshly laid asphalt. Sweat stung his eyes, blurring the already hazy desert vista. He squinted at the endless ribbon of highway stretching before him, shimmering in the heat like a mirage. Around him, the rhythmic whine of machinery mingled with the distant blare of horns - a symphony of construction and impatience common to this stretch of Interstate 10.
+
+Eli wasn't one for complaining. He knew the risks when he signed up for this job, trading a cubicle for calloused hands and dusty boots. The solitude, however, was something he hadn't anticipated. Most days, it was just him, the scorching sun, and the endless stream of vehicles speeding past, their occupants oblivious to the man ensuring their safe passage. Today felt different, though. A strange unease prickled at his skin, a whisper in the wind that made him pause and look towards the horizon. The air hung heavy with anticipation, like the world was holding its breath. 
+
+

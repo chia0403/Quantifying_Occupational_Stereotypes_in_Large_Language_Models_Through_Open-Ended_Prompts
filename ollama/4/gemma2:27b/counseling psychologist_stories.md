@@ -1,0 +1,5 @@
+Rain lashed against the windowpanes of Dr. Eleanor Vance’s office, mimicking the storm brewing inside her own chest.  The late afternoon light struggled to pierce the gloom, casting long shadows across the worn Persian rug and the overflowing bookshelf crammed with dog-eared copies of Freud and Jung. Eleanor sighed, pushing a stray curl behind her ear and glancing at the framed photograph on her desk – a younger version of herself, beaming beside a giggling toddler. Memories of simpler times, before the weight of other people’s pain began to feel so heavy. 
+
+Today had been particularly grueling. The morning session with a young woman struggling with severe anxiety had left Eleanor feeling drained. Then came the afternoon appointment with a couple on the brink of divorce, their accusations echoing through the room like thunderclaps.  She longed for a moment of quiet solitude, to escape the relentless tide of human suffering. But her phone buzzed, interrupting her thoughts – a new client request, urgent and shrouded in mystery. Eleanor hesitated, the familiar pull of duty warring with her desire for respite. 
+
+

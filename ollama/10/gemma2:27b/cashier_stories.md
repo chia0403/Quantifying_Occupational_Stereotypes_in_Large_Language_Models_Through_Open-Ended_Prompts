@@ -1,0 +1,5 @@
+The flickering fluorescent lights above cast everything in a sickly yellow hue, highlighting every dust mote dancing in the stagnant air. Eloise Mae Davenport sighed, her breath fogging the glass shield separating her from the unending parade of customers. The smell of stale coffee and industrial cleaner hung heavy, a perpetual olfactory assault that made her long for fresh air and something sweeter than the saccharine smile plastered on her face. It was Tuesday, 3:47 pm, and Eloise had already witnessed three tantrums over expired coupons, two near-misses with runaway shopping carts, and one particularly embarrassing moment when an elderly woman mistook her name tag for a price sticker and tried to haggle over the cost of "Eloise."
+
+The monotony of it all was starting to eat away at her. Eloise dreamed of something more - maybe opening a bakery, filling the air with the scent of warm cinnamon rolls instead of chemical cleaner. But for now, she was stuck behind this register, her future as uncertain and crumpled as the discount coupons piling up in the tray beside her. 
+
+

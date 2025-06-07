@@ -1,0 +1,5 @@
+The Grand Blackwood Hotel, with its vaulted ceilings and chandeliers dripping like frozen waterfalls, was a mausoleum of faded grandeur.  Dust motes danced in the anemic sunlight that filtered through stained glass windows depicting scenes of mythical hunts and pastoral bliss. Once a jewel of the Gilded Age, it now wore its opulence like a moth-eaten shawl, clinging desperately to past glory.
+
+At the foot of the sweeping mahogany staircase stood Edgar Bartholomew Finch, bellhop extraordinaire. Or at least, he aspired to be. In reality, Edgar was a scrawny young man with more freckles than muscle, perpetually struggling under the weight of overflowing luggage carts and the pitying gazes of seasoned staff who saw him as little more than an overeager fledgling. Today, however, Edgar had a spring in his step. A new guest, Mrs. Agatha Thistlewick, was rumored to be arriving - a wealthy socialite with a penchant for extravagant tipping. Edgar dreamed of finally earning enough to buy that battered saxophone he'd been eyeing in the pawn shop window. 
+
+

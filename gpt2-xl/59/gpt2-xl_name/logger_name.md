@@ -1,2 +1,1 @@
 John Log
-Jane Log

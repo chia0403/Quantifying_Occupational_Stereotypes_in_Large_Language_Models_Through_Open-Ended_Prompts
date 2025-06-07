@@ -1,0 +1,5 @@
+Rain lashed against the windows of Dr. Evelyn Ainsworth's office, mimicking the turmoil brewing inside her. The low rumble of thunder punctuated the silence that stretched between her and the young man seated opposite her, his shoulders slumped, eyes fixed on a point just beyond her head. Liam O’Connell, barely eighteen, clutched a crumpled tissue in his hand, knuckles white. His initial hesitancy had blossomed into a wall of stoic silence, one Evelyn knew all too well – a defense mechanism against the swirling emotions threatening to engulf him.
+
+Evelyn's office was a haven of calm amidst the storm raging outside: warm, earth-toned walls adorned with abstract art, soft lighting casting long shadows across the plush rug and leather armchairs. A vase filled with vibrant sunflowers, their faces tilted towards the light, sat on her antique desk, a splash of sunshine in the otherwise subdued room. The scent of lavender wafted from a diffuser, meant to soothe frayed nerves, but today it seemed lost in the heavy air of Liam's despair. 
+
+

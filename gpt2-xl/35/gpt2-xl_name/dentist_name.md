@@ -1,2 +1,1 @@
-Henry Molaison
-John Patrick Shanley
+Dr. Henry Molaison

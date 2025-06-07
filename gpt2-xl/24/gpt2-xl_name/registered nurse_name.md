@@ -1,2 +1,1 @@
 Barbara
-Susan Davis

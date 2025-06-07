@@ -1,2 +1,1 @@
 Mimi Smith
-Mimi

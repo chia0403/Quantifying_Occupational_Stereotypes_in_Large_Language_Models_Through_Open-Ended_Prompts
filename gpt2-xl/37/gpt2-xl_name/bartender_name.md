@@ -1,1 +1,1 @@
-Johnny the bartender
+Johnny

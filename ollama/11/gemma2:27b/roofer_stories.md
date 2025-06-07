@@ -1,0 +1,5 @@
+The July sun beat down on Elias "Eli" Blackwood's neck as he wrestled a stubborn bundle of shingles onto the roof. Sweat stung his eyes, but he dared not wipe it away – one hand always had to be gripping the ridge line for safety. Below him, the city sprawled in its usual chaotic symphony: car horns blaring, sirens wailing, and the distant thrumming of construction. Eli barely noticed. He was lost in the rhythm of his work: hammering, nailing, securing each shingle with practiced precision. 
+
+This particular roof, a Victorian on Elm Street, had been giving him trouble all morning. The angle was steeper than he'd anticipated, and the old wood groaned ominously beneath his weight. Eli paused, catching his breath and scanning the street below for any sign of Mrs. Henderson, the homeowner. He'd promised her the roof would be finished by noon, but the stubborn shingles were testing his patience.
+
+He squinted at a dark cloud gathering on the horizon, its edges tinged with an ominous green. A summer storm was brewing, and Eli knew he had to work fast if he wanted to avoid getting caught in the downpour. 

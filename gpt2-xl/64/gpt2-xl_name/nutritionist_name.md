@@ -1,1 +1,1 @@
-Walter O. Williams
+Dr. Walter O. Williams

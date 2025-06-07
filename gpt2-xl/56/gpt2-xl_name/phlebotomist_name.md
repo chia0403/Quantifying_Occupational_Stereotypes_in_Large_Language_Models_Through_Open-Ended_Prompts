@@ -1,2 +1,1 @@
 Charles Babbage
-Ada

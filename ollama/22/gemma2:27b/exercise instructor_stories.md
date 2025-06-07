@@ -1,0 +1,7 @@
+Sweat beaded on Seraphina "Sera" Alvarez's forehead as she demonstrated the proper form for a burpee. Her ponytail, usually perfectly tamed, was escaping its confines, tendrils whipping around her face like errant fireworks. The humid Miami air clung to her skin, amplifying the burn in her muscles as she exploded upward from the squat position. 
+
+"Remember," Sera called out, her voice surprisingly clear despite the exertion, "engage your core and land softly!" A chorus of grunts and strained breaths answered her from the twenty-odd bodies scattered across the outdoor gym. Palm trees swayed languidly overhead, their fronds casting dappled shadows on the brightly colored mats spread across the concrete floor. The rhythmic pulse of salsa music blared from Sera's portable speaker, a counterpoint to the symphony of exertion emanating from her class. This was Sera's domain: a haven carved out of the bustling city where she could empower others to push their limits and embrace their inner strength.
+
+Today, however, something felt different. A tension thrummed beneath the surface of the usual joyful chaos.  Sera scanned the faces before her – familiar regulars mingled with curious newcomers – searching for the source. Her eyes settled on a man standing awkwardly at the edge of the group, his gaze fixed intently on Sera. He wore a crisp white linen shirt and chinos, an incongruous outfit amidst the workout gear. His expression was unreadable, but there was something about the intensity in his blue eyes that sent a shiver down Sera's spine.  
+
+

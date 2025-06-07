@@ -1,0 +1,5 @@
+The air hung thick with the scent of hay and disinfectant, a familiar perfume to Elsie Mae Cartwright.  Elsie, her silver braid bouncing down her back as she walked, surveyed the rows of kennels in the Havenwood Animal Shelter. A cacophony of barks, meows, and chirps filled the space, punctuated by the rhythmic thump of Elsie's boots on the concrete floor. Dawn light filtered through the grimy windows, illuminating dust motes dancing in the air and casting long shadows from cages stacked high with bedding. 
+
+It was Elsie's favorite time of day - a quiet hour before the shelter doors opened to the public, when she could connect with each animal individually, tending to their needs and whispering words of encouragement. Today, though, a knot of anxiety tightened in her stomach. Havenwood was at capacity, every kennel filled. The phone calls never stopped, desperate pleas from people surrendering unwanted pets. Elsie knew they couldn't keep taking them all in.  Something had to change. 
+
+

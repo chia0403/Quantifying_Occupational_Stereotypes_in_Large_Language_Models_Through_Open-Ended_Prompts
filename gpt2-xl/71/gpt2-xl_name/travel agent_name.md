@@ -1,1 +1,1 @@
-William B. McFarland, Jr.
+William B. McFarland

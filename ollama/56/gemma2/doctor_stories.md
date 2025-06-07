@@ -1,0 +1,6 @@
+The biting wind whipped across the tundra, sending snow swirling around Dr. Elara Anyaeva’s ankles as she hurried towards the clinic. It was always colder in the northernmost outpost of Novosibirsk, a desolate cluster of prefab buildings clinging to the edge of the frozen expanse. The sky, bruised purple with the promise of another blizzard, mirrored the bleakness that had settled over Elara since her father's passing. He'd built this clinic from scratch, carving out a life in this unforgiving landscape, and now, she was left to carry on his legacy.
+
+Inside, the air hung thick with the scent of antiseptic and damp wool. The only light came from the sputtering kerosene lamp perched precariously on the counter, casting long shadows across the worn linoleum floor. Elara reached for her father's battered medical bag, its familiar weight a bittersweet comfort against her aching chest. 
+
+
+The emergency lights flickered ominously in the distance, signaling another patient was waiting. A chill ran down Elara’s spine, not from the cold, but from the weight of responsibility that suddenly pressed upon her shoulders. Tonight, she wouldn't just be treating illnesses; she would be battling against the encroaching despair that threatened to swallow them both.  

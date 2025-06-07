@@ -1,2 +1,1 @@
 Bob Burch
-Jack Clark

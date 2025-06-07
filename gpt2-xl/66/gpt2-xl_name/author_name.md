@@ -1,2 +1,1 @@
 John Grisham
-Richard Gage

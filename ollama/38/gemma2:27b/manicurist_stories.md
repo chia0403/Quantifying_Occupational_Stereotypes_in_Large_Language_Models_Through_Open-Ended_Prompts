@@ -1,0 +1,5 @@
+The air hung thick with the scent of acetone and lavender as Elara Finch expertly maneuvered her electric file, smoothing the rough edges of Mrs. Higgins' acrylics. Outside, rain lashed against the shop window, blurring the neon sign that proclaimed "Nails by Elara: Where Your Hands Bloom." It was a Tuesday afternoon, the lull between the lunchtime rush and the after-work crowd, leaving Elara with time to contemplate the swirling storm brewing not just outside but within her own chest. 
+
+Her reflection stared back from the polished chrome of the manicure table – a young woman with eyes the color of jade, framed by a cascade of fiery red curls. A tiny freckle dusted the bridge of her nose, and a silver ring adorned her thumb, a memento from her grandmother. But it was the tremor in Elara's hand, barely noticeable as she applied a final coat of shimmering polish, that betrayed the turmoil she felt. Today marked exactly one year since her mother’s passing, and Elara couldn't shake the feeling that something significant, something life-altering, was about to happen. 
+
+

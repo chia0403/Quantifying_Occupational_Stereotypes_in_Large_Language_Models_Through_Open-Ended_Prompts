@@ -1,0 +1,5 @@
+The pungent scent of beeswax mingled with lavender and something faintly metallic - perhaps the leftover ghost of blood from a recent hunting accident. This was Elara Thorne’s atelier, tucked away on a cobbled side street in Veridian City, its window displaying an array of fabrics as vibrant as the city itself. Outside, the midday sun beat down on the bustling marketplace, vendors hawking everything from spiced pastries to enchanted trinkets. Inside, however, the air was cool and still, punctuated only by the rhythmic thwack of Elara’s hammer against a leather breastplate.
+
+Elara, with her fiery red hair pulled back in a tight braid and fingers calloused from years of meticulous work, was no ordinary tailor. She wasn't content with simple stitches and seams. Her creations were imbued with a touch of magic, tailored not just to fit the body but also to enhance its abilities. Today, she was working on a commission for the city guard captain - a suit of armor designed to resist fire magic, complete with reinforced shoulder plates and a hidden compartment for emergency healing potions. 
+
+

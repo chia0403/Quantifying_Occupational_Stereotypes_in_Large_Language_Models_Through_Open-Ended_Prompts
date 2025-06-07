@@ -1,0 +1,5 @@
+Rain lashed against the windowpanes of "Curl Up & Dye," blurring the neon pink sign that glowed stubbornly through the deluge. Inside, Aurelia Blackwood-Jones hummed along to a forgotten Motown track as she meticulously sculpted a client's auburn curls into a cascading waterfall. The air hung thick with the sweet scent of coconut conditioner and hairspray, a comforting aroma that usually calmed her frayed nerves. Today, however, even the familiar smells couldn't quite mask the anxiety gnawing at Aurelia's gut.
+
+A letter, crisp and official-looking, sat unopened on the counter beside her station, threatening to unravel the carefully constructed world she’d built in this small coastal town. It was from a law firm representing her estranged grandmother – a woman Aurelia hadn't seen since she was ten, a woman who had vanished from her life as mysteriously as she'd appeared. The letter promised an inheritance, but also hinted at secrets and obligations that Aurelia couldn't begin to fathom.
+
+

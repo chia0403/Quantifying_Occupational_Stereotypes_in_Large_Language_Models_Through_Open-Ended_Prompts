@@ -1,0 +1,5 @@
+The air hung thick and heavy with diesel fumes and the promise of rain. Lightning cracked across the bruised sky, illuminating the endless ribbon of asphalt stretching out before Elias "Eli" Blackwood like a grey serpent slithering through the Nevada desert. His rig, "Betsy," a hulking Peterbilt 389 with chrome glinting dully in the fading light, grumbled contentedly under him, her engine purring a familiar lullaby. Eli gripped the worn leather of the steering wheel, his knuckles white against the sun-bleached hide. He squinted through the windshield, rain beginning to lash down, blurring the distant silhouettes of Joshua trees into wavering phantoms. 
+
+He was hauling a load of fresh produce from Bakersfield to Boise – a tight deadline, but Eli never shied away from a challenge. The road stretched before him, an empty canvas waiting for Betsy's tires to carve their path across its vastness. But tonight, something felt different, a prickle of unease crawling up his spine like a desert scorpion. He couldn't shake the feeling that he wasn't alone on this desolate stretch of highway. 
+
+

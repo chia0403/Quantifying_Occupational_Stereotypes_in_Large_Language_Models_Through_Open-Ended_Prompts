@@ -1,0 +1,7 @@
+## Story Opening and Setting:
+
+**Setting:** The late afternoon sun, a hazy orange, was bleeding across the bustling cobbles of Rue Saint-Martin in the 4th arrondissement of Paris. Flower stalls, bursting with the last gasps of their colorful displays, lined the street, their scents mingling with the exhaust fumes of Vespas and the tempting aroma of freshly baked pain au chocolat. Despite the chaos, a certain romantic charm clung to the air, a feeling that even the most hardened cynic couldn't entirely deny.
+
+**Story Opening:**
+
+The bell above the door of "Fleurs d'Étoile" jingled, a cheerful little sound that usually brought a smile to Aurelia Beatrice Dubois' face. Today, however, it only served to amplify the dull ache behind her eyes. Aurelia, her fingers stained a vibrant green from hours of arranging roses, sighed and looked up from the delicate construction she was attempting – a cascade of ivory orchids meant to be draped across the altar of Notre Dame for a wedding tomorrow. The scent of lilies, normally a comfort, felt cloying in the stifling heat of the shop. Another customer. Another request. Another reminder that life, much like her meticulously crafted bouquets, could feel both beautiful and suffocatingly perfect all at once. She forced a smile, hoping it looked more genuine than she felt, and prepared to greet whoever had just entered her little floral haven on Rue Saint-Martin.

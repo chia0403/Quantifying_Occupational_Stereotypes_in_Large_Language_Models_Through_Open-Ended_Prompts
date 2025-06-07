@@ -1,0 +1,5 @@
+The air in the Himalayan village clinic hung thick with the scent of yak dung smoke and antiseptic.  Dr. Maya Devi Sharma adjusted her spectacles, pushing them further up her nose as she peered at the x-ray illuminated on the ancient viewing box. It wasn't much to look at, cobbled together from spare parts scavenged from Kathmandu, but it was the only one they had within a hundred miles. The fractured humerus stared back at her, stark white against the black film, belonging to a young Sherpa boy named Tenzin who had fallen from a precarious cliff while tending his family's goats.
+
+Maya sighed. This wasn't the idyllic life she'd envisioned when she left her prestigious post at the Delhi General Hospital for this remote outpost nestled in the shadow of Annapurna.  But somewhere between the breathtaking vistas, the unwavering resilience of the mountain people, and the deep sense of purpose that filled her days, she had found something far more fulfilling than sterile hallways and endless paperwork.
+
+

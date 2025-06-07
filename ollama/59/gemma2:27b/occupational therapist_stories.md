@@ -1,0 +1,5 @@
+Rain lashed against the windows of St. Jude's Rehabilitation Center, blurring the world outside into an impressionistic watercolor. Inside, the air hummed with the low thrum of machinery and the muffled voices of patients struggling through exercises. Amelia Rose Hawthorne, her auburn hair pulled back in a practical ponytail, surveyed the scene from behind the physiotherapy desk. The aroma of disinfectant mingled with something sweeter, perhaps vanilla hand sanitizer, creating a peculiar olfactory signature that Amelia had come to associate with hope and healing. 
+
+Today, however, that scent was tinged with anxiety. Amelia was scheduled to meet her newest patient, a former professional athlete grappling with a career-ending injury. His name was Daniel Hayes, a star quarterback whose future had been abruptly snatched away by a devastating knee injury during the championship game. Amelia knew this case would be challenging – not just physically, but emotionally too. Helping Daniel regain his mobility wouldn't be enough; she needed to help him find a way forward in a world that no longer revolved around touchdowns and cheering crowds.
+
+

@@ -1,0 +1,5 @@
+The scent of crayons and glue hung heavy in the air, competing with the faint tang of disinfectant that permeated every corner of Sunnyside Kindergarten.  Sunlight streamed through the oversized windows, illuminating swirling dust motes and casting long shadows from the brightly colored alphabet charts adorning the walls. Eleanor Beatrice Finch, a woman who exuded warmth like a human sunlamp, hummed softly as she straightened the blocks in their designated bin.  Her rosy cheeks were slightly flushed from chasing giggling children around the playground earlier, her blonde hair escaping its neat bun to frame her freckled face.  Eleanor was known for her boundless patience and infectious laughter – qualities that made her a beloved figure among both students and colleagues.
+
+Today, however, a tremor of unease ran through Eleanor's usual cheerfulness. A strange package had arrived that morning, addressed simply to "The Teacher" in loopy handwriting she didn't recognize.  It sat on her desk, wrapped in plain brown paper and secured with twine, its contents a mystery waiting to be unraveled. 
+
+

@@ -1,0 +1,5 @@
+The scent of sawdust hung heavy in the air, clinging to Elias Blackwood's worn leather apron like a persistent ghost. Sunlight slanted through the grimy windowpanes of his workshop, illuminating motes of dust dancing in its golden rays. Outside, the cobblestone streets of Oldhaven bustled with the usual morning cacophony: hawkers shouting their wares, the rhythmic clang of the blacksmith's hammer, and the distant bleating of sheep being herded through the market square.
+
+But Elias remained oblivious to the world beyond his workbench. His calloused fingers moved with practiced ease, shaping a piece of cherrywood into an intricate scrollwork design destined for the mantelpiece of a wealthy merchant's home.  He worked in silence, his mind wrestling with the delicate curve he needed to carve, each precise shave of the chisel bringing him closer to his vision.  Yet, beneath the focused calm, a gnawing unease twisted in Elias' gut. It wasn't the usual anxiety that came with deadlines and demanding clients; this was something deeper, a sense of impending change he couldn't quite grasp. 
+
+

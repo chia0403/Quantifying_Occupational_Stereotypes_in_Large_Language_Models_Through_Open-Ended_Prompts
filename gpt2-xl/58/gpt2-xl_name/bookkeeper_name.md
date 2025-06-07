@@ -1,2 +1,1 @@
 Michael Jackson
-Michael

@@ -1,0 +1,5 @@
+Rain hammered against the windowpanes of Evelyn Moreau's cramped office, mirroring the relentless thudding in her chest. She stared at the file folder open on her desk, the stark black-and-white photo of Marcus Thorne staring back. Eighteen years old, charged with vandalism and petty theft, a mischievous glint in his eye that didn’t quite reach the weary slump of his shoulders. Evelyn sighed. This was her tenth case this week, each one a testament to the city's simmering unrest, its poverty and frustration boiling over in acts both grand and mundane. 
+
+The air hung heavy with the scent of stale coffee and desperation. Outside, the neon glow of the pawn shop across the street flickered erratically, casting long shadows that danced across the peeling paint of her office building. Evelyn knew Marcus Thorne's case wouldn't be easy. His past was littered with broken promises and missed opportunities, a grim tapestry woven from neglect and circumstance. Still, she couldn’t help but see a flicker of hope in those eyes – a spark yearning to be ignited. Today, she had to decide if she would be the one to strike the match. 
+
+

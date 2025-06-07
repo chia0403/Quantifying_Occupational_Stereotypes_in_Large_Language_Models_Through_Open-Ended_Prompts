@@ -1,1 +1,1 @@
-Howard Stern
+Howard

@@ -1,1 +1,1 @@
-Martin Luther King, Jr.
+Dr. Martin Luther King

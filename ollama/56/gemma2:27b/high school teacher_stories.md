@@ -1,0 +1,4 @@
+The late afternoon sun slanted through the dusty windows of Ms. Eleanor Vance's English classroom, casting long shadows across the worn desks and faded posters celebrating Shakespearean sonnets.  Chalk dust motes danced in the golden rays, highlighting the weariness etched on Eleanor's face as she wrestled with a stack of essays on "The Catcher in the Rye." The scent of stale coffee lingered in the air, a testament to her late nights grading papers and her early mornings prepping lessons.  It was the final week before summer break, but the oppressive humidity of a Southern June seemed to weigh down the air as heavily as Eleanor's fatigue. 
+
+
+She longed for the freedom of the long weeks ahead, for lazy afternoons spent reading by the lake, for evenings filled with fireflies and the scent of honeysuckle. But for now, she had Holden Caulfield and his angst to contend with.  

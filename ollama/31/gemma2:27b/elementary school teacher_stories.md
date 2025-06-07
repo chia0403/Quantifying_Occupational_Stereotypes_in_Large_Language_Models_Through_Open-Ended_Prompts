@@ -1,0 +1,5 @@
+The late afternoon sun streamed through the dusty windows of Ms. Eloise Montgomery's third-grade classroom, painting long, golden rectangles across the worn linoleum floor. Outside, the familiar symphony of cicadas buzzed relentlessly in the humid Alabama air, their sound a constant backdrop to the final minutes of another school day. Eloise leaned against her desk, her gaze drifting over the rows of empty chairs, each one bearing the faint imprint of a small child's energy.
+
+She inhaled deeply, the scent of crayons and chalk mingling with a hint of sweat and disinfectant. This classroom, with its mismatched furniture and fading posters of multiplication tables and the solar system, was her sanctuary. For eight hours a day, it transformed into a vibrant world of imagination, learning, and boundless curiosity. But as the last bell echoed through the hallway, signaling the end of another academic year, a familiar pang of melancholy crept into Eloise's heart. Summer break meant a welcome respite, but it also meant two long months of missing the infectious laughter and eager minds that filled her days.
+
+

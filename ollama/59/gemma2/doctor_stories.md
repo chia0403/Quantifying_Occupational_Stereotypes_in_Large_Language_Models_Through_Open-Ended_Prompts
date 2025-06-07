@@ -1,0 +1,6 @@
+The flickering neon sign outside cast an unsettling pink glow across Dr. Eleanor Vance's face as she unlocked the door to her clinic. It was 2:37 am, two minutes past closing time, and the only sound in the otherwise silent street was the mournful howl of a distant siren. The air hung heavy with the scent of stale cigarette smoke and damp asphalt, a familiar aroma that had become synonymous with this late-night corner of Denver.
+
+Eleanor stepped inside, her footsteps echoing on the worn linoleum floor. Dust motes danced in the single shaft of moonlight filtering through the grimy window, illuminating rows of faded medical charts and half-empty prescription bottles lining the shelves.  A lone spider web hung precariously above the reception desk, glistening with a few rogue droplets of water. It was hardly the picture of bustling healthcare, but this was Eleanor's domain – a refuge for the city's underbelly, those who fell through the cracks of conventional medicine. 
+
+
+She switched on the overhead fluorescent light, its harsh glare momentarily blinding her. As her eyes adjusted, she caught sight of a crumpled note taped to the counter: "Be here in ten. -J" The handwriting was familiar, scrawled with the same careless confidence as always.  A knot of anxiety tightened in Eleanor's stomach. It was almost never this urgent. 

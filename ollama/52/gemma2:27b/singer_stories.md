@@ -1,0 +1,4 @@
+Rain lashed against the grimy windows of The Rusty Trumpet, blurring the neon sign outside into a hazy smear of pink and purple. Inside, the air hung thick with cigarette smoke and the mingled scents of stale beer and cheap perfume. On stage, bathed in the sickly yellow glow of a single spotlight, stood Elara Nightingale. Her emerald green dress shimmered under the light, its sequins catching the eye despite the dimly lit room. She clutched the microphone stand, her knuckles white against the chrome, as she poured every ounce of longing into the bluesy melody she sang.
+
+
+Her voice, husky and rich like dark chocolate, echoed through the nearly empty bar, weaving a tapestry of heartbreak and resilience that resonated with the handful of patrons scattered around the room. They sat hunched over their drinks, lost in their own worlds, but Elara could see the flicker of recognition in their eyes, the way they nodded along to her lyrics as if sharing a secret pain. 

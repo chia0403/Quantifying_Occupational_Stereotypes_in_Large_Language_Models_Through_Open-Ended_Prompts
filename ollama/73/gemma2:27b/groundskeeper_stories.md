@@ -1,0 +1,8 @@
+The air hung heavy with the scent of honeysuckle and impending rain as Theodore "Teddy" Blackwood surveyed his domain. Dawn was just breaking, painting the sky in hues of apricot and lavender, but already the humidity clung to him like a damp shroud. He adjusted the brim of his faded straw hat, squinting at the overgrown rose bushes lining the gravel path leading up to the manor house. They were bursting with blooms, their delicate petals threatened by the thorny tendrils encroaching upon them.
+
+The Blackwood Manor sprawled before him – a sprawling Victorian behemoth of weathered gray stone and ivy-choked turrets. For generations, Teddy's family had tended its gardens, meticulously shaping the wild landscape into an oasis of order and beauty. Now, it fell solely on his shoulders to uphold that legacy, a weight he carried with a mixture of pride and trepidation.
+
+The manor itself stood silent, windows dark and lifeless. The last of the Blackwood lineage, his reclusive aunt Eleanor, had passed away three months prior, leaving Teddy as sole inheritor of both the sprawling estate and its tangled history.  He knew she'd been eccentric – whispered tales of midnight séances and a collection of oddities from around the world filled the void where concrete information should have been.
+
+
+What secrets did these ancient walls hold? Teddy wondered, his gaze drawn to the overgrown topiary garden he’d avoided since childhood, its sculpted hedges now resembling monstrous figures lurking in the shadows. It was time to confront those forgotten corners, to unravel the mysteries that lay hidden beneath years of neglect and whispered legend. 

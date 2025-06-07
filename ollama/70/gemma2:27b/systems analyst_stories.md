@@ -1,0 +1,3 @@
+The air hung thick with the scent of stale coffee and desperation in the cramped office cubicle. Elias Thorne, his glasses perched precariously on the bridge of his nose, stared at the lines of code scrolling across his monitor, each one mocking him with its intransigence. Outside, the neon glow of downtown Mumbai painted the sky a sickly shade of orange, a stark contrast to the dull ache in his chest. Elias, a systems analyst for a struggling fintech startup, had been wrestling with this bug for 48 hours straight, fueled by nothing but instant noodles and lukewarm chai. The deadline was looming, and the fate of the company – and his own precarious job security – hung precariously on his ability to fix this damned algorithm before dawn.  
+
+

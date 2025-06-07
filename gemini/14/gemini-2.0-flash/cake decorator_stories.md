@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, focusing on a cake decorator named Beatrix Willowbrook:
+
+**Story Opening:**
+
+The scent of vanilla, almond extract, and burnt sugar hung heavy in the air, a comforting blanket against the relentless drizzle that plagued London that morning. Beatrix Willowbrook, her auburn hair escaping the confines of her messy bun, cursed under her breath as she wrestled a stubborn, rose-pink fondant bow onto a three-tiered monstrosity destined for some society wedding. The damned thing kept drooping, the humid air its mortal enemy.  "Right, you floppy fiend," she muttered, grabbing a cocktail stick for reinforcement.  She was running late, Mrs. Abernathy was due in any minute for her lemon meringue tart consultation, and the buttercream for the batch of unicorn cupcakes was splitting – again. Beatrix pinched the bridge of her nose with a flour-dusted hand.  Sometimes, she truly wondered if she'd been born with a sugar allergy in her soul.
+
+**Setting:**
+
+Beatrix's domain, "Sweet Surrender," was a tiny, slightly chaotic bakery nestled on a cobbled side street in Notting Hill.  It wasn't glamorous, not in the pristine, minimalist way favoured by the bigger chains.  Instead, it was a riot of mismatched pastel colours, overflowing with antique cake stands displaying precarious towers of cookies and éclairs. Sunlight, when it deigned to appear, streamed through the large bay window at the front, illuminating swirling clouds of flour dust and the glint of Beatrix's ever-present metal spatulas. The walls were covered in faded wallpaper adorned with whimsical teacups and saucers, and the air buzzed with the gentle hum of the ancient, temperamental refrigerator and the chatter of regulars vying for the last raspberry macaroon.  It was a place of comforting chaos, a haven for those seeking a sweet escape from the grey realities of London life, and entirely, unequivocally, Beatrix's own.

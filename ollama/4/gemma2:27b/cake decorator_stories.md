@@ -1,0 +1,6 @@
+The humid air hung thick in the tiny bakery kitchen, heavy with the scent of vanilla and almond extract. ElizaBeth "Lizzie" Baker squinted through the steam rising from her latest creation - a three-tiered masterpiece destined for a lavish wedding reception. Layers of white chocolate sponge alternated with tangy raspberry curd, all encased in a smooth buttercream frosting the color of freshly fallen snow. Lizzie meticulously piped delicate sugar flowers onto the tiers, each petal painstakingly crafted and dusted with edible shimmer. 
+
+Her brow furrowed in concentration as she stepped back to assess her work. A stray bead of sweat trickled down her temple, landing on the edge of a marzipan rose. She cursed under her breath and delicately wiped it away with a damp cloth. The clock on the wall ticked relentlessly – just three hours until delivery, and this cake was only the beginning. 
+
+
+Lizzie's bakery, "Whimsical Wonders," nestled in a quiet corner of bustling downtown Charleston, was renowned for its imaginative cakes and confections.  But today, Lizzie felt the weight of expectation pressing down on her. This wedding cake wasn't just any cake; it was for the daughter of the city's mayor – a high-profile event that could make or break Lizzie's burgeoning business. 

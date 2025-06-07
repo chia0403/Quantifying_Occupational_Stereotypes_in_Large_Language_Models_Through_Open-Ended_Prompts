@@ -1,0 +1,5 @@
+Rain lashed against the grimy window of Silas Blackwood's office, each drop a tiny hammer blow against the aged glass. The air hung thick with the scent of stale cigarette smoke and desperation, a familiar perfume in this part of town. Silas himself, hunched over his desk like a gargoyle perched on a tombstone, was a testament to both. His trench coat, perpetually damp from the relentless Chicago drizzle, pooled around him like a shroud.  The lines on his face, etched deep by years of chasing shadows and untangling lies, seemed even more pronounced in the weak light filtering through the blinds. 
+
+He tapped a calloused finger against the faded photograph on his desk – a young woman with eyes as blue as forget-me-nots and a smile that could disarm a viper. Amelia Thorne. Missing for three weeks, vanished without a trace. Her family, frantic and heartbroken, had come to Silas as a last resort. A man known for sniffing out the truth, even when it lay buried beneath layers of deceit and decay. Today, however, the truth seemed more elusive than ever. 
+
+

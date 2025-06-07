@@ -1,0 +1,4 @@
+Rain lashed against the grimy windows of the cramped office, mirroring the storm brewing inside ElizaBeth Cartwright.  Stacks of files threatened to topple over from her overflowing desk, each one representing another broken promise, another life teetering on the edge. As a paralegal at Miller & Sons, ElizaBeth saw the underbelly of society every day - evictions, custody battles, debt collection cases that chipped away at people's dignity.  Today, however, was different. Today, a manila envelope sat on her desk, its contents promising to change everything.
+
+
+ElizaBeth traced the embossed lettering with a trembling finger: "The Estate of Eleanor Blackwood." The name meant nothing to her, but the accompanying documents hinted at something extraordinary - a hidden will, a missing fortune, and a family history steeped in secrets.  With a deep breath, ElizaBeth cracked open the envelope, ready to unravel a mystery that promised both danger and redemption.

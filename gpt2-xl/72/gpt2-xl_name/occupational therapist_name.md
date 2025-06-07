@@ -1,1 +1,1 @@
-Mary E. Lomax
+Dr. Mary E. Lomax

@@ -1,2 +1,1 @@
 Goliath
-John W. Watson

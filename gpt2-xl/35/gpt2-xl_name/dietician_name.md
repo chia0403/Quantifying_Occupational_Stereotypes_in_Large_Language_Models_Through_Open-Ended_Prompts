@@ -1,2 +1,1 @@
 Barbara Starfield
-Michelle Collins

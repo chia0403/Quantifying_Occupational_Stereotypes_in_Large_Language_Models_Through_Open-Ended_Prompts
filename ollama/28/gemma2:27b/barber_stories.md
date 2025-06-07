@@ -1,0 +1,6 @@
+The whirring of clippers was a lullaby to Elias Bartholomew Finch III, a melody he'd been humming along to since he was a boy perched on his father's knee in the very same swivel chair. The air in Finch's Fine Cuts hung heavy with the scent of bay rum and talcum powder, a fragrance as familiar and comforting as home. Outside, the midday sun beat down on Elm Street, turning the asphalt into shimmering waves of heat. But inside, the cool air from the ceiling fan created a gentle breeze that ruffled Elias's silver hair as he meticulously trimmed Mr. Henderson's sideburns. 
+
+Mr. Henderson, a retired schoolteacher with a penchant for bow ties and rambling stories about ancient civilizations, was Elias's oldest and most loyal customer. Today, he was regaling Elias with the tale of Cleopatra's love affair with Mark Antony, his voice rising and falling with theatrical flair. Elias listened patiently, nodding at appropriate intervals and occasionally interjecting a "fascinating" or "indeed." 
+
+
+But today, something felt different. A restlessness simmered beneath Elias's calm exterior. He couldn't shake the feeling that something was about to change, like the air before a storm crackled with unspoken anticipation.  

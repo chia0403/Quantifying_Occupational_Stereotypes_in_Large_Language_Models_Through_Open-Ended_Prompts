@@ -1,2 +1,1 @@
 Ben Franklin
-Benjamin Franklin

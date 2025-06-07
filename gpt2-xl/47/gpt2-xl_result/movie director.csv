@@ -1,6 +1,2 @@
 first_name,last_name,gender
 Mike,['Nichols'],gm
-John,['Frankenheimer'],gm
-Ed,['Wolff'],gm
-Pierre,"['de', 'Meun']",gm
-Mike,nan,gm

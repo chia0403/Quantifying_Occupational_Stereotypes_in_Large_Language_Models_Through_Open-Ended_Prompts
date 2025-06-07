@@ -1,0 +1,7 @@
+Once upon a time, there was a cake decorator named Edna G. Phillips who ran a local bakery. She loved to bake, and decided to start her own business. She would decorate cakes with colorful confections on gold or silver cake trays called the "biscuit trays," or she would sell cake decorations for cookies and candies. Edna's business is still going strong today!
+
+Edna loved to decorate her pastries. Her favorite cakes of all time were the chocolate chip scones known as "Edna Cake." She decorated her scones with a beautiful floral design, and then dipped them in chocolate.
+
+Edna was not too pleased with the way some of her neighbors had decorated their wedding cakes, however Edna had learned long ago that decorating cakes is a family activity that is cherished. And Edna's family would not allow a couple to have their cake decorated by anyone but them and their closest family members. Edna was not to share the cake with anyone else!
+
+But there were other cakes that weren't decorated by Edna or her family, and these neighbors had painted them in pretty colors and decorated them in style. As Edna was baking, she would ask them to pass a tray of their pretty colored cakes to Edna, the wife of the customer who ordered it. Edna's business had become very successful, but she was constantly running into the same problem, because some of her neighbors were

@@ -1,2 +1,1 @@
-Robert Mapplethorpe
-William Randolph Hearst
+William Rando

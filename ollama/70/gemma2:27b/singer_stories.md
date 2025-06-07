@@ -1,0 +1,5 @@
+The velvet curtain shivered, barely disturbed by the lone spotlight that pierced the smoky haze of The Blue Moon. Its beam illuminated Elara Vance, her sequined gown shimmering like captured starlight as she adjusted the microphone, her fingers tracing its cool metal surface. Around her, the expectant hum of the audience pulsed in time with the nervous thrumming of her own heart. Tonight was different.  Tonight wasn't just another set at a smoky dive bar in New Orleans' French Quarter. Tonight, there were scouts from Blue Note Records in the crowd, their eyes sharp and hungry behind darkened sunglasses. 
+
+Elara took a deep breath, drawing in the scent of stale beer and bourbon mingling with the sweet perfume of jasmine drifting in from the open doorway. This was her chance, her shot at breaking free from the confines of The Blue Moon's sticky floors and broken dreams. Closing her eyes for a moment, she pictured the faces of her family back in Baton Rouge, their weathered hands clasped in prayer, their hopes riding on her voice.  She opened them, the spotlight burning into her soul, and began to sing.
+
+

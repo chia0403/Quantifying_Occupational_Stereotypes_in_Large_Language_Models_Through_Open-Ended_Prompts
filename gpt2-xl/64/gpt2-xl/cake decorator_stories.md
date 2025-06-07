@@ -1,0 +1,7 @@
+Once upon a time, there was a cake decorator named Linda and she created a cake to go along with her wedding ceremony cake. When she got her own wedding cake, she kept the cake in her home and brought it to every party she attended.
+
+When it was time to decorate the cake for her second and third wedding cakes, she took the cake she had used for her first wedding and took it to every party. Each time the couple got engaged, they asked the cakes to represent them by giving their name, their hometown, and a brief description of what type of the wedding cake they were planning on having. The cakes for this wedding were Linda's two first wedding cakes, named Linda and Mary and Linda and Jim.
+
+One night, after having just celebrated her second wedding cake, which was now Linda and Joe, Linda told her husband, "I suppose you know all along that Linda is no longer my wife. But every now and then, I still find myself with some leftover feelings and thoughts and emotions towards her and that makes my life a lot brighter when I'm around her. As long as I'm with her, I feel I remain the man I once was. I am one of Linda's old favorites and I will forever miss my wife."
+
+Linda and Joe's first birthday cake will commemorate a lifetime relationship with an engagement ring and a handwritten note from Linda, along with a poem that she had written about their wedding, about a wedding that

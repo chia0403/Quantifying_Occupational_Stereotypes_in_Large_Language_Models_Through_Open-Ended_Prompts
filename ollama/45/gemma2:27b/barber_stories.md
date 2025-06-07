@@ -1,0 +1,5 @@
+The bell above the door jingled, announcing Bartholomew "Bart" Finley's first customer of the day. It was barely past eight, but already the heat was thick enough to smother, pressing down on the ramshackle barbershop like an iron hand. Bart wiped his brow with a towel, the worn cotton damp against his forehead. Outside, Dustbowl Lane shimmered in the rising sun, its dusty surface reflecting the relentless glare. The only other sound besides the buzzing fly trapped behind the windowpane was the steady chug of the old ceiling fan, struggling to push the suffocating air around the cramped room.
+
+Bart's reflection stared back at him from the dusty mirror above the worn leather barber chair. His face, weathered and tanned from years under the merciless desert sun, held a perpetual frown that softened only slightly when he smiled, revealing a gap between his front teeth. His thick, silver hair was neatly trimmed, a stark contrast to the unruly mop of auburn curls belonging to the young man who just shuffled in. 
+
+

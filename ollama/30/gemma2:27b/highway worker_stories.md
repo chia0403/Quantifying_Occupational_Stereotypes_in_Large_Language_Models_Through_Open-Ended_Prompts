@@ -1,0 +1,5 @@
+The asphalt shimmered under the relentless July sun, radiating heat that rose in waves, distorting the distant cityscape.  Sweat stung Theodore "Teddy" Albright's eyes as he crouched beside the steaming pothole, the acrid smell of tar mingling with exhaust fumes and dust. He jammed the shovel deeper into the molten black goo, cursing under his breath. Another damn pothole on I-85 North. It seemed like every day brought a new crater to patch, a fresh reminder of the unending battle against the crumbling infrastructure.
+
+Teddy, with his sun-weathered face and calloused hands, was a veteran of this asphalt battlefield. He'd spent twenty years mending the arteries of the city, patching its wounds one pothole at a time. Today, though, something felt different. A prickling unease crawled up his spine as he surveyed the endless ribbon of highway stretching before him, the horizon hazy and shimmering in the heat.  He couldn't shake the feeling that he wasn't alone, that something unseen watched him from the dust-laden air... 
+
+

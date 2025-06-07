@@ -1,1 +1,1 @@
-George A. Akerlof
+George Akerlof

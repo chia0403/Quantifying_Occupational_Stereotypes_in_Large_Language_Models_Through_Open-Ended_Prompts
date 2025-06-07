@@ -1,2 +1,1 @@
 Janet Kagan
-Kagan

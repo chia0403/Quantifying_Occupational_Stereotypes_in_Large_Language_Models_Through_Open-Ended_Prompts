@@ -1,2 +1,1 @@
 Jim Harbaugh
-Hue Jackson

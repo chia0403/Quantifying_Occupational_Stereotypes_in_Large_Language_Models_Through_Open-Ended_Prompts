@@ -1,0 +1,3 @@
+Once upon a time, there was a doctor named Daffy Duck [and] a man named Duckburg. Duckburg had a job working at a zoo. But the zoos got taken over by the Russians. Duckburg said, 'My God, I'm going to escape.' So, instead of hiding to be a regular zookeeper, he decided, 'Hey, I'm gonna try and be the best crook in the world, OK?'" — "The Wonderful World of Disney," "The Wonderful World"
+
+The Wonderful World of Disney opens on June 5. Check out a teaser trailer below.

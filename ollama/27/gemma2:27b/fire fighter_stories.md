@@ -1,0 +1,5 @@
+Smoke choked the air, acrid and thick, stinging Elias Blackwood's eyes even through his soot-stained mask. The roar of flames was deafening, a hungry beast devouring the old Victorian mansion floor by floor. Above him, the sky glowed an unnatural orange, reflecting the inferno raging within. Elias pressed himself against the scorching brick wall, adrenaline coursing through his veins as he waited for Captain Ramirez's signal. This was no ordinary house fire. The flames were relentless, fueled by something unseen, an unholy fervor that sent shivers down even the most seasoned firefighter's spine.
+
+Elias adjusted the heavy oxygen tank on his back and gripped the nozzle of his hose tighter. His heart pounded against his ribs, a frantic drumbeat echoing the chaos around him. He knew what was at stake - not just the lives of the occupants, but something far more ancient and terrifying. Tonight, Elias Blackwood wasn't just fighting fire; he was battling an unseen force, a malevolent entity feeding on the flames. 
+
+

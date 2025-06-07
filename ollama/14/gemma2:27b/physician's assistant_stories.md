@@ -1,0 +1,6 @@
+Rain lashed against the windows of the dilapidated clinic, each drop exploding in a miniature geyser on the cracked asphalt outside. The neon "Open 24 Hours" sign flickered erratically, casting an unsettling green glow over the overgrown weeds choking the entrance.  Inside, Amelia Grace Hawthorne meticulously cleaned her stethoscope, its cold metal a comforting weight against her palm.
+
+Amelia wasn't sure what she'd expected when she accepted the position as Physician Assistant in the remote Appalachian town of Havenwood. Maybe something quaint, charming even. Instead, she found herself surrounded by peeling paint, flickering lights, and the constant scent of antiseptic struggling to mask the underlying mustiness. 
+
+
+Havenwood felt miles away from everything Amelia knew. Her last posting had been a bustling trauma unit in Chicago, where the adrenaline rush of saving lives fueled her days. Here, the silence was almost deafening, punctuated only by the occasional groan from a patient in one of the sparsely furnished rooms.  But despite the unsettling atmosphere and the feeling of being utterly alone, Amelia knew she'd made the right decision. This community, forgotten by progress and left to fend for itself, needed her. And she, more than anything, needed to prove herself capable. 

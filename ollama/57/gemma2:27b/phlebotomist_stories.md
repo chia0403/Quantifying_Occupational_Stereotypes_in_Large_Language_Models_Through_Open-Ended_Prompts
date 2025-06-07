@@ -1,0 +1,3 @@
+Rain lashed against the windows of Mercy General Hospital, blurring the city lights into a shimmering, impressionistic mess. Inside, the fluorescent hum of the lab was a constant counterpoint to the storm's fury. Eleanor Finch, her nametag pinned neatly above the pocket of her scrubs, meticulously labeled a vial of blood. The crimson liquid swirled inside, reflecting the red emergency light blinking outside.  Eleanor sighed. This was her third double shift this week, and the exhaustion was starting to seep into her bones. She longed for a hot bath, a good book, anything but another patient. But then, the sliding doors whooshed open, admitting a figure shrouded in rain and shadows. Eleanor straightened, bracing herself for whatever emergency the storm had blown in. 
+
+

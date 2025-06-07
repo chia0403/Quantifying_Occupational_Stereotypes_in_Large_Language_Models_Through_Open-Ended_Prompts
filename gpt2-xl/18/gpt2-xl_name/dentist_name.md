@@ -1,1 +1,1 @@
-Jack Kevorkian
+Dr. Jack Kevorkian

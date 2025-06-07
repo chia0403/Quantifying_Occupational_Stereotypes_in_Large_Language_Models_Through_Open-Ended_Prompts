@@ -1,2 +1,1 @@
 Ed Kranz
-Tyler Kranz

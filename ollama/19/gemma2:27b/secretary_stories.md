@@ -1,0 +1,6 @@
+The relentless tick-tock of the antique clock on the wall grated on Eleanor Beatrice Ainsworth's nerves like fingernails scraping across a chalkboard. Rain lashed against the arched windows of the stately Blackwood Manor, blurring the already faded grandeur of the sprawling estate. Each gust seemed to claw at the ancient stone, mirroring the storm brewing within Eleanor herself.
+
+She sat rigidly at her mahogany desk, the polished surface reflecting the flickering gaslight overhead and the simmering frustration in her pale blue eyes.  For five years, she had diligently served as secretary to Mr. Alistair Blackwood, a reclusive widower known for his eccentricities and icy demeanor. Eleanor prided herself on her impeccable organization and unwavering loyalty, but today, those virtues felt like shackles. 
+
+
+The reason? A crumpled letter lay before her, its contents threatening to shatter the carefully constructed order of her life. The crisp handwriting belonged to her childhood sweetheart, Thomas Cavendish, who had vanished years ago, presumed lost at sea.  Now, he was back, requesting a meeting. And Eleanor, torn between duty and a flicker of long-dormant hope, knew she had a choice to make.

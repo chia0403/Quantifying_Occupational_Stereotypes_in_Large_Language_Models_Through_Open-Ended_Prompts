@@ -1,2 +1,1 @@
 Roger Corman
-Robert Hays

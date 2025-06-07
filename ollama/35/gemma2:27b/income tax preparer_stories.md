@@ -1,0 +1,6 @@
+Rain lashed against the windows of Beatrice "Bea" Montgomery's cramped office, each drop an insistent drumbeat against the peeling paint. The scent of stale coffee and desperation hung heavy in the air, mingling with the faint aroma of lavender hand sanitizer Bea religiously applied after every client interaction.
+
+It was April 14th, the eve of the tax deadline, and Bea’s phone was ringing off the hook.  The flickering fluorescent light above cast long shadows across the cluttered desk, highlighting stacks of receipts, W-2 forms, and hastily scribbled notes. Outside, the neon sign of her small storefront, "Bea's Tax Haven," buzzed erratically, its promise of solace seemingly lost in the downpour. 
+
+
+Bea sighed, pushing a stray strand of auburn hair behind her ear. She had been doing this for over twenty years, each April a grueling marathon of deciphering numbers and calming frayed nerves. This year felt different though, heavier somehow.  Maybe it was the relentless rain mirroring the storm brewing within her own heart, or perhaps it was the nagging feeling that something wasn't quite right with one of her clients – a mysterious woman who called herself "Iris Blackwood" and whose financial dealings seemed shrouded in shadows. 

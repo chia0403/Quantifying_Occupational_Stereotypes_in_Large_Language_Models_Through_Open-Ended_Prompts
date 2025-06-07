@@ -1,0 +1,7 @@
+Here's a story opening and setting for you:
+
+The rain-soaked streets of Portland's Pearl District glistened like polished onyx, reflecting the soft glow of streetlights that lined the sidewalks. Inside the cozy flower shop, "Petals & Posies," Emily Adelaide Wellesley carefully arranged a bouquet of sunflowers and dahlias in a delicate glass vase. The scent of fresh blooms wafted through the air, mingling with the faint tang of rain and the hum of indie folk music drifting from the coffee shop next door.
+
+As she worked, Emily's mind wandered to the upcoming flower festival that would soon transform the city's streets into a colorful tapestry of bouquets, garlands, and arrangements. It was an event she had spent months preparing for, and her shop was already filled with orders for custom pieces. But amidst the excitement, Emily couldn't shake the feeling of unease that had been growing inside her since her grandmother's passing. Her Grams, as she called her, had been a renowned florist in her own right, and Emily felt a deep sense of responsibility to carry on her legacy.
+
+As she stepped back to admire her handiwork, a knock at the door interrupted her reverie. It was a delivery from the flower wholesaler, bearing an unexpected shipment of rare and exotic blooms that would soon arrive at Petals & Posies. But as Emily opened the box to inspect the contents, she noticed something peculiar - a small, handwritten note tucked between the stems of the flowers.

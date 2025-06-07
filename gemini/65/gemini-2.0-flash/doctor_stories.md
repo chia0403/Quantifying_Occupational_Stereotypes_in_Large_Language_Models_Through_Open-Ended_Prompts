@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The rhythmic beeping of the cardiac monitor was the only constant in Dr. Alistair Reginald Finch's increasingly chaotic world. He hadn’t slept properly in seventy-two hours, his beard was a veritable haven for stray coffee grounds, and the relentless pounding in his temples threatened to crack his skull. Another wave of patients was cresting, a turbulent surge of wheezing breaths, bloodied faces, and terrified eyes. But none of that mattered. Right now, all that existed was the faint tremor in the old woman’s hand, the fragile flutter of her eyelids, and the insidious grey creeping up her knuckles. He needed to diagnose this, and he needed to diagnose it fast, before the flickering flame of her life was irrevocably extinguished.
+
+**Setting:**
+
+The year is 2042. The setting is the Emergency Room of St. Jude's Hospital, a sprawling, perpetually overwhelmed institution nestled in the heart of Neo-Detroit, a city choked by smog and scarred by socio-economic inequalities. While advancements in medical technology were impressive - holographic diagnostics, bio-engineered organ replacements, and nanobot therapies were commonplace - the healthcare system was teetering on the brink of collapse, strained by overpopulation, pollution-related illnesses, and a dwindling pool of resources. The air inside the ER was a stale, synthetic mix of recycled oxygen, antiseptic sprays, and the subtle, metallic tang of fear. Fluorescent lights buzzed overhead, casting harsh, unflattering shadows on the worn linoleum floors and the exhausted faces of the medical staff. Despite the technological advancements, St. Jude’s felt like a relic, a Victorian-era asylum modernized with blinking screens and automated drips. It was a place where hope and despair danced a tango, and Dr. Finch, unfortunately, was always leading the dance.

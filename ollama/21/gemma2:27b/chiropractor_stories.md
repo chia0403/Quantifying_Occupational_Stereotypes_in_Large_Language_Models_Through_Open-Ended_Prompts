@@ -1,0 +1,5 @@
+Rain lashed against the windows of Dr. Eleanor Ainsworth's office, mimicking the tempest brewing inside her. The antique brass lamp on her desk cast long shadows across stacks of patient files and anatomical charts, doing little to dispel the gloom. Outside, the wind howled through the ancient oak trees lining Elm Street, their gnarled branches clawing at the sky like skeletal fingers. Eleanor stared out the window, her reflection a pale ghost superimposed on the swirling grayness.  
+
+She was weary, bone-deep tired. Not just from the endless stream of patients with aching backs and stiff necks, but from a sense of unease that had been gnawing at her for weeks. It started subtly: a misplaced file, an unsettling dream, the feeling of being watched. Now, it pulsed within her like a hidden bruise, refusing to be ignored.  
+
+The insistent buzz of the intercom shattered the silence. "Dr. Ainsworth, Mr. Henderson is here for his appointment." Eleanor sighed and straightened her crisp white coat. Time to face reality, even if it felt like stepping into a storm. 

@@ -1,0 +1,6 @@
+The humid Charleston air clung to Eleanor Beauregard like a damp shawl as she hurried through the cobblestone streets, her wicker basket overflowing with fresh peaches and figs. Above, Spanish moss dripped from ancient live oaks, casting eerie shadows that danced with the setting sun.  Eleanor sighed, feeling the familiar pang of loneliness despite the vibrant life pulsing around her.
+
+She'd been a nutritionist in Charleston for five years now, drawn by the city's charm and the promise of helping people live healthier lives through the bounty of local ingredients. Yet, her practice remained stubbornly small, overshadowed by the larger, trendier wellness clinics that dotted the historic district.  Eleanor, with her penchant for handwritten recipes and old-fashioned consultations, felt increasingly like a relic in a world obsessed with instant results and virtual coaching.
+
+
+Today, however, was different. Eleanor clutched a crumpled invitation tucked deep within her basket – an invitation to cater a private event at one of Charleston's most prestigious mansions, hosted by none other than the elusive socialite, Evangeline Beaumont. This could be her chance, she thought, to finally showcase her unique brand of holistic nutrition and step out of the shadows.

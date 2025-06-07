@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Penelope "Penny" Finch's head, their cool, sterile glow reflecting off the countless white sheets spread across her drafting table. Outside the window, dusk painted the Chicago skyline in shades of lavender and burnt orange, but Penny was oblivious to its beauty. Her focus was laser-sharp on the intricate lines forming a futuristic cityscape before her. Every angle, every curve, every soaring spire had to be precise, perfectly calibrated to the client's vision – a self-sustaining metropolis nestled within the Arizona desert.
+
+Penny loved this part of the job: transforming abstract ideas into tangible blueprints. But today, a knot of anxiety tightened in her chest. This wasn't just any project; it was for Helios Industries, a company whispered to be on the cutting edge of sustainable technology. Their reputation preceded them, their projects shrouded in secrecy and speculation.  And Penny, fresh out of drafting school, had been entrusted with this crucial task. 
+
+

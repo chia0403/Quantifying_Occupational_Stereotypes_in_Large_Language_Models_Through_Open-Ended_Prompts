@@ -1,0 +1,5 @@
+The midday sun beat down on Elias Thorne's weathered shoulders, turning his sweat into shimmering beads that traced paths through the dust caked on his skin. He squinted at the block of rough granite before him, its surface marred by ancient cracks and stubborn inconsistencies. Elias ran a calloused hand over its cold face, feeling for the hidden lines that whispered the shape slumbering within. This wasn't just any commission; it was to be the centerpiece of the new cathedral being erected on the edge of the sprawling city of Aloria - a majestic archway adorned with figures of angels and saints.
+
+Elias' workshop, nestled in a cobbled alleyway far from the grandeur of the cathedral, reeked of stone dust and linseed oil. Tools hung from hooks lining the walls: chisels glinting like teeth, mallets worn smooth by years of use, and rasps promising to shape the roughest edges into flowing curves. This was his sanctuary, a place where he could wrestle with stubborn stone and coax beauty from its unyielding heart. The weight of expectation pressed upon him; every chip and nick, every miscalculation would be etched in granite for centuries to come. 
+
+

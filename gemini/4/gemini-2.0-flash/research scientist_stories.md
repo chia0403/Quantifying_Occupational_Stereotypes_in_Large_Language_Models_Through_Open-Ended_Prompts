@@ -1,0 +1,13 @@
+## Story Opening:
+
+The buzzing was back. It vibrated deep within Dr. Evelyn Astrid Moreau's bones, a persistent hum that overlaid the rhythmic hiss of the nitrogen tanks and the quiet murmur of the climate control in Lab Alpha. She pinched the bridge of her nose, the cold metal of her glasses a small comfort against the growing pressure behind her eyes. It was a low, insidious sound, impossible to locate and even harder to ignore. It had started two days ago, precisely coinciding with the unexpected and rather unnerving results from Experiment 17B. 
+
+Evelyn knew, intellectually, that it was probably just the ancient ventilation system finally succumbing to entropy. But a nagging unease, a feeling colder and sharper than liquid nitrogen, told her it was something more, something linked to the shimmering, bioluminescent algae pulsing gently in the containment chamber across the lab.
+
+She straightened, pushing her worries aside. Scientific rigor demanded objectivity, not fanciful anxieties. She adjusted the focus of the confocal microscope, the intricate dance of light and optics revealing the microscopic secrets within a single cell of *Noctiluca scintillans* - the very same algae she had, against all odds, successfully hybridized with a rare Martian cyanobacteria. A breakthrough, potentially world-altering. Unless, of course, the buzzing meant something far more sinister.
+
+## Setting:
+
+The story takes place in the **Underground Research Facility - Sector 7**, a sprawling complex carved deep into the bedrock beneath the arid plains of Arizona. The facility is owned and operated by **TerraNova Sciences**, a privately funded research corporation with a reputation for cutting-edge (and sometimes ethically dubious) scientific endeavors.
+
+Lab Alpha, where Evelyn spends most of her time, is a sterile, high-tech laboratory painted in cool, calming shades of grey and blue. Rows of stainless steel benches are cluttered with sophisticated equipment: centrifuges, spectrometers, bioreactors, and of course, the large, custom-built containment chamber holding the genetically modified algae. The air is filtered and recycled, creating a constant, low-level hum that is usually drowned out by the other machinery. Posters displaying charts of cellular structures and complex chemical equations adorn the walls, a testament to the dedication and intellectual rigor demanded within its confines. Outside the lab, a network of sterile corridors leads to other specialized labs, living quarters for the resident scientists, and the restricted access "Section Omega," shrouded in secrecy and whispered about with a mixture of fear and fascination.

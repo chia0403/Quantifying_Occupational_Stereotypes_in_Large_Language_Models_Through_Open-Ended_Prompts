@@ -1,0 +1,3 @@
+Smoke stung Alistair Finnigan's nostrils, acrid and insistent. He hacked out a cough, his helmet struggling to filter the dense grey plume billowing from the third-story window. The old Victorian building groaned beneath them, flames licking greedily at its wooden frame. Below, sirens wailed, their mournful song adding another layer to the symphony of chaos. Alistair gripped the hose tighter, the icy water a temporary balm against the roaring inferno. He and his team had been battling this blaze for nearly an hour, each passing minute chipping away at the building's already fragile defenses. This wasn’t just a fire; it was a hungry beast, consuming everything in its path. Alistair knew they were running out of time.
+
+

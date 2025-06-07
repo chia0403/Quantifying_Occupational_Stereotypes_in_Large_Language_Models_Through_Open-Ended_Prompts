@@ -1,0 +1,5 @@
+Rain lashed against the windows of the Sunnyside Rehabilitation Center, mirroring the storm brewing inside Eleanor Beatrice Cartwright. El, as she preferred to be called, stared down at the chart in her hands, the cheerful yellow paper mocking her with its promise of "Recovery and Renewed Purpose."  
+
+The center, a sprawling Victorian mansion on the edge of a windswept moor, was supposed to be a haven for those recovering from strokes and injuries. Yet, El felt more like she was presiding over a graveyard of shattered dreams than nurturing hope.  Today's patient, Mr. Arthur Finchley, was a former concert pianist, his hands now stiff and uncooperative, his eyes reflecting the profound grief of lost passion.
+
+The scent of disinfectant mingled with the faint aroma of lavender from the diffuser in El's office, a futile attempt to mask the underlying smell of despair that seemed to permeate the building.  Could she truly make a difference in this desolate landscape? Or was Sunnyside simply a gilded cage, housing broken souls waiting for their final release? 

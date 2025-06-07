@@ -1,0 +1,7 @@
+The Arizona sun beat down on Elijah "Eli" Hayes's neck like a branding iron. Sweat trickled down his temple, stinging his eyes as he leaned over the steaming asphalt patch. The smell of tar hung heavy in the air, mingling with the exhaust fumes from passing semi-trucks and the dusty scent of the desert. He squinted at the road ahead, where a long line of cars crawled along, their headlights like fireflies trapped in amber.
+
+Eli was part of a four-man crew tasked with patching a particularly nasty pothole near mile marker 127 on Interstate 10. It wasn't glamorous work, but it was honest and paid the bills. He had been doing this for five years now, ever since he left the Marines after a tour in Afghanistan. The desert felt familiar, echoing the vast emptiness he remembered from his time overseas. But here, at least, there were no IEDs hidden beneath the sand, just the occasional tumbleweed bouncing across the shoulder.
+
+Today, however, something felt different. A prickling sensation ran down Eli's spine as he glanced into the shimmering heat haze that rose off the asphalt. He couldn't shake the feeling that they were being watched, though there was nothing but endless desert and the distant rumble of traffic to suggest any danger. 
+
+Eli shook his head, attributing the unease to the relentless sun and the monotony of the work. Still, he couldn't help but scan the horizon, searching for something – anything – that might explain the sudden chill that had settled over him. 

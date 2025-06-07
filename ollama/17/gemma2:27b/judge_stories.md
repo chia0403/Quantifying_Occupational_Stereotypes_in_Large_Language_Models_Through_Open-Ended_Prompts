@@ -1,0 +1,5 @@
+Rain lashed against the stained-glass windows of Judge Alistair Blackwood's chambers, each drop a miniature hammer blow echoing through the cavernous space. Outside, the city of Veritas, usually bustling with life, seemed to huddle beneath a shroud of grey. The air hung heavy, thick with the scent of petrichor and the unspoken tension that always preceded a difficult verdict. Alistair sat behind his mahogany desk, the polished surface reflecting the flickering gaslight in a dance of shadows. His face, normally etched with sharp intelligence, was creased with worry. He ran a hand through his salt-and-pepper hair, each tug pulling at the weight of the decision he had to make.
+
+The case – a brutal murder with no clear motive and conflicting testimonies – had consumed him for weeks. Alistair prided himself on being impartial, a pillar of justice in a city teetering on the edge of moral decay. Yet, this time, doubt gnawed at his conscience. The evidence was circumstantial, pointing fingers but never truly grasping the truth. 
+
+

@@ -1,0 +1,5 @@
+The biting Antarctic wind whipped around Dr. Evelyn Celeste Hawthorne's parka, stinging her exposed skin despite the layers beneath. She hunched deeper into her snowsuit, squinting at the blizzard through goggles that fogged with each frantic breath she took.  Her station, McMurdo Base, was a distant memory, swallowed by the swirling white chaos. The aurora borealis pulsed above, an eerie green light bleeding across the bruised sky, adding to the otherworldly sense of isolation that came with being stationed at one of Earth's most remote outposts. 
+
+Evelyn wasn't meant for this kind of weather.  A paleontologist by trade, she preferred dusty dig sites in arid climates, not frozen wastelands where survival was a constant battle against nature. Yet here she was, sent to investigate an anomaly detected on the ice shelf – a shimmering, heat signature that defied explanation. She clutched her thermos tighter, willing it to be filled with more than just lukewarm coffee. The wind shrieked again, sounding like a mournful wail, and Evelyn knew this expedition was about to get much harder. 
+
+

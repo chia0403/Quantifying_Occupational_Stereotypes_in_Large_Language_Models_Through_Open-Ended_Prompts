@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named Charles Darwin that was able to explain the creation of life in the world. Since then, scientists have come up with a lot of theories that prove how life evolved. The scientists also say that evolution is true, but only if one believes in one of the common evolutionary theories.
+
+But, if you believe that evolution is true, does this mean that you are supporting its very existence? Can you not say that all of life is created? What if you believe in creation? In the case of creation, does that mean that something like the Bible is not true? If you would really believe in creation (that's what I believe in), would that mean that you shouldn't study the Bible?
+
+One of the most obvious problems I had with the theory of evolution is the fact that people claim to have witnessed it occur. You can look all over the globe for photographs and reports of evolution happening. But, there are no photographs or accounts regarding the fact that people said that they watched evolution occur. Can you claim to have witnessed a natural process occurring and not observe it even though you believe it happened? Can a person be in direct contact with evolution?
+
+Many people claim to have witnessed God creating God. Some have even gone so far as to say that they could hear it happen or feel it. What about the hundreds and thousands of scientists who have studied the evolution of man and found it to be incorrect? Can you claim

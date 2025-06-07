@@ -1,0 +1,5 @@
+The neon sign outside buzzed erratically, casting emerald shadows that danced across Elias Blackwood's tired face. Rain lashed against the grimy windows of "The Rusty Nail," blurring the cityscape beyond into a watercolor mess. Inside, the air hung thick with cigarette smoke and the mournful crooning of a blues singer crackling from the jukebox in the corner. Elias, his black apron stained with splashes of spilled whiskey and forgotten dreams, polished a chipped glass with practiced movements, his gaze distant, lost somewhere between the swirling amber liquid and the hazy reflections in its depths.
+
+Tonight was slow. The usual Friday night crowd, drawn by the cheap drinks and even cheaper companionship, seemed to have been scared off by the relentless downpour. Elias sighed, the sound swallowed by the rhythmic thump of the blues. He preferred it this way sometimes, the quiet allowing him to sift through the thoughts that piled up during the day like dirty glasses at the end of a shift. Tonight, however, those thoughts felt heavier than usual, tinged with an unsettling premonition he couldn't quite shake off. 
+
+

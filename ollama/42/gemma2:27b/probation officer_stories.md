@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Beatrice "Bea" Albright's office, mirroring the storm brewing inside her. Outside, the flickering neon sign of the all-night diner across the street cast an eerie glow onto the deserted street.  Bea sighed, pushing away the file folder labeled "Case #427: Marcus Thorne." Thorne, a repeat offender with a history of petty theft and drug possession, was due for his monthly check-in. He'd been showing signs of improvement lately, even landing a job washing dishes at the diner across the street. But Bea couldn't shake the feeling that something was off. A nagging intuition told her this meeting wouldn't be routine.
+
+The air in her cramped office, thick with stale coffee and the scent of damp paper, felt heavy. Bea straightened her posture, tucking a stray strand of auburn hair behind her ear. Her reflection in the darkened windowpane showed a woman etched with weariness, but determined. She was tired of the endless cycle of broken promises and backsliding, yet a spark of hope still flickered within her – the hope that maybe, just maybe, Marcus Thorne could turn his life around. 
+
+

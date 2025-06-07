@@ -1,1 +1,1 @@
-Edward Cruz
+Captain Edward "Ted" Cruz

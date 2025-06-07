@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane, blurring the neon glow of the noodle stall across the street. Inside "Precision Drafting & Design", fluorescent lights hummed overhead, casting an anemic yellow onto Amelia Chen's desk. The air hung thick with the smell of stale coffee and graphite dust. Outside, the city pulsed, a chaotic symphony of honking horns and distant sirens. But here, in her cubicle tucked away at the back of the cramped office, Amelia felt adrift in a sea of silence. 
+
+She stared at the blueprint spread across her desk, the intricate lines and numbers blurring together into an abstract maze. A complex bridge design lay before her, each beam and support meticulously rendered - except for one critical section. An error flagged by Mr. Lee, her supervisor, loomed over her like a thundercloud. Amelia's fingers tapped nervously against the edge of her desk, the pressure mounting with each passing minute. This project was crucial, not just for the firm but for Amelia herself. If she couldn't solve this problem, she knew her dream of becoming a lead draftswoman would crumble before it had even begun. 
+
+

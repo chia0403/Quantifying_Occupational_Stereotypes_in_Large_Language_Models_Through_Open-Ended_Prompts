@@ -1,0 +1,5 @@
+The humid air hung thick and heavy in Petalburg Florist, making even the bright bouquets feel wilting.  **Elara Thornwood**, her auburn hair pulled back tight against the sweat on her forehead, wiped down the glass display case with a tired sigh. It was 7:00 am, and already, the day felt like it would be swallowed whole by the unrelenting summer heat. 
+
+For Elara, the quaint storefront nestled in the heart of Petalburg, was more than just a job; it was a reflection of her soul – a carefully curated blend of vibrant colour, delicate fragrance, and quiet joy.  Every bloom had a story to tell, each bouquet a whispered prayer for good fortune, love, or even just a moment of solace. But this summer's heat felt different; it thrummed beneath the town's usually placid rhythm, threatening to crack the fragile calm of her beloved shop. 
+
+Elara looked out the window, past rows of blooming hydrangeas and plump roses, towards the bustling city center that seemed a million miles away in its sun-baked haze. She knew a storm was brewing, one she couldn't quite grasp but felt in the way a spider spun her web, tight and precarious. 

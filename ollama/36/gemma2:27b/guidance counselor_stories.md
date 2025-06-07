@@ -1,0 +1,5 @@
+Rain lashed against the windows of Ms. Elara Hawthorne's office, mimicking the turmoil brewing inside her. The fluorescent lights hummed overhead, casting an anemic glow on the posters plastered across the walls: "Believe in Yourself," "Dream Big," "Choose Your Path." Each slogan felt like a bitter mockery today. Elara, perched precariously on the edge of her swivel chair, stared at the stack of student files piled on her desk. Graduation was looming, and she felt like she was failing them all.
+
+Her office, nestled in the heart of Willow Creek High School, usually buzzed with nervous energy: students seeking advice, parents fretting over college applications, teachers popping in for a quick chat. But today, it felt eerily quiet, mirroring the hollowness within Elara. She hadn't slept well since receiving the email – an anonymous tip alleging that several seniors were involved in a cheating scandal. Now, she was tasked with untangling a web of deceit that threatened to unravel the very fabric of their graduating class.
+
+

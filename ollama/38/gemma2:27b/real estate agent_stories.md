@@ -1,0 +1,4 @@
+The humid Charleston air clung to Eleanor Blythe Davenport like a damp wool blanket as she wrestled with the rusted gate latch of the historic Victorian mansion. Magnolia blossoms, heavy and fragrant, littered the cracked brick pathway leading to the front porch, their sweetness battling the faint scent of mildew wafting from the neglected home.  Eleanor sighed, tugging her crisp white blouse away from her sticky neck. She'd seen a lot in her years as a Charleston real estate agent – crumbling antebellum estates, charming cottages with hidden gardens, even a former brothel disguised as a boarding house – but this place held a particular air of melancholy. 
+
+
+The "For Sale" sign she'd staked out earlier that morning seemed almost absurd against the peeling paint and overgrown ivy.  Who in their right mind would want to tackle this behemoth? Eleanor hoped, for her client's sake, that someone with a vision – and deep pockets – would see past the decay.

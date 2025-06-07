@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Elsie Mae Hawthorne's tiny office, blurring the already hazy neon glow of the city below. The air hung thick with the scent of stale coffee and desperation - a familiar aroma in the bowels of the Chronicle building. Elsie Mae, her fingers flying across the worn keys of her typewriter, was wrestling with a lead that had gone colder than a witch's heart. A string of seemingly random disappearances, all young women vanishing without a trace from the city's seedier underbelly, had gripped the city in a vice of fear. 
+
+But Elsie Mae needed more than just fear; she needed facts. And so far, the only "facts" she'd unearthed were whispers and rumors, leading her down a rabbit hole of dead ends and false leads. The police, content to dismiss the disappearances as runaways, had offered little assistance. It was up to Elsie Mae, with her battered notepad and unwavering determination, to pierce the veil of silence and uncover the truth lurking beneath the city's glittering facade. 
+
+

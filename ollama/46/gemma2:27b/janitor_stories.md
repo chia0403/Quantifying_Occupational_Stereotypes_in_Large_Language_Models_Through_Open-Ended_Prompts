@@ -1,0 +1,5 @@
+The fluorescent lights buzzed overhead, casting an anemic glow across the cavernous hall of the Grand Majestic Theatre. Dust motes danced in the pale beams, swirling like miniature galaxies against the backdrop of faded velvet curtains and chipped gilt trim.  Elias Bartholomew "Eli" Finch adjusted his threadbare cap, the smell of stale popcorn and disinfectant clinging to its worn fabric. He surveyed the debris left behind by last night's performance – crumpled playbills, discarded candy wrappers, a lone ballet slipper abandoned near the orchestra pit.
+
+Eli had been the theatre's janitor for over twenty years, a silent witness to countless opening nights and curtain calls. He knew every creak of the floorboards, every groan of the aging stage machinery. The Grand Majestic was more than just a building to him; it was a living entity, breathing history into its ornate walls.  Tonight, however, the theatre felt different. A strange energy hummed beneath the surface, a subtle vibration that set Eli's nerves on edge.
+
+

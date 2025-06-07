@@ -1,0 +1,5 @@
+Rain hammered against the grimy windowpane of Thaddeus "Tad" Blackwood's office, each drop a miniature explosion on the cracked glass. The flickering neon sign outside cast an unsettling green glow across his cluttered desk, illuminating stacks of dusty files and half-empty coffee mugs. Tad himself, slumped in his threadbare chair, resembled a rumpled suit forgotten on a coat rack. His fedora lay askew on the desk, next to a picture of a woman with fiery red hair and eyes that could pierce steel - Eliza, the love he'd lost to a case gone wrong.
+
+The phone, a relic from a bygone era, jolted him awake with its insistent ring. Tad swatted at it until it finally fell silent. He hadn't taken a paying case in weeks, content to drown his sorrows in cheap whiskey and bad memories. But tonight, something felt different.  A prickle of anticipation ran down his spine. The rain had stopped momentarily, replaced by an eerie silence broken only by the distant wail of a siren. Maybe, just maybe, this was the chance he needed to pull himself back from the abyss.
+
+

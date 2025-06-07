@@ -1,0 +1,6 @@
+The air in Dr. Amelia Beatrice Thorne's lab hummed with a low thrum, a constant symphony of whirring centrifuges and clicking digital readouts.  Sunlight slanted through the skylights, casting long, dusty beams across cluttered workbenches piled high with petri dishes, beakers filled with shimmering liquids, and meticulously labelled vials. The scent of ozone hung heavy in the air, a byproduct of the experimental electromagnet pulsating softly at the heart of the lab.
+
+Amelia hunched over her microscope, its brass body warm beneath her touch. Through the lens, she watched a cluster of genetically modified algae, pulsing with an unnatural luminescence. This was it - years of research condensed into these tiny, glowing cells. If they worked as predicted, they could revolutionize energy production, replacing fossil fuels with a clean, sustainable source. But Amelia knew there were risks. Risks that whispered in the back of her mind like cold drafts, swirling around the periphery of her focus. 
+
+
+Amelia adjusted the microscope's focus, her brow furrowing as she noticed something peculiar about the algae’s pulsation. It wasn't rhythmic anymore. It was erratic, almost... angry.  A shiver ran down her spine. 

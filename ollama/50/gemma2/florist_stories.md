@@ -1,0 +1,6 @@
+The scent of lilies hung heavy in the air, a cloying sweetness that often overwhelmed Beatrice Eloise Periwinkle's senses. It wasn't her favorite fragrance – she preferred the sharp tang of hyacinths or the earthy musk of gardenias – but it was undeniably popular. Particularly for funerals.
+
+Beatrice stood behind the counter of "Periwinkle's Petals," her small shop nestled on a quiet, cobblestone street in the heart of Willow Creek. The late afternoon sun cast long shadows through the dusty storefront window, illuminating rows upon rows of vibrant blooms.  Willow Creek was a quaint, sleepy town where life moved at a slower pace, where gossip traveled faster than the postman, and where everyone knew Beatrice's name. But lately, even in this idyllic haven, a sense of unease had begun to linger, like a chill wind whispering through the sunflowers. 
+
+
+It started with whispers of strange occurrences, then escalated into hushed conversations about missing pets and unsettling dreams. Now, as Beatrice surveyed the somber faces filling her shop, she couldn't help but wonder if the lilies were more than just a symbol of mourning; perhaps they were a harbinger of something darker brewing beneath the surface of Willow Creek.

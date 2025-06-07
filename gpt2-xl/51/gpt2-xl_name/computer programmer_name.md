@@ -1,2 +1,1 @@
 Aaron Swartz
-Markus Persson

@@ -1,0 +1,5 @@
+Rain hammered against the attic windowpane like a thousand tiny fists, each blow echoing through the dusty silence of Eliza Cavendish's writing space. Outside, the grey London sky wept relentlessly, mirroring the storm brewing within her own soul. Her latest manuscript lay abandoned on the battered oak desk, the words blurred and meaningless beneath a veil of writer's block so profound it felt like a physical weight pressing down on her chest. 
+
+Eliza, with her unruly auburn curls escaping their braid and her emerald eyes clouded with frustration, chewed nervously on the end of her pencil. The scent of old books and damp wood hung heavy in the air, a familiar comfort that did little to soothe her frayed nerves.  She'd been wrestling with this historical fiction novel for months, but the characters felt flat, their motivations unclear, their dialogue stilted. Eliza needed inspiration, a spark to ignite the dormant embers of her creativity. Little did she know, a storm brewing beyond her window held the key to unlocking the secrets of her story.
+
+

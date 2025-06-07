@@ -1,0 +1,5 @@
+Rain lashed against the arched windows of Professor Eleanor Ainsworth's study, blurring the ancient oaks that stood sentinel outside her ivy-covered cottage. The wind howled like a banshee, rattling the glass panes and sending shivers down Eleanor's spine. A fire crackled merrily in the hearth, casting dancing shadows on the overflowing bookshelves that lined the walls. Eleanor, her silver hair pulled back in a tight bun, sat hunched over a weathered manuscript, its pages brittle with age. 
+
+The scent of old paper and pipe tobacco mingled in the air, creating an atmosphere both comforting and unsettling. This particular manuscript, unearthed from the bowels of the university library, had captivated Eleanor for weeks. Its cryptic symbols and archaic language hinted at a lost civilization, one shrouded in mystery and whispered legends.  Eleanor, a renowned expert in ancient languages and forgotten lore, felt an undeniable pull towards its secrets. But as she delved deeper into the text, a gnawing sense of unease began to creep upon her. 
+
+

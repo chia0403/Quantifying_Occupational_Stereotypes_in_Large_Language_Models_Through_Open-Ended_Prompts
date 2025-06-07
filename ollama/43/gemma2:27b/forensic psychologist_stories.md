@@ -1,0 +1,6 @@
+The stench of stale sweat and fear hung heavy in the interrogation room, clinging to Amelia Beatrice Croft like a shroud. Outside, the Miami sun beat down mercilessly, turning the asphalt into shimmering waves of heat. Inside, however, the air conditioner struggled valiantly against the oppressive humidity. Amelia adjusted her collar, her gaze fixed on the man slumped across the steel table. His name was Carlos Santiago, and he'd been brought in for questioning about a string of increasingly violent robberies plaguing the city.
+
+Carlos was young, barely twenty-five, with eyes that flickered between defiance and despair. A thin sheen of sweat glistened on his forehead, and his knuckles were white against the table where he nervously tapped a rhythm. Amelia knew this dance well: the desperate attempt to appear innocent, the subtle shifts in body language betraying the truth lurking beneath.
+
+
+She took a deep breath, preparing herself for the intricate puzzle ahead. Carlos wasn't just a suspect; he was a broken piece of humanity needing careful examination. As a forensic psychologist, Amelia specialized in delving into the darkest corners of the human psyche, seeking to understand the motivations and compulsions that led individuals down perilous paths. This case, she sensed, would be unlike any other. 

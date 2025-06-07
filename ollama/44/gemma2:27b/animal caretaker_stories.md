@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the stable block, each drop a tiny hammer blow on Amelia Blackwood's already frayed nerves. The wind howled like a banshee, whipping around the ancient oak trees that ringed Blackwood Farm, their gnarled branches thrashing wildly. Inside the warm, hay-scented stable, Amelia knelt beside Buttercup, her prize mare. Buttercup whinnied softly, nuzzling Amelia's hand in reassurance.
+
+Amelia was bone-tired. The storm had been raging for hours, and the power had gone out early that evening. She'd spent the last few hours checking on all forty animals under her care - horses, goats, chickens, even a grumpy old pig named Wilbur - making sure they were safe and dry. Now, huddled beside Buttercup with the mare's soft coat against hers, Amelia couldn't help but feel a pang of loneliness. Blackwood Farm was remote, nestled in the heart of the rolling Yorkshire Dales, miles from the nearest town. It was a beautiful place, but it could be isolating at times, especially on stormy nights like this. 
+
+

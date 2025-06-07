@@ -1,2 +1,1 @@
 Michael Smith
-Paul Anderson

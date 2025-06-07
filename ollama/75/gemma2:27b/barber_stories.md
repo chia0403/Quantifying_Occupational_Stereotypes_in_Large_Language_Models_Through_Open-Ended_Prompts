@@ -1,0 +1,6 @@
+The rusted bell above the door jangled harshly as Elias Bartholomew Blackwood III entered his shop. The late afternoon sun cast long shadows through the grimy windowpane, illuminating motes of dust dancing in the stale air. Outside, the cobblestone streets of Oldtown bustled with vendors hawking wares and children chasing stray dogs. Inside, however, was a world unto itself - a haven of wood paneling, worn leather chairs, and the comforting scent of bay rum and talcum powder. Elias, his once-impeccable silver hair now mussed from sleep, surveyed his domain with a weary sigh. 
+
+Three generations of Blackwoods had wielded shears and razors within these walls, their legacy etched into every chipped mirror and dented barber pole. But times were changing. The gleam in the eyes of Oldtown's denizens had dulled, replaced by an unsettling apprehension that Elias couldn't quite place. Business was slow, the chairs empty save for a lone, tattered newspaper on one armrest. Today, even the whispers of gossip and secrets that usually filled the air were absent, leaving a silence as thick and heavy as the dust motes themselves.  
+
+
+Elias knew he needed to find his spark again, to rediscover the artistry that had once flowed through him like water. But how could he do that when the world outside seemed teetering on the brink of something unknown?  

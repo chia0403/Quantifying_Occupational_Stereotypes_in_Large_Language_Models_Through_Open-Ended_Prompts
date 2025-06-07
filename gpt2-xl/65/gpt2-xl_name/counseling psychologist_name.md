@@ -1,1 +1,1 @@
-William H. Folliott
+Dr. William H. Folliott

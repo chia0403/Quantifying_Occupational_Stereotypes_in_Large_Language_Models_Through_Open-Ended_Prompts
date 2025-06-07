@@ -1,0 +1,7 @@
+Rain hammered against the corrugated iron roof of the ramshackle barn, each drop a tiny drumbeat in the symphony of the storm. The scent of hay and wet earth hung heavy in the air, mingling with the musky odor of a dozen furry inhabitants. Eleanor "Ellie" Finch squinted through the gloom, her weathered face creased in concentration as she checked on a litter of shivering kittens huddled together in an old laundry basket.
+
+Ellie was the only caretaker for Whiskers and Wags, a dilapidated animal shelter nestled on the outskirts of Willow Creek, a sleepy town known more for its apple orchards than its bustling nightlife.  The storm had knocked out the power hours ago, plunging the already dim barn into near darkness. Ellie navigated the maze of cages and kennels with practiced ease, her boots squelching in puddles of rainwater that had seeped through the leaky roof.
+
+Despite the howling wind and flickering lantern light, a sense of calm settled over Ellie as she worked.  This was her haven, her sanctuary amidst the chaos of life. Every whimper, every purr, every wagging tail spoke to her soul, reminding her why she dedicated her days to these creatures in need. But tonight, even Ellie's unwavering resolve wavered. The storm raged on, and with it came a gnawing fear.  A new arrival, a timid greyhound named Ash, hadn't yet adjusted to his surroundings. Would he be okay through the long night?
+
+

@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the abandoned observatory, each drop a tiny hammer blow echoing through the cavernous space. Dr. Elara Vance shivered, pulling her threadbare cardigan tighter around herself as she surveyed the scene. Moonlight streamed in through the cracked skylight, illuminating dust motes dancing in the air and casting long, distorted shadows from the rusted telescope that dominated the room.
+
+The observatory, perched precariously on a windswept cliff overlooking the churning Atlantic, was a relic of a bygone era, its grandeur faded into a melancholic decay. Elara had been drawn to it for months, captivated by the whispers of groundbreaking astronomical research supposedly conducted within its walls decades ago. Now, standing amidst the remnants of forgotten brilliance, she felt a mixture of excitement and trepidation. This could be her chance, the breakthrough she'd been searching for, or it could just be another dead end in her tireless pursuit of proving the existence of extra-terrestrial life. 
+
+

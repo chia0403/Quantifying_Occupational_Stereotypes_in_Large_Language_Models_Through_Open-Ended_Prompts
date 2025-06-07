@@ -1,0 +1,5 @@
+Rain lashed against the windows of "Nourish," Amelia Cartwright's cozy little nutrition practice nestled in the heart of Seattle. The scent of roasted chestnuts and cinnamon from the nearby Pike Place Market drifted through the open door, a tantalizing contrast to the grey sky outside. Amelia, her auburn hair pulled back in a loose braid, sat hunched over a client file, a furrow in her brow.  She'd been wrestling with Mrs. Hawthorne's case for days – an elderly woman struggling with persistent fatigue and unexplained weight loss. 
+
+The bell above the door jingled, announcing a new arrival. Amelia looked up, her green eyes widening slightly as she recognized the man who stood awkwardly in the doorway. He was tall and ruggedly handsome, his dark hair dusted with raindrops, a duffel bag slung over his shoulder. She'd seen him around the neighborhood, always jogging along the waterfront with an intensity that hinted at a past she couldn't fathom.  This time, though, he wasn't running. He looked lost, hesitant, almost…desperate. 
+
+

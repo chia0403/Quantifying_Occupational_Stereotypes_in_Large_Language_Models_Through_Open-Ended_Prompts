@@ -1,3 +1,1 @@
-Harold C. Robinson
-James Cantor
-Robert Spitzer
+Dr. Harold C. Robinson

@@ -1,0 +1,5 @@
+The air in the Grand Blackwood Hotel lobby hung thick with the scent of lilies and stale cigarette smoke. A symphony of clattering cutlery and hushed conversations played out from the gilded dining room beyond the double doors. Bartholomew Quillingham III, or Bart as he preferred (though no one ever did), adjusted the faded crimson velvet strap of his bellhop uniform, its weight pulling at his already weary shoulders. He eyed the revolving door with a mixture of resignation and anticipation, knowing that behind its brass-and-glass maw lay another tide of demanding guests, overflowing suitcases, and the constant, nagging hum of unspoken judgement. 
+
+Bart longed for something more, something beyond the endless cycle of bellhops, baggage, and bland hotel biscuits. He dreamt of escaping the Grand Blackwood's opulent cage, of trading its polished marble floors for dusty cobblestone streets and its stuffy air for the salty tang of the sea. Tonight, though, there were bags to be carried and smiles to be plastered on his face.  Tonight, Bart would once again become a cog in the well-oiled machine that was the Grand Blackwood Hotel. 
+
+

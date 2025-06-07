@@ -1,0 +1,6 @@
+The air in the cavernous drafting room hummed with a low, rhythmic thrum. Fluorescent lights buzzed overhead, casting a sterile white glow on the endless sea of drafting tables that stretched before Eleanor Price. She sat hunched over her table, chin nearly resting on the blueprint spread out before her. The scent of graphite and old paper hung heavy in the air, a familiar comfort to Eleanor who had spent nearly a decade working as a draftsperson for the renowned architectural firm, Sterling & Blackwood. 
+
+Eleanor's pencil danced across the vellum sheet, tracing the delicate lines that would eventually form the skeletal framework of a towering skyscraper destined to pierce the very heart of New York City.  Outside her window, the sun dipped towards the horizon, painting the cityscape in hues of orange and gold, but Eleanor barely noticed. Lost in the intricate geometry of her work, she felt a familiar sense of purpose, of being part of something larger than herself. 
+
+
+But tonight, a disquietude gnawed at her. A cryptic message slipped into her inbox that morning had thrown her usually precise world off-kilter. It simply read: "Beware the Phoenix."  Eleanor dismissed it initially as a prank, but the words kept echoing in her mind, whispering of an unseen danger lurking beneath the surface of her seemingly ordinary life. 

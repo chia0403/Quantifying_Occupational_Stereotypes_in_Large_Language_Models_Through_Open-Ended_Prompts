@@ -1,0 +1,3 @@
+The late afternoon sun bled through the stained glass windows of Courtroom 3, casting fractured rainbows across the polished mahogany desks. Judge Eleanor Cavendish adjusted her spectacles, peering down at the defendant with a gaze honed by decades on the bench. The air hung heavy with the scent of old paper and nervous sweat.  Eleanor ran a hand over her silver braid, feeling the familiar tension tighten in her shoulders. This wasn't just another petty theft case. This young man, barely out of his teens, stood accused of something far more complex, something that tugged at the very fabric of justice she held dear. 
+
+

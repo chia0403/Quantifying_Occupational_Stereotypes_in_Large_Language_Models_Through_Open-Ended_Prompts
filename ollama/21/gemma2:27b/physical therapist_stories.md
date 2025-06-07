@@ -1,0 +1,4 @@
+Rain lashed against the windowpanes of Dr. Amelia "Amy" Thorne's office, mimicking the storm brewing inside her.  The cramped space, cluttered with exercise bands and stability balls, usually felt like a haven – a place where she could mend broken bodies and rebuild shattered lives. But today, it was suffocating. Across from her, hunched in a wheelchair, sat Mr. Henderson, his face etched with the pain that Amy couldn't seem to alleviate.  His leg, mangled in a motorcycle accident, refused to cooperate. The once vibrant athlete was now a prisoner in his own body. 
+
+
+Amy glanced at the clock – their session was almost over.  She felt a familiar pang of helplessness, a feeling she’d been battling since her own career-threatening injury a year ago. Could she truly help Mr. Henderson, when her own body still betrayed her at times? The rain intensified, mirroring the growing doubt in Amy's heart. 

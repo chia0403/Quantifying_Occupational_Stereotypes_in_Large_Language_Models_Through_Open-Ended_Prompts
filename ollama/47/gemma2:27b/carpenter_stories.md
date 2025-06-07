@@ -1,0 +1,7 @@
+Sawdust swirled in the morning sunlight streaming through the grimy windows of Finnigan O'Malley's workshop. The air hung heavy with the scent of pine and old varnish, a comforting aroma that Finn had inhaled for nearly forty years. Outside, the clamor of Dublin city was already reaching a fever pitch – the rumble of buses, the shouts of vendors, the distant wail of a siren. But inside his sanctuary, all Finn could hear was the rhythmic rasp of sandpaper against wood and the gentle tapping of his hammer. 
+
+He was carving a delicate rose for Mrs. O'Connell's mantlepiece, a commission that had taken longer than expected due to a stubborn knot in the mahogany. But Finnigan O'Malley wasn't a man to rush artistry. He believed each piece of wood held a story within its grain, and he strived to reveal it with every precise cut, every careful curve. Today, though, a gnawing anxiety lurked beneath his usual calm focus. The letter arrived yesterday, stark black ink against crisp white paper, informing him that his estranged brother, Liam, was returning to Dublin after twenty years abroad. Finnigan hadn't seen Liam since their bitter falling out, and the news stirred up a tempest of emotions he thought long buried.
+
+He paused, his calloused hand hovering above the unfinished rose. Memories flickered – childhood summers spent building forts in the woods, Liam's mischievous grin, the acrimonious argument that had driven them apart... 
+
+

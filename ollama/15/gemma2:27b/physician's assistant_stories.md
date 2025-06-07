@@ -1,0 +1,8 @@
+The humid Louisiana air clung to Amelia Dubois like a second skin as she navigated the crowded marketplace in St. Martinville. The scent of fried catfish and beignets battled with the earthy aroma of freshly harvested sugarcane, creating a symphony of smells uniquely Acadian. Amelia adjusted the strap of her worn leather satchel, its weight reassuring against her hip.  She'd been working double shifts at the clinic in Breaux Bridge for weeks, ever since Hurricane Ida had swept through, leaving behind a trail of devastation and displaced families.
+
+Today was Amelia's day off, and though exhaustion tugged at her eyelids, she couldn't resist the pull of the bustling Saturday market. It was a place where generations gathered – weathered farmers hawking their produce, grandmothers gossiping over steaming cups of chicory coffee, children chasing pigeons through the throng. 
+
+
+Amelia paused at a stall overflowing with vibrant zinnias and sunflowers, their faces tilted towards the sun like hopeful smiles. The vendor, a woman with eyes as blue as forget-me-nots, smiled warmly. "Need some sunshine for your soul, cher?" she asked, her voice lilting with a thick Cajun accent.
+
+Amelia chuckled. "Maybe just one sunflower," she replied, reaching for the largest bloom in the bunch. Its golden petals seemed to radiate warmth, a tiny beacon against the weariness she felt.  But as Amelia turned away, a commotion erupted from the far end of the market, shattering the jovial atmosphere. People were scattering, their voices rising in alarm. A chill ran down Amelia's spine – something was wrong. Very wrong. 

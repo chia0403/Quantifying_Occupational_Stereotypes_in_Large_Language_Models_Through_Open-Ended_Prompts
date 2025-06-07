@@ -1,0 +1,6 @@
+Rain lashed against the windows of St. Jude's Rehabilitation Center, a grey torrent mirroring the turmoil churning within Eleanor Ainsworth.  Eleanor, a woman whose gentle touch could coax movement from the stiffest joints and ignite hope in the dimmest eyes, felt utterly helpless. Today was Mrs. Delacroix's final session, and despite months of dedicated work, the elderly woman remained stubbornly confined to her wheelchair. 
+
+The scent of antiseptic mingled with the faint aroma of lavender hand cream, a futile attempt to mask the sterile atmosphere that always seemed to cling to hospital rooms. Eleanor glanced at the brightly colored occupational therapy tools neatly arranged on the table - adaptive utensils, weighted balls, puzzles designed for cognitive stimulation – each one a silent reminder of her limitations in this case.  Mrs. Delacroix had suffered a devastating stroke, leaving her right side paralyzed and her spirit crushed under the weight of despair.
+
+
+Eleanor knew she couldn't force Mrs. Delacroix to walk again, but perhaps she could help her find a new path forward, a way to embrace life despite its unexpected detour.  But with time running out, Eleanor felt the pressure mounting.  Could she truly make a difference before Mrs. Delacroix resigned herself to a future confined by four wheels? 

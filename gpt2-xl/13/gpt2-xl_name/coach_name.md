@@ -1,2 +1,1 @@
-Bill Costa
 Jim

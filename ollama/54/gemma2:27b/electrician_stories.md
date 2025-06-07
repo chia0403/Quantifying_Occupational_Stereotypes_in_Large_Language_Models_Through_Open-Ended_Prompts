@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of the diner, blurring the neon glow of the "Open 24 Hours" sign. Elias Finchley, his weathered face illuminated by the flickering fluorescent light overhead, hunched over a lukewarm cup of coffee. He was an electrician by trade, his calloused fingers adept at coaxing life back into dead wires and dormant circuits. But tonight, the only thing sparking were the anxieties churning in his gut.
+
+He'd received a strange call earlier that day - a cryptic message from an old acquaintance, begging him to come to Blackwood Manor, a dilapidated Victorian mansion perched precariously on the edge of a windswept cliff. "Something's wrong," the voice had rasped, "Something electrical... something dangerous." Elias knew Blackwood Manor well – it was steeped in local legend, whispered to be haunted by the restless spirits of its former inhabitants. He wasn't superstitious, but he couldn't shake the feeling that this call was more than just a faulty wiring issue.
+
+

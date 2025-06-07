@@ -1,0 +1,5 @@
+The midday sun beat down on Elias Thorne's weathered back as he swung the mallet, sending shards of granite flying. Dust motes danced in the golden air, swirling around his calloused hands and the chipped edges of the stone. The quarry hummed with a rhythmic cacophony – the clang of hammers against chisels, the groan of ropes straining under heavy blocks, the gruff shouts of overseers. Elias barely registered it anymore. Years of toil had dulled the senses, leaving him attuned only to the feel of the chisel biting into the stone, the satisfying thunk as he chipped away a sliver, and the vision in his mind – the image of the angel he was carving, wings spread wide in eternal flight.
+
+This commission, for the grand cathedral atop the city's highest hill, was unlike any Elias had undertaken before. The master mason, a man known only as "Old Man Gabriel," had seen something in Elias's rough sketches, a spark of divine inspiration that others had overlooked. Now, Elias labored under his watchful eye, carving not just stone, but dreams into tangible form.  
+
+

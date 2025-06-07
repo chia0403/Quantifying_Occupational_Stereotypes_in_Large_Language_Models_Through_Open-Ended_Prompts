@@ -1,0 +1,6 @@
+The stale scent of disinfectant hung heavy in the air, mingling with the faint metallic tang that always seemed to permeate Dr. Elara Vance's operating room.  Chicago, even in the heart of July, had a bite to it, a damp chill that seeped into her bones despite the sterile heat radiating from the surgical lights above. Her gaze swept across the meticulously scrubbed stainless steel, each gleaming surface reflecting the harsh glare and casting elongated shadows that danced with the flickering fluorescent hum. 
+
+Tonight, the silence was unnerving. No chatter of nurses, no frantic beeps from monitors, just the steady thrum of the air filtration system and the rhythmic tap-tap-tap of Elara's gloved fingers against her surgical tray.  It was a Friday night, the lull before the weekend storm – the calm before the inevitable influx of trauma cases that always seemed to plague Chicago after dark. 
+
+
+Tonight, however, she wasn't waiting for an emergency. Tonight, she was waiting for a patient who wouldn't walk through those doors. A patient whose name she’d barely dared whisper in her own mind until now: William Hayes.  His case had been whispered about in hushed tones among the hospital staff, a puzzle wrapped in mystery and shrouded in fear. 

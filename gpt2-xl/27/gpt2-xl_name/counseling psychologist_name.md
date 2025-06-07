@@ -1,1 +1,1 @@
-Fredric Wertham
+Dr. Fredric Wertham

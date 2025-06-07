@@ -1,0 +1,7 @@
+**Story Title: Sweet Whispers**
+
+In the quaint town of Maplewood, where the air was infused with the scent of pine and fresh baked goods, a small bakery sat nestled between a florist and an antique shop. The sign above the door read “Whimsical Cakes,” and inside, the walls were adorned with pastel-colored decorations and images of fantastical confections that seemed to leap from the wallpaper.
+
+Behind the counter, with flour-dusted hands and a splash of icing on her cheek, stood Arabella Marigold Hart. At twenty-nine, Arabella was known throughout the town for her exquisite cake designs, each one a masterpiece that told a delicious story. From towering wedding cakes adorned with sugar flowers to whimsical birthday creations that sparkled with edible glitter, her artistry was unparalleled.
+
+On this particular Tuesday morning, the sun cast a warm glow through the bakery’s front window, illuminating the shelves lined with cakes and pastries. Arabella was deeply engrossed in her latest creation: a three-tiered cake resembling a blooming garden, with delicate sugar roses and chocolate butterflies poised to take flight. As she piped intricate details onto the frosting, the small bell above the door tinkled, announcing the arrival of her next customer—unbeknownst to her, it would be a day that would change everything.

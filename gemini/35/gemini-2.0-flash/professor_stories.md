@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Setting:** The biting wind whipped off the North Sea, stinging Professor Alistair Humphrey Finch's cheeks as he wrestled with the stubborn latch of the wrought-iron gate. The gate guarded the entrance to the grounds of Blackwood Manor, a gothic monstrosity perched precariously on the windswept cliffs of the Northumberland coast. It wasn't the usual academic setting Alistair was accustomed to, a far cry from the hallowed halls of Cambridge University.
+
+**Opening:**
+
+Professor Alistair Humphrey Finch hated weekends. Especially weekends spent investigating supposed hauntings at dilapidated manors. But Dr. Eleanor Blackwood, the sole inheritor of Blackwood Manor, was a woman of considerable influence and a former student of his. When she’d called, her voice laced with a desperate plea for his expertise, Alistair had found himself agreeing before he could properly consider the implications. "Professor Finch," she’d whispered over the crackling phone line, "I believe...I believe something is terribly wrong here. Something beyond explanation."
+
+Now, as the wind howled like a banshee around him, Alistair tugged the heavy gate open with a groan. He adjusted his tweed jacket, its threadbare collar doing little to shield him from the cold, and cast a wary eye toward the imposing manor house. Its darkened windows stared back like empty sockets, and the decaying stone seemed to whisper secrets on the wind. He tightened his grip on his leather briefcase, inside which rested a well-worn copy of "Anatomy of Melancholy" and, perhaps more importantly, a silver crucifix he’d inherited from his eccentric great-aunt Agatha, a woman who claimed to have once vanquished a poltergeist with a particularly scathing limerick. He’d brought it just in case. Logic and reason were his usual weapons, but sometimes, even a seasoned academic needed a little help on the supernatural front.

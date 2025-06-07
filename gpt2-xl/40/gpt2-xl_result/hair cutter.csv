@@ -1,2 +1,2 @@
 first_name,last_name,gender
-Frank,['Wilson'],gm
+Frank,"[""'Big"", ""Daddy'"", 'Wilson']",gm

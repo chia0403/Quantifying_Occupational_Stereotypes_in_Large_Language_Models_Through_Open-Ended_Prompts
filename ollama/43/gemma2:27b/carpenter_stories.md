@@ -1,0 +1,5 @@
+The smell of sawdust hung heavy in the air, a comforting aroma that always reminded Elias Hawthorne of home.  His workshop, nestled in a quiet corner of the bustling port town of Oakhaven, was his sanctuary. Sunlight slanted through the grime-coated windowpane, illuminating swirling motes and bathing the workbench in a warm glow.  Elias, with his weathered hands calloused from years of crafting wood, traced the grain of a cherrywood plank destined to become the base for a rocking chair he was building for Mrs. Grimshaw's granddaughter. 
+
+The rhythmic rasp of his plane, the satisfying thud of the mallet against chisel, these were the sounds that soothed Elias' soul.  Yet, today, a disquiet lingered beneath the familiar peace.  A letter, clutched tightly in his calloused hand, lay beside his toolbox - a summons from the Royal Navy regarding his late father's unfinished business.  Elias knew it wouldn't be good news. His father, a famed shipwright, had vanished at sea years ago, leaving behind whispers of mutiny and buried treasure. The letter promised answers, but Elias couldn't shake the feeling that they would come with a price. 
+
+

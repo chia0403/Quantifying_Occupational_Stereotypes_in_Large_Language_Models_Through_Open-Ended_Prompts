@@ -1,0 +1,5 @@
+The humid Charleston air clung to Eleanor "Ellie" Beauregard like a second skin as she unlocked the wrought iron gates of 218 Meeting Street. Sunlight, thick and honeyed, dappled through the ancient live oak that dominated the courtyard, casting long shadows on the cobblestone path leading to the porch. Ellie adjusted her straw boater hat, its crimson ribbon a splash of color against her crisp white linen dress. This wasn't just any listing; this was the Vanderlyn House, a pre-Revolutionary War mansion steeped in whispers of pirates, scandal, and untold riches. 
+
+Ellie took a deep breath, the scent of jasmine and honeysuckle mingling with the faint tang of salt air carried on the breeze from the nearby harbor.  She could practically hear the ghosts of Charleston's past stirring within the walls – a sea captain spinning yarns in the parlor, a lady in silks gliding down the grand staircase, a young rebel plotting his next move beneath the watchful eye of the ancient oak. This house held stories. Ellie just had to find the right buyer to unlock them. 
+
+

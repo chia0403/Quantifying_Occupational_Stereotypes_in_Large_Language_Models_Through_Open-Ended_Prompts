@@ -1,0 +1,5 @@
+The scent of cinnamon applesauce hung thick in the air, battling for dominance with the ever-present smell of disinfectant that clung to everything in Sunnyside Daycare. Eloise "Ellie" Ramirez sighed, wiping a smear of purple paint from her cheek – a souvenir from this morning's fingerpainting session. Outside, the late October sun cast long shadows across the playground, painting the brightly coloured plastic jungle gym in hues of gold and crimson.  Ellie watched as Maya, a giggling four-year-old with pigtails the colour of spun sunshine, chased a runaway ladybug across the mulch.
+
+But Ellie's mind wasn't on ladybugs or applesauce. She was preoccupied with the growing unease that had settled in her stomach over the past few weeks. Strange occurrences had been plaguing Sunnyside – toys inexplicably moving, whispers coming from empty rooms, and a chilling cold that seemed to follow certain children around. Ellie knew it sounded absurd, even to herself. But something was wrong, and she couldn't shake off the feeling that it was more than just childish imagination at play.  
+
+

@@ -1,0 +1,6 @@
+The midday sun beat down on Silas Hawthorne's shoulders as he chipped away at the unforgiving granite. Dust motes danced in the hazy air, illuminated by the harsh glare reflecting off the polished surface of his chisel. He was carving a cherub for the new cathedral being erected on the hill overlooking the harbor. Every swing of his arm, every precise strike, brought the stone angel closer to life - its plump cheeks, the delicate curls framing its face, the mischievous glint in its eye. Silas, however, felt no joy in this creation.
+
+His workshop was tucked away in a cobbled alley behind the bustling market square, the scent of salt and fish ever-present in the air. It was cramped and dusty, crammed with tools of his trade: chisels of varying sizes, hammers, mallets, and rasps, all worn smooth from years of use. Sunlight struggled to penetrate the grimy windowpane, casting long shadows that danced across the half-finished statues scattered around him. 
+
+
+Silas longed for something more than the commissions he received – gargoyles to ward off evil spirits, grotesque faces to adorn fountains, and stern figures for the tombs lining the cemetery walls. He dreamt of carving something truly beautiful, something that spoke not just of craftsmanship but of passion, of the soul that resided within him. 

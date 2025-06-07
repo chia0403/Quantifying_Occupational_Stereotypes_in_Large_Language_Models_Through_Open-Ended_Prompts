@@ -1,0 +1,6 @@
+The incessant whirring of the fluorescent lights above mirrored the anxiety churning in Dr. Elias Vance's gut. Rain lashed against the grimy windowpanes of the interrogation room, blurring the cityscape outside into an impressionist painting of grey and yellow. The air hung heavy with the cloying scent of stale coffee and desperation. Across the steel table sat Marcus Thorne, a gaunt man whose haunted eyes darted nervously around the room. Elias, despite years of studying the darkest recesses of the human mind, couldn't shake the unsettling feeling that something wasn't right. 
+
+Marcus was suspected of arson – a devastating fire that had claimed the lives of three people in a rundown apartment building. The evidence seemed damning: he had been seen arguing with the building superintendent hours before the blaze started, and traces of accelerant were found on his clothing. Yet, there was something in Marcus's demeanor, a tremor in his voice, a flicker of raw fear, that whispered of a deeper truth lurking beneath the surface. 
+
+
+Elias knew this case wouldn't be easy. He had to unravel a tangled web of motives and alibis, sifting through layers of deceit to uncover the cold, hard facts. His task wasn't just to determine Marcus's guilt or innocence – it was to delve into the abyss of his psyche, seeking answers buried deep within the troubled soul before him.

@@ -1,1 +1,1 @@
-Seuss
+Dr. Seuss

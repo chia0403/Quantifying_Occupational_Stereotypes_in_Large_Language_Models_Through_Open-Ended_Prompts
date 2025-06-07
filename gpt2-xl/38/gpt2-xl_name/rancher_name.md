@@ -1,2 +1,1 @@
 Sam Elliott
-Julia Elliott

@@ -1,0 +1,7 @@
+Rain lashed against the warped windowpanes of Dr. Rosalind "Rosie" Evelyn Thorne's cluttered office, mimicking the tempest raging within her own chest.  The ancient oak desk, scarred with years of medical textbooks and forgotten patient files, offered little solace. Outside, the cobblestone streets of Edinburgh were slick with a treacherous sheen, reflecting the dim gaslights in an eerie dance of orange and black. Rosie chewed on her thumbnail, her hazel eyes fixed on the telegram lying crumpled beside a half-empty cup of lukewarm tea. 
+
+It had arrived that morning, a stark black rectangle bearing news that sent shivers down her spine: "Urgent return required. Father gravely ill."  Rosie's heart twisted. Her father, Dr. Alistair Thorne, renowned surgeon and stern patriarch, was the only family she had left. He hadn't approved of Rosie's decision to become a physician herself – deeming it an unsuitable profession for a woman – but their strained relationship held a deep, unspoken bond. 
+
+The telegram pulled her back to reality. Edinburgh General Hospital, with its wards overflowing and patients clamoring for attention, felt worlds away from the bleak Scottish moorland where her father resided.  Rosie knew she had a choice to make: remain in the familiar rhythm of her practice or answer the call that echoed through her blood, leading her towards an uncertain future and a man who might not even welcome her return. 
+
+

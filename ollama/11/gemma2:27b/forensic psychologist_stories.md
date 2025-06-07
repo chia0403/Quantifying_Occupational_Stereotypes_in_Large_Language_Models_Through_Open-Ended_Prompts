@@ -1,0 +1,5 @@
+The flickering fluorescent lights of the interrogation room cast harsh shadows on Dr. Evelyn Thorne's face, highlighting the worry lines etched around her hazel eyes. Outside, the Chicago wind howled like a banshee, whipping rain against the grimy windows. Inside, the air was thick with tension, punctuated only by the rhythmic tap-tap-tap of Evelyn's pen against the notepad in front of her. Across the table sat Marcus Holloway, accused of brutally murdering his wife. His eyes, once bright and full of life according to the family photos scattered across Evelyn's desk, were now dull and haunted. 
+
+Evelyn had been called in because Marcus insisted on speaking to a psychologist before making any statements. He claimed he couldn't remember anything about that night, a convenient amnesia that raised red flags for the detective assigned to the case. Evelyn's job was to sift through the tangled web of Marcus' memories, unraveling truth from fiction and ultimately determining whether this was a genuine case of dissociative amnesia or a carefully constructed facade. 
+
+

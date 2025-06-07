@@ -1,0 +1,5 @@
+Rain lashed against the dusty windows of Professor Elias Thorne’s cluttered office, blurring the view of the ancient oak that stood sentinel outside his window. The old tree, its gnarled branches clawing at the storm clouds, had been a fixture on the grounds of Blackwood University for centuries, long before the imposing stone buildings rose around it. Elias, perched precariously on a stool, was lost in the depths of a leather-bound tome, its yellowed pages filled with arcane symbols and cryptic incantations. A stray gust of wind rattled the windowpanes, momentarily drawing him from his scholarly pursuit. 
+
+He glanced at the grandfather clock ticking away in the corner, its pendulum swinging like a metronome counting down to something unknown. It was nearing midnight, the hour when shadows stretched long and secrets whispered on the wind. Elias ran a hand through his salt-and-pepper hair, a shiver running down his spine despite the crackling fire in the hearth. Tonight felt different. The air hummed with an energy he couldn't quite decipher, a foreboding that gnawed at the edges of his consciousness.  
+
+

@@ -1,0 +1,3 @@
+Rain lashed against the grimy windows of Eleanor Ainsworth's office, mirroring the tempest brewing inside her. The air hung heavy with the scent of stale coffee and desperation. Stacks of case files threatened to topple over, each one representing another soul drowning in the legal quagmire. Eleanor, a woman whose sharp wit was only surpassed by her unwavering sense of justice, stared out at the dreary cityscape. The flickering neon sign of the pawn shop across the street cast an unsettling glow on the rain-slicked pavement. Tonight, she had a case that felt different, one that threatened to unravel not just a legal battle but also the carefully constructed walls around Eleanor's own heart.  
+
+

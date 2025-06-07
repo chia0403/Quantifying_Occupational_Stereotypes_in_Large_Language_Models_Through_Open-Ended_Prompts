@@ -1,0 +1,5 @@
+The air hung thick with the scent of acetone and lavender polish as Elodie Marchand meticulously sculpted an almond shape onto her client's nail. Outside, the neon glow of the "Open" sign buzzed incessantly, casting flickering shadows on the worn linoleum floor of "Nails by Elodie." It was a Tuesday night in New Orleans' French Quarter, the air thick with humidity and the distant sound of jazz music bleeding from Bourbon Street.
+
+Elodie, her nimble fingers working with practiced ease, glanced at the clock. 8:32 PM. Another late night. Her client, a young woman named Camille, was chattering away about her disastrous date, her manicured nails tapping impatiently on the table. Elodie listened patiently, nodding and offering sympathetic "mm-hmms" as she focused on creating the perfect gradient of ruby red polish. But beneath her calm exterior, a restless energy thrummed through her veins. Tonight felt different. A prickling sensation at the back of her neck told her something was about to change. 
+
+

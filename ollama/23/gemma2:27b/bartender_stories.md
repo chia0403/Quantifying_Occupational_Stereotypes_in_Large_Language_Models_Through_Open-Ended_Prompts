@@ -1,0 +1,5 @@
+The air hung thick with cigar smoke and the murmur of hushed conversations in The Velvet Hour.  Neon signs outside flickered, casting streaks of pink and blue across the worn mahogany bar where Elias Blackwood, his hands calloused but sure, polished glasses with a practiced eye. 
+
+He could tell by the glint in a woman's tear-filled eyes that she was nursing a broken heart. The businessman hunched over his scotch, tie loosened, was drowning sorrows he refused to acknowledge. And the young couple giggling in the corner booth? They were celebrating something new and exciting, their faces glowing with the promise of tomorrow. Elias saw it all, the quiet dramas unfolding beneath the surface of every drink poured. 
+
+Tonight, though, a different kind of tension hung heavy in the air. A stranger sat at the far end of the bar, his face obscured by a wide-brimmed hat. He hadn't ordered anything yet, just stared into the depths of his empty glass. Elias, ever curious, couldn't help but wonder what brought this man to The Velvet Hour, and what secrets lurked beneath that shadow. 

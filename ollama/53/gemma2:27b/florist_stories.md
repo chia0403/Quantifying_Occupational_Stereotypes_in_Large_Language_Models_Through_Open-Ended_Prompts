@@ -1,0 +1,5 @@
+The air in "Petals & Prose" was thick with the perfume of a hundred blooming things. Jasmine vines crept across exposed brick, their delicate white flowers releasing a heady scent that mingled with the earthy aroma of freshly turned soil and the sharp tang of lilies.  Eleanor Blythe hummed along to Ella Fitzgerald's voice drifting from a vintage radio perched on a shelf overflowing with antique vases. Sunlight slanted through the shop window, illuminating dust motes dancing in the air and painting golden stripes across Eleanor's workbench cluttered with roses, hydrangeas, and sprigs of rosemary.
+
+Outside, the cobblestone street bustled with morning shoppers, their voices muffled by the thick glass pane separating Eleanor from the world. A delivery truck rumbled past, momentarily drowning out Ella's sultry vocals. Eleanor paused in her work, twisting a sprig of lavender between her fingers, and sighed contentedly. This was her haven, a world sculpted from fragrant blooms and delicate greenery. Yet, a knot of unease tightened in her stomach, a premonition as subtle as the shiver of wind rustling through autumn leaves outside. Today felt different. 
+
+

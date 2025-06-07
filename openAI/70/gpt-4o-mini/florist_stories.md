@@ -1,0 +1,9 @@
+**Title: Petals in the Wind**
+
+**Setting:** The small coastal town of Willowby is known for its charming streets lined with historic buildings, each adorned with vibrant flower boxes that change with the seasons. The scent of salt water mingles with the sweetness of blooming flowers as seagulls dance in the sky above. At the heart of this picturesque town is “Petal & Bloom,” a quaint flower shop nestled between a bakery that fills the air with the intoxicating aroma of fresh bread and a bookshop where the scent of old pages lingers.
+
+**Opening:** 
+
+In the heart of Willowby, where the gentle whispers of the ocean mingled with the vibrant colors of spring, stood a little flower shop called Petal & Bloom. The bell above the door chimed softly every time a customer walked in, a familiar sound that resonated with the heart of its owner. Eleanor Marigold, with her tousled chestnut curls and paint-smeared apron, was known throughout the town not just for her exquisite arrangements but for the warmth she radiated as she tended to each blossom as if it were her closest friend.
+
+On this particular morning, the sun shone brightly, casting a golden hue over the delicate petals of the lilies and daisies that filled the shop. Eleanor moved gracefully between the vases, carefully snipping stems and arranging them in rustic wooden containers. Each bouquet told a story—a celebration of life, love, and remembrance—and she believed that flowers had a language of their own, revealing secrets to those willing to listen. Today felt different, though. It was as if the very air around her crackled with promise, stirring a distant memory that danced just out of reach. Little did she know, a new chapter was about to bloom in her life, one that would challenge her passions and reshape her understanding of love.

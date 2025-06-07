@@ -1,0 +1,5 @@
+Rain lashed against the ambulance windows, blurring the neon glow of the city into an impressionistic smear. Inside, Eleanor Vance gripped the steering wheel, knuckles white against worn leather. Sirens wailed, their urgent song swallowed by the cacophony of the storm. Her partner, Liam, worked frantically in the back, a grim tableau visible through the partition: flashing lights reflecting off sweat-slicked skin, the rhythmic beep of a monitor, and the hushed, urgent murmur of medical jargon.
+
+Eleanor's heart hammered against her ribs. They were en route to a possible cardiac arrest in a dilapidated apartment complex on the edge of the city, a place where hope often went to die. She knew this call wouldn't be easy. The rain was turning streets into rivers, traffic snarled into an immovable mass. Every second felt like an eternity. Eleanor, a seasoned paramedic with seven years under her belt, pushed down the knot of anxiety in her stomach and focused on weaving through the gridlocked city. This wasn't just a job; it was a lifeline. And tonight, someone was desperately clinging to it. 
+
+

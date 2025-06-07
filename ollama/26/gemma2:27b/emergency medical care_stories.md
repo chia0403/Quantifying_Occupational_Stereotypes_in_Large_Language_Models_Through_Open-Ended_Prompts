@@ -1,0 +1,5 @@
+Rain lashed against the ambulance windows, blurring the neon glow of the city into streaks of sickly yellow and green. Inside, Amelia "Amy" Chen gripped the steering wheel, her knuckles white against the worn leather. The siren wailed, a mournful cry cutting through the storm's symphony. Her partner, Marco, was already prepping the equipment in the back, his movements practiced and efficient despite the swaying motion of the vehicle. 
+
+Tonight felt different. Heavier. Every call they responded to seemed laced with a desperation that gnawed at Amy’s gut. Maybe it was the weather, turning the city into a dark, watery labyrinth. Or maybe it was something else entirely, a nameless dread that clung to her like damp wool.  They were headed towards a suspected drug overdose in a rundown apartment complex on the edge of the city, a place Amy knew all too well.
+
+The weight of countless emergencies pressed down on her – the flickering life she’d fought for and lost, the silent gratitude etched on faces after a miracle save. Tonight, though, the air felt charged with something unknown, a storm brewing not just outside, but within Amy herself. 

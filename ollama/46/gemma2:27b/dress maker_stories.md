@@ -1,0 +1,7 @@
+The air hung thick with the scent of lavender and freshly pressed linen in Eloise Beaumont's atelier. Sunlight streamed through the arched window, illuminating dust motes dancing above spools of silk and skeins of vibrant embroidery thread. Outside, the cobbled streets of Paris hummed with the rhythmic clatter of horse-drawn carriages and the boisterous calls of vendors hawking their wares. But inside Eloise's world, all was quiet save for the gentle rasp of her shears slicing through emerald velvet and the soft thud of her foot pedal guiding the whirring needle of her Singer sewing machine. 
+
+Eloise, a woman with eyes the color of storm clouds and hair like spun gold, paused her work, tilting her head to admire the curve of a bodice she was crafting for Madame Dubois, a renowned opera singer. A sigh escaped her lips - a mix of exhaustion and satisfaction. Creating garments was more than just a profession for Eloise; it was an art form, a way to breathe life into fabric and weave dreams onto seams.  
+
+Today, however, a shadow lingered over her usually sunny disposition. The annual Grand Exposition de Couture was approaching, and Eloise was determined to unveil a collection that would not only showcase her exceptional skill but also secure her a coveted spot amongst the city's elite dressmakers. But inspiration had been stubbornly elusive, leaving her staring at sketches with a growing sense of despair. 
+
+

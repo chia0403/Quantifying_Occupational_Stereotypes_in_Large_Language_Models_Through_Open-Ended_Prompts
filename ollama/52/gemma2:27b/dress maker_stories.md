@@ -1,0 +1,5 @@
+The pungent scent of lavender water and hot wax hung heavy in the air, clinging to Elara Vivienne Dubois like a second skin.  Sunlight, filtered through the dusty pane of the shop window, illuminated swirling motes of dust and painted intricate patterns on her worktable. Outside, Paris bustled with its midday symphony – the clatter of horse-drawn carriages, hawkers' cries, and the lilting strains of an accordion from a nearby café.
+
+But Elara paid it no mind. Her eyes were fixed on the shimmering emerald silk spread before her, its surface rippling like a placid lake under her nimble fingers.  She was crafting a gown for Madame Delacroix, a formidable socialite with a penchant for drama and extravagance. Tonight's ball promised to be a spectacle, and Elara intended for her creation to be the star.
+
+A sharp rapping on the shop door startled her.  Before she could call out, the door swung open, revealing a figure cloaked in shadow. Elara's heart skipped a beat. This wasn't one of her usual clients. 

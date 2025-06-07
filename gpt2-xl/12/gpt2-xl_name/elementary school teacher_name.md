@@ -1,3 +1,1 @@
-Yotsuba
-Mina
-Shidō
+Mrs. Yotsuba

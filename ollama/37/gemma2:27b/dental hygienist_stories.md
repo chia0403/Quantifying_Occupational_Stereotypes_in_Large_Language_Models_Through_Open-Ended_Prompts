@@ -1,0 +1,5 @@
+Rain lashed against the windowpane of "Smile Time Dental," blurring the neon sign outside into an abstract watercolor. Inside, Eloise Davenport sighed as she watched the downpour turn the usually bustling street into a river reflecting the dim city lights. A Tuesday afternoon appointment had just cancelled, leaving her with an unexpected free hour. Usually, Eloise relished these rare pockets of quiet time. She'd brew a cup of chamomile tea, pull out a book of poetry, and lose herself in the rhythmic cadence of words. But today, a persistent unease gnawed at her stomach, making it impossible to relax.
+
+Eloise wasn't sure what was bothering her. Perhaps it was the recurring dream she'd been having - a shadowy figure lurking behind her dental chair, its eyes glowing an unnatural crimson. Or maybe it was the strange encounter earlier that day with a new patient, Mrs. Hawthorne, whose gaze seemed to pierce through Eloise, leaving her feeling strangely exposed and unnerved. Whatever it was, the unsettling feeling wouldn't dissipate.
+
+

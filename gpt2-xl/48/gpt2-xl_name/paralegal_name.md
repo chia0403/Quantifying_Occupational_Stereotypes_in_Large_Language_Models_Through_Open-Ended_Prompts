@@ -1,2 +1,1 @@
 Mike Bielaczy
-Mike

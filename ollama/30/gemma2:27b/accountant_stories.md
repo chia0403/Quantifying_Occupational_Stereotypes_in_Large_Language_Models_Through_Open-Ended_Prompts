@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Beatrice "Bea" Kensington's cramped office, mimicking the tumultuous storm brewing inside her. Stacks of invoices towered precariously on her desk, threatening to spill over onto the worn carpet. The air hung heavy with the scent of stale coffee and desperation. Bea, a woman whose meticulously coiffed auburn hair couldn't quite disguise the worry etched into her features, stared at the glowing numbers on her computer screen.  The company she'd poured her heart and soul into for the past decade was on the brink of collapse, and only a miracle could save it. 
+
+Tonight, however, Bea wasn't looking for miracles. Tonight, she was looking for answers. Hidden within the labyrinthine depths of the company's financial records, she suspected, lay a clue – a discrepancy, an anomaly, anything that could shed light on their sudden and inexplicable downfall. The clock ticked relentlessly towards midnight, but Bea couldn't afford to rest. The fate of everyone who relied on Kensington & Sons, her family's legacy, hung in the balance. 
+
+

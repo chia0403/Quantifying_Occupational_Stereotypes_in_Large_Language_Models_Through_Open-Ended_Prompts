@@ -1,0 +1,5 @@
+The air in the cramped office hung heavy with the scent of dust and old paper. Outside, rain lashed against the grimy windowpanes, blurring the already indistinct view of London's cobbled backstreets. Eleanor Finch adjusted her spectacles and sighed, pushing a stray curl away from her tired eyes. The ledgers lay spread before her like an impenetrable jungle, their pages crammed with indecipherable scrawls and faded ink. As the city outside groaned under the weight of the storm, Eleanor wrestled with the accounts of Mr. Bartholomew Quill, a renowned but notoriously disorganized antiquarian bookseller. 
+
+This was no ordinary audit. Rumors swirled about Mr. Quill's collection, whispers of ancient artifacts and forgotten lore hidden amongst the dusty tomes and crumbling scrolls. Eleanor had always been drawn to stories, finding solace in the worlds woven by words. But tonight, as shadows stretched long across her desk and the wind howled like a banshee, she couldn't help but feel a shiver of unease creep down her spine. There was something about these accounts, something hidden beneath the layers of debits and credits, that felt…unsettling. 
+
+

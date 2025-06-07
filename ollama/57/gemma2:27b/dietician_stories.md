@@ -1,0 +1,5 @@
+The aroma of simmering cinnamon and cloves battled with the sharp tang of bleach as Amelia Cartwright briskly wiped down the stainless steel counter in her small office kitchen. Sunlight, filtered through the dusty windowpane above the sink, painted squares on the worn linoleum floor. Outside, the familiar cacophony of downtown Chicago – car horns, sirens, the distant thump of bass from a passing car – thrummed like a living thing. Amelia, however, was focused on the delicate balance she was about to achieve in her latest recipe: a gluten-free oatmeal cookie that wouldn't crumble into dust and still tasted like pure indulgence.
+
+As a registered dietician specializing in food allergies and intolerances, Amelia lived for these moments of culinary alchemy. Transforming seemingly mundane ingredients into treats that brought joy, not just sustenance, was her passion. Today, she was working on a batch for young Emily, a spirited eight-year-old with celiac disease who deserved a taste of birthday cake, even if it came disguised as a cookie. 
+
+

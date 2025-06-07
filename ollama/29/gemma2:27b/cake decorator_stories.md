@@ -1,0 +1,5 @@
+The whir of the KitchenAid mixer filled Elsie Beatrice Montgomery's tiny apartment kitchen, competing with the insistent chirping of her phone. Ignoring it, Elsie focused on coaxing the perfect buttercream consistency – smooth, glossy, and ready to hold its own against the weight of fondant flowers. Outside her window, the late afternoon sun cast long shadows over the bustling Brooklyn street below, painting the sidewalk in hues of gold and burnt orange.
+
+Elsie wasn't just any cake decorator; she was an artist. Her canvases were layered sponges and buttery fillings, her tools piping bags filled with vibrant creams and delicate sugar work. Today's masterpiece was destined for a wedding, a towering five-tiered creation adorned with cascading sugar roses in blush pink and ivory. Elsie, however, wasn't feeling the usual celebratory buzz. A gnawing sense of anxiety tightened its grip around her chest as she glanced at the phone again – the insistent chirping now joined by a flashing red light. It was her landlord, reminding her about the overdue rent.
+
+

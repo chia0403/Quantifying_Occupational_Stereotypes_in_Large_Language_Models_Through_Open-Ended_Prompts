@@ -1,0 +1,5 @@
+The biting wind whipped through Captain Elara Vance's auburn braids as she surveyed the desolate landscape below. A tapestry of rust-colored sand dunes stretched to the horizon, punctuated by jagged rock formations that resembled petrified claws reaching for the unforgiving sky. Above, the twin suns beat down mercilessly, casting long shadows across the parched wasteland. This was Kythera, a planet notorious for its harsh climate and even harsher inhabitants – nomadic raider tribes who roamed the endless dunes, preying on unwary travelers.
+
+Elara gripped the controls of her aging freighter, the 'Phoenix', its hull scarred with evidence of past encounters.  Today's mission: deliver a shipment of vital medical supplies to a remote outpost struggling against a deadly sand plague. It was a risky venture, but Elara had always been drawn to danger. A thrill coursed through her as she adjusted the ship's course, bracing for the turbulence that often accompanied navigating Kythera's volatile atmosphere. 
+
+

@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of the interrogation room, mimicking the turmoil raging inside Dr. Eleanor Vance. The fluorescent lights buzzed overhead, casting an unsettling pallor on the steel table where Detective Miller sat hunched over files. Eleanor's reflection stared back from the mirrored wall – tired eyes framed by wisps of escaping auburn hair, a frown etched deep between her brows. 
+
+The case was unlike any she'd encountered in her decade as a forensic psychologist. The victim, a young art student named Iris Thorne, had been found meticulously posed amongst her own paintings, a macabre tableau suggesting an intimate knowledge of both the victim and her work.  No signs of forced entry, no obvious motive, just a chilling scene that whispered of something deeply personal and profoundly disturbing.
+
+Eleanor knew this was going to be a long night. She straightened her blazer, took a deep breath, and prepared to delve into the labyrinthine mind of the suspect - a quiet recluse who lived in the apartment above Iris's studio and claimed to have known nothing of her demise until the police arrived.  

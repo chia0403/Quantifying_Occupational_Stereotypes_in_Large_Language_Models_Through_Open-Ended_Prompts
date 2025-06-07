@@ -1,0 +1,8 @@
+The air in the comms shack was thick with static and solder fumes. Elias Thorne squinted through the haze, tracing the circuit board path on a mangled transistor radio with a calloused fingertip. Outside, the wind howled across the desolate plains of Aethel, whipping sand against the corrugated metal walls of the shack. It was a harsh world - unforgiving and bleak, punctuated only by the occasional rusted hulk of a forgotten mining rig and the mournful cries of desert hawks circling overhead.
+
+Elias wasn't bothered by the desolation. He'd been born into it, his family lineage stretching back generations in this wind-battered corner of the planet. This shack, smelling faintly of burnt wire and ozone, was his sanctuary. It hummed with the low, comforting thrum of a backup generator and the faint clicks and whistles emanating from the dozen radios scattered across the workbench - each one a lifeline to the outside world. 
+
+
+He sighed, running a hand through his greasy, auburn hair. The radio he held belonged to a young shepherd who'd wandered into the wrong territory and lost contact with his flock. His frantic pleas for help crackled through the static, but the signal was weak, fading in and out like a dying ember. Elias knew this repair wouldn't be easy.  The damage was extensive - likely caused by a sandstorm surge - and time was running out for the shepherd.
+
+"Come on," Elias muttered to himself, "you stubborn piece of junk." He picked up his soldering iron, its tip glowing an angry red in the dim light. The fate of a young man rested on his calloused fingers and his intimate knowledge of every wire, resistor, and capacitor in that battered radio.  

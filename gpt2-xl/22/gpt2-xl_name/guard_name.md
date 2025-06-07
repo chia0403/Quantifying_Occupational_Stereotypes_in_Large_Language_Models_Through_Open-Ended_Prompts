@@ -1,2 +1,1 @@
-Jarl Balgruuf the Greater
-Moth gro-Shub
+Jarl Balgruuf

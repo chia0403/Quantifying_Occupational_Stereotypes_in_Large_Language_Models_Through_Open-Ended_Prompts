@@ -1,0 +1,5 @@
+The aroma of frying onions and garlic clung to Amelia Thistlewick like a second skin. It was a scent she'd grown accustomed to over her six months at "Chez Maurice," a bustling French bistro tucked away on a cobblestone street in Montreal's Quartier Latin. The clatter of plates, the murmur of conversations in a medley of languages, and the jazzy notes of Edith Piaf drifting from hidden speakers formed a familiar symphony she navigated with practiced ease.
+
+Tonight, however, Amelia felt a knot of tension tightening in her stomach. It was Friday night, the busiest night of the week, and she was short-staffed. Her usual partner, Jean-Luc, had called in sick with a mysterious "gastric malady," leaving Amelia to handle the lion's share of tables alone.  A bead of sweat trickled down her temple as she surveyed the growing line of impatient patrons waiting for tables. She needed to stay calm, focused. This was Chez Maurice, after all, and even under pressure, one had to maintain a certain je ne sais quoi. 
+
+

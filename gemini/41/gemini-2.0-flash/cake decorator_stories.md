@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Story Opening:**
+
+The tremor started subtly, a hummingbird's wing against the marble countertop. But Isadora Bernadette Dubois knew the language of her kitchen intimately. It wasn't the refrigerator kicking on, nor a delivery truck rumbling down Bleecker Street. This was something else, something… ominous. She paused, frosting swirling from the tip of her pastry bag, a delicate cascade of lavender icing frozen mid-air over the half-finished miniature Parisian streetscape cake. The aroma of vanilla and almond extract, usually comforting, now felt cloying in her throat. Her heart hammered a frantic rhythm against her ribs. Today, of all days, the world couldn't fall apart. Not today.
+
+**Setting:**
+
+Isadora’s Patisserie, nestled on a picturesque corner of Bleecker Street in New York City's Greenwich Village, was a sugary sanctuary. Sunlight streamed through the large, arched windows, illuminating the rows of meticulously arranged pastries: golden croissants, ruby-red raspberry tarts, and miniature gateaux crowned with edible flowers. The walls were painted a soft, buttery yellow, adorned with framed vintage baking posters and hand-drawn illustrations of whimsical cake designs. The air perpetually hummed with the quiet whir of the stand mixer in the back kitchen and the gentle chime of the bell above the door, announcing the arrival of customers eager for a sweet escape. Marble countertops gleamed under the soft glow of pendant lights, displaying the daily creations like precious jewels. Behind the counter, Isadora’s workspace was a controlled chaos of pastry bags, piping tips, jars of sprinkles, and bowls overflowing with colorful buttercream. It was her haven, the place where she transformed sugar, flour, and dreams into edible masterpieces.

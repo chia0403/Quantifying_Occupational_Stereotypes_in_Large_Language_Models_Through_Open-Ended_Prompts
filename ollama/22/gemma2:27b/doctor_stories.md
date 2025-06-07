@@ -1,0 +1,3 @@
+The air in the makeshift infirmary was thick with the scent of disinfectant and something else - a sickly sweet tang Amelia couldn't quite place. The single flickering bulb cast long shadows across the dusty floorboards, illuminating rows of weary faces, each etched with worry and a desperate hope.  Outside, the relentless desert wind howled like a wounded beast, a constant reminder of their precarious situation. Dr. Amelia Cartwright adjusted her spectacles, her gaze sweeping over the crowd huddled within the crumbling adobe walls. This wasn't the sterile, climate-controlled hospital she was accustomed to in London. No, this was Esperanza Mesa, a remote village nestled deep within the unforgiving Chilean Atacama Desert, and Amelia was their only lifeline. 
+
+

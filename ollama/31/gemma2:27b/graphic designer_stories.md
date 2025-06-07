@@ -1,0 +1,5 @@
+The flickering neon sign outside cast an oily sheen across Elias Finch's workbench, illuminating the scattered chaos of his latest project. Empty coffee cups huddled like exhausted comrades amongst crumpled paper sketches and stray Pantone swatches. Elias, hunched over his Wacom tablet, was locked in a battle with a stubborn logo design for a artisanal pickle company. The neon green gherkin he’d painstakingly rendered just didn't scream "gourmet," more "cheap gas station snack."
+
+Elias's cramped studio apartment sat perched above a dingy ramen shop in the heart of Seattle's International District.  The air hummed with the symphony of the city – distant sirens, honking taxis, and the rhythmic clatter of chopsticks from downstairs. Rain lashed against the windowpanes, mirroring the frustration brewing within Elias. He needed this pickle logo to be perfect; it was his ticket to finally escaping the soul-crushing monotony of freelance gigs for discount furniture stores and dubious online casinos. 
+
+

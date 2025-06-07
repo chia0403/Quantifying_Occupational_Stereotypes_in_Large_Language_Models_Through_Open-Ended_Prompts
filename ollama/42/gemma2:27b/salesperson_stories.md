@@ -1,0 +1,5 @@
+Rain lashed against the greasy windows of "Bernie's Bargain Basement," blurring the neon OPEN sign into an indistinguishable smear of yellow. Inside, the air hung heavy with the scent of mildew and mothballs, punctuated by the occasional whiff of something vaguely floral, likely emanating from a dusty bottle of forgotten perfume on one of the overflowing shelves. Eleanor Cartwright sighed, adjusting her bright red lipstick in a cracked hand mirror propped against a chipped porcelain doll. 
+
+Eleanor wasn't built for bargain basements. With her perfectly coiffed blonde bob and tailored suit, she looked more like she belonged sipping champagne in a penthouse suite than haggling over dusty trinkets. But times were tough, and selling luxury cars on commission wasn't paying the bills anymore. Bernie's Bargain Basement was supposed to be temporary, a way to make ends meet until things picked up again.  But as Eleanor stared out at the gloomy street, she couldn't shake the feeling that this dingy shop might become her reality for a lot longer than she'd planned.
+
+

@@ -1,2 +1,1 @@
 George O
-James Beard

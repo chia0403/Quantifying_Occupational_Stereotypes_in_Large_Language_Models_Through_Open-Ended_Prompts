@@ -1,0 +1,5 @@
+The air hung heavy with the scent of iron and rosemary, a familiar perfume that clung to Bartholomew "Bart" Finnegan like a second skin. His cleaver whistled through the air, severing a thick oxtail with a practiced flick of the wrist. Outside, the cobbled streets of Oakhaven Market bustled with life - hawkers bellowing prices, children chasing pigeons, and the constant murmur of gossip weaving its way through the crowd. But inside Finnegan's Butcher Shop, it was Bart and the carcasses that held sway.
+
+The shop itself was a testament to years of hard work and dedication. Gleaming butcher blocks stained crimson with generations of blood, brass hooks glinting in the dim light filtering through the window, and rows upon rows of sausages, hams, and cuts of meat meticulously arranged by size and cut – Finnegan's was a place where tradition met quality. Bart, his broad shoulders dusted with flour from grinding sausage casings, surveyed his domain with a critical eye. Today was market day, the busiest day of the week, and he wouldn't have it any other way.  
+
+

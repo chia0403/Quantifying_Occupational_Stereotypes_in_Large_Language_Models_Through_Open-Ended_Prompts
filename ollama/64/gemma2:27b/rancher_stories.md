@@ -1,0 +1,7 @@
+Dust devils danced across the parched earth, kicking up red dirt that stung Theodore "Teddy" Blackwood's eyes. The sun beat down relentlessly on his weathered face, turning his already tanned skin to leather. He squinted at the horizon, where the jagged peaks of the Chiricahua Mountains rose like defiant teeth against the azure sky. Teddy tugged his Stetson lower, shielding his eyes from the glare. His ranch, a sprawling 10,000 acres carved out of the unforgiving Arizona desert, stretched before him, dotted with scraggly mesquite trees and the occasional flash of turquoise from a lizard darting for cover.
+
+The silence was broken only by the rasping breath of his trusty Appaloosa mare, Bess, beneath him and the distant bleating of sheep grazing on the far side of the mesa. Teddy had inherited this land from his grandfather, a gruff but loving man who'd taught him everything he knew about surviving in this harsh yet beautiful landscape. But lately, survival felt like an uphill battle. The drought had been relentless, turning his once-lush pastures into dust bowls and driving away his cattle. He was down to his last few head of sheep, their wool barely enough to cover the cost of feed.  
+
+Today, however, Teddy wasn't thinking about his dwindling fortunes. His gaze was fixed on a plume of smoke rising in the distance, a beacon against the endless blue. It meant only one thing: trouble. 
+
+

@@ -1,0 +1,5 @@
+The midday sun beat down on Elias Thorne's neck as he wrestled with a tangle of bougainvillea. Its thorny branches snagged at his worn denim shirt, leaving tiny red welts in their wake.  Elias grunted, finally freeing the vine and tossing it onto the burgeoning compost heap. Sweat stung his eyes, blurring the vibrant colors of the rose garden he was tasked with revitalizing. 
+
+This was Mrs. Hemlock's pride and joy - a sprawling Victorian estate on the outskirts of Charleston, South Carolina, its manicured lawns and meticulously planned gardens a testament to a bygone era. Elias, with his calloused hands and innate understanding of nature, was entrusted with keeping this legacy alive. He loved the challenge, the slow dance between order and chaos as he coaxed beauty from the earth. 
+
+But today, a gnawing unease tugged at him. As he straightened up, wiping the sweat from his brow, he noticed something peculiar: a faint shimmer in the air above the rose bushes, like heatwaves rising off asphalt. It pulsed faintly, almost rhythmically, and Elias couldn't shake the feeling that it wasn't just sunlight playing tricks on his eyes.  

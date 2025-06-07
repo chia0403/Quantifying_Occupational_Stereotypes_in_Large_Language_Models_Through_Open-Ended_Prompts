@@ -1,0 +1,6 @@
+The sterile white walls of St. Jude's Emergency Room hummed with an almost inaudible tension. The air was thick with the scent of antiseptic and nervous sweat.  Dr. Eleanor Grace Blackwood, her blonde braid pulled back tight against her neck, surveyed the chaos from behind the triage desk. A young boy screamed in agony as a nurse attempted to bandage his scraped knee, while two paramedics frantically prepared an elderly woman for transport. It was a Tuesday night, prime time for minor trauma and existential crises – the perfect symphony of human suffering for Eleanor's liking.
+
+St. Jude's, nestled on the edge of Chicago's bustling downtown, was a constant whirlwind.  Eleanor thrived in it, finding solace in the familiar rhythm of broken bones and bleeding hearts. It felt like her true calling, a place where she could make a tangible difference, stitch together lives torn apart by accidents, illnesses, and the occasional misplaced ambition. 
+
+
+Tonight, however, something felt different. A prickling sensation at the back of Eleanor’s neck, a feeling of unease she couldn't quite explain, made her hesitate before stepping into the heart of the storm. The next few hours promised to be anything but ordinary.  

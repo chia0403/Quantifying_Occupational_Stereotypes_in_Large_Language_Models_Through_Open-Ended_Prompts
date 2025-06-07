@@ -1,0 +1,6 @@
+The air in the grand foyer of Blackwood Manor hung thick with the scent of beeswax and decay. Eloise Amelia Cavendish, her grey bun tighter than her lips, surveyed the scene before her. Dust motes danced in the pale sliver of sunlight that pierced through a grimy stained-glass window, illuminating an opulent tapestry depicting a hunting scene gone awry – arrows embedded in trees, hounds snarling at invisible prey.
+
+It was a fitting image for Blackwood Manor itself. Once a vibrant hub of aristocracy, it now stood as a hollow monument to forgotten grandeur.  Eloise, with her thirty years of service under her belt (and a back that creaked like the manor's aged floorboards), knew every nook and cranny of its crumbling beauty. She knew the secrets whispered by the peeling wallpaper, the echoes of laughter lost in dusty corridors, and the ghosts of memories lingering in forgotten rooms. 
+
+
+Today, however, was different. A letter had arrived, penned in elegant script that Eloise recognized as belonging to the manor's long-absent heir, Alistair Blackwood. He was returning.  Eloise felt a shiver run down her spine. What would Alistair be like? And what secrets did he hold about Blackwood Manor and its turbulent past?

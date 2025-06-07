@@ -1,4 +1,1 @@
 Dr. Dent
-George W. Campbell
-Dr. Horton
-Dr. Brown

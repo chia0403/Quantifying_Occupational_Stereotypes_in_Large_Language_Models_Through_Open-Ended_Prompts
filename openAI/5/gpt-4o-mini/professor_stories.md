@@ -1,0 +1,7 @@
+**Title: Whispers of the Forgotten**
+
+**Setting:** The story opens in the dusty, labyrinthine hallways of Bellwood University, a prestigious yet aging institution nestled in the heart of New England. The air is thick with the scent of antiquity, as towering shelves lined with dog-eared textbooks burst with knowledge accumulated over centuries. The university’s Gothic architecture casts long shadows, and the faint echo of students’ footsteps fills the corridors, blending with the rustle of turning pages in the nearby library. Outside, fall has painted the landscape in hues of amber and crimson, leaves tumbling down like whispered secrets waiting to be uncovered.
+
+**Opening Paragraph:**
+
+Professor Eleanor Margot Thorne stood at the entrance of her cluttered office, framed by a wall of mismatched bookshelves that leaned slightly to one side, a physical manifestation of her chaotic brilliance. With her wild, curly hair escaping from a loose bun and spectacles perched precariously on her nose, she looked every bit the quintessential scholar. The morning light streamed through the narrow window, illuminating motes of dust swirling in the air and a half-finished manuscript cluttered with annotations spiraling across the desk. Eleanor had dedicated her life to the study of forgotten histories, but as she clutched an old, leather-bound journal found in a university archive just days before, an unsettling feeling gnawed at her—a sense that this discovery might not only illuminate the past but also unravel the very fabric of her own story.

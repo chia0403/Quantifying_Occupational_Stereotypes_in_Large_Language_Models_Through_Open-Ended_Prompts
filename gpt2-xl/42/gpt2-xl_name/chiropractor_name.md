@@ -1,2 +1,1 @@
-Fred Seidler
-David Gorski
+Dr. Fred Seidler

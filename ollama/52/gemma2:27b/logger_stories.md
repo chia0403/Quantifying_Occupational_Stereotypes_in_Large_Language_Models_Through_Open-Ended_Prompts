@@ -1,0 +1,5 @@
+The air hung heavy with the scent of pine needles and damp earth. A veil of mist clung to the towering redwoods, obscuring their upper reaches in an ethereal haze.  Jasper Silas Blackwood adjusted his worn leather cap, squinting through the swirling grey. The morning sun struggled to pierce the canopy, casting long, skeletal shadows across the forest floor. Jasper hefted the weight of his chainsaw onto his shoulder, its familiar rumble a comforting presence in the hushed stillness.
+
+He was deep in Humboldt County, California – a land where giants ruled and men like him wrestled them to the ground.  Jasper wasn't a sentimental man, but even he felt a pang of respect for the ancient trees, their bark scarred with the etchings of time and weathered by countless storms. It was his job to fell these behemoths, transforming their majestic forms into lumber that would build homes and fuel industries. But today, something felt different. A prickling unease danced along his spine, a whisper in the wind that warned of unseen dangers lurking beneath the emerald canopy. 
+
+

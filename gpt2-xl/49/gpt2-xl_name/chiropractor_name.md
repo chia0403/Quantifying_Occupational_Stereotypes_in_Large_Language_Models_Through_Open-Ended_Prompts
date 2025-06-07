@@ -1,2 +1,1 @@
-William F. Pritchard
-William Pritchard
+Dr. William F. Pritchard

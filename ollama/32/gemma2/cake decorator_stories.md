@@ -1,0 +1,6 @@
+The scent of sugared buttercream hung heavy in the air, mingling with the sharp tang of vanilla extract and the warm sweetness of baking bread. Amelia Rose Hawthorne surveyed her domain – the bustling kitchen of "Sweet Surrender," her quaint bakery tucked away on a cobblestone street in the heart of Charleston, South Carolina. Sunlight streamed through the dusty windowpanes, illuminating a rainbow of sprinkles scattered across the counter and a towering stand of decorated cakes, each a miniature masterpiece. 
+
+Amelia, with flour dusted delicately on her cheeks like a blush, adjusted the frilled pink apron that cinched her waist. Her hands, nimble and precise, were already reaching for a piping bag filled with lavender-infused buttercream, ready to transform a plain white cake into a blooming garden of edible artistry. This Saturday was always the busiest day at Sweet Surrender – Charleston's annual flower festival drew crowds from miles around, and Amelia's cakes, known for their whimsical designs and delicate flavors, were in high demand. 
+
+
+Today, however, held an extra layer of anticipation. A prestigious cake competition was being held downtown, and Amelia had poured her heart and soul into creating a showstopping piece – a three-tiered masterpiece depicting the blooming magnolia, Charleston's official flower.  

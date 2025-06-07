@@ -1,0 +1,7 @@
+The bell above the door chimed a cheerful melody as Penelope “Penny” Thistlewick wrestled a tangled rat’s nest into submission. It was 3:00 pm on a Thursday, the salon’s busiest time, and Penny was juggling three clients simultaneously: Mrs. Patterson needed her weekly perm touch-up (always with extra volume), young Liam wanted his first-ever “cool boy” haircut (something spiked, she hoped he wouldn't regret), and Ms. Dubois was requesting "a subtle change" that always somehow ended up as a dramatic pixie cut.
+
+Penny’s salon, aptly named “Thistlewick’s Tresses,” occupied a quaint corner shop on Mulberry Street in the heart of Oakhaven, a town steeped in history and tradition. The scent of lavender shampoo mingled with the faint aroma of Earl Grey tea brewing at the back – Ms. Dubois' preferred beverage during her transformations. Through the large bay window, Penny could see the bustle of the street: children chasing pigeons in the square, old Mrs. Higgins tending to her overflowing flower boxes, and Mr. Henderson, the baker, delivering fresh loaves from his cart. Oakhaven was a town where everyone knew your name, and Penny’s salon was its beating heart, a place where gossip flowed as freely as the hot water from the taps. 
+
+But today, something felt different. A prickle of unease ran down Penny's spine as she noticed a sleek black car parked across the street, its tinted windows reflecting the afternoon sun like obsidian eyes. Who could it be? Oakhaven rarely saw visitors so…out-of-place.  
+
+

@@ -1,0 +1,6 @@
+Professor Evelyn Elara Thorne adjusted her spectacles, peering down at the worn leather-bound volume in her hands. The flickering gaslight cast long shadows across her cluttered study, illuminating shelves crammed with ancient texts, globes dusted with the grime of centuries, and maps pinned haphazardly to every available surface. Outside, a storm raged, its fury echoing against the gothic windows of her Victorian townhouse nestled on a windswept cliff overlooking the churning North Sea.  
+
+Evelyn's fingers traced the faded gold lettering on the spine: "The Codex Arcanum." It was rumored to contain forbidden knowledge, whispers of forgotten magic and powerful entities slumbering beneath the earth. For years, she had sought it, driven by an insatiable thirst for the arcane and a desire to uncover the secrets buried deep within history. Tonight, after countless dead ends and false trails, she finally held it in her grasp. 
+
+
+A chill wind whistled through a crack in the window, rustling the pages of the Codex. Evelyn inhaled deeply, the scent of damp parchment and aged leather filling her senses. She knew this was no ordinary book. This was a doorway into the unknown, a precipice leading to both unimaginable power and untold danger. And she was about to cross it. 

@@ -1,3 +1,1 @@
-Kuznitzky
-Boris Mikhailov
-Vladimir Lukin
+Mr. Kuznitzky

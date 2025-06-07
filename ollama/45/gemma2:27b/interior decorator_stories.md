@@ -1,0 +1,8 @@
+The salty air whipped Eleanor "Ellie" Hawthorne's fiery red curls around her face as she wrestled with the oversized wicker armchair. It was precariously balanced on the edge of the antique truck bed, threatening to tumble down and crush the delicate porcelain vase nestled beside it. Ellie swore under her breath, her voice competing with the cries of gulls circling overhead.
+
+She hadn't expected this seaside cottage renovation to be a breeze, but hauling furniture up the crumbling stone steps leading to the weathered front door was proving more challenging than she anticipated. The charm of the quaint village nestled on the rugged Cornish coast was undeniable, but its steep, narrow lanes were not designed for modern vehicles, let alone oversized antique chairs.
+
+Ellie adjusted her grip and heaved with all her might, finally managing to wrestle the chair onto solid ground. Sweating and panting, she straightened up and surveyed the scene before her: a charming cottage painted in faded turquoise, its windows overlooking a wild, windswept cove. This project was Ellie's chance to prove herself, to leave behind the shadow of her renowned grandmother, Eleanor Hawthorne Sr., who had built a thriving interior design empire on a foundation of impeccable taste and unwavering vision. 
+
+
+Ellie wanted this coastal cottage, with its rustic charm and breathtaking views, to be her masterpiece, a testament to her own unique style and talent. But as she glanced at the mountain of furniture boxes still stacked in the truck bed, she couldn't help but feel a flicker of doubt. Could she truly make this dream a reality?

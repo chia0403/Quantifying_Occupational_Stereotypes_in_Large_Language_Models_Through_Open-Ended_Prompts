@@ -1,0 +1,5 @@
+The stench of mildew and stale sweat hung heavy in the air, clinging to Reginald "Reggie" Plumbbottom like a second skin. It wasn't unusual for Reggie's work to involve less-than-pleasant smells, but this basement was something else. A murky yellow light flickered from a single bare bulb hanging precariously from the ceiling, casting long, grotesque shadows that danced across the cluttered floor. Pipes snaked along the walls like metallic vines, some dripping with condensation, others crusted with rust and grime. Reggie, clad in his trusty denim overalls and armed with his ever-present wrench, gingerly navigated around a precariously stacked pile of dusty boxes.
+
+"Alright, Mr. Fitzwilliam," Reggie called out, his voice echoing strangely in the cavernous space, "Where's the source of the trouble?" He'd been summoned to this crumbling Victorian mansion on the outskirts of town by a frantic phone call from its elderly owner, a man named Archibald Fitzwilliam who sounded on the verge of a nervous breakdown. Reggie had a feeling this was going to be a long night. 
+
+

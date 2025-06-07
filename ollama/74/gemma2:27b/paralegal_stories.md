@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane, blurring the neon glow of the "Open 24 Hours" sign across the street. Eleanor Vance sighed, pushing a stray strand of auburn hair behind her ear. The fluorescent lights of the cramped office hummed overhead, casting a sickly yellow pallor over the stacks of files piled precariously on her desk. It was past midnight, and the only sound besides the relentless rain was the rhythmic click-clack of Eleanor's keyboard as she meticulously reviewed deposition transcripts for the Peterson case.
+
+Eleanor wasn't a lawyer, not yet anyway. She was a paralegal at Vance & Associates, the small firm her grandfather had founded decades ago. While she dreamed of arguing cases in court, for now, her role was behind the scenes, sifting through mountains of paperwork and piecing together legal strategies. But tonight, something felt different. A prickle of anticipation ran down her spine as she uncovered a discrepancy in the witness testimony – a seemingly insignificant detail that could potentially unravel the entire case. 
+
+

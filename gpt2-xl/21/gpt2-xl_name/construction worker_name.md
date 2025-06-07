@@ -1,2 +1,1 @@
 Jeff Smith
-T. Smith

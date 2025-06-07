@@ -1,0 +1,5 @@
+Rain lashed against the dusty windowpane of Bartholomew Quillington's office, blurring the already hazy view of cobblestone streets and gas lamps flickering weakly in the gloom. The air inside was thick with the scent of old paper and pipe tobacco, a comforting aroma that Bartholomew had come to associate with order and balance - the very principles he held dear as a bookkeeper for the esteemed firm of Blackwood & Sons.
+
+Tonight, however, the usual tranquility of his workspace felt fractured. A stack of ledgers sat precariously on his desk, their pages filled with cryptic entries and figures that refused to align. An unsettling tightness gripped Bartholomew's chest. Something was amiss. The numbers whispered a tale of deceit, of shadowy dealings hidden beneath the veneer of respectability that Blackwood & Sons had always projected. 
+
+Bartholomew ran a trembling hand through his thinning hair, a shiver coursing down his spine. He knew he shouldn't pry, but the meticulous order he craved in life clashed violently with this newfound disarray. The truth, like a stubborn weed, was pushing its way through the cracks of his carefully constructed world.  

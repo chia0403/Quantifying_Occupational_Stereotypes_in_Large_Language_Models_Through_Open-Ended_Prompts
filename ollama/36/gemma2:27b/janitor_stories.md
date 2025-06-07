@@ -1,0 +1,5 @@
+The fluorescent hum of the hallway lights vibrated through Elias Blackwood's teeth as he mopped the linoleum floor. It was past midnight, and the echoing silence of the university library felt heavy, pressing down on him like an unseen weight. Outside, a late autumn wind rattled the windows, sending shivers up his spine despite the stifling heat radiating from the ancient radiators lining the walls. Elias sighed, the sound swallowed by the cavernous space.
+
+He loved working in the library after hours. The students were gone, their boisterous laughter and frantic last-minute cramming replaced by a stillness that allowed him to think, to daydream amongst the towering shelves crammed with forgotten knowledge. Tonight, however, his usual peace was disturbed by a gnawing unease. A faint scratching sound seemed to emanate from somewhere deep within the labyrinthine stacks, a rhythmic rasp against paper and wood. Elias paused, mop handle poised mid-air, listening intently. The sound ceased. He shook his head, attributing it to overactive imagination or perhaps a rogue mouse. Still, he couldn't shake the feeling that something was amiss.
+
+

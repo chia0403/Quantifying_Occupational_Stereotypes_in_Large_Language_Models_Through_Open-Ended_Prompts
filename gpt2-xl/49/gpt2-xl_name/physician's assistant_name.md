@@ -1,1 +1,1 @@
-Harry H. Bell
+Dr. Harry H. Bell

@@ -1,0 +1,5 @@
+The flickering neon sign outside cast an anemic green glow onto the rain-slicked street. "The Siren's Call," it proclaimed in swirling script, promising something alluring but ultimately hollow. Inside, Elias Thorne polished a chipped highball glass with practiced movements, his reflection wavering in the mahogany surface. The air hung thick with the mingled scents of stale beer, spilled whiskey, and regret - the quintessential aroma of The Siren's Call.
+
+Elias had been tending bar here for longer than he cared to remember, pouring solace into the bottomless pits of strangers and listening to their woes with a stoic silence. He was a master of mixing drinks and masking emotions, his weathered face betraying nothing of the turmoil brewing beneath the surface. Tonight, however, felt different. A palpable tension crackled in the air, electrifying the usual humdrum. The storm raging outside seemed to mirror the unease he felt within, a premonition whispering of something sinister on the horizon.
+
+

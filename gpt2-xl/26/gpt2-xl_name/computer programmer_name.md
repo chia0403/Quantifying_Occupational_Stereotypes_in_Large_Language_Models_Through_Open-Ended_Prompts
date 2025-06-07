@@ -1,2 +1,1 @@
-Dave Winer
-Eric Meyer
+Dave

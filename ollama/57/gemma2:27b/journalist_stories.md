@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of the ramshackle hut, each drop exploding in a miniature burst of spray. The air hung thick with humidity, the scent of damp earth and woodsmoke mingling unpleasantly. Elara Vance, her notebook clutched tightly in her hand, sat perched on a rickety wooden stool, its legs groaning ominously beneath her weight. She was surrounded by flickering candlelight, the flames casting dancing shadows on the mud-brick walls adorned with faded photographs of long-forgotten ancestors. Outside, the wind howled like a banshee, whipping the palm trees into a frenzy and sending sheets of rain cascading down the dirt road leading to the village.
+
+Elara had come to this remote corner of the Amazon rainforest seeking a story. A story whispered in hushed tones by locals – tales of a mythical creature said to inhabit the depths of the jungle, a protector spirit with eyes like glowing embers and fur the colour of midnight. Most dismissed it as folklore, but Elara, ever the skeptic, sensed something more. 
+
+

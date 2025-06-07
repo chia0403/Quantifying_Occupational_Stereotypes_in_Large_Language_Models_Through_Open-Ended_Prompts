@@ -1,2 +1,1 @@
 Digger
-Dick Tracy

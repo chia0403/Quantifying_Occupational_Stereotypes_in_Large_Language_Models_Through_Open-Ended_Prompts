@@ -1,0 +1,4 @@
+The midday sun beat down on Elias "Eli" Santiago's neck as he carefully maneuvered a slate tile into place, humming along to the faint rhythm of the construction site radio crackling somewhere below. Eli was perched precariously atop a Victorian mansion in San Francisco's Nob Hill neighborhood, the city sprawled out before him like a crumpled silk tapestry. Fog snaked its way through the Golden Gate Bridge, momentarily obscuring Alcatraz, and the scent of eucalyptus hung heavy in the air. This wasn't Eli's first rodeo; he'd been scaling rooftops since he was old enough to climb a ladder, following in the footsteps of his grandfather who had taught him the ancient art of coaxing beauty from stone and tar.  Today, however, something felt different. A prickle of unease danced along his spine, as if the wind itself carried a hidden message. 
+
+
+Let me know if you'd like to continue the story! 😊

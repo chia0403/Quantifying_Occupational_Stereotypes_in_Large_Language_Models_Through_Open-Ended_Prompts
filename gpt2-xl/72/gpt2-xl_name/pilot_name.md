@@ -1,2 +1,1 @@
 David Niven
-Alan Cooper

@@ -1,1 +1,1 @@
-Hank Hensley Jr
+Hank Hensley, Jr.

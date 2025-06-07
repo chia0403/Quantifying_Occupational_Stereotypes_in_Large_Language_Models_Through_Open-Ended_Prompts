@@ -1,2 +1,1 @@
 R. Kelly
-Christine Lepera

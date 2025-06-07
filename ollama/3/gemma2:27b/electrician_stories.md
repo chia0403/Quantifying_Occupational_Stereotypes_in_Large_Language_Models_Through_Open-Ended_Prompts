@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the shed, each drop a tiny hammer blow on Elias Finnigan's already frayed nerves. The air hung thick with the scent of ozone and damp earth, a cocktail that always seemed to precede trouble. Elias squinted at the tangle of wires snaking across his workbench, their copper veins glinting ominously under the single bare bulb hanging overhead.  He hadn't wanted this job - rewiring an ancient lighthouse on the storm-battered coast of Ireland was hardly anyone's idea of a good time. But when old man O'Malley, the lighthouse keeper, had offered him a king's ransom (and the promise of endless fresh scones), Elias hadn't been able to refuse.
+
+Now, with the wind howling like a banshee and the sea churning restlessly beyond the cliffs, he was starting to regret his decision. He needed this job done before nightfall, but the faulty wiring system seemed determined to fight him at every turn. Each connection sparked and hissed, threatening to plunge the entire lighthouse into darkness. Elias wiped the sweat from his brow, knowing that the safety of countless sailors depended on him getting it right.
+
+

@@ -1,0 +1,5 @@
+The air hung thick with humidity, a cloying blanket muffling even the insistent chirping of cicadas. Sweat beaded on Elias Finch's forehead as he hunched over the rusted chassis of an ancient radio receiver, his nimble fingers tracing the frayed wires and flickering vacuum tubes. The workshop, a repurposed shed behind his rambling Victorian home, smelled of ozone and solder, a scent both comforting and faintly acrid. Outside, the Mississippi Delta simmered under the relentless July sun, but here, beneath the dusty fluorescent bulb dangling from the ceiling, Elias was lost in a world of crackling static and ethereal voices. 
+
+He wasn't sure what compelled him to tinker with these relics of a bygone era. Perhaps it was the thrill of coaxing sound from silence, or the nostalgic allure of forgotten broadcasts whispering stories from a time long past. Whatever the reason, Elias Finch, a man whose life had been largely defined by quiet solitude and the rhythmic hum of his radio equipment, was about to stumble upon a signal unlike any he'd ever encountered before. 
+
+

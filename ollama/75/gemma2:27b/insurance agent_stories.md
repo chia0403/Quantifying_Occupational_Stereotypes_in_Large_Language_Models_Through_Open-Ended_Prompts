@@ -1,0 +1,5 @@
+The relentless Arizona sun beat down on Elias Thorne's thinning hair as he trudged across the cracked asphalt parking lot. His starched white shirt already clung to him with sweat, despite it being barely past nine in the morning. He squinted at the peeling paint of "Desert Dreams Mobile Home Park" above the rusted gates. Another day, another claim. Elias wasn't exactly thrilled about investigating a potential water damage case on a Tuesday, but the promise of a bonus for closing the file quickly kept him going. 
+
+He adjusted his wire-rimmed glasses and pushed through the creaking gate, the scent of dust and overripe citrus assaulting his nostrils. He scanned the rows of faded mobile homes, each one looking like it had seen better days – much like himself. Elias hadn't exactly envisioned this for his life at forty-five. But after a series of unfortunate events – a failed business venture, a divorce that left him bankrupt – insurance seemed like the only steady option left. Still, he clung to a sliver of hope that someday, somehow, he would find something more fulfilling, something that wouldn't leave him feeling perpetually drained. 
+
+

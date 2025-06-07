@@ -1,0 +1,4 @@
+The scent of bay rum and talcum powder hung heavy in the air, a familiar comfort to Bartholomew "Bart" Augustine as he swept stray hairs from the worn linoleum floor. Outside, the midday sun beat down on Harmony Street, turning the asphalt into shimmering waves of heat. Bart's barbershop, nestled between a dusty antique store and a bustling bakery, was a haven from the summer scorch. The whirring of his ancient ceiling fan battled valiantly against the stifling air, but it couldn't quite penetrate the thick humidity that clung to everything like a damp shroud. 
+
+
+Bart glanced at the clock – 1:15 pm. He hadn’t had a single customer all morning. Usually, Harmony Street buzzed with life on Saturdays, filled with farmers returning from market and families out for errands. Today, however, an unsettling stillness hung over the town. Even the birds seemed to have gone quiet.  

@@ -1,2 +1,1 @@
 Larry Tatum
-John Thompson

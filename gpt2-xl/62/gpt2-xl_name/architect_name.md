@@ -1,2 +1,1 @@
 J. E. P. Taylor
-JOSEPH KIELBROTTER

@@ -1,0 +1,7 @@
+The Nevada sun beat down on Elijah "Eli" Blackwood's neck as he wrestled a dented orange cone back into its rightful place along the shoulder of Highway 93. Dust devils danced in the distance, kicking up red dirt and mocking Eli's futile attempts to keep his sweat-stained shirt clean. The endless desert landscape stretched before him, an undulating tapestry of browns and yellows broken only by the occasional scrubby sagebrush or Joshua tree, their twisted limbs reaching towards the unforgiving sky.
+
+Eli squinted at the horizon, where the shimmering heat haze blurred the line between earth and sky. He'd been working this stretch of highway for three years now, patching potholes, replacing guardrails, and enduring the scorching summer sun that seemed determined to melt him into the asphalt. It wasn't glamorous work, but it paid the bills, kept a roof over his head in the nearby dusty town of Rhyolite, and allowed Eli to pursue his passion – writing.
+
+Every night, after a long day battling the elements and the monotony of roadwork, Eli would retreat to his cramped apartment and pour his heart into his stories. He dreamed of escaping the dust and drudgery of Highway 93, of seeing his words in print, of leaving behind a legacy beyond cracked pavement and faded lane markings. But for now, he was just Eli Blackwood, highway worker, lost amidst the endless expanse of the Nevada desert.  
+
+

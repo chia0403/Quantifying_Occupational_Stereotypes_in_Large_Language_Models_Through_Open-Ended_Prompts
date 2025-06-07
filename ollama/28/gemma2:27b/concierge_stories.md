@@ -1,0 +1,5 @@
+The incessant clatter of the espresso machine was Beatrice Ophelia Blackwood's morning symphony. It vibrated through the polished marble floor of the Grand Astoria lobby, up her ankles and into her bones. She leaned against the antique mahogany desk, its surface gleaming under the opulent chandelier dripping with crystal prisms. Outside, the Parisian dawn painted the sky in delicate hues of rose and apricot, but Beatrice was anchored to the heart of the hotel, a whirlwind of requests and demands swirling around her.
+
+Today was shaping up to be no different. A harried businessman needed his Mont Blanc pen refilled, a Japanese socialite desired roses "the colour of a blushing geisha," and Mrs. Vandergelt from suite 302 swore she'd seen a mouse scampering down the hallway (a claim Beatrice vehemently dismissed). As the Grand Astoria's chief concierge for over fifteen years, she knew every nook and cranny of this gilded cage, and navigated its demands with the grace and precision of a seasoned conductor leading a complex orchestra. 
+
+

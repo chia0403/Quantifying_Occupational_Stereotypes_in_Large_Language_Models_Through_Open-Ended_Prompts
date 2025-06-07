@@ -1,0 +1,6 @@
+The wind whipped across the dusty plains, carrying with it the scent of sagebrush and distant rain.  Above, a hawk circled lazily, its keen eyes scanning the scrubland for unsuspecting prey. Beneath it, Elias Callahan, his face weathered and etched by years spent under the unforgiving sun, surveyed his domain. 
+
+Callahan Ranch sprawled before him, a patchwork quilt of brown earth and emerald green pastureland dotted with sturdy oak trees.  Cows lowed in the distance, their bells clanging rhythmically as they grazed. Elias squinted, his gaze lingering on a dark cloud gathering on the horizon. He knew that promised rain – precious, life-giving rain – but he also knew storms could be fickle beasts in these parts, capable of delivering fury as easily as solace. 
+
+
+He adjusted the brim of his worn Stetson and tightened his grip on the reins of his trusty mare, Belle.  Today was branding day, a crucial event for any rancher. But with the storm brewing, Elias felt a knot of anxiety twist in his gut. He had to get the calves branded before the rain hit, or risk losing precious livestock to illness.  He urged Belle forward, her hooves kicking up dust as they made their way towards the corral, where the day's work awaited. 

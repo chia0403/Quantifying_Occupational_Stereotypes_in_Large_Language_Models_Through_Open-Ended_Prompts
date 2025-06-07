@@ -1,0 +1,5 @@
+The humid New Orleans air hung thick with the scent of jasmine and chicory coffee as Esmeralda "Esme" Dubois adjusted the microphone stand.  Her reflection in the dusty windowpane showed a tangle of dark curls escaping from her braid, framing eyes that shimmered like molten gold. The dimly lit stage of The Blue Moon Tavern was familiar territory – worn wooden floorboards, chipped paint revealing layers of faded blues and greens, and the lingering ghosts of countless melodies played by musicians who came before her.  Tonight, though, Esme felt a tremor of nerves she hadn't experienced in years. It wasn't just the usual pre-performance jitters; this gig was different. A scout from a major record label was rumored to be in the crowd. This could be her chance, her ticket out of the smoky bars and endless nights chasing gigs. But success felt like a distant star tonight, obscured by a heavy cloud of self-doubt.
+
+Would she be able to capture the raw emotion that poured from her soul when she sang? Or would the weight of expectation crush her voice before it even had a chance to soar? 
+
+

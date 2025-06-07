@@ -1,0 +1,5 @@
+The late afternoon sun cast long shadows across the ochre sandstone cliffs, making the ancient city of Petra shimmer like a mirage. Amara bint Khalil adjusted her keffiyeh, the traditional headscarf offering a welcome shield against the desert heat.  She surveyed the group gathering before her – a motley crew of wide-eyed tourists clutching cameras and guidebooks. A nervous thrill tingled in her stomach. Leading tours through Petra wasn't just a job; it was sharing a piece of her soul, a testament to the enduring legacy etched into these majestic rocks.
+
+Today's group was diverse: a young couple honeymooning from Japan, giggling nervously behind their selfie stick; a boisterous family from Texas decked out in matching "Petra Adventurers" T-shirts; and a solitary, bespectacled historian scribbling notes in a worn leather journal.  Amara smiled, her brown eyes twinkling with anticipation. She knew each visitor carried their own reasons for being here, their own yearning to touch history. And she was about to weave those threads into an unforgettable tapestry of adventure and wonder.
+
+

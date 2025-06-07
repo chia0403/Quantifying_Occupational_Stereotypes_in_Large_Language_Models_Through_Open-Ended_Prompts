@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the workshop, each drop a hammer blow echoing through the cavernous space. The air hung thick with the scent of ozone and hot copper, a familiar perfume to Elias "Eli" Finch, a man whose veins seemed to thrum with the same current that powered his world. Eli hunched over a tangle of wires, his calloused fingers deftly stripping insulation and twisting strands together. 
+
+The workshop, nestled in the shadow of a rusting grain silo on the outskirts of Dustbowl Creek, was Eli's sanctuary. It was a chaotic jumble of tools, spare parts, and half-finished projects, each one whispering tales of ingenuity and resilience. Outside, the wind howled like a tormented beast, but inside, Eli found solace in the methodical rhythm of his work. Tonight, however, a sense of unease tugged at him, an itch he couldn't scratch. The phone had been silent all day, an anomaly in Dustbowl Creek where every flickering light and sputtering appliance seemed to require Eli's attention. 
+
+

@@ -1,0 +1,7 @@
+Rain lashed against the frosted glass windows of "Serenity Now," the rhythmic drumming a counterpoint to the soft, ethereal music playing inside. Eloise Beaumont, her auburn braid escaping its confines and falling down her back like a fiery waterfall, paused mid-stroke on Mrs. Henderson's knotted shoulder. The aroma of lavender oil mingled with the faint scent of rain and damp earth, creating an atmosphere of tranquil serenity. Eloise inhaled deeply, letting the calm wash over her before resuming her work, her hands kneading away the tension that had settled into the older woman's muscles like a stubborn guest refusing to leave.
+
+Eloise wasn't just good at massage; she was gifted. Her touch seemed to possess an uncanny ability to find and soothe not only physical pain but also the deeper aches of the soul. She'd inherited this gift from her grandmother, Nana Rose, a woman who swore by the healing power of herbs and whispered stories of ancient traditions passed down through generations.  
+
+But today, even Eloise felt a knot of unease tightening in her own chest. A letter had arrived that morning, stark white against the worn wood of her desk - an invitation to attend a family gathering in the remote Scottish Highlands, a place shrouded in mystery and whispers of a forgotten past.  Eloise wasn't sure she was ready to face those shadows, but something – perhaps Nana Rose's spirit whispering on the wind – urged her forward. 
+
+

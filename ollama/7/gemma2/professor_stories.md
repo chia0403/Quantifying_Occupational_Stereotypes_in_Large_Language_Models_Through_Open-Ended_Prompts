@@ -1,0 +1,5 @@
+The scent of old paper and pipe tobacco hung heavy in the air, clinging to Professor Alistair Finchwick's tweed jacket like a phantom memory. His office, tucked away on the top floor of Blackwood University's ancient English literature building, was a sanctuary of chaos: stacks of dog-eared books teetered precariously on every surface, maps and timelines crisscrossed the walls, and yellowed notes spilled from overflowing inkwells. Sunlight slanted through the dusty windowpanes, illuminating motes of dust dancing in the air like miniature galaxies. 
+
+Alistair himself was a study in contradictions: his wild mane of silver hair belied the sharp intelligence in his blue eyes, and his habitually rumpled appearance hid a meticulous mind that dissected language with surgical precision. He sat hunched over his desk, a magnifying glass poised above a brittle parchment, its faded ink hinting at secrets centuries old. A low groan escaped him as he traced the inscription with a trembling finger, "This is it," he murmured, his voice gravelly from years of chain-smoking and late nights spent deciphering forgotten texts, "this is where everything begins." 
+
+

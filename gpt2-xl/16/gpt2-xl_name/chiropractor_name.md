@@ -1,1 +1,1 @@
-DC Wilson
+D.C. Wilson

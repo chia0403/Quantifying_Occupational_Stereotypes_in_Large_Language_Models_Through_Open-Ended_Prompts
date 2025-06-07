@@ -1,0 +1,5 @@
+The air hung thick with the scent of iron and rosemary, a familiar symphony to Thaddeus Bartholomew Bleeker, proprietor of Bleeker's Best Cuts. Dawn had barely cracked the horizon, painting the cobblestone streets outside his shop in hues of bruised purple and dusty rose, but Thaddeus was already elbow-deep in the day’s work. His massive hands, scarred from years of wielding cleavers and bone saws, expertly separated a prime rib roast into perfect medallions.
+
+Bleeker's Best Cuts wasn’t just any butcher shop; it was a haven for carnivores in the quaint, fog-wreathed town of Oakhaven. Nestled between a crumbling bookstore and a bustling apothecary, its window display boasted glistening cuts of beef, pork, and lamb, each meticulously arranged like works of art. The faint clink of cleavers against bone echoed through the narrow street, a comforting rhythm that had lulled generations of Oakhaven residents into a sense of culinary security. But today, something felt different. A prickle of unease ran down Thaddeus' spine as he sliced through the last piece of meat. 
+
+

@@ -1,0 +1,5 @@
+The rhythmic clang of chisel against granite echoed through the cavernous workshop, a steady counterpoint to the roar of the nearby river.  Sunlight streamed through the grimy skylights, illuminating swirls of dust motes dancing in the air and bathing Elias Thorne in a golden glow. Elias, his face creased with concentration and dusted with stone grit, paused for a moment, tilting his head to assess the angle he’d just carved. The granite block before him, once a rough lump, was slowly transforming into the graceful curves of a cherub's wing. 
+
+Elias lived in the shadow of Mount Cinderhorn, where ancient volcanic rock yielded some of the finest carving stone in the land. His workshop, nestled in the heart of the mountain village of Stonehaven, was a testament to generations of skilled stonemasons. Every inch held the ghosts of his ancestors – tools meticulously sharpened and oiled, sketches pinned to rough-hewn boards, and shelves stacked with finished pieces: intricately carved gargoyles, delicate rose windows, and monumental statues that spoke of forgotten legends. 
+
+

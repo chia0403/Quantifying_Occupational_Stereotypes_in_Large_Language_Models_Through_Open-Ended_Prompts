@@ -1,0 +1,5 @@
+The stench of brine and rotting seaweed hung heavy in the air, clinging to Bartholomew "Bart" Grimshaw's wool cloak like a second skin.  He stood perched on the weather-beaten parapet of Greywatch Tower, the ceaseless crash of waves against the craggy cliffs below providing a steady, unnerving rhythm. Dawn was breaking over the Serpent's Spine, casting long shadows across the churning grey waters of the Abyssal Sea. Bart squinted into the distance, his gaze sweeping across the desolate landscape. Jagged peaks rose from the sea like the teeth of some monstrous beast, their summits perpetually shrouded in mist. 
+
+Greywatch, a solitary bastion built on the edge of a sheer cliff face, was the last line of defense against whatever lurked in the Abyssal Depths. For centuries, it had stood sentinel against monstrous leviathans and kraken, protecting the mainland from the horrors that dwelled beneath the waves. Bart knew his duty well: to remain vigilant, ever watchful for any sign of disturbance in the churning waters below.  
+
+

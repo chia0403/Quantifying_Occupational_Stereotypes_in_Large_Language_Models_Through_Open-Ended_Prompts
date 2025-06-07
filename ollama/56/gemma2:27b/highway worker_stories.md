@@ -1,0 +1,7 @@
+The sun beat down on Elijah "Eli" Booker's shoulders, turning his neon orange vest into a personal sauna. He squinted against the glare reflecting off the freshly-laid asphalt, sweat stinging his eyes. The air hung heavy with the scent of tar and exhaust fumes, punctuated by the insistent blare of car horns. Eli was perched precariously on the edge of a deep ditch, using a shovel to direct a stream of gravel into a newly formed culvert. He grimaced as a semi-truck thundered past, its wind buffetting him like a sail in a hurricane.
+
+This stretch of Highway 63 outside of Dusty Creek, Arizona was notorious for flash floods. The recent monsoon season had ripped through the desert with a vengeance, carving out gullies and washing away sections of the road. Eli's crew had been working tirelessly to repair the damage, battling against the relentless heat and the occasional rattlesnake sunning itself on the roadside. He longed for the day he could trade in his shovel for a fishing rod and head to the cool shade of the nearby San Pedro River. But for now, he was stuck here, wrestling with gravel and dreaming of trout.
+
+Eli wasn't sure what it was about this particular stretch of highway that felt different. There was an unsettling stillness beneath the constant roar of traffic, a sense of anticipation hanging in the air like dust motes dancing in the sunbeams. It pricked at his intuition, whispering warnings he couldn't quite decipher. 
+
+

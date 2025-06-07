@@ -1,0 +1,5 @@
+The late afternoon sun bled through the stained-glass window above Judge Amelia Hawthorne's bench, casting fractured rainbows across her mahogany desk. Dust motes danced in the shafts of light, mirroring the nervous flutter in Amelia's stomach. For twenty years, she had presided over this courtroom, dispensing justice with a steady hand and an unwavering gaze. Today, however, felt different. The case before her was unlike any she had encountered – a chilling tale of ambition, betrayal, and a missing artifact rumored to possess untold power.  
+
+The air in the courtroom hung heavy with anticipation. Amelia adjusted her spectacles, their silver frames catching the light, and glanced at the faces assembled before her: the anxious defendant, a renowned archaeologist accused of theft; the stern prosecutor, his eyes burning with righteous indignation; and the gallery filled with spectators, murmuring amongst themselves. This wasn't just about stolen goods; it was about unraveling a mystery that stretched back centuries, threatening to unleash forces beyond comprehension. 
+
+

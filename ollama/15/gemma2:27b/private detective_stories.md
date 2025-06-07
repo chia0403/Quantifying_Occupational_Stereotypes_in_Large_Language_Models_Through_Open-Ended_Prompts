@@ -1,0 +1,6 @@
+Rain lashed against the grimy windows of Silas Blackwood's office, each drop exploding in a miniature firework display on the cracked glass. The air inside was thick with the smell of stale coffee and desperation, a scent Silas had come to associate with his line of work. He sat hunched over his desk, the dim glow of a single lamp illuminating the worn surface cluttered with case files, half-empty whiskey bottles, and crumpled cigarette packs.  His face, etched with years of hard living and countless unsolved mysteries, was shrouded in shadow. A knock on the door startled him, breaking the monotonous rhythm of the rain. He grunted, "Come in," his voice gravelly from too much cheap whiskey and not enough sleep. The door creaked open, revealing a woman draped in a scarlet coat, her face obscured by the shadows cast by a wide-brimmed hat.
+
+"Mr. Blackwood?" she asked, her voice a silken whisper that cut through the gloom of the office like a shard of ice. "I believe you're the man I need."
+
+
+Silas, his curiosity piqued despite himself, leaned back in his chair and gestured for her to enter.  He couldn't shake the feeling that this woman, with her air of mystery and her piercing gaze, was about to plunge him into a case unlike any he had ever encountered before.

@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Alistair Finch's office, mimicking the rhythmic drumming in his skull. The flickering neon sign outside cast an unsettling green glow across the cluttered desk, illuminating stacks of dusty case files and half-empty coffee mugs.  Alistair, a man whose face seemed perpetually etched with the weariness of countless late nights and broken promises, rubbed his bloodshot eyes. He was knee-deep in the tangled web of a missing persons case - a young woman who'd vanished without a trace three weeks prior, leaving behind only a cryptic note and a trail of unanswered questions. 
+
+The phone on his desk jangled, startling him from his reverie. It was Mrs. Hathaway, her voice quivering with anxiety. "Mr. Finch," she pleaded, "have you found anything? My daughter...she wouldn't just disappear." Alistair sighed, the weight of responsibility settling heavily on his shoulders. He hadn't promised answers, only that he'd do his best to find the truth, a truth that seemed increasingly elusive with each passing day.
+
+

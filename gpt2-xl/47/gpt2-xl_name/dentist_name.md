@@ -1,1 +1,1 @@
-Jack R. Clark
+Dr. Jack R. Clark

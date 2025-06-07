@@ -1,1 +1,1 @@
-Jerry Kornbluth
+Jerry

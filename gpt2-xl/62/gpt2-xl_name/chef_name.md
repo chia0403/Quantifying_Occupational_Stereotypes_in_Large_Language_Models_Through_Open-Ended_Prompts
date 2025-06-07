@@ -1,2 +1,1 @@
 David Chang
-Eric Ripert

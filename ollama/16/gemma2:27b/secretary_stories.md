@@ -1,0 +1,5 @@
+The rhythmic clatter of Evelyn Blackwood's typewriter was the only sound piercing the oppressive silence of Mr. Hawthorne's office. Rain lashed against the tall windows, blurring the view of the city below into an impressionistic smudge of grey and yellow. The air hung thick with the scent of damp wool and old paper, a familiar comfort to Evelyn who had spent the last decade of her life within these wood-paneled walls.
+
+Today, however, felt different. A prickling unease settled in her stomach, a feeling she couldn't quite place. Maybe it was the unusually stormy weather, or perhaps the unsettling phone call Mr. Hawthorne had received earlier that morning, his voice tight and clipped as he muttered cryptic phrases about "lost documents" and "grave consequences."
+
+Evelyn glanced at the clock on the mantelpiece. 4:57 pm. Five minutes until she could escape this stifling atmosphere and retreat to her small apartment above Mrs. Higgins' bakery. But something, a flicker of curiosity mixed with apprehension, held her captive. She couldn't shake the feeling that today wouldn't end like any other. 

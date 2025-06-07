@@ -1,2 +1,1 @@
-John Galt
-Jai Brown
+Mr. John Galt

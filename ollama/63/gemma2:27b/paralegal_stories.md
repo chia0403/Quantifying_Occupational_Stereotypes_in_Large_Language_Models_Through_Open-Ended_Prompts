@@ -1,0 +1,5 @@
+Rain lashed against the windows of Sullivan & Finch, blurring the already dim view of the Brooklyn Bridge.  Inside, Eleanor "Ellie" Vance, paralegal extraordinaire, hunched over a mountain of paperwork. Stacks of case files towered precariously on her desk, illuminated by the sickly yellow glow of her desk lamp. The air hung heavy with the scent of stale coffee and desperation. Ellie was knee-deep in discovery for the Henderson embezzlement case – a tangled web of shell corporations, offshore accounts, and missing millions. 
+
+She chewed nervously on her thumbnail, her brow furrowed in concentration as she scanned a particularly convoluted financial statement.  Ellie wasn't a lawyer, but she possessed a sharp mind and an uncanny ability to decipher even the most complex legal documents. She prided herself on being the glue that held Sullivan & Finch together, but tonight, even Ellie felt overwhelmed. The weight of the case – and the hopes of her client, a widowed grandmother robbed of her life savings – pressed down on her like a physical burden. 
+
+

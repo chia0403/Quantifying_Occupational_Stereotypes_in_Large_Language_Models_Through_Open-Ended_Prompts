@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Dr. Eleanor Vance's office, blurring the already fading cityscape beyond. The insistent drumming echoed the turmoil in her own mind. A manila folder lay open on her desk, its contents spilling out like a fresh wound: photographs of a crime scene – blood spatter, overturned furniture, a haunting stillness that screamed of violence. This wasn't just another case; this was personal. The victim, Amelia Hayes, had been Eleanor's childhood friend, a bond forged in the crucible of shared secrets and whispered dreams.
+
+Eleanor traced the outline of Amelia’s face in one of the photographs, her fingertip lingering on the curve of a familiar smile now forever frozen. A chill snaked its way up her spine. The police suspected a robbery gone wrong, but Eleanor knew Amelia – she wouldn't have gone down without a fight. There was something more here, something sinister lurking beneath the surface. She owed it to Amelia, to their shared past, to unravel the truth, no matter how dark it might be.
+
+

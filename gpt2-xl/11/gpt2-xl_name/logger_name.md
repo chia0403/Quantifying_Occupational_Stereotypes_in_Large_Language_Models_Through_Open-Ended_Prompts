@@ -1,3 +1,1 @@
 Jimmy
-Lottie
-Pete

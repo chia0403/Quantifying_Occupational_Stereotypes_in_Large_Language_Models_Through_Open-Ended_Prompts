@@ -1,0 +1,5 @@
+The stale air conditioning hummed above Esmeralda "Esme" Diaz's head as she expertly navigated the cramped galley of Flight 472.  Her smile, practiced and bright, never wavered even as she dodged a rogue trolley laden with miniature bottles of vodka and lukewarm pretzels. Outside, somewhere over the vast expanse of the Atlantic Ocean, dawn was breaking in hues of bruised orange and violet. Esme hadn't seen it, though. Her world was confined to this narrow metal tube hurtling through the sky, its fluorescent lights casting a perpetual twilight.
+
+This wasn't the glamorous life she'd envisioned when she'd signed up for flight attendant training, but there was a certain rhythm to it, a comforting predictability amidst the chaos.  She knew every squeak of the cabin door, every creak of the overhead bins, and could anticipate passenger needs before they even voiced them. Today, however, felt different. A prickling unease settled in her stomach, a feeling that this routine flight wouldn't end as planned. 
+
+

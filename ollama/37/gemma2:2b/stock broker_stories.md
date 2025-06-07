@@ -1,0 +1,5 @@
+Rain lashed against the floor-to-ceiling windows of his penthouse office, mirroring the storm brewing in Alistair Finch's heart.  The flickering neon lights of the trading floor below cast an erratic glow onto the ornate mahogany desk where he sat, meticulously tracing lines in his ledger with a long-suffering sigh. 
+
+Alistair Finch wasn't known for his sunny disposition; his icy gaze and razor-sharp intellect were trademarks of his profession. He was one of Wall Street’s most feared commodities traders, navigating the treacherous waters of global markets with an almost preternatural calm and ruthless precision. But this evening, even the unyielding steel of his psyche seemed to falter under the weight of a monumental decision: a gamble that could turn him into a titan or leave him drowning in a sea of debt.  
+
+His eyes drifted towards the city skyline outside – the glittering cityscape, a constant reminder of the power and allure he wielded within its very fabric. But tonight, the once-familiar vista was shrouded in an oppressive gloom, mirroring his own internal storm. 

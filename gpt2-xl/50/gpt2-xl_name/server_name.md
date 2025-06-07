@@ -1,2 +1,1 @@
 Vega Squadron
-Zhang

@@ -1,0 +1,5 @@
+The pungent scent of ammonia and lavender hung heavy in the air of "Curl Up & Dye," a tiny salon tucked between a laundromat and a pawn shop on Bleecker Street.  Sunlight slanted through the dusty windowpane, illuminating swirls of multicolored hairspray and scattered magazines with titles like "Glamour" and "Hair Today, Gone Tomorrow." Behind the counter, Penelope June Blackwood adjusted her pink-rimmed spectacles and surveyed her domain with a critical eye.  The day was already half gone, and only Mrs. Goldstein's weekly perm stood between Penelope and a well-deserved glass of Pinot Grigio.
+
+Penelope wasn't your typical hairdresser. Sure, she could whip up a perfect French braid or transform frizzy chaos into sleek perfection, but her real talent lay in listening. People spilled their secrets to her like hot coffee down a freshly pressed blouse -  tales of love and loss, dreams and disappointments, all interwoven with the snip-snip-snip of scissors and the whirring of the hairdryer.
+
+

@@ -1,0 +1,5 @@
+The late afternoon sun, already slanting towards the west, cast long shadows across Beatrice "Bea" Blackwood's mahogany desk. Dust motes danced in the golden rays, illuminating the cluttered landscape of legal briefs, coffee-stained notes, and a half-eaten tuna sandwich. Bea, her auburn hair pulled back into a messy bun, tapped a manicured fingernail against a file labelled "The Hawthorne Estate." A sigh escaped her lips, mingling with the aroma of stale coffee and printer ink that permeated her cramped office overlooking a bustling Chicago street.
+
+Bea wasn't known for taking on pro bono cases, especially not ones involving convoluted family feuds and potentially cursed inheritances. But something about the pleading letter from Eleanor Hawthorne, a frail octogenarian claiming to be haunted by her deceased husband's ghost, had struck a chord. Maybe it was the loneliness evident in the shaky handwriting, or perhaps the allure of unraveling a mystery steeped in generations-old secrets. Whatever the reason, Bea found herself knee-deep in wills, property deeds, and whispered rumors about the Hawthorne family's dark past. 
+
+

@@ -1,0 +1,5 @@
+The desert wind howled like a banshee outside the cracked windowpane, whipping sand against the rusted chassis of Silas "Hawkeye" Hawthorne's 18-wheeler. The diner sign flickered erratically, casting sickly yellow shadows across the desolate landscape. Hawkeye sighed, wiping a bead of sweat from his brow and adjusting his trucker hat. He was miles from anywhere, somewhere in the endless expanse of Nevada, where the sun baked the earth into cracked oblivion and loneliness clung to you like dust.  His CB radio crackled with static, mocking his isolation. 
+
+He’d been hauling this load of melons for days, battling sandstorms and sleepless nights. His destination: a sleepy town nestled in the foothills of the Sierra Nevada mountains. A place called Harmony Creek. He wasn't sure why it was called that; harmony seemed as elusive out here as water in the desert.  But Hawkeye had a job to do. Melons weren't going to deliver themselves. And besides, he'd heard there was a good diner in Harmony Creek, one that served blueberry pie so good it would make you weep. That thought, and the promise of a decent cup of coffee, kept him going. 
+
+

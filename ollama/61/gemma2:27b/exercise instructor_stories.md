@@ -1,0 +1,6 @@
+The humid Florida air hung heavy, thick with the scent of salt and sunscreen. Palm trees swayed languidly in the breeze, casting dappled shadows on the pristine white sand of Clearwater Beach.  A cacophony of laughter and shrieks rose from the throngs of tourists splashing in the turquoise waves, a stark contrast to the rhythmic thudding emanating from the beachfront gazebo.
+
+There, bathed in the golden glow of the late afternoon sun, stood Evangeline "Evie" Thorne. Her sculpted physique, honed by years of dedication and discipline, moved with effortless grace as she led her Zumba class through a complex sequence of steps. Sweat beaded on her brow, glistening like diamonds against her tanned skin. Her infectious smile radiated enthusiasm, encouraging even the most hesitant participants to push themselves further. 
+
+
+As the music pulsed through the air, Evie felt a familiar thrill course through her veins. This was her element – inspiring others, pushing them beyond their perceived limits, and sharing her passion for movement.  But today, something felt different. A prickle of unease ran down her spine as she noticed a stranger watching from the edge of the crowd. His gaze lingered on her with unsettling intensity, sending shivers down her spine. 

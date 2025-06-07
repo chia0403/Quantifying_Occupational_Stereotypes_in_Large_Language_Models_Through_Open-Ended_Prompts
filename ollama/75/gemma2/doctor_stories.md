@@ -1,0 +1,6 @@
+The air in Mercy General's emergency room hung thick with the scent of antiseptic and simmering fear. It was always like this – a cacophony of beeping monitors, hushed whispers, and the occasional sharp cry that pierced the tense silence. Dr. Amelia Grace Hawthorne, her brow furrowed in concentration as she reviewed X-rays on a lightbox, barely registered the chaos around her. Her focus was laser-sharp on the fractured femur protruding through skin like a grotesque mockery of bone.
+
+Amelia was known for her steely resolve, the kind that emerged from years spent navigating the emotional minefield of trauma surgery. The ER wasn't just another workplace; it was her battleground, where she fought against pain and despair with scalpel and suture. Tonight, the battlefield was a bustling city street after a late-night storm, the injured brought in by ambulance like fallen soldiers – victims of twisted metal and shattered glass. Amelia braced herself for the night ahead, her heart already heavy with the weight of untold stories yet to be told. 
+
+
+The setting is the emergency room of Mercy General Hospital, a bustling city hospital known for its fast-paced environment and high volume of patients. It's late at night, after a storm, and the atmosphere is tense and filled with the smells of antiseptic and fear. 

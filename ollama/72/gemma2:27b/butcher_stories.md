@@ -1,0 +1,7 @@
+The air hung thick with the scent of iron and rosemary, a familiar perfume to Thaddeus "Tad" Montgomery, third-generation proprietor of Montgomery's Meats. Dawn was just cracking over the cobblestone streets of Oakhaven, painting the butcher shop windows in hues of pale apricot and rose gold. Tad, already clad in his bloodstained apron, hummed a tuneless ditty as he sharpened his cleaver, the rhythmic rasp echoing off the gleaming hooks that adorned the walls, each one holding a testament to yesterday's bounty – plump chickens, ruby-red slabs of beef, sausages fattened with herbs and spices.
+
+Oakhaven was a town steeped in tradition, its inhabitants fiercely loyal to their local businesses. Montgomery's Meats had been a fixture on Market Street for over a century, its reputation built on Tad's grandfather's unwavering dedication to quality and his own meticulous approach to butchery. Today, however, felt different. A tremor of unease vibrated through Tad as he glanced at the calendar hanging above the door: October 31st. All Hallows' Eve.
+
+Oakhaven wasn't known for its Halloween festivities. The town elders frowned upon anything remotely "unbecoming," and the younger generation, while secretly yearning for a bit of spooky fun, dared not disobey. But this year, something was amiss. A series of unsettling events had plagued Oakhaven in the weeks leading up to Halloween – livestock mysteriously vanishing from farms, strange howling echoing through the woods at night, and whispers circulating about shadowy figures lurking in the shadows.
+
+

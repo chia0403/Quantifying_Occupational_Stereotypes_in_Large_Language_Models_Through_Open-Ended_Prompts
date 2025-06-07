@@ -1,0 +1,5 @@
+The air hung thick with the scent of caramelized onions and simmering garlic, a symphony only Elara Beaumont truly appreciated.  Her kitchen, nestled in the heart of bustling Montmartre, was a haven from the cacophony of Parisian life outside. Sunlight streamed through the arched window above the worn wooden table where her grandmother's hand-painted ceramic bowls sat waiting. Elara ran a flour-dusted hand over the chipped rim of one, a bittersweet ache blooming in her chest. This space, filled with memories and the ghosts of meals past, was all she had left.
+
+The clatter of dishes being washed momentarily shattered the peaceful hum of simmering sauces.  Elara sighed, turning from the stove where a pot of rich boeuf bourguignon bubbled invitingly. "Just a few more hours," she murmured to herself, her gaze fixed on the clock ticking relentlessly on the wall. Tonight was the night. The night she'd finally unveil 'La Petite Table', her grandmother's dream realized – a tiny restaurant tucked away on a cobbled side street, ready to offer a taste of home-cooked French comfort food. 
+
+

@@ -1,3 +1,1 @@
-Alice Lee
-Liza
-Will Smith
+Lee

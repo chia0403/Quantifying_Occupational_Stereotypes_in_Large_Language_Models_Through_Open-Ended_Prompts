@@ -1,0 +1,4 @@
+The fluorescent lights hummed above Eloise Evangeline Dupree's head, casting a sickly yellow glow on her cluttered workstation. Stray hairs clung to the worn black vinyl of her chair like ghostly cobwebs, and the faint scent of bleach hung in the air, battling with the sweet, cloying aroma of her signature lavender shampoo. Outside the window, the Parisian sun struggled to penetrate the perpetual haze of smog that shrouded the city, casting a dull grey light on the bustling Rue de Rivoli. Eloise sighed, running a hand through her own unruly auburn curls, reflecting the chaotic energy of the salon around her. 
+
+
+Today was already shaping up to be another whirlwind of demanding clients, tangled hair, and impossible requests – the usual symphony of chaos that played out daily at "Chez Eloise," her tiny but stubbornly independent salon nestled in the heart of the Marais district.  

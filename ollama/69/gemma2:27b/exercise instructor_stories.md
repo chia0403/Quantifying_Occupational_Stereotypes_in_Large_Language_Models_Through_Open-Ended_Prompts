@@ -1,0 +1,4 @@
+The humid Miami air clung to Amelia "Amy" Castillo like a second skin as she bounced on the balls of her feet, surveying the sunrise yoga class gathering on South Beach. Palm trees swayed gently in the breeze, their fronds casting intricate shadows on the sand, and the turquoise waves crashed rhythmically against the shore, providing a soothing soundtrack. Amy adjusted the turquoise headband keeping her unruly curls at bay, took a deep breath, and smiled, ready to guide her students through a series of sun salutations. 
+
+
+The rhythmic rush of the ocean, the vibrant energy of the city awakening behind them – this was her happy place. For Amy, there was nothing more fulfilling than witnessing the transformation in her students as they found strength and balance on their mats. Today felt different though, a prickle of anticipation running down her spine. She couldn't shake the feeling that something extraordinary was about to unfold. 

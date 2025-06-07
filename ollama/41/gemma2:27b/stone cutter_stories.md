@@ -1,0 +1,7 @@
+The midday sun beat down on Elias Thorne's shoulders as he chipped away at the rough granite block. Dust rose in swirling clouds around him, coating his weathered face and grizzled beard. The clang of chisel against stone echoed through the small courtyard behind his workshop, a familiar symphony to Elias' ears. For forty years, he had been shaping stone into something beautiful, something lasting. Today's project: a fountain for the new town square, commissioned by a wealthy merchant with dreams as grand as the mountains that surrounded their valley town of Stonehaven. 
+
+Stonehaven was a place carved from the very earth Elias worked with. Houses clung to the hillside like lichen on a rock face, their stone walls testament to generations past who had also wrestled beauty from the unforgiving granite. The air itself hummed with the history of these mountains: whispers of miners lost in deep tunnels, legends of giants who sculpted the peaks with their bare hands, and the constant, comforting rhythm of the river that snaked its way through the valley floor.
+
+Elias paused, wiping the sweat from his brow and gazing up at the towering peaks that framed Stonehaven. Today, a thin veil of mist hung between them and the sun, giving the mountains an ethereal glow. A pang of nostalgia struck him. He was getting old, his bones creaking like the ancient bridge spanning the river. Perhaps it was time to pass on his knowledge, to find someone worthy of wielding his chisels and shaping Stonehaven's future.  
+
+

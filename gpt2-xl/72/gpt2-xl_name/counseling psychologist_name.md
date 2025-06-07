@@ -1,1 +1,1 @@
-Harry J. Heider
+Dr. Harry J. Heider

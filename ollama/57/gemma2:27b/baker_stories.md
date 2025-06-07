@@ -1,0 +1,5 @@
+The aroma of caramelized sugar hung thick in the air, a sweet siren song beckoning weary passersby into "Mademoiselle Elodie's Sweet Delights." Elodie Moreau, her flour-dusted apron as familiar as her own skin, hummed along to Edith Piaf crackling from an antique radio perched on a shelf. Outside, the cobblestone streets of Montmartre buzzed with activity: artists hawked their wares, tourists snapped photos of the Sacré-Cœur Basilica shimmering in the morning sun, and pigeons cooed for scraps. Inside Elodie's tiny bakery, however, the world narrowed to the rhythmic kneading of dough, the delicate piping of buttercream roses, and the comforting warmth of the ovens.
+
+But today, a disquieting note disrupted the symphony of Elodie's routine. A crumpled envelope lay on her counter, the address scrawled in unfamiliar handwriting. Curiosity warred with trepidation as she gingerly picked it up, the paper crackling like autumn leaves underfoot. The seal bore no emblem, only a single crimson wax rose.  Elodie's heart pounded against her ribs. This wasn't an ordinary delivery. 
+
+

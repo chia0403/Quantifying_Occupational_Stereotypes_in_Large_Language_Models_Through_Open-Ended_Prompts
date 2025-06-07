@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the clinic, each drop an insistent hammer blow echoing through the small space. The air hung thick with the smell of disinfectant and something else – a sharp metallic tang that Dr. Anika Sharma knew all too well: fear.  A young boy, no older than ten, lay on the makeshift cot, his face pale and drawn, sweat beading on his brow. His ragged breaths echoed Anika's own racing heartbeat as she knelt beside him, her stethoscope cold against his feverish skin. The clinic, barely more than a tin shack perched precariously on the edge of a sprawling slum in Mumbai, was her sanctuary, her battlefield.
+
+Tonight, the enemy was relentless: dengue fever, spreading like wildfire through the overcrowded streets. Anika's meagre supplies were dwindling, and the exhaustion gnawing at her bones threatened to cripple her resolve. But looking into the boy’s terrified eyes, she steeled herself. She wouldn't yield. Not tonight.  Not while there was still a breath left in his frail body. 
+
+

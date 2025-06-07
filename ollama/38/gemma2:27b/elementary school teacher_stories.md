@@ -1,0 +1,5 @@
+The late afternoon sun streamed through the dusty windows of Mrs. Eloise Carmichael's third-grade classroom, casting long shadows across the worn wooden desks. Outside, the familiar clamor of recess had faded into a hushed stillness as the children filed back in, their faces flushed and eager for story time. Eloise, with her cloud of silver curls escaping its bun and a perpetually worried crease between her eyebrows, surveyed her students with a fond but weary smile. She loved teaching, adored the spark of curiosity she saw in their eyes, but lately, something felt off. 
+
+The school year had begun like any other: filled with the promise of fresh starts and new adventures. Yet, an unsettling undercurrent flowed through the hallways, a sense of unease that whispered on the wind. It started subtly – strange occurrences during lunch breaks, whispers of children seeing things in the shadows, a sudden drop in attendance. Now, as she prepared to read aloud from their favorite book, Eloise couldn't shake the feeling that something was amiss, something far beyond spilled juice boxes and lost homework assignments. 
+
+

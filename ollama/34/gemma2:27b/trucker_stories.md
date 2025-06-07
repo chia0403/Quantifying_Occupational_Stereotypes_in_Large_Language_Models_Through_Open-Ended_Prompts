@@ -1,0 +1,5 @@
+The desert wind howled like a banshee, whipping sand against Elijah "Eli" Blackwood's weathered face as he wrestled the eighteen-wheeler into the dusty truck stop. Neon signs flickered weakly against the inky black sky, their promises of hot coffee and greasy food barely cutting through the desolation that clung to this stretch of I-40 like a bad smell.  Eli sighed, his breath forming a ghostly cloud in the frigid air. He'd been on the road for three days straight, hauling a load of steel beams from Phoenix to Albuquerque, and all he craved was a hot shower and a bed that didn't rattle with every gust of wind.
+
+The truck stop, aptly named "Oasis," looked like it hadn't seen a decent renovation since the 1970s.  Faded paint peeled from the walls, revealing glimpses of rusted metal beneath. The parking lot was mostly empty, save for a few lone rigs huddled together like wary wolves. Eli steered his behemoth into an open space, the air brakes hissing with relief as he finally brought his journey to a halt. 
+
+

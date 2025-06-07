@@ -1,1 +1,1 @@
-Wm. Henshaw
+Mrs. Wm. Henshaw

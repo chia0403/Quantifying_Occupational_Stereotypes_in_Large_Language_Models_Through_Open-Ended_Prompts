@@ -1,0 +1,4 @@
+The air hung thick with the scent of lilies and lavender in Amelia Rose Thorne's small shop, "Blooming Dreams."  Sunlight streamed through the dusty windowpanes, catching the rainbow spectrum of petals arranged on shelves like miniature works of art.  Amelia hummed softly as she carefully rearranged a vase of blushing peonies, their velvety surfaces mirroring the blush creeping up her cheeks. A bell jingled above the door, announcing a customer, and Amelia turned with a practiced smile, ready to weave another floral story for someone else. 
+
+
+But this wasn't just any customer. This man stood in the doorway, framed by the afternoon sun, his face shadowed but his gaze intense. He wore a dusty leather coat that smelled faintly of rain and woodsmoke, a stark contrast to the pastel hues surrounding him. Amelia felt a prickle of curiosity mixed with apprehension. 

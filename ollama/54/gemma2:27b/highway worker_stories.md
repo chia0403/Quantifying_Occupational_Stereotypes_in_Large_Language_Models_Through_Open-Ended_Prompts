@@ -1,0 +1,5 @@
+The relentless Nevada sun beat down on Jasper "Jazz" Malone's weathered neck as he surveyed the shimmering expanse of asphalt stretching before him. Dust devils danced in the distance, mocking his attempts to keep the worksite tidy. Jazz, with his calloused hands and perpetually grease-stained jeans, was a fixture on Highway 50, patching potholes and mending guardrails like a tireless guardian angel for weary travelers.
+
+Today, however, the air hummed with a different energy. A palpable tension crackled amidst the usual clang of tools and rumble of passing trucks. Rumors had been swirling through the roadside diner – whispers of something strange unearthed during a routine maintenance dig just down the road. Jazz, ever the pragmatist, dismissed them as overactive imaginations fueled by too much coffee and desert heat. Yet, as he glanced towards the cordoned-off area where a team of archaeologists now meticulously brushed away layers of earth, a prickle of curiosity ran down his spine.
+
+

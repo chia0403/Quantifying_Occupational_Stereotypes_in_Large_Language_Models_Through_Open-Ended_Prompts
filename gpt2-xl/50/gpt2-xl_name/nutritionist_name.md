@@ -1,2 +1,1 @@
-Weston Price
-David Freedman
+Dr. Weston Price

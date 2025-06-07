@@ -1,0 +1,5 @@
+The scent of lilies hung heavy in the air, mingling with the earthy musk of freshly dug soil. Sunlight streamed through the dusty glass panes of "Petal & Thorn," casting dancing rainbows across rows of vibrant blooms.  Elowen Briarwood, her fingers stained purple from handling irises, surveyed her floral kingdom with a sigh that spoke more of contentment than fatigue. Her shop wasn't just a place of business; it was an extension of herself, a sanctuary where wilting spirits could find solace in the enduring beauty of nature.
+
+The morning had started like any other -  the soft chirping of birds outside blending with the rhythmic whirring of the antique watering can. But today, a chill ran through Elowen's usually sunny disposition. A pale yellow envelope lay on her counter, sealed with an unfamiliar wax stamp depicting a single black rose.  It felt out of place amidst the vibrant chaos of her shop, a dark note in a symphony of color and fragrance. Curiosity battled apprehension as she picked up the letter, its weight surprisingly heavy for its size.  The address was handwritten in elegant script: "To the Gardener who understands the language of flowers." 
+
+

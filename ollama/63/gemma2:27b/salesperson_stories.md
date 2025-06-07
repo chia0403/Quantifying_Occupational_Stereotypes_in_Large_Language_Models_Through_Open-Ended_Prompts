@@ -1,0 +1,5 @@
+Rain lashed against the dusty windows of "The Rusty Wrench," the greasy spoon diner nestled on the outskirts of Calamity Gulch.  Inside, the air hung thick with the scent of frying onions and desperation. Esmeralda "Esme" Blackwood, a woman whose smile could charm the rust off an old shovel, sat perched on a stool at the counter, her emerald green eyes fixed on the steam rising from her lukewarm coffee. She'd been in Calamity Gulch for three days, peddling "Miracle Miracle Dust," a concoction promising to cure everything from athlete's foot to bad luck. So far, the only thing it had cured was Esme's appetite. 
+
+Calamity Gulch was a town clinging precariously to hope. Its gold rush glory days were long gone, replaced by boarded-up storefronts and a palpable air of resignation.  Esme needed a sale, any sale, to make enough to cover her travel expenses and keep the roof over her own head. But the locals seemed immune to her charms, their faces etched with skepticism and weary indifference.
+
+

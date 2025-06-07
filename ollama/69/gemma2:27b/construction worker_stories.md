@@ -1,0 +1,5 @@
+The sun beat down on Silas Blackwood's neck like a blacksmith's hammer, turning his already ruddy skin the color of overripe brick. Dust devils danced across the parched earth of the Nevada desert, swirling up red grit that stung his eyes and scratched at his throat. He wiped a calloused hand across his brow, leaving a smear of sweat and grime. The skeletal frame of the new casino rose before him, a monument to ambition and greed in this desolate landscape.
+
+Silas wasn't one for dreaming big. He was content with honest work, with the satisfying clink of hammer on steel, the hum of machinery, the camaraderie of fellow laborers. But there was something unsettling about this project. A hushed unease permeated the site, a feeling that lingered in the air like the scent of ozone before a storm. Whispers of strange occurrences, unexplained accidents, and ghostly apparitions traveled through the ranks, dismissed by most as desert folklore. Yet Silas couldn't shake the feeling that something was amiss. Something ancient and hungry lurked beneath the sunbaked earth, waiting to be awakened. 
+
+

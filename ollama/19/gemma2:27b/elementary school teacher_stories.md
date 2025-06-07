@@ -1,0 +1,5 @@
+The pungent scent of dry-erase marker and lukewarm coffee hung thick in the air of Mrs. Eloise Cartwright's third-grade classroom. Outside, the October wind rattled the windows, sending shivers down her spine despite the warmth radiating from the ancient radiator. 
+
+Sunlight, filtered through a thin veil of clouds, illuminated dust motes dancing in the air above rows of brightly colored desks, each adorned with lopsided paper pumpkins and crayon drawings of grinning witches. Eloise surveyed the scene, her gaze lingering on the unfinished diorama perched precariously on Samantha Miller's desk - a testament to both childhood enthusiasm and the chaotic nature of eight-year-olds. Today was Halloween, and while excitement crackled in the air, Eloise couldn't shake the uneasy feeling that had been plaguing her for weeks. It started subtly – misplaced objects, whispered voices in empty hallways – but lately, it had grown into a gnawing sense of unease. A chill snaked down her spine as she noticed a single black feather lying abandoned on her desk, its iridescent sheen glinting ominously in the fading afternoon light. 
+
+

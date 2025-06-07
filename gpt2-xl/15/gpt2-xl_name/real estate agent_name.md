@@ -1,2 +1,1 @@
 John Rizzo
-Brian Bagnio

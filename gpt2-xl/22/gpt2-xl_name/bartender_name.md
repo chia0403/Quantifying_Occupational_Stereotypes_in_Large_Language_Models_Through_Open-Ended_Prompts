@@ -1,1 +1,1 @@
-Bob "The Man"
+Bob

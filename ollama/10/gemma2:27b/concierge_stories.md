@@ -1,0 +1,6 @@
+Rain lashed against the arched windows of The Grand Astoria, blurring the twinkling cityscape beyond. Inside, the lobby hummed with the low murmur of conversations and the gentle tinkling of piano keys from the lounge. Eloise Cavendish, her perfectly coiffed auburn hair mirroring the polished mahogany desk she presided over, surveyed the scene with a practiced eye.  A stray suitcase tumbled off a trolley, its owner distracted by a phone call. Eloise, without missing a beat, glided over and righted it with a quiet “Allow me.”
+
+Eloise wasn't just any concierge. For fifteen years, she had been the heart of The Grand Astoria, an oasis of calm in the whirlwind of Manhattan life. She knew every guest’s preference by name: Mr. Henderson's penchant for Earl Grey, Mrs. Dubois' love of lilies, young Master Davies' insatiable appetite for chocolate chip cookies. But tonight, a shadow lurked beneath her impeccable facade. A cryptic note, slipped under her door that afternoon, had shaken her composure: "The Raven Returns." 
+
+
+What could it mean? Eloise glanced at the ornate clock on the wall – almost midnight. The note mentioned a rendezvous in the library. With a deep breath and a touch of trepidation, she straightened her emerald green dress and made her way towards the dimly lit hallway. The game was afoot.

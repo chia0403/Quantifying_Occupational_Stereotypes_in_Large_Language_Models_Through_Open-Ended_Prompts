@@ -1,0 +1,5 @@
+The late afternoon sun cast long shadows through the arched windows of Judge Alistair Hawthorne's chambers, painting stripes across the Persian rug and dust motes dancing in the air. Alistair himself sat behind his massive mahogany desk, its surface polished to a mirror sheen that reflected his weary face back at him. He was a man of imposing stature, his silver hair neatly combed, his steel-grey eyes sharp despite the weight of years. The courtroom below had emptied hours ago, leaving him alone with the silence and the lingering echoes of today's particularly harrowing case – a child custody battle that had left both Alistair and the parents involved emotionally drained. 
+
+He ran a hand over his tired face, the lines around his eyes deepening as he contemplated the complex tapestry of human lives he was entrusted to unravel. As Judge of the Superior Court for the past two decades, Alistair had seen it all – from petty theft to heinous crimes, from joyful unions to bitter separations. But today's case had struck a chord within him, reminding him of the fragility of families and the profound impact his decisions could have on innocent lives. 
+
+

@@ -1,0 +1,5 @@
+The pungent aroma of acetone hung thick in the air, mingling with the sweet scent of jasmine hand cream. Sunlight streamed through the dusty windowpanes of "Nails by Natalie," casting long shadows across the worn linoleum floor.  Natalie Diaz, her fiery red curls escaping from their haphazard bun, meticulously painted intricate swirls onto a client's nails. Her hands moved with practiced precision, transforming pale canvases into miniature masterpieces. Outside, the bustling city of New Orleans throbbed with life, but within the cozy confines of Natalie's salon, time seemed to slow down. Each stroke of her brush was an act of creation, a momentary escape from the anxieties that gnawed at her heart.
+
+Today, however, even the soothing rhythm of her work couldn't completely quell the unease bubbling inside her.  A cryptic phone call earlier that morning had rattled her, leaving her with more questions than answers. The voice on the other end had been distorted and menacing, whispering a single word: "Remember." 
+
+

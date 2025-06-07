@@ -1,2 +1,1 @@
 William Beaumont
-Beaumont

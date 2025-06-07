@@ -1,1 +1,1 @@
-George Niggi
+Dr. George Niggi

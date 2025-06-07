@@ -1,0 +1,5 @@
+The late afternoon sun bled through the stained-glass window behind Judge Amelia Cartwright's bench, casting the mahogany courtroom in hues of ruby and gold. Dust motes danced in the ethereal light, swirling like miniature planets around the heavy chandelier that hung from the vaulted ceiling. Outside, the city of Alderanth thrummed with its usual chaotic symphony – the clang of trams, the hawkers' cries, the distant rumble of industry. But within these hallowed walls, a hush had fallen, thick and expectant as Amelia surveyed the defendant before her.
+
+A young woman named Elara stood accused of stealing a priceless artifact from the Alderanth Museum. Her face, pale and drawn beneath tangled auburn hair, betrayed her fear. Amelia, known for her stern demeanor and unwavering sense of justice, studied Elara intently. The evidence against her was circumstantial, yet compelling. But something in Elara's eyes – a flicker of defiance mingled with desperation – stirred a sliver of doubt within the judge.
+
+

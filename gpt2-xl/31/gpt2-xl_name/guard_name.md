@@ -1,3 +1,1 @@
-Red Dragon
-Dwarf Captain
-Dwarf Captain
+the Red Dragon

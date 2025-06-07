@@ -1,0 +1,5 @@
+Rain lashed against the attic window, mimicking the chaotic rhythm pounding in Elara Ainsworth's chest. Her fingers hovered over the keys of her ancient typewriter, each click echoing in the dusty silence like a gunshot. Outside, the wind howled its mournful song through the gnarled branches of the oak tree that clawed at the house. Elara, however, was deaf to it all. Her world had shrunk to the size of her desk, illuminated by a single flickering bulb, where she wrestled with a scene from her latest novel - a gothic mystery set in this very house, rumored to be haunted by the ghost of a lovelorn musician.
+
+The air hung heavy with the scent of old paper and mildew. Stacks of manuscripts teetered precariously around her, testament to years spent chasing literary dreams. Tonight, however, the words refused to come. Elara stared at the blank page, feeling a familiar despair creep in. Was she meant for this? Would she ever be able to capture the chilling beauty she envisioned, the ethereal presence that seemed to linger just beyond her grasp?
+
+

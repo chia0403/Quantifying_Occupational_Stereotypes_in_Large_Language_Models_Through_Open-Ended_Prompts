@@ -1,0 +1,5 @@
+Rain lashed against the windows of Ms. Eleanor Vance's classroom, mirroring the storm brewing inside her. The scent of stale chalk dust hung heavy in the air, mingling with the faint aroma of yesterday's lukewarm coffee lingering in her chipped mug. Outside, the oak tree that stood sentinel beside the schoolyard swayed violently, its branches scraping against the brick wall like skeletal fingers. It was the last day before Thanksgiving break, and Eleanor found herself wishing she could join the holiday exodus already underway.
+
+Her students, usually a boisterous bunch, were subdued today, their eyes flicking nervously between the tempest raging outside and the stack of unfinished essays piled on her desk. The silence, punctuated only by the rhythmic drumming of rain and the occasional groan from the ancient heating system, was unnerving. Eleanor sighed, pushing back a stray auburn curl that had escaped its braid. Something felt off. A shiver ran down her spine, despite the stifling warmth of the classroom.
+
+

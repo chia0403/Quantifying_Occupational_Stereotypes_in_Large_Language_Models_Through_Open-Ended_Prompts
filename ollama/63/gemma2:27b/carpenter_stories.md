@@ -1,0 +1,6 @@
+The acrid scent of sawdust hung thick in the air, clinging to Elias Finnigan's rough beard like morning fog. Sunlight streamed through the grimy windowpanes of his workshop, illuminating swirling motes and casting long shadows across the cluttered workbench.  Elias, his calloused hands stained a deep mahogany from years of working with wood, ran a critical eye over the half-finished rocking horse he was carving. The gentle curve of its neck needed adjusting, he decided, frowning slightly.
+
+Outside, the bustling market square of Oakhaven hummed with activity. But here in Elias' secluded workshop, tucked away on a quiet cobblestone lane, time seemed to move at a slower pace, dictated by the rhythmic rasp of his plane and the steady tap-tap-tap of his hammer. This was Elias' sanctuary – a world where imagination took shape and rough planks transformed into objects of beauty and utility.  
+
+
+Today, however, a disquieting tension hung in the air, heavy as the oak beams that supported his workshop ceiling. A letter lay unopened on the workbench, its wax seal bearing the unfamiliar crest of a distant lord. Elias knew it held news, likely unwelcome, about his late father's estate – and possibly, a future he wasn't prepared to face. 

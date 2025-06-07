@@ -1,0 +1,4 @@
+Rain lashed against the windows of Sunnyside Daycare, blurring the already vibrant rainbow painted on the glass. Inside, Emilia Rose Cartwright, her blonde ponytail escaping its elastic band, hummed along to "The Wheels on the Bus" as she led a conga line of giggling toddlers around the playroom. The air was thick with the scent of crayons and disinfectant, a familiar comfort to Emilia who'd spent most of her life surrounded by the joyful chaos of childhood. 
+
+
+But today, a knot of anxiety twisted in Emilia's stomach. Mr. Henderson, the daycare owner, had been acting strange lately, his usually jovial face clouded with worry. Rumors swirled amongst the staff about budget cuts and possible closures, whispers that sent a shiver down Emilia's spine. Sunnyside wasn't just a job; it was her sanctuary, a place where she nurtured young minds and filled them with wonder. The thought of its disappearance felt like losing a part of herself. 

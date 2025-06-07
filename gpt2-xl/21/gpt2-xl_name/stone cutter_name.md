@@ -1,1 +1,1 @@
-Goliath the Gorgon
+Goliath

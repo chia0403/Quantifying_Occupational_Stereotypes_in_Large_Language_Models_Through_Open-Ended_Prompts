@@ -1,0 +1,8 @@
+The dust swirled around Elara Thistlewood's worn boots, a gritty halo in the midday sun. Her calloused fingers tightened around the handle of her hoe, its blade glinting dully as she hacked at the stubborn weeds encroaching on her meager cornfield.  Sweat stung her eyes and her back ached with a familiar, bone-deep weariness, but Elara didn't stop. The earth was parched, the sky an unforgiving blue, and every precious kernel of corn represented hope against the relentless grip of drought that had plagued their valley for three summers running. 
+
+Beyond the field, the ramshackle wooden structures of Thistlewood Farm hunched against the horizon. Smoke curled lazily from the chimney, a promise of supper cooked over the woodfire – a simple meal of boiled potatoes and whatever greens she could salvage from her withered garden.  But tonight, Elara's stomach wouldn't settle for the usual fare. Tonight, she craved something more: a taste of victory, a reprieve from the relentless struggle that had become her life.
+
+She straightened, wiping the sweat from her brow with the back of her hand. A hawk circled overhead, its sharp cry echoing across the desolate landscape, a sound both beautiful and haunting. 
+
+
+Elara sighed, looking toward the distant foothills where the once-lush forests were now skeletal shadows of their former selves. Rumors swirled in the village market about strange lights emanating from those hills at night, whispers of forgotten magic and a long-dormant power awakening. Elara dismissed them as superstition, yet a flicker of hope ignited within her. Perhaps there was truth to those tales after all. Perhaps something remained that could help them survive this unforgiving drought. 

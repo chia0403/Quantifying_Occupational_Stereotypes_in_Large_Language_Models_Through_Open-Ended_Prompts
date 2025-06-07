@@ -1,0 +1,8 @@
+Rain lashed against the grimy windows of The Drunken Mermaid, mirroring the storm brewing inside Elias Blackwood's chest.  The dimly lit bar, usually bustling with sailors and dockworkers on a Friday night, was eerily quiet. Only two patrons huddled at opposite ends of the mahogany counter – a hulking fisherman nursing a pint of ale and staring morosely into the murky depths, and a young woman in a crimson dress nervously twisting her silver ring. Elias, his salt-and-pepper hair slicked back and his blue eyes clouded with fatigue, meticulously polished a glass, avoiding their gazes.
+
+The salty tang of the sea air mingled with the scent of spilled ale and sawdust, a familiar comfort that offered little solace tonight. The news had spread like wildfire through the port – Captain Thorne's ship, "The Siren's Call", hadn't returned from its last voyage. Elias knew Thorne, a gruff but fair man with a twinkle in his eye, who always ordered his usual double rum and coke after a successful haul. Now, his stool sat empty, a stark reminder of the treacherous ocean that could snatch lives as easily as it granted them.
+
+
+Elias sighed, his chest tightening. He hadn't known Thorne well, but they'd shared enough late-night stories and stolen glances at passing ships to forge a bond. The silence in the bar was deafening, broken only by the rhythmic tick of the grandfather clock behind him, each chime marking another agonizing moment.
+
+He needed a distraction, something to pull him out of this swirling vortex of grief. Glancing towards the door, he hoped for a burst of energy, a new story, anything to break the monotony.  

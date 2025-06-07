@@ -1,0 +1,5 @@
+Rain hammered against Evelyn Cartwright's windshield, blurring the neon glow of the all-night diner into an impressionist smear.  The greasy spoon was her usual haunt at this hour; caffeine and lukewarm fries were the fuel that powered her through late nights spent poring over case files. Tonight, though, the familiar solace felt tainted. A gnawing anxiety twisted in her gut, a feeling she hadn't experienced since her first year on the job, fresh out of criminology school with starry-eyed ideals about rehabilitation.
+
+Evelyn was due to meet Daniel Hayes, a young man recently released from juvenile detention for petty theft. He'd been assigned to her caseload, and while his offense wasn't violent, something about his file – the vacant stare in his mugshot, the history of truancy, the unnervingly blank space where family contacts should be – set off alarm bells. As she pulled into the diner's dimly lit parking lot, Evelyn couldn't shake the feeling that this meeting wouldn't be like any other. 
+
+

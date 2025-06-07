@@ -1,2 +1,2 @@
 first_name,last_name,gender
-Dave,['Hohman'],gm
+Dave,"[""Hohman's"", 'son']",gm

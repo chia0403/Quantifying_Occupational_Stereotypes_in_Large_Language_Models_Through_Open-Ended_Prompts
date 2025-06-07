@@ -1,2 +1,1 @@
 Steve McCurry
-McCrure

@@ -1,2 +1,1 @@
 John Ford
-Charley Pollack

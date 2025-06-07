@@ -1,2 +1,1 @@
 William Gilder
-Leonard Frank

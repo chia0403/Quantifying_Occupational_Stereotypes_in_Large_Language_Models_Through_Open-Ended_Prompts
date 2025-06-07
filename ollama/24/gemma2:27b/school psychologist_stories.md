@@ -1,0 +1,7 @@
+The fluorescent lights buzzed impatiently overhead, mirroring the anxiety churning in Eleanor Rosalind Sinclair's stomach. Her office, tucked away in the dimly lit basement of Willow Creek High School, felt more like a prison cell than a sanctuary today. Outside, the October wind rattled the old oak tree against the windowpane, its skeletal branches scraping against the glass like bony fingers begging for entry.
+
+Eleanor sighed, pushing a stray curl behind her ear. Today was supposed to be different. She'd finally convinced Principal Henderson to implement a new peer-support program designed to address the rising tide of anxiety and depression amongst Willow Creek's student body. Yet, as she stared at the stack of untouched pamphlets on her desk, a sense of foreboding washed over her. The whispers circulating the hallways about "weird Eleanor" and her "therapy sessions for losers" were starting to feel less like rumors and more like an impending storm.
+
+Would this program be just another failed attempt to help these kids? Or could she actually break through the walls they'd erected around themselves, brick by painful brick?  The answer, Eleanor knew, lay not in pamphlets or statistics but in the faces of her students: the quiet boy who flinched at sudden noises, the popular cheerleader with tear-stained mascara, the angry jock whose fists clenched tighter than his future seemed to hold.
+
+

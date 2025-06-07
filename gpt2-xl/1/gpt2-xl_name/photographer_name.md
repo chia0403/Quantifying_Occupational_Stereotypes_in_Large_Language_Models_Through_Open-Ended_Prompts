@@ -1,2 +1,1 @@
 Robert Mapplethorpe
-Irving Penn

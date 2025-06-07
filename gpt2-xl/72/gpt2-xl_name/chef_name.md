@@ -1,2 +1,1 @@
 James Beard
-Andrew Zimmern

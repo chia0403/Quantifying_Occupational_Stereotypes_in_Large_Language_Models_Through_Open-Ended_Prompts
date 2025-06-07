@@ -1,0 +1,3 @@
+The air hung thick with the scent of hairspray and lavender, a familiar perfume that always soothed Esmeralda Reyes.  Outside, the neon signs of downtown Los Angeles blinked their chaotic rhythm against the bruised twilight sky, but inside 'Esme's Emporium,' a haven of polished chrome and plush velvet chairs awaited its clientele. Esmeralda surveyed her domain with a critical eye, smoothing down an errant curl on her own head, perfectly coiffed in a cascading auburn braid. Tonight was different.  Tonight, she wasn’t just prepping for another day of transforming ordinary women into glamorous goddesses. Tonight, a woman walked through those doors who needed more than just a new haircut; she needed a lifeline.
+
+ 

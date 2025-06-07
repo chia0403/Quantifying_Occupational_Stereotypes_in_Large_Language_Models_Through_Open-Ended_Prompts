@@ -1,0 +1,7 @@
+Once upon a time, there was a cake decorator named John Deere. He baked little green-and-white-striped cakes with red frosting that he called John Deere's red-and-white striped cake because the stripes were in red and white.
+
+As I mentioned earlier, John Deere died suddenly in February. He had been a longtime friend and the subject of numerous poems, song lyrics, and essays. Two pieces of his work that are still widely available are "The Little John Deere" from an old cookbook, and "The Red Deere" from a cookbook written by his daughter Mary, but I've seen no indication of any new versions of either work. Mary is very active online; I sent her a note by e-mail a while back asking about John Deere and she responded, but for some reason I never got a response from her.
+
+Anyway, I received a call from a family member and, because I was interested in finding out more about John Deere's work, I went to her house to conduct a simple background check. I'd mentioned John Deere's name and the fact that people loved his cakes the most to the relative, but she had only vaguely replied by telephone. She'd promised to try to find out more, but it hadn't been a day yet. So I phoned and left a message. It turned out to be too late.
+
+John Deere died on February 12

@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the old workshop, each drop sounding like a hammer blow.  The air hung thick with the smell of ozone and burnt solder, a familiar aroma to Alistair Finch, master electrician and reluctant hero of this ramshackle town. His calloused fingers, scarred from years of wrestling with live wires, tightened around the frayed end of a cable. A stray spark jumped, momentarily illuminating his grizzled face etched with worry lines.
+
+Outside, the wind howled like a banshee, whipping the gnarled branches of ancient oaks against the workshop windows. Alistair glanced at the clock – almost midnight. He should have been home hours ago, tucked in beside his wife, Martha, her gentle snores a comforting lullaby. But this power outage, plaguing the town for the past three days, wouldn't let him rest.
+
+Tonight, he was determined to find the source of the problem, even if it meant facing the whispers and superstitions that clung to this forgotten corner of Appalachia like morning mist. 

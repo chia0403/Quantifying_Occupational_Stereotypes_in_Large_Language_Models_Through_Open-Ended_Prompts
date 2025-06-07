@@ -1,0 +1,5 @@
+The scent of iron and rosemary hung heavy in the air, clinging to Thaddeus Bartholomew Buckle's apron like a second skin. Outside, the cobblestone streets of Market Row echoed with the clatter of delivery carts and the hawkers' cries. Inside Buckle's Meats, however, a hushed reverence settled over the room. Thaddeus, his thick hands stained crimson from trimming a side of lamb, paused mid-carve, listening to the rhythm of the cleaver against bone. It was a symphony he knew intimately, each thud and scrape telling a story of the animal's life, its muscle and sinew yielding to his practiced blade.
+
+Today, however, the familiar melody felt off-key. A shiver snaked down Thaddeus' spine, unsettling him like an unseasoned sausage. The feeling started last night, a whisper in the shadows of his dreams – a premonition of something dark looming over Market Row. He dismissed it then as the result of too much spiced ale and late-night anxieties about dwindling profits. But now, standing amidst the glistening rows of sausages, hams, and chops, the unease remained, sharp and insistent. 
+
+

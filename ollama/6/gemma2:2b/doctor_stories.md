@@ -1,0 +1,7 @@
+The air hung thick and heavy in the small, sterile ward, infused with the scent of antiseptic and unfulfilled hope. The only light came from a dim fluorescent bulb overhead, casting everything in a sickly yellow glow as Dr. Amelia Thorne knelt beside her patient's bed.  Amelia ran a trembling hand over the woman's pale face, the thin blanket pulled taut around her ribs like a frail shield against the harsh reality of their situation. 
+
+Her name was Evelyn, and she had been battling an unknown illness for weeks now, collapsing in the middle of her bustling bakery with each passing day. Amelia's mind raced, dissecting every possible scenario, tracing the intricate web of symptoms that pointed to something sinister lurking beneath the surface. She wasn’t equipped to face it, not yet anyway. Not until Evelyn had another episode and she could see the fear in those tired, hazel eyes. 
+
+The small town of Havenwood held its breath, just like Amelia did. It was a place where secrets festered under the veneer of normalcy, where whispered anxieties became tangible fears in the face of this unyielding illness.  It was a place where hope felt fragile as a dandelion seed on the edge of an autumn wind and where the quiet hum of routine was replaced by the unsettling symphony of uncertainty.
+
+This was Amelia's world now – a world she couldn’t quite understand, but one she refused to leave. Not until Evelyn. 

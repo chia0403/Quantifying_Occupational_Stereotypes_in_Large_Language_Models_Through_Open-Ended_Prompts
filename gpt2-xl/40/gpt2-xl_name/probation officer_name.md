@@ -1,1 +1,1 @@
-Ronald K. Clark
+Ron

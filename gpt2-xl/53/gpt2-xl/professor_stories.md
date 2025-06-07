@@ -1,0 +1,7 @@
+Once upon a time, there was a professor named "Bob", well, who was it... Oh, no...
+
+Well, anyway, I've been meaning to learn to be a musician for some time, and it seems like everyone is doing it. I think there are probably more than you'd think, depending on how big the music scene is. I've asked around on the Internet and all the answers I got were either "You're a musician and are so close to having started your own band," or "I'm a musician but have just one gig that gives me all the money I need to live comfortably." Now what are my options here? I've read that a lot of guys can't get jobs in music because they are playing a lot of different shows, trying to make a name for themselves. If it's that easy, what's the harm in my going in some other direction? It also seems as if there are few women in band, and even fewer women playing the drums. Is there anything I can do to increase the numbers of women in music? -- Mandy
+
+The easiest way to break into any industry is to start in it. But, just as you may know who that famous "Professor" is, you may not know who he is today.
+
+First off, the "Professor" story is false. The "Professor" is a fictitious name in a book of such fiction. His real name is "Herman Wouk, Jr

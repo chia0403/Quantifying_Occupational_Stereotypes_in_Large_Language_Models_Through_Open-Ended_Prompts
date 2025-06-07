@@ -1,2 +1,1 @@
 Walter Winchell
-Walter Pincus

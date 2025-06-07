@@ -1,0 +1,4 @@
+The aroma of cinnamon and caramelized sugar swirled around Eliza Beatrice Cartwright like a warm embrace. Her bakery, "Eliza's Enchanted Crumbs," nestled in a cobblestone alleyway in the heart of Oldhaven, was a haven of sweet delights and comforting warmth. Dawn light filtered through the dusty windowpanes, illuminating the flour-dusted counter where Eliza kneaded dough with practiced ease. Outside, the city was just beginning to stir – the clatter of milk bottles being delivered, the distant rumble of trams, and the sleepy chirping of sparrows huddled in the eaves. Today promised to be a busy one; the annual Harvest Festival was starting in the square that afternoon, and Eliza had been commissioned to bake a three-tiered gingerbread castle fit for royalty.  
+
+
+Eliza smiled, her eyes twinkling with mischief. A gingerbread castle wasn't exactly traditional fare, but then again, Eliza Beatrice Cartwright never believed in doing things by the book.

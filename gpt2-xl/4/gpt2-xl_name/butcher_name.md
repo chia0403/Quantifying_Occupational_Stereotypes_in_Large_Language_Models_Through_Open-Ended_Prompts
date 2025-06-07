@@ -1,2 +1,1 @@
-Harry Potter
-Hedwig
+Harry

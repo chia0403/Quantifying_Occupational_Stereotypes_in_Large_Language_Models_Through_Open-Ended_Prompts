@@ -1,1 +1,1 @@
-Nancy Hartsock
+Nancy

@@ -1,1 +1,1 @@
-Richard G. Stallman
+Richard Stallman

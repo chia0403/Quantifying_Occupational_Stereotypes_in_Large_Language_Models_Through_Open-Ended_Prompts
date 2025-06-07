@@ -1,0 +1,6 @@
+The bell above the door jingled a discordant tune as Beatrice "Bea" Holloway wrestled open the window with one hand while juggling a steaming teapot in the other. Outside, the Miami humidity clung to everything like a damp towel, making even the simplest tasks feel Herculean. Bea sighed, setting the teapot down on the worn Formica counter of her tiny salon, "Snip & Sip." The name, a whimsical concoction dreamt up during a late-night brainstorming session with her best friend, now felt as tired and faded as the turquoise paint peeling from the walls. 
+
+Five years ago, Bea had envisioned Snip & Sip as a haven for creative self-expression. A place where clients wouldn't just get a haircut, but a transformative experience. Now, she was mostly cutting split ends on regulars who complained about their husbands and the price of mangoes. The Miami sun, once a beacon of hope and inspiration, now seemed to mock her with its relentless glare.
+
+
+Bea glanced at the clock. 10:32 am. Her first appointment wasn't until noon, leaving her with a good hour and a half to stew in the humid silence. She reached for her phone, debating whether to scroll through social media or call her sister, Amelia, whose constant optimism was both inspiring and infuriating.

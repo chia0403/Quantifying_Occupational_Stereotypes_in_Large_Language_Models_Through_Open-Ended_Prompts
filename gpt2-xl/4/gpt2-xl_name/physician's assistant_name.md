@@ -1,1 +1,1 @@
-James C. Moore
+Dr. James C. Moore

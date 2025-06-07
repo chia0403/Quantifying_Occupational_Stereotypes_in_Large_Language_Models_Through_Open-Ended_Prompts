@@ -1,0 +1,5 @@
+The humid New Orleans air hung heavy, thick with the scent of beignets and jasmine.  Sunlight, filtered through Spanish moss draped over ancient oak trees, dappled the cobblestone street outside Dr. Evangeline "Eve" Dubois's dental practice. The building, a charming Creole cottage painted in faded turquoise, hummed with a quiet energy. Inside, Eve tapped a silver filling instrument against her gloved finger, listening to the gentle clink echoing through the sterile room. Her brow furrowed as she scrutinized the X-ray illuminating on the overhead lamp. A persistent ache throbbed behind her left eye, but she pushed it aside. This molar extraction wasn't going to perform itself, and Mrs. Benoit, her elderly patient perched nervously in the chair, was already chewing her lip raw with anticipation. 
+
+Eve took a deep breath, reminding herself that for all its quirks and chaos, New Orleans was home.  It was where generations of Dubois dentists had practiced their craft, tending to the smiles (and sometimes the woes) of their community. And Eve, despite the occasional throbbing headache and the ever-present humidity, wouldn't trade it for anything.
+
+

@@ -1,0 +1,5 @@
+The air in The Grand Savoy hummed with a quiet symphony: the clink of silverware against bone china from the dining room, the murmur of hushed conversations behind polished mahogany doors, the rhythmic thump of a bellhop's trolley navigating the opulent marble lobby. Penelope Albright, her crisp navy uniform a stark contrast to the warm gold accents of the hotel, stood ramrod straight behind the grand oak concierge desk.  She was known for two things: her impeccable composure and an uncanny ability to anticipate guests' needs before they even voiced them. Tonight, however, a tremor ran through her usually unflappable facade.
+
+The lobby clock chimed eight times, its resonant tones echoing through the cavernous space. Penelope glanced nervously at the ornate grandfather clock, then back at the heavy oak door leading to the exclusive penthouse suite. It was precisely 8:00 p.m., the appointed hour for Mr. Alistair Thorne's arrival – and the moment Penelope had been both dreading and anticipating for weeks.
+
+

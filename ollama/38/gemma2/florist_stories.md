@@ -1,0 +1,6 @@
+The scent of lilies always seemed to linger on Amelia Thistlewood's fingers, even after she’d scrubbed them raw with soap and water. It wasn't an unpleasant smell, not exactly. More like a haunting echo of her life, woven into the very fabric of her being. Amelia ran Thistlewood Florals, a small shop tucked away on a cobblestone street in the old town of Oakhaven. The building itself was ancient, its walls thick with centuries of whispered secrets and the rustling of countless flowers. 
+
+The setting sun cast long shadows across the worn wooden floorboards as Amelia rearranged a display of vibrant sunflowers, their faces turned towards the dwindling light. Outside, the wind rattled the stained-glass windows, sending shards of color dancing across her apron. A chill settled in the air, heralding the arrival of autumn and with it, a melancholic stillness that mirrored the quiet ache in Amelia's heart.
+
+
+She glanced at the worn photo on the counter, her mother’s warm smile frozen in time. The shop had been her legacy, passed down through generations of Thistlewoods, each one leaving their own fragrant imprint on its history. But now, facing a dwindling customer base and mounting bills, Amelia wondered if she could keep the flame alive much longer.  

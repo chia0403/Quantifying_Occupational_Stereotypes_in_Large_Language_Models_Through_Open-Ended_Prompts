@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+The salt-laced wind howled a mournful dirge through the skeletal branches of the wind-battered pines that clung precariously to the cliffs. Rain, thick and stinging, lashed against the windows of the small, whitewashed cottage, blurring the already hazy view of the churning grey sea. Inside, the fire in the hearth crackled a defiant counterpoint, casting dancing shadows on the cluttered shelves filled with jars of dried herbs and ancient, leather-bound tomes.
+
+Dr. Alistair Finch, a man whose face bore the map of a thousand sleepless nights and countless quiet sorrows, sighed and rubbed the bridge of his nose. He pushed back from the rough-hewn wooden table, leaving his half-finished cup of herbal tea steaming gently beside a pile of meticulously detailed anatomical drawings. The persistent cough that had been rattling in his chest for the past week threatened to become a full-blown storm, and he knew he should probably listen to his own damn advice for once. He reached for his worn leather-bound medical journal, its pages brittle with age and filled with his own cramped handwriting and observations, when a frantic knocking echoed through the cottage, a sound so insistent that it sliced through the roar of the storm. He knew, with a sinking feeling in his stomach, that the quiet night he had so desperately craved was now well and truly lost.
+
+**Setting:**
+
+The story is set in a remote coastal village on the Isle of Skye in the Scottish Highlands. The village, known as Port Alva, is small and isolated, consisting of a handful of weathered stone cottages, a stubbornly resilient pub called "The Salty Anchor," and a small, dilapidated pier that serves as the only connection to the mainland. The surrounding landscape is rugged and unforgiving, dominated by windswept moors, craggy cliffs, and the ever-present, restless sea. The season is late autumn, just before the full fury of the Highland winter sets in.

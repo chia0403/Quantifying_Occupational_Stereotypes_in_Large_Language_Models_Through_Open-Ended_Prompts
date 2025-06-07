@@ -1,0 +1,5 @@
+The air in Esmeralda "Esme" Cartwright's shop hung thick with the scent of lavender water and freshly cut wool. Sunlight streamed through the dusty windowpanes, illuminating motes dancing above spools of thread in every shade imaginable. Esme herself, her silver hair piled atop her head in a haphazard bun, was hunched over a dress form, meticulously pinning a crimson silk bodice. The rhythmic click-clack of her shears against the fabric formed a steady counterpoint to the distant rumble of carriages on cobblestone streets outside. 
+
+Her shop, nestled in a quiet corner of London's bustling Whitechapel district, was a sanctuary from the grime and clamor of the city. Walls lined with bolts of shimmering velvet and crisp linen spoke of generations of Carwright artistry, each stitch imbued with Esme's unwavering dedication to her craft. Yet, today, a shadow of worry clouded Esme's usually bright blue eyes. A single crumpled letter lay forgotten on her workbench, its contents promising a challenge unlike any she had faced before. 
+
+

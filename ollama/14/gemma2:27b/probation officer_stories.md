@@ -1,0 +1,5 @@
+The humid Charleston air hung heavy with the scent of jasmine and impending rain. Evelyn Blackwood adjusted her crisp white blouse, the starched fabric already clinging uncomfortably to her skin. The peeling paint on the porch railing of the dilapidated shotgun house mirrored the state of the city itself: weary, worn, but stubbornly enduring.
+
+Evelyn took a deep breath, steeling herself for another difficult meeting. As a probation officer with the Charleston County Sheriff's Department, she’d seen enough broken dreams and shattered lives to last several lifetimes. Today's client, Marcus Antoine, was a young man struggling to stay on the straight and narrow after serving time for petty theft. He lived in this ramshackle house with his ailing grandmother, their bond the only beacon of hope in an otherwise bleak existence. Evelyn hoped Marcus wouldn’t become another statistic, another name added to the grim roster of recidivism. She stepped onto the porch, her sensible shoes clicking against the warped wood, and knocked on the door. 
+
+

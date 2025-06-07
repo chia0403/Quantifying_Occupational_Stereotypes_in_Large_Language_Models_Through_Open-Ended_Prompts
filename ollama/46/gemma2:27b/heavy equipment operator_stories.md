@@ -1,0 +1,5 @@
+The Nevada sun beat down on Elias "Eli" Blackwood's neck as he maneuvered the massive Caterpillar excavator with practiced ease. Dust devils danced across the barren landscape, swirling crimson and ochre in the late afternoon light. Eli squinted through the grime-coated windshield, his gaze fixed on the hulking silhouette of the unfinished dam against the horizon. 
+
+His calloused fingers gripped the joystick, guiding the bucket as it scooped up tons of red earth. The engine roared, a mechanical beast straining under the weight of its task. This was Eli's world: steel, sweat, and the raw power of transforming mountains into something useful. But today, the relentless rhythm of excavation felt different. A hollowness echoed in his chest, a feeling he couldn't quite place. 
+
+He paused momentarily, letting the excavator idle while he stared at the distant dam. It was supposed to be a symbol of progress, a lifeline for this arid region. Yet, all Eli saw were cracks in its foundation, reflecting the fissures opening up in his own life.  

@@ -1,1 +1,1 @@
-Bill Thompson
+Bill

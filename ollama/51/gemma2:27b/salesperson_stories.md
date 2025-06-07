@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of "Sal's Secondhand Emporium," each drop sounding like a tiny hammer blow. Penelope Albright sighed, her reflection wavering in the grimy shop window. The neon "Open" sign flickered pathetically, struggling against the gloom that seemed to have settled permanently over this forgotten corner of Willow Creek.
+
+Penelope, a woman whose optimism could only be described as stubborn, straightened her floral-print blouse and adjusted the nametag pinned to her chest. "Ready for business!" it proclaimed in cheery, yellow lettering, a stark contrast to the dreariness surrounding her. Today was a crucial day. Mr. Biggins, owner of the local antique shop, had promised to stop by. Penelope needed this sale. The vintage gramophone she'd painstakingly restored – its mahogany gleaming like polished coal under the single bare bulb – represented not just profit, but hope. Hope that Sal's Emporium could finally claw its way out of debt and become something more than a dusty relic itself. 
+
+

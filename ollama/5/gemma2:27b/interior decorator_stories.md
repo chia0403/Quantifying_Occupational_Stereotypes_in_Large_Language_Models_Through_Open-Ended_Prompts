@@ -1,0 +1,4 @@
+The scent of lavender polish hung heavy in the air, battling with the lingering aroma of old tobacco and dust. Eloise Blackwood, her auburn braid swinging against the floral-patterned dress she favored for client meetings, surveyed the room with a critical eye. Sunlight slanted through the dusty windowpanes, illuminating motes dancing in the stagnant air. This grand Victorian townhouse, nestled on a quiet street overlooking London's Regent's Park, was crying out for a revival. 
+
+
+Eloise ran her hand along the intricately carved mahogany banister, its finish dulled with age. "It has good bones," she murmured to herself, picturing vibrant wallpapers, plush velvet furnishings, and sparkling chandeliers replacing the faded grandeur. This project, left untouched since the previous owner's passing a decade ago, was a challenge, but Eloise thrived on breathing new life into forgotten spaces.  

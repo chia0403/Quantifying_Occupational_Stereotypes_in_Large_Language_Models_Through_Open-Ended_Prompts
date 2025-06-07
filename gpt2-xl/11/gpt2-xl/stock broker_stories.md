@@ -1,0 +1,7 @@
+Once upon a time, there was a stock broker named Jim who loved to tell stories about his adventures in his office to a group of friends. One day Jim was talking about this crazy "game" with his buddies when one of them asked what kind of game it was. Jim had no idea, but the boy knew the answer!
+
+The boy then explained to Jim how this game went something like this: Two players get together. Whoever gets the "trash" is immediately eliminated for the rest of the game. Once the game begins, each player must turn over five cards to the other player (to keep one card hidden to keep things interesting) and the players take turns trying to get rid of all their cards. If the player's hand reaches six cards, they are the winner (one point) of the game.
+
+The "trash" turned over were the most powerful cards in the game and therefore the most useful during the game. Since "trash" can only get rid of a card in your hand, once you start trying to take the most powerful cards away from your rival player, you're probably going to have a helluva time doing it.
+
+We loved this game. We'd play it to celebrate birthdays and other special occasions. And by we, of course, we mean our eight-year-old daughter. In fact, we started playing the Trash Bag Game as soon as it was available for us. We were addicted to the

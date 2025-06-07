@@ -1,0 +1,7 @@
+The relentless Texas sun beat down on Penelope "Penny" Sinclair's perfectly coiffed blonde hair as she navigated the maze of identical beige stucco houses.  Cicadas droned their incessant summer symphony, the sound amplified by the oppressive heat radiating off the concrete sidewalks. Penny wiped a bead of sweat from her brow, glancing at her reflection in the polished surface of her Lexus SUV. Her carefully applied lipstick was starting to smudge, and she knew she needed another shot of espresso if she was going to make it through this showing.
+
+This wasn't exactly the glamorous life Penny had envisioned when she got her real estate license. She'd dreamed of selling sprawling estates in Austin's trendy Zilker neighborhood, not cookie-cutter three-bedroom homes in the scorching suburbs. Still, a sale was a sale, and this young couple, eager to escape their cramped apartment, represented a potential commission Penny couldn't afford to ignore.
+
+She pulled into the driveway of 123 Mockingbird Lane, a modest house with a patchy lawn and a porch swing creaking mournfully in the breeze. Taking a deep breath, Penny plastered on her best "I'm-thrilled-to-show-you-this-charming-home" smile and grabbed the brochure from her passenger seat.  
+
+The door swung open before she could even knock, revealing a middle-aged woman with worried eyes and a perpetually furrowed brow. "You must be Penny," the woman said, her voice tinged with desperation. "Come in, come in. I'm Agnes, and this house...well, it's not exactly what we had in mind." 

@@ -1,2 +1,1 @@
-Bob's accountant
-Charles
+Bob

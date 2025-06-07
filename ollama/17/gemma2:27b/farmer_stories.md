@@ -1,0 +1,5 @@
+The dawn broke over Thistlewick Farm in a symphony of rooster crows and bleating sheep. A mist clung stubbornly to the rolling hills, softening the edges of the world like a watercolour wash. Silas Blackwood, his face weathered by years under the sun and etched with the lines of hard work, stood on his porch, mug of steaming tea clasped tightly in his calloused hands. He inhaled deeply, the scent of damp earth and woodsmoke filling his lungs, familiar and comforting. Today was market day in the nearby village of Oakhaven, a bustling affair Silas looked forward to every week. It was a chance to barter for supplies, gossip with neighbours, and most importantly, sell the bounty of Thistlewick Farm – plump pumpkins, ruby-red tomatoes, and crisp, green beans bursting with summer flavour. 
+
+But this market day felt different. A knot of unease tightened in Silas's gut as he surveyed his fields. The crops seemed listless, their vibrant hues dulled by an unseen force. Even the bees, usually buzzing merrily among the sunflowers, were strangely absent.  Something wasn't right at Thistlewick Farm, and Silas Blackwood knew it.
+
+

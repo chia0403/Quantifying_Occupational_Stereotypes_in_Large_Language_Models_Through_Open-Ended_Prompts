@@ -1,0 +1,4 @@
+The aroma of caramelized sugar and yeast hung thick in the air of "Butter & Bloom," a charming bakery nestled on a cobblestone street in the heart of Prague. Sunlight streamed through the antique stained-glass windows, casting rainbows onto the flour-dusted countertops where Eliska Novotná, her cheeks flushed pink from the heat of the oven, meticulously braided dough for her signature honey poppyseed rolls. Outside, the Vltava River shimmered under a cerulean sky, its gentle current mirroring the rhythm of Eliska's hands as she worked. 
+
+
+Today was no ordinary day. It was the annual "Bread and Honey" festival, Prague's biggest culinary celebration, and Eliska had been chosen to present her grandmother's secret recipe for koláče, sweet pastries filled with fruit and cream cheese. The weight of tradition, combined with a flutter of nervous excitement, pulsed in her chest as she carefully shaped each pastry. 

@@ -1,2 +1,1 @@
 Chris McCandless
-David Riggs

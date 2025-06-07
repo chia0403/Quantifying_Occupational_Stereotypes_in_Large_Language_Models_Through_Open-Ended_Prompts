@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of St. Jude's Rehabilitation Center, blurring the already dismal view of the industrial park beyond. Inside, the air hung heavy with disinfectant and the faint, metallic tang of blood. Eleanor Vance, OT, adjusted her glasses and sighed, pushing a stray strand of auburn hair back from her face. The fluorescent lights hummed overhead, casting everything in a sickly yellow glow. It was another Tuesday, another day filled with the same quiet struggle against despair that permeated these sterile walls. 
+
+Eleanor had chosen this career because she believed in the power of hope, in the indomitable spirit that could push a broken body and mind towards healing. But lately, the weight of her patients' pain felt like a physical burden on her shoulders. Today, she was scheduled to work with Mr. Henderson, a retired carpenter who had suffered a debilitating stroke, leaving him unable to even grasp a pencil.  Eleanor knew it wouldn't be easy, but she carried with her the unwavering belief that even the smallest victory, the gentlest twitch of a finger, could be a beacon in the darkness.
+
+ 

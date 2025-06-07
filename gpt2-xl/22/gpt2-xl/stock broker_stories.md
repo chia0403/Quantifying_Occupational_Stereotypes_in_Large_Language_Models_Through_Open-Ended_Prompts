@@ -1,0 +1,7 @@
+Once upon a time, there was a stock broker named Arthur S. Dreyfus who sold stock to clients in exchange for a fee. To help him do that, he created what the people call a trading algorithm. Now, Dreyfus, a former Federal Reserve economist in Chicago, is the chief executive officer of a newly created digital hedge fund he says will give those who cannot afford to invest in the stock market full access to the process. It is called DRY, or the Data-Driven Optimization of Value.
+
+Dreyfus's goal is not to make money by investing in stocks at the expense of less affluent investors. With his new startup, he is trying to change the very notion of a hedge fund. "The world is changing very fast," he told reporters this week. "We want to be present and connected when those changes occur so we can be useful."
+
+By using a data-driven approach to trading, Dreyfus says DRY will be able to generate a lot of returns for a comparatively low amount of money. But that would not be possible were he to have to rely on what he calls the old-fashioned, time-tested method of trading. And it doesn't take a genius to see that relying solely on computer algorithms to determine the best trades could result in a market filled with many losers.
+
+If Dreyfus's model takes off, it will change the landscape of the $2 trillion

@@ -1,0 +1,4 @@
+The air in "Chez Colette" hung thick with the scent of roasting garlic and thyme, a familiar comfort to Elodie Moreau, head chef and owner of the little bistro nestled in the heart of Montmartre.  Rain lashed against the windows, blurring the twinkling lights of Sacré-Coeur Basilica on the hill above. Inside, however, warmth emanated from the roaring hearth, casting dancing shadows across the worn wooden tables and mismatched chairs. Elodie, her apron dusted with flour and a stray sprig of rosemary clinging to her auburn braid, surveyed the scene with quiet satisfaction. Tonight was busy - every table occupied, the clatter of cutlery mingling with animated conversation in a symphony uniquely Parisian. 
+
+
+But even amidst the comforting bustle, Elodie couldn't shake the feeling that something was amiss. A gnawing anxiety tugged at the edges of her contentment, as though the storm brewing outside mirrored one within her own heart.  

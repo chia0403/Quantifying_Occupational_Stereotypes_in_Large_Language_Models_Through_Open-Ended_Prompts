@@ -1,2 +1,1 @@
-JT Cipriano
-DS Treadway
+J.T. Cipriano

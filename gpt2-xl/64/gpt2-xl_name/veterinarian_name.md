@@ -1,2 +1,1 @@
-A.J. Jacobs
-J.L. Schuler
+Dr A.J. Jacobs

@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Esmeralda "Esme" Ramirez's head, casting a sterile glow over the mountain range of tax forms piled on her desk. April 15th loomed like a storm cloud, and Esme felt the pressure building in her chest with each ticking second of the clock perched precariously above her computer monitor. The scent of stale coffee hung heavy in the air, mingling with the faint whiff of desperation emanating from the anxious clients crammed into her tiny office. 
+
+Esme's world was one of receipts and deductions, W-2s and 1099s – a labyrinthine landscape where numbers held sway and even the smallest error could spell financial ruin. Today, however, the usual rhythm of her work felt disrupted, replaced by a gnawing unease that she couldn’t quite place. It started with a peculiar client who arrived earlier that morning, his face obscured by a wide-brimmed hat and his request shrouded in unusual secrecy.  Now, as Esme sifted through his complicated paperwork, an unsettling feeling crept over her – something about this case felt deeply wrong. 
+
+

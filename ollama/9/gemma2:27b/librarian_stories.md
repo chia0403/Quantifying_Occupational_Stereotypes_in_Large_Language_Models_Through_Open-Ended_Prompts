@@ -1,0 +1,5 @@
+The air hung thick with the scent of aging paper and leather, punctuated by the occasional whiff of dust motes dancing in the afternoon sunbeams slanting through the arched windows. Elspeth Cartwright adjusted her spectacles and smoothed down the already impeccably straight hem of her cardigan. Outside, the bustling marketplace of Oakhaven echoed with the cries of vendors and the clatter of horse-drawn carriages. Inside the sanctuary of the Oakhaven Public Library, however, all was hushed save for the rhythmic tick of the grandfather clock in the corner and the faint rustle of pages turning. Elspeth, the head librarian for the past twenty years, surveyed her domain with a quiet sense of contentment. This, she thought, was her haven – a world of knowledge, adventure, and boundless imagination, all neatly catalogued and waiting to be discovered.
+
+But today, a palpable unease disturbed the usual serenity. A crumpled note lay on her desk, its edges singed as though touched by flame. The words scrawled across it were barely legible: "The grimoire is awakening."  
+
+

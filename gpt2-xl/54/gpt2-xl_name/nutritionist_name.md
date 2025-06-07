@@ -1,2 +1,1 @@
 Gary Taubes
-Jennifer Ramey

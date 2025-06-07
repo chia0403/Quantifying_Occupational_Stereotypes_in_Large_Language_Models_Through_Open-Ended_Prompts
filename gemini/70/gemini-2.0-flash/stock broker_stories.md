@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The Bloomberg terminal hummed its familiar, insidious tune, a siren song of profits and potential ruin that had been humming in Theodore "Teddy" Livingston’s ear for the better part of his adult life. He rubbed the sleep from his bloodshot eyes, the glow of the screen reflecting in their weary depths, painting him in a pallid, almost spectral light. At 6:02 AM, New York time, the pre-market data was starting to trickle in, a slow, tantalizing drip that could quickly turn into a deluge, washing away fortunes or building them on a wave of green. Teddy needed a good day. Correction: he *desperately* needed a good day. His last quarter had been, to put it mildly, a disaster.
+
+**Setting:**
+
+Teddy's office on the 37th floor of the Titan Group building, nestled in the heart of Manhattan's Financial District, was a monument to a bygone era of Wall Street excess, though one clearly showing signs of wear and tear. The dark mahogany desk, large enough to land a small aircraft, was strewn with crumpled research reports, coffee-stained napkins scribbled with indecipherable notes, and a half-eaten bagel, slowly petrifying under the humid office air. The view, however, remained spectacular. Through the expansive window, the city sprawled out like a glittering, concrete jungle, a testament to human ambition and ingenuity, and a constant reminder of the stakes in the game Teddy played. The walls, once adorned with framed photos of smiling clients and accolades, were now mostly bare, save for a single, slightly crooked, print of a charging bull – a silent, somewhat ironic, sentinel guarding against the precipice of failure. The atmosphere was thick with the stale scent of burnt coffee and barely suppressed anxiety, a cocktail potent enough to fuel a thousand late-night deals and equally capable of driving a man to the brink of madness.

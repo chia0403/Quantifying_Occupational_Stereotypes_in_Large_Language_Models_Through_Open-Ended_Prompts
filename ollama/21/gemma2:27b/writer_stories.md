@@ -1,0 +1,4 @@
+Rain lashed against the attic windowpane, mimicking the frantic rhythm of Eliza Blackwood's fingers flying across her antique typewriter.  The old machine clacked and whirred, each keystroke sending a tremor through the dusty floorboards of the converted barn. Outside, the wind howled like a banshee, tearing at the eaves and rattling the skeletal branches of the ancient oak that loomed over the house. Eliza barely registered the storm's fury; she was consumed by the world unfolding on her page, a gothic tale spun from the shadows of her imagination.
+
+
+Eliza Blackwood, her auburn hair pulled back in a messy bun, squinted at the paper emerging from the typewriter. The ink, faded and slightly smudged, seemed to dance with the flickering candlelight that cast long, distorted shadows across the room. Her heart pounded in her chest, mirroring the rising tension in the story. This one felt different, charged with an unsettling energy she couldn't quite explain.  

@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Opening:**
+
+The scent of lilies, sharp and insistent, clawed at Amelia Bellweather’s sinuses, a familiar assault she usually welcomed. Today, however, even the comforting aroma couldn't soothe the gnawing anxiety that had taken root in her chest. It was a Friday, the busiest day of the week at "Bellweather Blooms," and Amelia, perched precariously on a stool behind the counter, could barely bring herself to focus on arranging the posy of peach roses destined for Mrs. Hemmings' anniversary. The florist tape stuck to her sweating fingers, the delicate petals seemed to mock her with their perfect, untouched beauty, and the incessant ringing of the shop's antique telephone felt like a hammer blow against her skull. She needed to find a solution, and she needed to find it before… before it was too late.
+
+**Setting:**
+
+"Bellweather Blooms" was tucked away on a cobblestone side street in the heart of Willow Creek, a quaint, postcard-perfect town nestled in the foothills of the Blue Ridge Mountains. The shop itself was a haven of floral chaos and curated charm. Sunlight streamed through the leaded glass windows, illuminating rows of brimming buckets filled with every imaginable blossom. The air was thick with a heady mix of fragrances: the earthy scent of damp moss, the sweet perfume of gardenias, and the subtle spice of carnations. Antique gardening tools hung on the exposed brick walls, alongside framed botanical prints and hand-painted signs proclaiming the shop's motto: "Spreading Joy, One Bloom at a Time." The counter, a repurposed oak dresser, was perpetually cluttered with order slips, ribbon spools, and stray petals, a testament to Amelia's tireless dedication and overflowing creativity. Despite the idyllic atmosphere, there was an underlying current of history and tradition woven into the very fabric of the shop, a legacy Amelia was determined to protect.

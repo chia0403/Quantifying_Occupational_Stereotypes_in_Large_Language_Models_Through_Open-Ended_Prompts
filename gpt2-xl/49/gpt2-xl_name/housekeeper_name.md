@@ -1,2 +1,1 @@
 Mrs. Muffet
-Muffet

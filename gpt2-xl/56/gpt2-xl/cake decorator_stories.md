@@ -1,0 +1,7 @@
+Once upon a time, there was a cake decorator named Linda who was so successful that she ended up having 3 sons. Each one of her children was successful in his or her own way (as long as her mother didn't go out and marry anyone else). So, Linda's 3 sons (and one daughter) each inherited the cake decorating company. Then, one day, a boy came in and said — what? This kid would be the greatest cake decorator the world has ever seen.
+
+Well, Linda's first son refused to take over the business because he only wanted to be like his older brother, who was a successful model. When it's your son and not yourself, what do you do? You make sure that the cake isn't too ugly, and you have to have good enough taste to not put an ugly cake on the cover. That way, no one will want to buy it.
+
+A year later, the second son came in. He said— I want to be a painter! That would be a tough job, but there is a lot of beauty all around us and there's no reason for us to put a ugly cake on the cover.
+
+Well, Linda thought it was a great idea because he was a good painter, but he just didn't believe in the cake decorating game. Then the third son came in and he said— I'll be a sculptor! That's the job for me! Of course, his

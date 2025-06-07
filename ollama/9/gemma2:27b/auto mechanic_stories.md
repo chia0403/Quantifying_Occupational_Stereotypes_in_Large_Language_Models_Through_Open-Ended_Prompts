@@ -1,0 +1,5 @@
+The late afternoon sun beat down on Elias "Eli" Blackwood's greasy hands as he wrestled with a recalcitrant carburetor. The air in his cramped garage hung thick with the scent of gasoline, motor oil, and desperation. Eli, a man built like an oak tree with calloused fingers and a perpetually grease-stained face, grunted with effort. Outside, cicadas buzzed their ceaseless summer song, providing a relentless backdrop to the symphony of clangs, thuds, and frustrated sighs emanating from within the garage. 
+
+Eli's shop, "Blackwood's Auto," wasn't much to look at - a faded blue building on the edge of Harmony Creek, a town where time seemed to move at half speed. The chipped paint and rusting metal spoke of years of hard work and even harder luck. But inside, Eli worked magic. He could coax life back into sputtering engines, soothe grinding transmissions, and breathe new air into tired old cars. Today, however, the 1967 Mustang he was working on seemed determined to resist his every attempt at resuscitation.
+
+

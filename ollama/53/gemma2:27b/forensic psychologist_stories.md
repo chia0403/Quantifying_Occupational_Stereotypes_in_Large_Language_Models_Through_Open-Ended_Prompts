@@ -1,0 +1,6 @@
+Rain lashed against the grimy windows of the interrogation room, mimicking the hammering in Dr. Elara Vance's chest.  The fluorescent lights buzzed overhead, casting a sickly yellow hue over the steel table and two mismatched chairs. Across from her sat Michael Thorne, his hands shackled to the table, eyes downcast. His face, etched with years of hard living, bore an expression of weary resignation. Elara shifted in her seat, acutely aware of the weight of expectation pressing down on her.
+
+She was here because Michael Thorne had confessed to a brutal crime – the murder of his neighbor, Mrs. Eleanor Davies. But something didn't sit right. His confession lacked the visceral detail and emotional turmoil one would expect from a killer. It felt rehearsed, almost detached. Elara, known for her sharp intuition and ability to delve into the darkest corners of the human psyche, had been called in by Detective Miller to assess Thorne's mental state. Was he truly guilty? Or was there something more at play, some hidden truth buried beneath layers of fear and despair?
+
+
+The air hung thick with tension as Elara reached for her notepad, ready to begin unraveling the tangled threads of Michael Thorne’s story. 

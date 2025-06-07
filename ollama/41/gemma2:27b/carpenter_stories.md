@@ -1,0 +1,7 @@
+The acrid scent of sawdust and varnish hung heavy in the air, clinging to Elias Hawthorne’s worn denim overalls like a second skin. Sunlight streamed through the grime-coated windows of his workshop, illuminating motes of dust dancing in the golden rays. Outside, the bustling city of Newhaven throbbed with life, its cobblestone streets teeming with merchants and carriages. But here, nestled in a quiet corner off Crooked Lane, time seemed to slow, measured only by the rasp of Elias's plane against wood and the rhythmic thudding of his hammer.
+
+Elias ran a calloused hand over the smooth surface of a walnut table he was crafting. It was commissioned for a wealthy merchant who favoured intricate designs, demanding swirling inlays of ebony and ivory. The work was meticulous, testing Elias’s patience and skill, but he relished the challenge. For him, woodworking wasn't merely a craft; it was an act of creation, breathing life into inanimate objects and imbuing them with purpose.
+
+Today, however, a gnawing unease troubled Elias. He couldn't shake the feeling that something was amiss. It started with whispers in the marketplace – rumours of strange occurrences, unsettling dreams plaguing the city’s inhabitants. Then came the disappearance of young Emily Carter, a baker's daughter who vanished without a trace. Now, even the sturdy oak beams of his workshop seemed to creak with a hidden tension, as if bracing for something unknown. 
+
+

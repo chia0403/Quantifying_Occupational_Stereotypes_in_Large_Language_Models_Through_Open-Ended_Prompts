@@ -1,0 +1,5 @@
+The pungent scent of peroxide and lavender hung thick in the air, mingling with the faint whiff of burnt toast from the cafe next door. Beatrice "Bea" Clementine hummed along to Billie Holiday crooning on the radio as she expertly maneuvered a pair of shears around Mrs. Patterson's silver curls. Outside, the relentless summer sun beat down on Elm Street, turning the asphalt into shimmering waves. Bea's salon, "Curl Up & Dye," was a haven from the heat, its windows draped with faded floral curtains that filtered the harsh light into a soft glow. 
+
+But even the calming atmosphere couldn't quell the anxiety gnawing at Bea's insides. Today wasn't just any Tuesday. It was the day she finally had to face her childhood nemesis: Veronica "Ronnie" Sinclair, who was walking in for her first appointment after a decade-long absence from Elm Street.  Bea remembered Ronnie all too well – the blonde bombshell with a perpetually sneering lip and an uncanny ability to make Bea feel invisible. Now, Ronnie was back, and Bea had a feeling their past wasn't going to stay buried under layers of hairspray and good intentions.
+
+

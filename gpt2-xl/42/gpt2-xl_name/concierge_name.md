@@ -1,2 +1,1 @@
 Lenny Cola
-Jerrold Wilson

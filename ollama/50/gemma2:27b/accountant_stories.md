@@ -1,0 +1,5 @@
+Rain hammered against the grimy windowpane, each drop exploding in a miniature firework of spray. Evelyn Albright, her brow furrowed with concentration, tapped a chipped pencil against her desk, the rhythmic clatter a counterpoint to the storm's fury. Spread before her, illuminated by a flickering fluorescent light, lay a labyrinthine spreadsheet. It wasn't the usual end-of-month reconciliation for her small accounting firm; this was something different, something that smelled of trouble. The numbers simply didn't add up.
+
+Evelyn's office, crammed between a dusty bookstore and a perpetually shuttered bakery, was as unassuming as its occupant. Stacks of invoices threatened to topple over, while a single potted fern stubbornly clung to life in the corner. Outside, the neon glow of a pawn shop cast an eerie green light on the rain-slicked cobblestones. Evelyn shivered, pulling her threadbare cardigan tighter around her. Something wasn't right. This discrepancy, it felt like more than just a clerical error. It felt like a secret whispering in the shadows of the figures.
+
+

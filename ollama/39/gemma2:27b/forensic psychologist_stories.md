@@ -1,0 +1,5 @@
+The flickering neon sign outside cast an eerie green glow onto Dr. Evelyn Sinclair's face as she stared out the rain-streaked window of the diner booth.  The greasy spoon was deserted except for her and the grizzled cook flipping pancakes behind the counter. The smell of burnt coffee and stale bacon hung heavy in the air, a stark contrast to the sterile scent of antiseptic and paperwork that usually permeated Evelyn's world.
+
+She was miles from the manicured lawns and imposing brick buildings of the state psychiatric hospital where she worked. Here, in the dilapidated heart of Crestwood, a town choked by rusted factories and decaying dreams, Evelyn had been summoned for a case unlike any she'd encountered before.  A string of brutal murders, seemingly random and unconnected, were plaguing the community, each victim left with a cryptic symbol carved into their skin. The local police, baffled and desperate, had turned to Evelyn, hoping her expertise in criminal psychology could shed light on the darkness consuming their town. 
+
+

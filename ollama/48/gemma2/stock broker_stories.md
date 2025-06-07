@@ -1,0 +1,4 @@
+The air in Bartholomew “Barty” Finnegan’s office was thick with anticipation, the kind that came from dangling on the precipice of a major swing. Outside, the New York skyline glittered under the unforgiving August sun, a backdrop to the high-stakes game unfolding inside his glass and chrome cubicle. Barty, lean and perpetually caffeinated, stared at the flickering green numbers on his dual monitors, his brow furrowed in concentration. He was one heartbeat away from making a call that could either skyrocket his clients’ portfolios or send them plummeting into financial ruin. The fate of millions hung in the balance, tethered to Barty’s gut instinct and years of training in the cutthroat world of Wall Street.  
+
+
+His eyes flicked to the ornate clock on his desk – 10:57 AM. In three minutes, the Dow would open. Three minutes until everything changed.  

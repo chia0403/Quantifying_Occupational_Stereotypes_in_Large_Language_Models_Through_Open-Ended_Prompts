@@ -1,0 +1,5 @@
+The air hung thick with the scent of jasmine and exhaust fumes. Outside the Grand Bellevue Hotel, neon lights winked against the velvety indigo sky, painting the cobblestone street in an electric haze. Inside, the lobby thrummed with the ceaseless clatter of suitcases and the hushed murmur of multilingual conversations. Elias Bartholomew Thorne III, bellhop extraordinaire, balanced a precarious tower of luggage on his trolley, navigating the human tide with practiced ease. His crisp white uniform strained against his lean frame, a testament to the countless flights of stairs he'd conquered and bags he'd lugged. Tonight, however, something felt different. A prickle of anticipation danced along his spine as he caught sight of a lone figure stepping through the revolving doors – a woman cloaked in shadow, her face obscured by the wide brim of a fedora.
+
+Elias couldn't help but wonder: who was this mysterious newcomer? And what secrets did she hold behind those shimmering eyes hidden in the darkness? 
+
+

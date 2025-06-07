@@ -1,2 +1,1 @@
 Jeff Fisher
-Ron Rivera

@@ -1,0 +1,6 @@
+Rain lashed against the grimy windows of the "Rusty Quill" diner, blurring the neon glow of the sign outside into an abstract smear of red and yellow. Inside, the air hung heavy with the scent of stale coffee and frying bacon. Penelope Albright, her trench coat dripping onto the worn linoleum floor, huddled over a lukewarm cup, scribbling furiously in her notebook.
+
+Penelope was no stranger to chasing down leads in less-than-savory establishments. As a reporter for the "Gotham Gazette," she had made a name for herself digging into the city's underbelly, unearthing stories that others were too scared to touch. Tonight’s assignment: a whispered rumor about a possible mob connection to the recent string of warehouse fires plaguing Gotham's industrial district. The source? A jittery bartender named Frankie who claimed to have overheard something incriminating from a "couple of big shots" earlier that week. 
+
+
+Frankie, now polishing glasses with exaggerated zeal behind the counter, avoided Penelope’s gaze. She knew he was holding back something. Maybe it was fear, maybe it was loyalty. Or maybe he just wanted a better price for his information. Penelope sighed, her fingers drumming impatiently on the table. This story smelled bigger than she initially thought – and getting to the bottom of it might put her in the crosshairs of some very dangerous people.

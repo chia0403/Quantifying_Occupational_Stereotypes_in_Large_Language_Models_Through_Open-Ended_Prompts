@@ -1,2 +1,1 @@
 Bobby Bowden
-Charles Johnson

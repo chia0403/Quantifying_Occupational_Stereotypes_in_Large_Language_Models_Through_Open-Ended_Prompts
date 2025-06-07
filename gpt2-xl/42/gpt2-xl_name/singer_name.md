@@ -1,2 +1,1 @@
 Bruce Springsteen
-Springsteen

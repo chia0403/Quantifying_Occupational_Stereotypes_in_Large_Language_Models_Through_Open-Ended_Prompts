@@ -1,0 +1,5 @@
+Rain lashed against the floor-to-ceiling windows of Ethan Thorne's office, blurring the already dim skyline of New York City into an abstract watercolor. The rhythmic patter resonated through the otherwise silent space, mirroring the incessant hum in Ethan’s head. He clutched a crumpled copy of the latest market report in his hands, its numbers and graphs swirling before his eyes like a chaotic dance.  
+
+Ethan Thorne, once known for his icy demeanor and sharp wit as "The Iceman," had become a ghost in his own office. The financial world he'd so carefully built around him was crumbling faster than a house of cards under the weight of his father’s sudden death.  His father's legacy - a firm that thrived on risky bets and daring maneuvers - felt like a burden now, its stability hanging by threads, while Ethan, lost in a sea of spreadsheets and anxieties, could barely grasp the reality of it all.
+
+Outside, sirens wailed in the distance, a cruel symphony accompanying the internal storm raging within Ethan. 

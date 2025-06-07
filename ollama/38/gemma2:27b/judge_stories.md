@@ -1,0 +1,5 @@
+Rain lashed against the courthouse windows, blurring the world outside into an impressionist watercolour of greys and greens. Judge Amelia Winthrop stared out at the downpour, her silver hair reflecting the dim light filtering through the grimy glass. The antique clock on the wall chimed twice, reminding her that the afternoon session was about to begin. A gnawing unease twisted in her stomach. She'd been a judge for over two decades, presiding over everything from petty thefts to brutal murders, but this case felt different. It clung to her like the dampness seeping into her bones.
+
+The case involved a young woman accused of arson, a charge that seemed improbable on its face.  Amelia had studied the evidence meticulously, poring over witness statements and forensic reports until her eyes burned. Something didn't add up. The flames, the timing, the young woman's demeanor – it all felt like pieces of a puzzle forced together, creating a picture that was just off-kilter. As Amelia straightened her robes and prepared to enter the courtroom, she couldn't shake the feeling that she was about to walk into a storm far more dangerous than the one raging outside. 
+
+

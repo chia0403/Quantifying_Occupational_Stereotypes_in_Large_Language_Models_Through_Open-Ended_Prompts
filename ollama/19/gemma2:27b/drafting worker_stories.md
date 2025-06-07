@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Elias Finch's head, casting a sterile glow over the endless rows of drafting tables. Each table was cluttered with rulers, protractors, compasses, and sheets of paper covered in intricate lines and symbols – a language only understood by those who could translate dreams into reality. Elias, hunched over his own table, meticulously traced a line across a blueprint for a new apartment complex. The rhythmic scratch of his pencil against the vellum was the only sound breaking the suffocating silence of the drafting room. Outside, the city roared with life, but within these walls, time seemed to stand still.
+
+Elias yearned for something more than the mundane precision of drafting. He dreamt of designing soaring skyscrapers that kissed the clouds, bridges that spanned impossible distances, and homes that whispered comfort to their inhabitants. But for now, he was stuck drawing cookie-cutter apartments, his creativity confined to the boundaries of pre-determined specifications. Still, he poured every ounce of passion into his work, hoping that one day, he'd be given a chance to truly let his imagination soar. 
+
+

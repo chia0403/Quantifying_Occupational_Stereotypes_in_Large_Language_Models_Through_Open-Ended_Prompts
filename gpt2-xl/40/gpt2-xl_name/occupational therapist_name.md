@@ -1,2 +1,1 @@
 Nancy Drew
-Amy Ziering

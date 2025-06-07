@@ -1,0 +1,6 @@
+The acrid smell of bleach stung Dr. Evelyn Albright's nostrils as she stepped into the interrogation room.  It was an unsettling scent, incongruous with the sterile white walls and harsh fluorescent lighting. The table in the center was scrubbed clean, but Evelyn could still imagine the dark stains it had once held – evidence of a struggle, perhaps even spilled blood. 
+
+Evelyn adjusted her glasses, their thin metal frame cold against her temple. This wasn't her usual domain. She specialized in assessing criminal minds, not interrogating them. But this case, with its unsettling blend of violence and psychological complexity, had pulled her in. The suspect, a young man named Simon Thorne, was accused of a brutal double homicide, but his demeanor suggested something far more disturbing than mere malice. 
+
+
+His eyes – wide, vacant, almost doll-like – held no trace of remorse, only an unsettling stillness that sent shivers down Evelyn's spine. As she took her seat across from him, the room felt unbearably quiet, the tension thick enough to cut with a knife. This was going to be a difficult interview, one that would test not only her professional skills but also her own courage and sanity. 

@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Amelia Cartwright's head, their pale glow reflecting off the linoleum floor and casting an anemic sheen on the rows of candy bars and chewing gum lining the checkout counter. The air hung heavy with the scent of stale popcorn and artificial strawberry from the slushie machine in the corner. It was a Tuesday afternoon, and the usual lull before the after-school rush had settled in at Quick Stop Mini Mart. Amelia idly tapped her nails on the worn countertop, counting down the seconds until her shift ended.
+
+Outside, the August sun beat down mercilessly on the dusty parking lot, baking the asphalt until it shimmered. A lone cicada buzzed its monotonous song from somewhere in the overgrown weeds bordering the store. The monotony of her job, scanning groceries and dispensing change, often left Amelia feeling like she was trapped in a slow-motion replay of the same day, over and over again.  But today, something felt different. An unfamiliar tension coiled in her stomach, a premonition that whispered of something unexpected about to unfold.
+
+

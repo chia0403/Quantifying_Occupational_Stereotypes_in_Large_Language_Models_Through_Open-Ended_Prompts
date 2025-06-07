@@ -1,0 +1,5 @@
+The air in Grendel's Cleaver hung thick with the metallic tang of blood and the savory scent of roasting meat. Rain lashed against the shop windows, blurring the cobblestone street outside into an impressionistic painting of grey and ochre. Bartholomew "Bart" Grimshaw, his burly frame hunched over a slab of beef, grunted as he expertly sliced through muscle and bone. The rhythmic thud of cleaver on wood was punctuated by the occasional clang of metal against steel as he sharpened his tools.  Bart had been Grendel's Cleaver proprietor for twenty years, inheriting the shop from his father before him. He knew every cut of meat like an old friend, their textures and flavors whispered in his calloused hands.
+
+But today, something felt different. A prickle of unease ran down Bart's spine as he worked, a sensation amplified by the mournful howl of the wind outside. It wasn’t just the storm; a palpable tension hung in the air of the market square, whispering of unspoken fears and hidden dangers. 
+
+

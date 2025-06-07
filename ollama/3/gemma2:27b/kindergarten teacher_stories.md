@@ -1,0 +1,5 @@
+The scent of crayons and Elmer's glue hung thick in the air, a familiar comfort to Amelia Rose Cartwright. Sunlight streamed through the dusty windowpanes of her kindergarten classroom, casting rainbows onto the alphabet rug where twenty-five five-year-olds were currently engaged in a spirited game of "Duck, Duck, Goose." Laughter and squeals mingled with the rhythmic thud of tiny hands slapping knees. It was chaos, yes, but it was Amelia's kind of chaos – the vibrant, joyous, messy chaos that came with nurturing young minds. 
+
+Yet today, even the infectious glee of her students couldn't quite dispel the nagging sense of unease tugging at Amelia's heart. A letter had arrived that morning, crisp and official, informing her of a surprise inspection scheduled for the following week. This wasn't unusual in itself, but something about the tone, the rigid formality, sent a shiver down her spine.  Amelia couldn't shake the feeling that this inspection was different, that it carried implications far beyond the usual checklist of crayons and curriculum. 
+
+

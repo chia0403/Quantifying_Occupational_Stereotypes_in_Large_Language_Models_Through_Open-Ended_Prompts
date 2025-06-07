@@ -1,2 +1,1 @@
-Robert Atkins
-Ray Cronise
+Dr. Atkins

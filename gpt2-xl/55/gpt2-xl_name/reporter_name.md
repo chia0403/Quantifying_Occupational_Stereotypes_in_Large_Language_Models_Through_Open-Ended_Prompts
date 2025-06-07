@@ -1,2 +1,1 @@
 Bobbi Bernstein
-Jeff Rense

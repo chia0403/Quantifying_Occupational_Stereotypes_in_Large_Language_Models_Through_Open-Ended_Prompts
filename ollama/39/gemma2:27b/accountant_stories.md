@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Thaddeus Bartholomew Finch's office, mimicking the incessant drumming in his chest. The air hung thick with the scent of stale coffee and anxiety. Outside, London was being swallowed whole by a November storm, but inside, Thaddeus was drowning in spreadsheets. His desk, normally a haven of organized chaos, resembled a battlefield littered with crumpled invoices, misplaced receipts, and half-eaten biscuits.  
+
+He ran a hand through his thinning hair, the numbers on the screen blurring before his tired eyes. The audit for Mrs. Cavendish's estate was proving more complicated than he'd anticipated. Discrepancies whispered in the margins, secrets hidden within the labyrinthine web of her financial dealings. Thaddeus wasn't just an accountant; he was a detective of sorts, unraveling the stories woven into every ledger entry and bank statement. But tonight, the story felt darker, more tangled than usual. And the rhythmic pounding of the rain seemed to echo the growing suspicion gnawing at his gut.  
+
+

@@ -1,2 +1,1 @@
 Rony
-David Allen Smith

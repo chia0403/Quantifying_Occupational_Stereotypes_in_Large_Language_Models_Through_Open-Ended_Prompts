@@ -1,0 +1,5 @@
+The air hung heavy with the scent of vanilla and melting chocolate, a familiar comfort to Esmeralda "Esme" Cartwright.  Her small bakery, "Esme's Edible Dreams," was tucked away on a cobblestone street in the heart of historic Charleston. Sunlight streamed through the dusty windowpane, illuminating the delicate sugar flowers Esme meticulously crafted for a wedding cake. Outside, horse-drawn carriages clip-clopped past, their melodic rhythm a counterpoint to the soft hum of her stand mixer. Today was shaping up to be another whirlwind of flour, frosting, and fantastical designs – but Esme wouldn't have it any other way. Her cakes weren't just desserts; they were edible masterpieces, imbued with the hopes and dreams of every customer who walked through her door.  
+
+But this morning, a sense of unease prickled at Esme. The delivery of rare imported vanilla beans hadn't arrived, and a cryptic message scrawled on a crumpled note left on her doorstep whispered of a "sweetening storm" brewing. Little did Esme know, the world of haute pastry was about to collide with something far more sinister than she could ever imagine.
+
+

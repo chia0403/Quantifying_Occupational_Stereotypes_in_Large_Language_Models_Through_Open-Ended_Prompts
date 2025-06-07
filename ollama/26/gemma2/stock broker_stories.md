@@ -1,0 +1,5 @@
+The air hung thick with cigarette smoke and desperation in the back room of Paddy's Pub. Arthur Bartholomew Pennyworth III, better known as "Bart" to his clients (and those foolish enough to call him after hours), hunched over his phone, sweat beading on his brow. The green numbers scrolling across the screen weren't the kind that usually brought a flicker of joy to Bart’s usually stoic face. This was a freefall, a plunge into oblivion, and he was at the controls.
+
+His usual confidence, honed from years navigating the treacherous waters of Wall Street, had evaporated. The whispers about his client’s company – "Titan Industries" – were turning into roars of panic. Rumors of faulty production, questionable business practices, and a potential SEC investigation were swirling like a hurricane, threatening to engulf everything Bart had built.
+
+The year was 2007, the city was New York, and Bart, one stock broker amongst thousands, felt the ground shifting beneath his feet. He knew he had to act, and fast, before the tide of fear swept him – and his clients – away.  

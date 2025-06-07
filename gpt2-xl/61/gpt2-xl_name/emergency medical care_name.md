@@ -1,1 +1,1 @@
-Emergency room at Mount Sinai
+Emergency room at Mount Sinai Hospital

@@ -1,3 +1,1 @@
-James Ritter
-Charles E Lattimer
-Jim
+James "Jim" Ritter

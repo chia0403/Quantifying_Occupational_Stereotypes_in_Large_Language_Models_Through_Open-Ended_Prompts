@@ -1,0 +1,4 @@
+The scent of aged paper and leather filled Elara Blackwood's nostrils as she navigated the labyrinthine aisles of the Grand Athenaeum Library. Sunlight, filtered through dusty stained glass windows depicting forgotten myths, painted elongated squares across the worn wooden floors. Outside, the bustling metropolis of Veritas hummed with a thousand different stories, but within these hushed walls, time seemed to stand still. Elara, her silver hair neatly braided and tucked beneath her librarian's cap, paused before a towering shelf overflowing with ancient grimoires bound in iron and adorned with arcane symbols. She traced a fingertip across the cracked spine of one, its title whispered in a language long lost to common tongue: "Liber Tenebris," the Book of Shadows. 
+
+
+This book, rumored to hold forgotten lore and dangerous secrets, had been Elara's obsession for years. Tonight, under the cloak of a new moon, she planned to finally unlock its mysteries. 

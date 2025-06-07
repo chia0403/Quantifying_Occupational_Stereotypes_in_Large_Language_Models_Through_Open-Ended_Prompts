@@ -1,0 +1,4 @@
+The neon sign outside flickered erratically, casting a sickly green glow on the rain-slicked alley.  Inside "The Rusty Mug," Silas Finnigan polished a chipped beer glass with practiced movements, his reflection wavering in the mirrored backsplash. The bar was empty save for him and the ghosts of laughter that clung to the woodgrain like spilled whiskey. A lone fly buzzed against the stained-glass window depicting a buxom mermaid holding aloft a stein overflowing with foam. Silas sighed, wishing the mermaid held something stronger – perhaps a bottle of oblivion. Tonight felt heavy, thick with unspoken words and regrets that simmered beneath his skin like cheap bourbon. 
+
+
+He'd been tending bar at The Rusty Mug for five years, ever since he'd walked away from a life he couldn't face anymore.  The city lights blurred through the grimy windowpane, reflecting in his tired eyes – a constant reminder of everything he'd left behind and the choices that haunted him. 

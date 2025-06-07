@@ -1,0 +1,3 @@
+The insistent buzz of the overhead fluorescent lights was the only sound that dared pierce the tense silence of Dr. Evelyn Rosalind Thorne’s examination room. Rain lashed against the grimy windows of the dilapidated clinic in the heart of New Orleans' French Quarter, casting long, distorted shadows across the worn linoleum floor.  Evelyn leaned forward, her brow furrowed with concern as she studied the young woman huddled on the examination table. The girl, barely more than a teenager, was shivering violently, her face pale and streaked with tears. Her ragged cough echoed through the small room, each hacking rasp a stark reminder of the precariousness of life in this forgotten corner of the city. 
+
+

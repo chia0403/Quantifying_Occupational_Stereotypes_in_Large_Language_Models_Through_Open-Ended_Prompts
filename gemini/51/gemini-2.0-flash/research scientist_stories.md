@@ -1,0 +1,9 @@
+## Story Opening & Setting:
+
+**Story Opening:**
+
+Dr. Anya Sharma squinted at the holographic projection, the delicate, swirling patterns of the Xylos Nebula filling her small, cluttered lab with an ethereal, purple glow. For the past three weeks, the data streams from the Kepler-186f probe had been… off. Not broken, not malfunctioning, just *different*. The predictable, monotonous hum of interstellar background radiation was punctuated by bursts of energy, almost rhythmic, almost… intelligent. Anya had spent countless hours, fuelled by lukewarm coffee and sheer stubbornness, filtering the noise, trying to isolate the source, trying to understand the signal. Tonight, she thought, she might finally have something concrete.
+
+**Setting:**
+
+The setting is the year 2247. Anya’s lab is located in a subterranean research facility, Station Kepler, situated deep beneath the desolate, windswept plains of Neo-Mars Colony 7. Station Kepler is a sprawling, multi-level complex carved into the Martian bedrock, designed to shield sensitive scientific instruments from the planet's harsh radiation and extreme temperature fluctuations. It’s a hub for astrophysics, xenobiology, and robotics research, all aimed at understanding the universe and searching for extraterrestrial life. Anya's particular lab, tucked away in a less-trafficked sector of the facility, reflects her personality: a controlled chaos of data cables, half-empty nutrient paste packets, overflowing whiteboards covered in complex equations, and various prototype sensors she's designed and built herself. The air is recycled, slightly stale, and hums with the constant low thrum of the facility's life support systems. The only window looks out onto a simulated Martian landscape projected onto a reinforced bulkhead, a pale imitation of the world outside, a world most residents of Station Kepler rarely see.

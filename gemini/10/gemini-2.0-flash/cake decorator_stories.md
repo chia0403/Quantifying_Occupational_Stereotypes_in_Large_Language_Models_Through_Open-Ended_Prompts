@@ -1,0 +1,7 @@
+## Opening:
+
+The cloying sweetness of buttercream hung heavy in the air, a scent Beatrice Willowood both adored and loathed. Today, it leaned more towards loathing. Her elbow was screaming in protest, the fine tremor in her hand was threatening to turn the delicate sugar roses into a jumbled mess of pink and white, and the clock on the wall was mocking her with its relentless ticking. Three hours. She had three hours until Mrs. Abernathy's Diamond Jubilee cake, a monstrosity of seven tiers that threatened to dwarf Beatrice herself, needed to be delivered.
+
+## Setting:
+
+Beatrice's Haven for Heavenly Cakes, a quaint and somewhat chaotic bakery tucked away on Lavender Lane in the small coastal town of Port Blossom, Maine. Sunlight streamed through the large, flour-dusted windows, illuminating shelves overflowing with cookie cutters, piping bags, and bottles of every imaginable food coloring. The walls, painted a cheerful butter yellow, were plastered with handwritten thank you notes and pictures of past creations, from whimsical birthday cakes shaped like dragons to elegant wedding cakes adorned with sugar swans. A large, stainless steel island took up the center of the room, its surface covered in a kaleidoscope of frosting swirls and stray sprinkles. Behind the island, a commercial oven hummed a steady tune, its warmth adding to the already stifling atmosphere. The air crackled with the energy of creation, even as Beatrice fought against the mounting pressure of the deadline.

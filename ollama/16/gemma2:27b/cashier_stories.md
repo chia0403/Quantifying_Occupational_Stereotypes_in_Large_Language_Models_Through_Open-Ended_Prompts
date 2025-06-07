@@ -1,0 +1,6 @@
+The fluorescent lights buzzed overhead, casting a sickly yellow pallor over everything in Benny's Bargain Basement. Penelope "Penny" Albright sighed, her gaze drifting towards the clock above the register. 3:47 PM. Just another Wednesday afternoon, slowly dissolving into the beige monotony of her life. Penny wasn't sure if she was more bored by the endless parade of discount shoppers or the fact that her nametag insisted on calling her "Penelope," a moniker reserved for schoolteachers and Victorian ladies, not someone who spent their days scanning cans of dented beans and questioning the necessity of 3-for-1 toilet brushes.
+
+
+The bell above the door chimed, jolting Penny back to reality. A woman, shrouded in a thick, hooded coat despite the unseasonably warm spring day, shuffled towards her counter, her face obscured by shadows. Penny pasted on her practiced customer service smile. "Hello there! Find everything alright?" she chirped, bracing herself for the usual mumbled response or unintelligible question about the location of the discounted dog food.
+
+But this woman didn't answer. She simply stared at Penny with unnervingly intense blue eyes that seemed to pierce through her carefully constructed facade. A shiver ran down Penny's spine. There was something unsettling about this encounter, a prickle of unease she couldn't quite shake off.

@@ -1,1 +1,1 @@
-John Paul Smithson Jr.
+John Paul Smithson

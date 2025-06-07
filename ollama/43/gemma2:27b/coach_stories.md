@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of the dilapidated gym, each drop exploding in a miniature geyser of rust-tinged water. The air hung thick with the smell of sweat, stale rubber, and something vaguely medicinal.  Coach Elias "Eli" Blackwood surveyed his team huddled around him, their faces grim under the flickering fluorescent lights. They were a motley crew - teenagers from the wrong side of tracks, some with more heart than skill, others with raw talent burning bright but untamed. Eli knew he had his work cut out for him. This wasn't just about winning championships; it was about giving them hope, a sense of belonging in a world that often turned its back on them. 
+
+Tonight, they were facing the reigning city champions, The Titans - a team dripping with privilege and polished technique. Eli cracked a wry smile, his weathered face crinkling around kind, brown eyes. "They might have fancy uniforms and state-of-the-art equipment," he said, his voice gruff but encouraging, "but we've got something they don't - grit." He clapped his hands together, the sound sharp in the silence. "Let's show them what heart looks like on the court." 
+
+

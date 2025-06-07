@@ -1,2 +1,1 @@
-Henry Gipsy Danger
-Gipsy Danger
+Henry

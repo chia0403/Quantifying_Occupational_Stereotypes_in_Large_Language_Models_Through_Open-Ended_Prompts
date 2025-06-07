@@ -1,0 +1,3 @@
+Rain lashed against the windows of "Smiles for Miles," blurring the cheerful cartoon tooth plastered on the glass door. Inside, Elara Roseweather sighed, her breath fogging up her face shield momentarily. The rhythmic whirring of the suction machine filled the otherwise quiet room, punctuated by the occasional clang of instruments being dropped into the ultrasonic cleaner. It was a slow Tuesday afternoon in Maple Creek, a sleepy town nestled between rolling hills and a shimmering lake. Elara usually relished the calm, but today a gnawing restlessness plagued her. She couldn't shake the feeling that something significant was about to happen, something beyond the usual chipped molars and plaque build-up.  
+
+

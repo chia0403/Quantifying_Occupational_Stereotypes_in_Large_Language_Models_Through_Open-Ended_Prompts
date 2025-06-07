@@ -1,0 +1,6 @@
+The stale scent of instant coffee hung heavy in the air, mingling with the faint whiff of desperation emanating from Doris McMillan's cubicle. Outside, the relentless April sun beat down on Tax Haven, a ramshackle office building perched precariously on the edge of town.  Doris, hunched over her desk, chewed furiously on the end of her pen, her brow furrowed in concentration as she wrestled with Mrs. Peabody's convoluted deductions for charitable donations to a "Society for the Advancement of Talking Rabbits."
+
+Tax season had descended upon Doris like a swarm of locusts, leaving her buried under a mountain of receipts, W-2s and cryptic expense reports. Every year, it was the same: the initial surge of optimism followed by a slow, agonizing descent into caffeine-fueled chaos. This year, however, felt different. A strange unease prickled at Doris' skin, a feeling she couldn't quite place. Maybe it was the unsettling glint in the eye of Mr. Grimshaw, who claimed to have "found" a lost inheritance from a long-forgotten great aunt, or the inexplicable influx of clients with suspiciously identical deductions for "spiritual enlightenment retreats." 
+
+
+Whatever the reason, Doris McMillan knew this tax season wouldn't be business as usual.  Something was brewing in Tax Haven, and she had a feeling it wasn't just brewing coffee.

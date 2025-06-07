@@ -1,0 +1,6 @@
+The air in the trading floor hummed with a nervous energy, a symphony of ringing phones, barked orders, and the staccato click-clack of keyboards.  Sunlight glinted off the screens displaying constantly shifting numbers, a kaleidoscope of green and red that mirrored the volatile emotions of the traders. Amidst this organized chaos stood Theodore Alistair Finch III, his lean frame perched on his swivel chair, his gaze locked on the screen before him.
+
+Theo, as he was known to most, wasn't just another cog in the machine of Wall Street. He possessed an uncanny intuition for the market, a sixth sense that allowed him to predict trends with unsettling accuracy. His office, located on the 42nd floor of a towering glass skyscraper overlooking Manhattan, was a testament to his success – sleek and minimalist, with panoramic windows offering breathtaking views of the city that never slept. But even from this lofty perch, Theo couldn't escape the looming shadow of doubt that had begun to creep into his mind.
+
+
+The whispers started subtly – rumors about insider trading, shady deals, and a growing unease among clients. And as those whispers grew louder, so did Theo’s own sense of foreboding. He knew something was deeply wrong, but could he find the truth before it consumed him?  

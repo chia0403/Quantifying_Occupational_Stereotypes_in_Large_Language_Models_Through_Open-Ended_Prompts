@@ -1,0 +1,7 @@
+The morning light filtered softly through the lace curtains of Petal & Stem, casting delicate patterns on the wooden floor. Outside, the world hummed with the usual hustle and bustle of Market Street, but inside Marceline Byers' flower shop, there was a serene oasis of calm. The air was cool and fragrant, filled with the sweet, earthy scent of roses, tulips, and lilies intertwining in a harmonious bouquet.
+
+Marceline stood behind the vintage oak counter, her fingers deftly arranging a cascade of peonies and eucalyptus into a whimsical bridal bouquet. Her shop was a testimony to her love for the delicate art of floristry: an eclectic mix of colors and scents, with a cozy corner housing a small, well-thumbed library of botanical books she referred to often.
+
+Sunlight caught her deep auburn hair as she worked, creating an auburn halo around her head. Marceline paused for a moment, tucking a loose strand behind her ear, her hazel eyes glancing out the window. She savored this time of day—before the rush of customers, before the world outside clamored for her attention—when the shop was just hers and the flowers'.
+
+It was in these gentle hours that Marceline found inspiration, the peace to create arrangements that not only delighted the eye but spoke to the heart. As the distant chiming of the clock tower reverberated through the quiet streets, she knew it was time to open the doors and welcome the day, with all of its fragrant possibilities.

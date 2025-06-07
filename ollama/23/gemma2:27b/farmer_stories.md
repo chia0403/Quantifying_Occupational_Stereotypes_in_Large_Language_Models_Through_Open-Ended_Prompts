@@ -1,0 +1,5 @@
+The air hung heavy with the scent of drying hay and the distant lowing of cows as Elias Cartwright surveyed his fields. The sun, already high in the cloudless sky, beat down on the golden wheat swaying gently in the breeze. Elias, his brow furrowed beneath a worn straw hat, ran a calloused hand over the rough stubble on his chin. This year's harvest promised to be bountiful, but worry gnawed at him. The price of grain was falling, and the bank had been pressuring him for months about the loan he'd taken out to buy new equipment. Elias loved his farm, a legacy passed down from his grandfather, but keeping it afloat felt like an increasingly Herculean task. 
+
+He wiped the sweat from his forehead with a bandana, his gaze lingering on the distant silhouette of Widow Hawthorne's ramshackle farmhouse nestled against the treeline. She was struggling too, whispered rumors amongst the townsfolk, and Elias couldn't help but feel a pang of sympathy for her.  Perhaps, he thought, there was something they could do to help each other.
+
+

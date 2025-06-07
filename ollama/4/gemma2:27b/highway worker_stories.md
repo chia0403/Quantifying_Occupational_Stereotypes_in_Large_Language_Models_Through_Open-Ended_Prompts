@@ -1,0 +1,4 @@
+The Nevada sun beat down on Bartholomew "Bart" Higgins like a blacksmith's hammer, baking the asphalt beneath his boots until it shimmered.  Dust devils danced across the endless ribbon of Highway 93, swirling around Bart's legs as he leaned against his orange safety cone, squinting at the horizon. Miles of shimmering heat stretched before him, broken only by the occasional weathered billboard advertising "World's Largest Pistachio" or "Alien Autopsy Museum."  Bart sighed. Another ten-hour shift staring down this desolate stretch of highway, patching potholes and replacing faded signs. 
+
+
+He wasn't cut out for this. His dreams had always been bigger than Nevada - he yearned to see the world beyond these dust-choked plains, to feel the chill of a northern wind or the spray of an ocean wave on his face. But life, as it often did, had other plans.

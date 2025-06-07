@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Elias Finch's head, casting a sickly yellow pallor over the deserted office cubicles. The air hung heavy with the smell of stale coffee and unfulfilled dreams. Elias pushed his ancient mop cart down the aisle, its wheels squeaking a mournful dirge against the linoleum floor. Outside, the city was just beginning to stir awake, its skyscrapers rising like concrete giants against the bruised dawn sky. But inside this corporate tomb, Elias was alone, a silent guardian of forgotten spreadsheets and abandoned dreams. He paused by a window overlooking the bustling street below, watching the tide of humanity surge forward with a sense of purpose he couldn't quite fathom. 
+
+Elias wasn't one for questioning his lot in life. Cleaning up after other people's ambitions was all he knew. Yet, tonight felt different. A subtle shift in the air, a whisper of something unknown. As he turned back to face the endless rows of desks, a glint of metal caught his eye beneath a forgotten desk. It was a key, cold and heavy in his palm. The moment Elias touched it, a shiver ran down his spine, and a voice whispered in his mind: "Time to wake up." 
+
+

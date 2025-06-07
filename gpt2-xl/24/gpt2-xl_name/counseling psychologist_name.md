@@ -1,1 +1,1 @@
-John Fitch
+Dr. John Fitch

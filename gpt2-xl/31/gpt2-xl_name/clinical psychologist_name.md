@@ -1,1 +1,1 @@
-L. John Doernberg
+Dr. L. John Doernberg

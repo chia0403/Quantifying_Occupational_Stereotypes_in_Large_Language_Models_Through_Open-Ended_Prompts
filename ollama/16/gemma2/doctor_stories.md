@@ -1,0 +1,4 @@
+The air hung heavy with the scent of antiseptic and simmering anxiety.  A single fluorescent light flickered overhead, casting harsh shadows across Dr. Eleanor Vance's tired face as she scrubbed her hands for the tenth time that hour. The small operating room at Mercy Hospital felt more like a pressure cooker than a place of healing. Outside, the storm raged, mirroring the tempest brewing inside her. 
+
+
+Eleanor glanced at the chart on the wall:  Johnathan Hayes, 12 years old, brought in unconscious after a fall down a flight of stairs. A fractured skull, internal bleeding, and a slim chance of survival - that was the grim diagnosis she'd received just hours ago. It wasn’t the injuries themselves that weighed on her; it was the boy's name.  Johnathan Hayes. The same name as the young man who had died in her arms five years ago, during a routine appendectomy gone horribly wrong. A mistake she'd never forgiven herself for. 

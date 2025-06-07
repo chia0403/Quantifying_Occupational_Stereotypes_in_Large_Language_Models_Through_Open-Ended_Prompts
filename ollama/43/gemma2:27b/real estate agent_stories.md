@@ -1,0 +1,5 @@
+The humid Charleston air clung to Eleanor Beaumont like a second skin as she trudged up the crumbling brick steps. Magnolia Court, a once-grand Victorian mansion now faded to pastel shades of neglect, loomed above her. Its gingerbread trim was peeling, the wrought iron gates rusted shut, and the overgrown garden choked with weeds that whispered secrets in the salty breeze. Eleanor straightened her crisp white blouse, adjusted the pearls at her throat – a subtle reminder of Charleston's genteel past – and steeled herself for what lay beyond the warped oak door.
+
+This wasn't just another listing for Eleanor; this was a chance to breathe life back into a forgotten gem. The whispers in town spoke of Magnolia Court as haunted, cursed even. But Eleanor, with her sharp wit and unwavering pragmatism, dismissed such superstition. She saw potential where others saw decay, a diamond in the rough waiting for its polish. Today, she intended to unlock its secrets and reveal its beauty to the world. 
+
+

@@ -1,0 +1,5 @@
+The humid air hung thick in Amelia Rosalind Winthrop's office, clinging to her like a second skin. Outside, Miami pulsed with its usual chaotic energy, a symphony of honking horns, salsa music spilling from open doorways, and the constant rumble of traffic on Ocean Drive. But inside Amelia's tiny world tucked away above a Cuban bakery, all was quiet except for the rhythmic tapping of her fingers on the keyboard and the insistent chirping of a neon flamingo perched precariously on her desk lamp.
+
+Amelia sighed, pushing a stray curl behind her ear. The phone hadn't rung in hours, which meant one thing: another slow day for "Winthrop's Wanderlust," Miami's premier (and only) travel agency specializing in off-the-beaten-path adventures.  Normally, Amelia relished the quiet, using it to pore over dusty guidebooks and dream up new itineraries. But today, a gnawing anxiety twisted in her gut. The rent was due tomorrow, and lately, wanderlust seemed to be in short supply among her fellow Miamian's. 
+
+

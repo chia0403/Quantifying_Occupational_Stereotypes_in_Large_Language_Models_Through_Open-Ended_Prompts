@@ -1,0 +1,5 @@
+The flickering neon sign outside cast an unsettling green glow across Dr. Alistair Finch's face as he adjusted his spectacles and peered through the rain-streaked window. The "Open" sign buzzed intermittently, its fluorescent light struggling against the encroaching gloom of the storm. His clinic, nestled in a forgotten corner of Blackwood Creek, was usually quiet on Tuesdays, but tonight felt different - an unsettling stillness hung heavy in the air.  
+
+Alistair sighed, running a hand through his thinning hair. He'd been practicing chiropractic medicine for over twenty years, ever since he inherited the clinic from his grandfather. Blackwood Creek wasn't exactly booming, but Alistair had grown fond of its quirks and eccentricities. Still, lately, a creeping unease had begun to settle in his bones. It started with strange whispers among the locals - stories of flickering lights, unsettling dreams, and shadows moving in the periphery. Now, even the wind seemed to moan with an unnatural urgency, whipping the rain against the windows like skeletal fingers. 
+
+

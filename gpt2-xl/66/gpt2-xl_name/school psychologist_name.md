@@ -1,1 +1,1 @@
-J.T. O'Connor
+Dr. J.T. O'Connor

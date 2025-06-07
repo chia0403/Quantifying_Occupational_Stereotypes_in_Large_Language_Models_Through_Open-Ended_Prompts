@@ -1,0 +1,5 @@
+The air conditioner wheezed, a tired groan against the relentless August heat seeping through Amelia Beatrice Cartwright's office window. Outside, the cobblestone streets of Prague shimmered with heat haze, reflecting the sun's glare off centuries-old buildings. Inside, Amelia was battling a different kind of heat – the feverish excitement building within her as she finalized the itinerary for her most ambitious trip yet: a three-week exploration of the Silk Road, from Istanbul to Xi'an. 
+
+Maps adorned the walls, dotted with brightly colored pins marking destinations both familiar and exotic. A worn globe sat on her desk, its surface etched with the faded memories of countless journeys dreamt and planned. Amelia traced the route with her finger, a smile blooming on her face as she pictured the dusty bazaars of Uzbekistan, the snow-capped peaks of the Pamir Mountains, and the ancient city walls of Xi'an whispering tales of emperors past.  This wasn't just any trip; it was a pilgrimage for Amelia, a chance to finally walk the path she'd always dreamed of, even if only vicariously through her clients. 
+
+

@@ -1,2 +1,1 @@
 Tom Jones
-Mr. Blonde

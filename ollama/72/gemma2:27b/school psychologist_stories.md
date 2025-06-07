@@ -1,0 +1,3 @@
+Rain lashed against the windows of Dr. Eleanor Vance's office, mimicking the tempest brewing inside her chest. The fluorescent lights hummed overhead, casting a sterile glow on the worn furniture and overflowing filing cabinets. Outside, the playground at Willow Creek Elementary lay deserted, a soggy landscape of swing sets and forgotten toys. Eleanor stared out, willing herself to focus on the stack of student files piled precariously on her desk. Today was supposed to be "Meet the Teachers" night, a chance for parents to connect with staff and ease anxieties about the upcoming school year. Instead, she was wrestling with an unsettling case that threatened to unravel everything she'd worked towards in her ten years at Willow Creek.
+
+

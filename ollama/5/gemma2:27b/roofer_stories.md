@@ -1,0 +1,5 @@
+The midday sun beat down on Elias "Eli" Hawthorne's neck like a blacksmith's hammer, turning the sweat dripping from his brow into miniature rivers.  He knelt precariously on the steep, terracotta-tiled roof of Mrs. O'Malley's Victorian mansion, carefully replacing a cracked shingle with practiced precision. The air hummed with the distant drone of traffic and the cheerful chirping of sparrows nesting in the eaves. Eli loved this part of his job: the solitary concentration, the tactile satisfaction of shaping malleable shingles to fit perfectly, the panoramic view of the city unfolding beneath him like an intricate tapestry.  
+
+But today, the usual serenity was disrupted by a gnawing unease. A chill wind, unnaturally cold for August, snaked through the gaps in the tiles, whispering unsettling secrets against his ear. And then there was the peculiar glint he'd spotted earlier, tucked away beneath a clump of overgrown ivy – something metallic that winked at him ominously from the shadows. 
+
+

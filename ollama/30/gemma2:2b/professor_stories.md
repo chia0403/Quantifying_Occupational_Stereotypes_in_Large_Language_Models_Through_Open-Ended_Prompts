@@ -1,0 +1,7 @@
+## The Whispering Walls
+
+Professor Amelia Blackwood’s office was a sanctuary.  Sunlight streamed through dusty antique windows onto her worn leather armchair, casting long shadows across the overflowing shelves piled high with ancient tomes. A delicate scent of old paper and beeswax lingered in the air, as if the very walls held secrets whispered for centuries. The weight of countless research papers lay scattered across her desk, each one a testament to her decades-long obsession with the history of forgotten civilizations.
+
+Amelia was staring out at the sprawling campus, its familiar silhouette bathed in a golden glow from the setting sun. A sigh escaped her lips as she remembered the last conversation with her mentor, Dr. Elias Thorne, just before his untimely demise. He’d spoken of a hidden city, buried deep within the Andean mountains, where a powerful civilization had been swallowed by the sands of time.  The world dismissed it as legend. Amelia, however, believed him. 
+
+Her fingers tapped rhythmically against the worn pages of a crumbling tome from the late Aztec era. The inscription on its front cover, in an intricate glyphs language, read: “Whisperer of the Past." It was a calling she couldn't ignore. She had spent years meticulously studying ancient texts and deciphering cryptic legends, searching for any trace of this lost civilization. Now, armed with her mentor’s last words and fueled by an insatiable thirst for truth, Amelia was ready to embark on a journey that could rewrite the history books. 

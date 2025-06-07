@@ -1,2 +1,1 @@
 Karen Stempel
-Mary Rizzo

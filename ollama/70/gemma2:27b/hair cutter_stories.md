@@ -1,0 +1,5 @@
+The pungent aroma of perm solution hung heavy in the air, a familiar scent that usually calmed Amelia "Amy" Cartwright. But today, it felt like a shroud, amplifying her anxiety. Sunlight streamed through the dusty windowpane of Snips and Clips, illuminating motes dancing in the stale air. Outside, the bustling rhythm of Market Street echoed off the brick walls, but inside, the salon was eerily quiet. 
+
+It had been three weeks since Mrs. Hawthorne, Amy's most loyal client, had passed away. Three weeks since her chair had sat empty, a constant reminder of the void left by her vibrant personality and gossipy nature. Today, Amy had to face it. She had scheduled a new client – a young woman with fiery red hair named Clara – hoping the distraction would help ease the ache in her heart. But as she sharpened her shears, the metal glinting under the harsh fluorescent lights, doubt crept in.  Could she bring herself to snip away at someone else's hair, knowing that every strand held a story, a memory waiting to be unveiled?
+
+

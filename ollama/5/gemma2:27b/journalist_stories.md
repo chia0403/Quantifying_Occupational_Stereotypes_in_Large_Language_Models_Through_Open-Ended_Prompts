@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of The Gutter Press, blurring the neon glow of the "Open 24 Hours" sign hanging precariously outside. Inside, Elias Bartholomew "Eli" Finch hunched over his typewriter, the clattering keys battling the symphony of dripping pipes and distant sirens. A half-empty coffee mug sweated on his desk, its contents now lukewarm and tasting faintly of desperation. Eli was chasing a lead, a whisper in the city's underbelly that hinted at something big, something rotten at the heart of Metropolis. He needed this story, needed it like a drowning man needs air. His last three articles had been rejected – too mundane, too niche, not "newsworthy" enough for his editor's insatiable appetite for scandal and sensationalism. 
+
+But this...this felt different. This smelled of conspiracy, of hidden truths buried beneath layers of lies. Eli could feel it in his bones, a gnawing instinct that propelled him forward despite the exhaustion gnawing at his soul. He just needed one solid lead, one piece to connect the dots and expose the truth lurking beneath Metropolis' glittering facade. 
+
+

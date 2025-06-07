@@ -1,0 +1,5 @@
+The bell above the door jingled with an almost mournful sound as Evelyn "Ev" Sinclair watched another customer walk out into the sunshine. Her reflection stared back at her from the dusty mirror behind the styling chair, its surface cracked in two places, like weary eyes peering through broken glass. The once vibrant red of Ev's hair had faded to a dull auburn, mirroring the fading hope she felt for "Shear Perfection," the struggling salon she inherited from her grandmother.  
+
+Outside, the bustling energy of Bleecker Street throbbed - a symphony of car horns, the rumble of the subway below, and the chatter of tourists navigating the sidewalk's chaotic dance. But inside Shear Perfection, the air hung heavy with silence, punctuated only by the tick-tock of the ancient clock on the wall. Ev sighed, her gaze lingering on the worn leather chairs and faded floral wallpaper. This place had been a haven for generations, but now it felt more like a relic, forgotten in a city constantly yearning for something new.
+
+

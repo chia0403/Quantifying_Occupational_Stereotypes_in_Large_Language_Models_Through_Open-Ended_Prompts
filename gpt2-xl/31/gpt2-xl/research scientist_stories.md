@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named Edward Tufte. He knew a lot about the human mind and about social institutions, and he said things like this (paraphrased, no exaggeration): "There are three things humans will never change: their work ethic, their ability to be critical of their fellow humans, and their desire to play the lottery."
+
+We may never be able to change the human mind. The only good thing we can do is improve human work ethic. We need to stop overworking and get off of our butts. The other side of this coin, of course, is to find ways that allow us to be critical of others. If we are aware that we aren't getting everything right and can be patient with our fellow human beings, then this will help us better understand our own minds.
+
+That is to say, we need to understand ourselves better—to accept that we are not 100 percent right or 100 percent wrong, that we are not omniscient and omnibenevolent. We need to acknowledge that there is more to being human than just surviving or overcoming adversity.
+
+As a corollary, there's a lot of work to be done in the psychology of moral behavior. For example, moral psychology doesn't study how a particular moral system makes us better able to survive and thrive. But I have found that the human mind itself, even the people within it—like the people who write the reports that

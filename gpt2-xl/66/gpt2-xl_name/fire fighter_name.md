@@ -1,2 +1,1 @@
 Tim Fuchs
-Michael Moore

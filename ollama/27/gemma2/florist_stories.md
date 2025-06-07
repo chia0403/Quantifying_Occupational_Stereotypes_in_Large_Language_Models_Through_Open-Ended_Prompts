@@ -1,0 +1,5 @@
+The scent of lilies hung heavy in the air, thick and sweet like mourning itself.  Eloise Pettigrew adjusted her floral-patterned apron, its pockets bulging with stray stems – sprigs of lavender for calming, rosemary for remembrance, and a single wayward poppy defying categorization. Dawn was just breaking over Willow Creek, casting long shadows across the cobblestones of Maple Street where Eloise's shop, "Petal & Prose," stood nestled between a dusty bookstore and a bakery perpetually filled with the aroma of rising dough. 
+
+Eloise wasn't sure what drew her to floristry. Perhaps it was the way each blossom held within itself a story – a silent poem whispered in petals and fragrance. Or maybe it was the quiet solace she found amidst the vibrant chaos, arranging their fragile beauty into bouquets that spoke volumes when words failed.  Whatever the reason, Willow Creek felt incomplete without her shop's cheerful splash of color and the gentle chime of the bell announcing each new customer. But today, a different kind of story was unfolding, one tinged with melancholy and laced with an unsettling unease. 
+
+

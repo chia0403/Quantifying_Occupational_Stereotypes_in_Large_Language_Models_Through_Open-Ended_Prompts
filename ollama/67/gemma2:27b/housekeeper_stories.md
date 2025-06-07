@@ -1,0 +1,5 @@
+Rain lashed against the arched windows of Blackwood Manor, each gust rattling the ancient panes like skeletal fingers tapping for entry. Inside, Eleanor Thistlewick wrestled with a particularly stubborn cobweb in the cavernous hall, its threads as thick and tenacious as spun silver. The silence, punctuated only by the rhythmic drip from a leaking gargoyle above, felt heavy, almost oppressive. Blackwood Manor always seemed to hold its breath when the storms rolled in, like a creature hunkering down against an unseen threat.
+
+Eleanor, with her weathered face framed by wisps of iron-grey hair and hands perpetually dusted with the faintest layer of soot, had been the manor's housekeeper for longer than she cared to remember. The sprawling estate, nestled deep in the heart of the Yorkshire Moors, had seen generations of Blackwoods come and go, each leaving their mark on its grand tapestry. Yet, Eleanor remained a constant, a silent observer to the ebb and flow of their lives, her presence as familiar and comforting as the worn floorboards beneath her feet.
+
+

@@ -1,0 +1,4 @@
+The scent of lilies hung heavy in the air, mingling with the earthy aroma of damp soil and the sweet perfume of freesia. Elara Solstice delicately snipped a stray thorn from a blushing pink rose, her emerald eyes focused on her task. Sunlight streamed through the dusty skylight of "Bloom & Bark," bathing the cramped shop in a warm glow. Jars brimming with wildflowers adorned the windowsill, their vibrant colors a stark contrast to the muted brick walls and worn wooden floorboards. Outside, the clamor of the city market buzzed against the glass, a symphony of haggling vendors and gossiping housewives. Yet, within the sanctuary of her shop, Elara found solace – amidst the velvety petals and verdant leaves, she felt truly at home. 
+
+
+Today, however, the usual tranquility was tinged with apprehension. A letter, crisp and white as a gardenia, lay on the counter, its contents threatening to disrupt the delicate balance of Elara's life.  

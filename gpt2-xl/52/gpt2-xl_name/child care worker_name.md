@@ -1,2 +1,1 @@
-Laura Ketchum
-Laura Miller
+Laura

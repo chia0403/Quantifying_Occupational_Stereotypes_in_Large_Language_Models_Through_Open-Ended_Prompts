@@ -1,0 +1,7 @@
+The flickering fluorescent lights of Mercy General Hospital cast long, skeletal shadows across the linoleum floor, making Amelia Chen's already tired eyes ache even more. The sterile scent of disinfectant mingled with the faint metallic tang of blood, a constant reminder of her occupation: phlebotomist. She perched on the edge of a stool, her gaze fixed on the vein she was about to puncture in Mr. Henderson's trembling hand. He was a frail man, his skin papery thin, and Amelia knew this draw would be tricky. It wasn't just the delicate veins that worried her; it was the weight of exhaustion pressing down on her shoulders. 
+
+The past few weeks had been a relentless cycle of double shifts and overflowing labs. Mercy General was bursting at the seams with flu patients, leaving Amelia feeling more like a machine than a human being. Yet, even as fatigue gnawed at her, she couldn't help but feel a surge of empathy for Mr. Henderson. His watery blue eyes held a mixture of fear and resignation, reflecting the vulnerability she often encountered in her patients. 
+
+Amelia took a deep breath, reminding herself to be gentle. This wasn't just about drawing blood; it was about offering comfort and reassurance in a moment of discomfort. The needle pierced the skin with a soft prick, and Mr. Henderson winced but remained stoic. As the crimson fluid slowly filled the vial, Amelia knew she had done her job, but the lingering question remained: how much longer could she keep this up before her own veins ran dry?
+
+

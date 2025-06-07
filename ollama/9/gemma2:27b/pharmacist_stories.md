@@ -1,0 +1,5 @@
+Rain lashed against the pharmacy window, blurring the neon "Open 24 Hours" sign into a hazy kaleidoscope. Inside, Amelia Cartwright meticulously counted out twenty-four blue pills, their smooth surfaces reflecting the pale fluorescent light overhead. She sighed, the weariness of another double shift settling deep in her bones. The rhythmic click of her pill counter was punctuated by the occasional muffled cough from a customer browsing the aisles. It was a quiet night for St. Augustine's Pharmacy, tucked away on a side street in the historic heart of Savannah, Georgia.
+
+Amelia loved the quaint charm of the city, with its cobblestone streets and moss-draped oaks. But tonight, all she felt was the gnawing ache of loneliness. The silence in the pharmacy amplified her thoughts, bringing back memories she'd rather forget - a whispered promise, a sudden goodbye, the empty space beside her in bed.  She shoved the pills into a bottle, labeling it with practiced precision, and turned towards the counter just as the bell above the door jingled, announcing a customer. A figure emerged from the shadows, shrouded in a dripping black raincoat.
+
+

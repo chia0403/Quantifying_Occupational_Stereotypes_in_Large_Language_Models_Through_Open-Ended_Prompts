@@ -1,0 +1,5 @@
+The air in St. Jude's Emergency Room buzzed with a frenetic energy that Amelia Rose Cartwright had come to both loathe and crave. The harsh fluorescent lights glinted off sweat-slicked foreheads, punctuated by the rhythmic beeping of monitors and the sharp hiss of oxygen tanks. It was past midnight, the witching hour when desperation clung to the air like stale perfume. 
+
+Amelia, a seasoned RN with five years under her belt, navigated the controlled chaos with practiced ease. Her auburn ponytail swayed as she moved, a blur of navy scrubs and determined blue eyes. Tonight, however, even her usual calm felt strained. There was something unsettling about the wave of patients flooding in – a rash of unexplained seizures, fevered delirium, and strange, purple lesions that bloomed on their skin like macabre flowers. The doctors were baffled, whispering anxieties behind gloved hands. Amelia herself couldn't shake a sense of foreboding, a whisper at the edge of her awareness that this was no ordinary night in the ER. 
+
+

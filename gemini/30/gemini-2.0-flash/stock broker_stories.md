@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting featuring a stockbroker:
+
+**Opening:**
+
+The first lick of dawn was painting the Manhattan skyline a bruised purple when Alistair Edmund Finch choked back a mouthful of lukewarm coffee. His gut churned, a feeling he knew intimately – the toxic cocktail of anticipation, dread, and the faint ghost of last night's single-malt scotch. Today wasn't just any Tuesday; it was earnings day for BioGenesis, a biotech darling he’d championed for months. He’d poured the life savings of pensioners, the college funds of young families, and even his own damn inheritance into the company, riding a wave of optimistic projections and whispers of a revolutionary cancer therapy. Now, the numbers were about to drop, and Alistair knew, with a chilling certainty that had been building in the pit of his stomach for weeks, that the tide was about to turn. The question wasn't if he'd made a mistake, but how big the splash would be.
+
+**Setting:**
+
+Alistair's apartment was a study in curated chaos. Located on the 47th floor of a sleek, modernist building overlooking Central Park West, it boasted floor-to-ceiling windows that offered a breathtaking panorama. The décor was undeniably expensive, a mix of mid-century modern furniture and abstract art that screamed "successful professional." Yet, beneath the polished veneer, the apartment bore the hallmarks of a man perpetually on edge. Scattered across the glass coffee table were stacks of financial reports, dog-eared and highlighted. The ergonomic chair in his home office was perpetually molded to his anxious posture. Empty glasses lined the countertop in the kitchen, a testament to late nights fueled by stress and desperation. While outwardly, Alistair’s life screamed success, inwardly, the walls were closing in.

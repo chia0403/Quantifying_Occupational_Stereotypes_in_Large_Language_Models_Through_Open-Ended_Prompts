@@ -1,0 +1,3 @@
+Rain lashed against the grimy windowpane of Bartholomew "Bart" Quincy's office, blurring the neon glow of the liquor store across the street. The smell of damp carpet mingled with stale coffee, a perfume unique to Bart's cramped domain nestled in the bowels of a crumbling Art Deco building. Outside, the city throbbed with a nervous energy, the air thick with anticipation for the impending storm surge predicted to inundate the coastal areas. Inside, Bart stared at the overflowing inbox on his desk, each file representing another soul grappling with uncertainty and loss. Today was renewal day for countless policies, a grim reminder of the precariousness of life, especially in this unpredictable city perpetually flirting with disaster. 
+
+

@@ -1,0 +1,9 @@
+As the sun set over the small town of Willow Creek, Dr. Ethan Sebastian Wright stood at the edge of the hospital's rooftop garden, gazing out at the tranquil scene below. The gentle rustle of leaves and the soft chirping of crickets provided a soothing background hum, a stark contrast to the chaos that often filled the hospital's corridors.
+
+Ethan, a successful cardiothoracic surgeon in his late 30s, had spent the past decade honing his craft at Willow Creek General Hospital. He was well-respected by his colleagues and patients alike for his exceptional skill and compassion. But despite his success, Ethan couldn't shake off the feeling of burnout that had been creeping up on him lately.
+
+As he took a deep breath of the cool evening air, Ethan's mind wandered to the recent string of high-profile cases that had been plaguing the hospital's ER. The influx of patients with rare and mysterious conditions had left even the most seasoned doctors scrambling for answers. And Ethan was no exception. He had spent countless hours pouring over patient files and conducting research, but still, he couldn't seem to crack the code.
+
+With a sigh, Ethan turned away from the view and made his way back down to the hospital floor. His thoughts were interrupted by the ringing of his phone. It was a call from an unknown number, with only one message: "Meet me in the hospital's old wing at midnight. Come alone."
+
+Ethan's instincts told him that this was no prank call, but he had no idea what it could be about or who might have left it. Nevertheless, curiosity got the better of him, and he found himself wondering if this mysterious summons would change everything.

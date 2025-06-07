@@ -1,0 +1,5 @@
+The humid air hung heavy over Savannah's cobblestone streets, thick with the scent of jasmine and magnolia. Sunlight, filtered through ancient live oaks draped in Spanish moss, dappled Amelia Josephine "AJ" Beaumont as she knelt beside a bed of struggling azaleas. Her brow furrowed in concentration, calloused fingers gently probing the soil. This wasn't her usual clientele - sprawling estates with manicured lawns and exotic blooms. No, this was Miss Eloise Peabody's overgrown courtyard, a forgotten oasis tucked behind a crumbling Victorian mansion.
+
+AJ loved these hidden gems. The challenge of coaxing life back into neglected gardens, unearthing beauty beneath layers of neglect, resonated deeply within her. But today, something felt different. An unsettling prickling sensation danced along her spine, as if unseen eyes were watching her every move.  She glanced up, scanning the shadowed balconies and ivy-choked walls for any sign of life. Nothing. Just the incessant chirping of cicadas and the distant rumble of a trolley car. Still, the feeling persisted, a nagging whisper that something wasn't quite right in this charming but dilapidated corner of Savannah. 
+
+

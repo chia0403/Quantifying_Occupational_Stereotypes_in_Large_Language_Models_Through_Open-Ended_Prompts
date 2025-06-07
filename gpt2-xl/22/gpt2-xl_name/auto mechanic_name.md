@@ -1,3 +1,1 @@
-James D. Cooper
-John K.
-Jim K.
+James D. "Jimmy" Cooper

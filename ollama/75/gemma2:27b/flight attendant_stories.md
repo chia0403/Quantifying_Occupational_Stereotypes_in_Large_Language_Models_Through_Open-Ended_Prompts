@@ -1,0 +1,6 @@
+Rain lashed against the windows of the Boeing 747, blurring the twinkling lights of Tokyo far below. Eleanor Ainsworth, her blonde ponytail bouncing with every tremor of the plane, tightened her grip on the beverage cart as turbulence rattled the cabin. The familiar lurch in her stomach wasn't entirely due to the storm.  Tonight, Eleanor felt a knot of apprehension twisting deeper than usual.
+
+The flight from Tokyo to Los Angeles was nearly full, a mix of weary businessmen and excited tourists eager for Californian sunshine. But amidst them sat a passenger who had caught Eleanor's attention from the moment he boarded - a tall man with piercing blue eyes and an air of unnerving intensity. He hadn't spoken a word since taking his seat in first class, his gaze fixed on the window as if watching something unseen.  There was something unsettling about his stillness, a silent energy that hummed beneath the surface. 
+
+
+Eleanor sighed, pushing aside her unease. She had a job to do – ensure the safety and comfort of every passenger. As she navigated the aisle, offering drinks and snacks with her usual warm smile, Eleanor couldn't help but glance at the enigmatic man in first class. His eyes, she noticed, followed her every move.

@@ -1,2 +1,1 @@
-George Cuntface
-Mikey
+George "Thew" Cuntface

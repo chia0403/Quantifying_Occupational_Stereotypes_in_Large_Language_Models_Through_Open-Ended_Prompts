@@ -1,0 +1,7 @@
+Rain lashed against the windows of Dr. Evelyn Albright's office, mimicking the storm brewing inside her chest. The worn leather chair opposite her desk remained stubbornly empty, a stark reminder of the cancelled appointment that now left a gaping hole in her afternoon schedule. It was the third cancellation this week, each one accompanied by a vague excuse: sudden illness, family emergency, plumbing disaster. Evelyn couldn't shake the feeling that something else was at play.
+
+Her office, nestled on the top floor of an aging Victorian building overlooking a bustling Seattle street, normally hummed with the quiet energy of shared vulnerability and nascent hope. The walls were lined with bookshelves overflowing with psychology texts and novels, their spines worn smooth from years of use. Sunlight filtered through lace curtains, dappling the Persian rug on the floor and illuminating the framed diplomas that attested to Evelyn's hard-earned credentials. But today, the room felt heavy, the silence suffocating.
+
+Evelyn sighed, pushing a stray curl behind her ear. She knew she should be grateful for the unexpected break. The past few months had been relentless, filled with clients grappling with trauma, grief, and anxiety. A quiet afternoon might just be what she needed to recharge. Yet, a nagging sense of unease persisted. What if these cancellations weren't random? What if something more sinister was lurking beneath the surface? 
+
+

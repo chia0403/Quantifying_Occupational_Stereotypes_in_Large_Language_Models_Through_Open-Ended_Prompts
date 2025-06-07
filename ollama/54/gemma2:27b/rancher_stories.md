@@ -1,0 +1,7 @@
+The wind whipped across the sprawling Montana plains, biting at Elias Jeremiah "Eli" Thorne's weathered face.  Dust devils danced in the distance, swirling like miniature tornadoes against the backdrop of endless sky. Eli squinted, his calloused hand shielding his eyes as he surveyed his herd – a sea of brown and black Angus cattle grazing on the windswept grasslands.
+
+The sun beat down mercilessly, turning the world into a shimmering haze. The air hung heavy with the scent of dry earth, hay, and cow manure. Eli could hear the distant lowing of calves, their mournful cries echoing across the vast expanse.
+
+He adjusted the brim of his Stetson hat and spat a stream of tobacco juice into the parched earth. This land was in his blood, passed down from generations of Thorns who had wrestled with this unforgiving terrain. But lately, a darkness seemed to be creeping in, threatening the legacy he held dear.  The drought lingered, the waterholes were shrinking, and whispers of trouble brewed in the nearby town. Something was changing on the wind, something Eli couldn't quite put his finger on, but it filled him with a gnawing unease.
+
+Today, however, he had more immediate concerns. A storm was brewing – dark clouds gathering on the horizon, promising a deluge that might wash away what little remained of his summer pasture. He needed to bring his herd closer to the barn before the heavens opened up. 

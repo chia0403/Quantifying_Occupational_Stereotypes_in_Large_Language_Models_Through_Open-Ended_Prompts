@@ -1,0 +1,7 @@
+The air in the drafting room hummed with the rhythmic whisper of lead pencils on paper and the faint click-clack of mechanical drawing tools. Outside, the late afternoon sun cast long shadows across the cobbled streets of Edinburgh, but inside, Amelia Sinclair was lost in a world of precise lines and meticulous detail. She hunched over her massive drafting table, its surface cluttered with rulers, triangles, T-squares, and sheets of translucent vellum paper. Her brow furrowed in concentration as she meticulously rendered the cross-section of a proposed new bridge, each line a testament to her steady hand and unwavering focus.
+
+Amelia wasn't just any draftswoman; she possessed an almost uncanny ability to translate abstract architectural visions into tangible blueprints. While others struggled with perspective and scale, Amelia seemed to see the world through a lens of perfect proportion. This gift, combined with her tireless work ethic, had made her one of the most sought-after draftspeople in the city. But despite her success, Amelia couldn't shake off a nagging sense of dissatisfaction. The constant repetition, the sterile environment, and the lack of creative freedom gnawed at her soul. She yearned for something more, a chance to leave her mark on the world beyond the confines of paper and ink.  
+
+Little did she know that fate was about to intervene in the form of an unexpected commission – one that would challenge everything she thought she knew about herself and her place in the world.
+
+

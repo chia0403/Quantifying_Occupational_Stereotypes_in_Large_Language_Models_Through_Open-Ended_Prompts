@@ -1,0 +1,7 @@
+The sun dipped low on the horizon, casting a warm golden hue over the small coastal town of Willow Creek. Waves gently lapped at the shore, whispering secrets to anyone who cared to listen. Seagulls shrieked overhead, their silhouettes dark against the pastel sky, as families packed up their beach gear after a long day of sun and surf.
+
+Within the heart of this quaint town stood an old brick building, its sign swaying lightly in the evening breeze: “Willow Creek Medical Center.” Inside, it was a world of sterile whites and soothing blues, where laughter mingled with the hum of fluorescent lights. 
+
+Dr. Amelia Grace Langston, a dedicated physician with a passion for her community, moved purposefully through the bustling clinic. At thirty-five, she was known for her quick wit and infectious smile, but her warm demeanor often masked the burdens she carried. With her curly chestnut hair pulled back into a neat ponytail and her crisp white coat adorned with an array of colorful pins collected from patients over the years, Amelia had a way of making her patients feel seen, even on the toughest of days.
+
+As she glanced out the window, watching the last rays of sunlight dance on the water, she felt a familiar tug of longing. It wasn’t for the ocean—she loved it dearly—but for the vibrant life beyond the cliffside town. Yet, the call of those who relied on her kept her anchored. Amelia turned back to the clinic, knowing that another long evening awaited her. The ER was already buzzing, and she was their lifeline, ready to dive into whatever unfolded next.

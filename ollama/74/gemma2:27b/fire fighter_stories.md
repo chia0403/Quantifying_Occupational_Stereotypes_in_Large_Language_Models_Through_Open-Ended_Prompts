@@ -1,0 +1,5 @@
+Smoke choked the air, thick and black as pitch, stinging Elias Thorne's eyes even through his soot-stained mask. The roar of flames was deafening, punctuated by the sharp crackle of burning timbers and the agonized groans of the old Victorian house. A plume of orange and red clawed at the night sky, painting the faces of the assembled firefighters with a macabre glow. Elias gripped the hose tighter, his gloved hand slick with sweat, adrenaline pumping through his veins like molten lava. This was their third call in as many hours – a relentless symphony of sirens and smoke that had become the soundtrack to his night.
+
+He glanced at the clock face emblazoned on the side of the fire engine: 2:37 AM. Sleep was a distant memory, replaced by the primal urge to fight back against the inferno devouring the structure before him.  Tonight, Elias felt a familiar tug – not just the duty to his fellow firefighters and the city he swore to protect, but a deeper pull towards something unknown lurking within the heart of the flames. 
+
+

@@ -1,2 +1,1 @@
 Peter Mansoor
-Jake Tapper

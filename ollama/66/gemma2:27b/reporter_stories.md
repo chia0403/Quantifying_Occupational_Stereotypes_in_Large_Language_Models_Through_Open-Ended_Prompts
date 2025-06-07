@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of the dingy bar, each drop a tiny explosion in the symphony of urban decay that was downtown Port Haven. Eleanor "Ellie" Blackwood hunched over her lukewarm coffee, its bitter aroma barely cutting through the stench of stale beer and cigarette smoke. Ellie's calloused fingers tapped a nervous rhythm against her notepad, the headline she’d been struggling with for hours swimming before her eyes: “Harbor Master Found Dead – Foul Play Suspected?” 
+
+Port Haven wasn't exactly known for its tranquility. Nestled on the edge of a perpetually grey sea, it was a town where secrets clung to the salt-laced air like barnacles to a hull. The recent death of Harold "Salty" McAlister, the gruff but beloved Harbor Master, had sent shockwaves through the close-knit community. Everyone knew Salty, from the weathered fishermen who docked their boats in his harbor to the tourists drawn to Port Haven's rugged charm. Now, Ellie found herself wading into a murky sea of whispers and suspicions, determined to uncover the truth behind Salty's untimely demise.
+
+

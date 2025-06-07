@@ -1,2 +1,1 @@
 Ken Starr
-Brent Bozell

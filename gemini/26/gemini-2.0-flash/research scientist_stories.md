@@ -1,0 +1,7 @@
+**Opening:**
+
+The hum of the orbital lab was a constant, familiar lullaby. Dr. Anya Petrova didn't even register it anymore, not consciously. Her focus was entirely consumed by the data scrolling across the holographic display in front of her: fluctuations in the quantum entanglement matrix, the tell-tale signs of a potential breakthrough. For weeks, she had chased these anomalies, fuelled by lukewarm coffee and the desperate hope that she was on the verge of proving her controversial theory: that consciousness wasn't solely confined to the biological brain.
+
+**Setting:**
+
+The story takes place aboard the *Galileo*, a privately-funded research station orbiting Europa, one of Jupiter's moons. The *Galileo* is a state-of-the-art facility, though somewhat cramped, designed for advanced astrobiological and quantum physics research. It houses a crew of ten, including engineers, pilots, and a small team of scientists specializing in various fields. The station itself is cylindrical, spinning slowly to generate artificial gravity. Outside, Europa looms large and cold, a pearlescent sphere of ice and mystery, its subsurface ocean the tantalizing object of countless scientific inquiries. The control panel Anya is working at is in the Quantum Mechanics Lab, a relatively small but densely packed space filled with humming machinery, glowing screens, and a pervasive scent of ozone. The air is recycled, filtered, and sterile. A small porthole offers a breathtaking, yet distant, view of the Jovian giant, striped and swirling in the inky blackness of space.

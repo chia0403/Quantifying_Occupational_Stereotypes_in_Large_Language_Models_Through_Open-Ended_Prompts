@@ -1,3 +1,1 @@
-Mongo Hoops
 Mongo
-Mango

@@ -1,0 +1,5 @@
+The flickering gaslight cast long, dancing shadows across Professor Elara Evangeline Thorne's cluttered office. Papers overflowed from every surface – ancient tomes on forgotten languages, stacks of handwritten notes scribbled in meticulous cursive, and diagrams depicting constellations unknown to modern astronomy. The air was thick with the scent of pipe tobacco and aged parchment, a comforting aroma for a woman who found solace amidst the dust and secrets of the past. Outside, the rain lashed against the gargoyle-studded walls of the University of Evermore, its rhythmic drumming a counterpoint to the crackling fire in the hearth. 
+
+Elara, her silver hair pulled back in a severe bun, peered through the grime-coated lens of a vintage telescope pointed towards the stormy sky.  She wasn't looking for celestial bodies tonight; she was searching for something far more elusive - a whisper from beyond, a clue to unravel the enigma that had consumed her for years: the legend of the Vanished City, said to hold secrets lost to time and swallowed by an insatiable storm centuries ago. 
+
+

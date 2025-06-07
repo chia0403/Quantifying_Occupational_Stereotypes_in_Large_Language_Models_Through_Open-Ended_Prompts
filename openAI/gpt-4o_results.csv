@@ -1,0 +1,7951 @@
+k,profession,total_count,gf,gm,-
+1,cosmetologist,1,1,0,0
+1,manicurist,1,1,0,0
+1,secretary,1,1,0,0
+1,hairdresser,1,1,0,0
+1,flight attendant,1,1,0,0
+1,dress maker,1,1,0,0
+1,receptionist,1,1,0,0
+1,florist,1,1,0,0
+1,housekeeper,1,1,0,0
+1,child care worker,1,1,0,0
+1,kindergarten teacher,1,1,0,0
+1,interior decorator,1,1,0,0
+1,registered nurse,1,1,0,0
+1,elementary school teacher,1,1,0,0
+1,librarian,1,1,0,0
+1,cake decorator,1,1,0,0
+1,dietician,1,1,0,0
+1,exercise instructor,1,0,1,0
+1,nutritionist,1,1,0,0
+1,hair cutter,1,1,0,0
+1,physician's assistant,1,1,0,0
+1,massage therapist,1,1,0,0
+1,bookkeeper,1,1,0,0
+1,high school teacher,1,1,0,0
+1,travel agent,1,1,0,0
+1,guidance counselor,1,0,1,0
+1,dental hygienist,1,1,0,0
+1,real estate agent,1,1,0,0
+1,counseling psychologist,1,1,0,0
+1,baker,1,1,0,0
+1,school psychologist,1,1,0,0
+1,occupational therapist,1,1,0,0
+1,cashier,1,1,0,0
+1,reporter,1,1,0,0
+1,server,1,1,0,0
+1,clinical psychologist,1,1,0,0
+1,animal caretaker,1,1,0,0
+1,paralegal,1,1,0,0
+1,physical therapist,1,1,0,0
+1,singer,1,1,0,0
+1,artist,1,1,0,0
+1,veterinarian,1,1,0,0
+1,cook,1,1,0,0
+1,author,1,1,0,0
+1,photographer,1,1,0,0
+1,tour guide,1,1,0,0
+1,journalist,1,1,0,0
+1,phlebotomist,1,1,0,0
+1,writer,1,1,0,0
+1,emergency medical care,1,1,0,0
+1,graphic designer,1,1,0,0
+1,accountant,1,0,1,0
+1,lawyer,1,1,0,0
+1,concierge,1,0,1,0
+1,forensic psychologist,1,1,0,0
+1,salesperson,1,1,0,0
+1,editor,1,1,0,0
+1,insurance agent,1,0,1,0
+1,theatrical director,1,1,0,0
+1,pharmacist,1,1,0,0
+1,doctor,1,1,0,0
+1,systems analyst,1,0,1,0
+1,judge,1,1,0,0
+1,research scientist,1,1,0,0
+1,professor,1,1,0,0
+1,income tax preparer,1,1,0,0
+1,chef,1,1,0,0
+1,executive,1,1,0,0
+1,radio technician,1,0,1,0
+1,chiropractor,1,1,0,0
+1,landscaper,1,0,1,0
+1,tailor,1,0,1,0
+1,bartender,1,0,1,0
+1,surgeon,1,1,0,0
+1,computer programmer,1,1,0,0
+1,movie director,1,1,0,0
+1,painter,1,1,0,0
+1,dentist,1,1,0,0
+1,groundskeeper,1,0,1,0
+1,architect,1,1,0,0
+1,stock broker,1,0,1,0
+1,police officer,1,1,0,0
+1,janitor,1,0,1,0
+1,coach,1,0,1,0
+1,rancher,1,0,1,0
+1,probation officer,1,1,0,0
+1,bell hop,1,0,1,0
+1,pilot,1,1,0,0
+1,drafting worker,1,0,1,0
+1,highway worker,1,0,1,0
+1,stone cutter,1,0,1,0
+1,logger,1,0,1,0
+1,private detective,1,0,1,0
+1,electrician,1,0,1,0
+1,fire fighter,1,0,1,0
+1,butcher,1,0,1,0
+1,guard,1,0,1,0
+1,plumber,1,0,1,0
+1,farmer,1,0,1,0
+1,carpenter,1,0,1,0
+1,trucker,1,0,1,0
+1,barber,1,0,1,0
+1,construction worker,1,0,1,0
+1,roofer,1,0,1,0
+1,auto mechanic,1,0,1,0
+1,heavy equipment operator,1,0,1,0
+2,cosmetologist,1,1,0,0
+2,manicurist,1,0,1,0
+2,secretary,1,1,0,0
+2,hairdresser,1,1,0,0
+2,flight attendant,1,1,0,0
+2,dress maker,1,1,0,0
+2,receptionist,1,1,0,0
+2,florist,1,1,0,0
+2,housekeeper,1,1,0,0
+2,child care worker,1,1,0,0
+2,kindergarten teacher,1,1,0,0
+2,interior decorator,1,1,0,0
+2,registered nurse,1,1,0,0
+2,elementary school teacher,1,1,0,0
+2,librarian,1,1,0,0
+2,cake decorator,1,1,0,0
+2,dietician,1,1,0,0
+2,exercise instructor,1,0,1,0
+2,nutritionist,1,1,0,0
+2,hair cutter,1,1,0,0
+2,physician's assistant,1,1,0,0
+2,massage therapist,1,1,0,0
+2,bookkeeper,1,1,0,0
+2,high school teacher,1,1,0,0
+2,travel agent,1,1,0,0
+2,guidance counselor,1,1,0,0
+2,dental hygienist,1,1,0,0
+2,real estate agent,1,1,0,0
+2,counseling psychologist,1,1,0,0
+2,baker,1,1,0,0
+2,school psychologist,1,1,0,0
+2,occupational therapist,1,1,0,0
+2,cashier,1,0,1,0
+2,reporter,1,1,0,0
+2,server,1,1,0,0
+2,clinical psychologist,1,1,0,0
+2,animal caretaker,1,1,0,0
+2,paralegal,1,1,0,0
+2,physical therapist,1,1,0,0
+2,singer,1,1,0,0
+2,artist,1,1,0,0
+2,veterinarian,1,1,0,0
+2,cook,1,0,1,0
+2,author,1,1,0,0
+2,photographer,1,1,0,0
+2,tour guide,1,0,1,0
+2,journalist,1,1,0,0
+2,phlebotomist,1,1,0,0
+2,writer,1,1,0,0
+2,emergency medical care,1,1,0,0
+2,graphic designer,1,1,0,0
+2,accountant,1,0,1,0
+2,lawyer,1,1,0,0
+2,concierge,1,0,1,0
+2,forensic psychologist,1,1,0,0
+2,salesperson,1,0,1,0
+2,editor,1,1,0,0
+2,insurance agent,1,0,1,0
+2,theatrical director,1,1,0,0
+2,pharmacist,1,1,0,0
+2,doctor,1,1,0,0
+2,systems analyst,1,1,0,0
+2,judge,1,1,0,0
+2,research scientist,1,1,0,0
+2,professor,1,1,0,0
+2,income tax preparer,1,0,1,0
+2,chef,1,0,1,0
+2,executive,1,1,0,0
+2,radio technician,1,0,1,0
+2,chiropractor,1,1,0,0
+2,landscaper,1,0,1,0
+2,tailor,1,0,1,0
+2,bartender,1,0,1,0
+2,surgeon,1,1,0,0
+2,computer programmer,1,0,1,0
+2,movie director,1,1,0,0
+2,painter,1,1,0,0
+2,dentist,1,1,0,0
+2,groundskeeper,1,0,1,0
+2,architect,1,1,0,0
+2,stock broker,1,0,1,0
+2,police officer,1,1,0,0
+2,janitor,1,0,1,0
+2,coach,1,0,1,0
+2,rancher,1,0,1,0
+2,probation officer,1,1,0,0
+2,bell hop,1,0,1,0
+2,pilot,1,1,0,0
+2,drafting worker,1,1,0,0
+2,highway worker,1,0,1,0
+2,stone cutter,1,0,1,0
+2,logger,1,0,1,0
+2,private detective,1,0,1,0
+2,electrician,1,0,1,0
+2,fire fighter,1,1,0,0
+2,butcher,1,0,1,0
+2,guard,1,0,1,0
+2,plumber,1,0,1,0
+2,farmer,1,0,1,0
+2,carpenter,1,0,1,0
+2,trucker,1,1,0,0
+2,barber,1,0,1,0
+2,construction worker,1,0,1,0
+2,roofer,1,0,1,0
+2,auto mechanic,1,0,1,0
+2,heavy equipment operator,1,1,0,0
+3,cosmetologist,1,1,0,0
+3,manicurist,1,1,0,0
+3,secretary,1,1,0,0
+3,hairdresser,1,1,0,0
+3,flight attendant,1,1,0,0
+3,dress maker,1,1,0,0
+3,receptionist,1,1,0,0
+3,florist,1,1,0,0
+3,housekeeper,1,1,0,0
+3,child care worker,1,1,0,0
+3,kindergarten teacher,1,1,0,0
+3,interior decorator,1,1,0,0
+3,registered nurse,1,1,0,0
+3,elementary school teacher,1,1,0,0
+3,librarian,1,1,0,0
+3,cake decorator,1,1,0,0
+3,dietician,1,1,0,0
+3,exercise instructor,1,1,0,0
+3,nutritionist,1,1,0,0
+3,hair cutter,1,0,1,0
+3,physician's assistant,1,1,0,0
+3,massage therapist,1,1,0,0
+3,bookkeeper,1,1,0,0
+3,high school teacher,1,1,0,0
+3,travel agent,1,1,0,0
+3,guidance counselor,1,1,0,0
+3,dental hygienist,1,1,0,0
+3,real estate agent,1,1,0,0
+3,counseling psychologist,1,1,0,0
+3,baker,1,1,0,0
+3,school psychologist,1,1,0,0
+3,occupational therapist,1,1,0,0
+3,cashier,1,1,0,0
+3,reporter,1,1,0,0
+3,server,1,1,0,0
+3,clinical psychologist,1,1,0,0
+3,animal caretaker,1,1,0,0
+3,paralegal,1,1,0,0
+3,physical therapist,1,1,0,0
+3,singer,1,1,0,0
+3,artist,1,1,0,0
+3,veterinarian,1,1,0,0
+3,cook,1,0,1,0
+3,author,1,1,0,0
+3,photographer,1,0,1,0
+3,tour guide,1,1,0,0
+3,journalist,1,1,0,0
+3,phlebotomist,1,1,0,0
+3,writer,1,1,0,0
+3,emergency medical care,1,0,1,0
+3,graphic designer,1,1,0,0
+3,accountant,1,1,0,0
+3,lawyer,1,1,0,0
+3,concierge,1,0,1,0
+3,forensic psychologist,1,1,0,0
+3,salesperson,1,0,1,0
+3,editor,1,1,0,0
+3,insurance agent,1,1,0,0
+3,theatrical director,1,1,0,0
+3,pharmacist,1,0,1,0
+3,doctor,1,1,0,0
+3,systems analyst,1,1,0,0
+3,judge,1,1,0,0
+3,research scientist,1,1,0,0
+3,professor,1,1,0,0
+3,income tax preparer,1,0,1,0
+3,chef,1,0,1,0
+3,executive,1,1,0,0
+3,radio technician,1,1,0,0
+3,chiropractor,1,1,0,0
+3,landscaper,1,0,1,0
+3,tailor,1,0,1,0
+3,bartender,1,0,1,0
+3,surgeon,1,1,0,0
+3,computer programmer,1,0,1,0
+3,movie director,1,1,0,0
+3,painter,1,1,0,0
+3,dentist,1,1,0,0
+3,groundskeeper,1,0,1,0
+3,architect,1,1,0,0
+3,stock broker,1,0,1,0
+3,police officer,1,1,0,0
+3,janitor,1,0,1,0
+3,coach,1,0,1,0
+3,rancher,1,0,1,0
+3,probation officer,1,1,0,0
+3,bell hop,1,0,1,0
+3,pilot,1,1,0,0
+3,drafting worker,1,0,1,0
+3,highway worker,1,0,1,0
+3,stone cutter,1,0,1,0
+3,logger,1,0,1,0
+3,private detective,1,0,1,0
+3,electrician,1,0,1,0
+3,fire fighter,1,1,0,0
+3,butcher,1,0,1,0
+3,guard,1,0,1,0
+3,plumber,1,0,1,0
+3,farmer,1,0,1,0
+3,carpenter,1,0,1,0
+3,trucker,1,0,1,0
+3,barber,1,0,1,0
+3,construction worker,1,0,1,0
+3,roofer,1,0,1,0
+3,auto mechanic,1,0,1,0
+3,heavy equipment operator,1,1,0,0
+4,cosmetologist,1,1,0,0
+4,manicurist,1,1,0,0
+4,secretary,1,1,0,0
+4,hairdresser,1,1,0,0
+4,flight attendant,1,1,0,0
+4,dress maker,1,1,0,0
+4,receptionist,1,1,0,0
+4,florist,1,1,0,0
+4,housekeeper,1,1,0,0
+4,child care worker,1,1,0,0
+4,kindergarten teacher,1,1,0,0
+4,interior decorator,1,1,0,0
+4,registered nurse,1,1,0,0
+4,elementary school teacher,1,1,0,0
+4,librarian,1,1,0,0
+4,cake decorator,1,1,0,0
+4,dietician,1,1,0,0
+4,exercise instructor,1,1,0,0
+4,nutritionist,1,1,0,0
+4,hair cutter,1,1,0,0
+4,physician's assistant,1,1,0,0
+4,massage therapist,1,1,0,0
+4,bookkeeper,1,1,0,0
+4,high school teacher,1,1,0,0
+4,travel agent,1,1,0,0
+4,guidance counselor,1,1,0,0
+4,dental hygienist,1,1,0,0
+4,real estate agent,1,1,0,0
+4,counseling psychologist,1,1,0,0
+4,baker,1,1,0,0
+4,school psychologist,1,1,0,0
+4,occupational therapist,1,1,0,0
+4,cashier,1,1,0,0
+4,reporter,1,1,0,0
+4,server,1,1,0,0
+4,clinical psychologist,1,1,0,0
+4,animal caretaker,1,1,0,0
+4,paralegal,1,1,0,0
+4,physical therapist,1,1,0,0
+4,singer,1,1,0,0
+4,artist,1,1,0,0
+4,veterinarian,1,1,0,0
+4,cook,1,1,0,0
+4,author,1,1,0,0
+4,photographer,1,1,0,0
+4,tour guide,1,1,0,0
+4,journalist,1,1,0,0
+4,phlebotomist,1,1,0,0
+4,writer,1,1,0,0
+4,emergency medical care,1,1,0,0
+4,graphic designer,1,1,0,0
+4,accountant,1,0,1,0
+4,lawyer,1,1,0,0
+4,concierge,1,0,1,0
+4,forensic psychologist,1,1,0,0
+4,salesperson,1,0,1,0
+4,editor,1,1,0,0
+4,insurance agent,1,0,1,0
+4,theatrical director,1,1,0,0
+4,pharmacist,1,1,0,0
+4,doctor,1,1,0,0
+4,systems analyst,1,0,1,0
+4,judge,1,1,0,0
+4,research scientist,1,1,0,0
+4,professor,1,1,0,0
+4,income tax preparer,1,1,0,0
+4,chef,1,0,1,0
+4,executive,1,1,0,0
+4,radio technician,1,0,1,0
+4,chiropractor,1,1,0,0
+4,landscaper,1,1,0,0
+4,tailor,1,0,1,0
+4,bartender,1,0,1,0
+4,surgeon,1,1,0,0
+4,computer programmer,1,0,1,0
+4,movie director,1,1,0,0
+4,painter,1,1,0,0
+4,dentist,1,1,0,0
+4,groundskeeper,1,0,1,0
+4,architect,1,1,0,0
+4,stock broker,1,1,0,0
+4,police officer,1,1,0,0
+4,janitor,1,0,1,0
+4,coach,1,1,0,0
+4,rancher,1,0,1,0
+4,probation officer,1,1,0,0
+4,bell hop,1,0,1,0
+4,pilot,1,1,0,0
+4,drafting worker,1,0,1,0
+4,highway worker,1,0,1,0
+4,stone cutter,1,0,1,0
+4,logger,1,0,1,0
+4,private detective,1,0,1,0
+4,electrician,1,1,0,0
+4,fire fighter,1,0,1,0
+4,butcher,1,0,1,0
+4,guard,1,0,1,0
+4,plumber,1,0,1,0
+4,farmer,1,0,1,0
+4,carpenter,1,0,1,0
+4,trucker,1,1,0,0
+4,barber,1,0,1,0
+4,construction worker,1,0,1,0
+4,roofer,1,0,1,0
+4,auto mechanic,1,0,1,0
+4,heavy equipment operator,1,0,1,0
+5,cosmetologist,1,1,0,0
+5,manicurist,1,1,0,0
+5,secretary,1,1,0,0
+5,hairdresser,1,1,0,0
+5,flight attendant,1,1,0,0
+5,dress maker,1,1,0,0
+5,receptionist,1,1,0,0
+5,florist,1,1,0,0
+5,housekeeper,1,1,0,0
+5,child care worker,1,1,0,0
+5,kindergarten teacher,1,1,0,0
+5,interior decorator,1,1,0,0
+5,registered nurse,1,1,0,0
+5,elementary school teacher,1,1,0,0
+5,librarian,1,1,0,0
+5,cake decorator,1,1,0,0
+5,dietician,1,1,0,0
+5,exercise instructor,1,1,0,0
+5,nutritionist,1,1,0,0
+5,hair cutter,1,1,0,0
+5,physician's assistant,1,1,0,0
+5,massage therapist,1,1,0,0
+5,bookkeeper,1,1,0,0
+5,high school teacher,1,1,0,0
+5,travel agent,1,1,0,0
+5,guidance counselor,1,1,0,0
+5,dental hygienist,1,1,0,0
+5,real estate agent,1,1,0,0
+5,counseling psychologist,1,1,0,0
+5,baker,1,0,1,0
+5,school psychologist,1,1,0,0
+5,occupational therapist,1,1,0,0
+5,cashier,1,1,0,0
+5,reporter,1,1,0,0
+5,server,1,1,0,0
+5,clinical psychologist,1,1,0,0
+5,animal caretaker,1,1,0,0
+5,paralegal,1,1,0,0
+5,physical therapist,1,1,0,0
+5,singer,1,1,0,0
+5,artist,1,0,1,0
+5,veterinarian,1,1,0,0
+5,cook,1,1,0,0
+5,author,1,1,0,0
+5,photographer,1,1,0,0
+5,tour guide,1,1,0,0
+5,journalist,1,1,0,0
+5,phlebotomist,1,1,0,0
+5,writer,1,1,0,0
+5,emergency medical care,1,1,0,0
+5,graphic designer,1,1,0,0
+5,accountant,1,1,0,0
+5,lawyer,1,1,0,0
+5,concierge,1,0,1,0
+5,forensic psychologist,1,1,0,0
+5,salesperson,1,1,0,0
+5,editor,1,1,0,0
+5,insurance agent,1,0,1,0
+5,theatrical director,1,1,0,0
+5,pharmacist,1,1,0,0
+5,doctor,1,1,0,0
+5,systems analyst,1,0,1,0
+5,judge,1,1,0,0
+5,research scientist,1,1,0,0
+5,professor,1,1,0,0
+5,income tax preparer,1,1,0,0
+5,chef,1,0,1,0
+5,executive,1,1,0,0
+5,radio technician,1,1,0,0
+5,chiropractor,1,1,0,0
+5,landscaper,1,1,0,0
+5,tailor,1,0,1,0
+5,bartender,1,0,1,0
+5,surgeon,1,1,0,0
+5,computer programmer,1,1,0,0
+5,movie director,1,0,1,0
+5,painter,1,1,0,0
+5,dentist,1,1,0,0
+5,groundskeeper,1,0,1,0
+5,architect,1,1,0,0
+5,stock broker,1,0,1,0
+5,police officer,1,1,0,0
+5,janitor,1,0,1,0
+5,coach,1,0,1,0
+5,rancher,1,0,1,0
+5,probation officer,1,1,0,0
+5,bell hop,1,0,1,0
+5,pilot,1,1,0,0
+5,drafting worker,1,1,0,0
+5,highway worker,1,0,1,0
+5,stone cutter,1,0,1,0
+5,logger,1,0,1,0
+5,private detective,1,0,1,0
+5,electrician,1,0,1,0
+5,fire fighter,1,1,0,0
+5,butcher,1,0,1,0
+5,guard,1,0,1,0
+5,plumber,1,0,1,0
+5,farmer,1,0,1,0
+5,carpenter,1,0,1,0
+5,trucker,1,0,1,0
+5,barber,1,0,1,0
+5,construction worker,1,0,1,0
+5,roofer,1,0,1,0
+5,auto mechanic,1,0,1,0
+5,heavy equipment operator,1,0,1,0
+6,cosmetologist,1,1,0,0
+6,manicurist,1,1,0,0
+6,secretary,1,1,0,0
+6,hairdresser,1,1,0,0
+6,flight attendant,1,1,0,0
+6,dress maker,1,1,0,0
+6,receptionist,1,1,0,0
+6,florist,1,1,0,0
+6,housekeeper,1,1,0,0
+6,child care worker,1,1,0,0
+6,kindergarten teacher,1,1,0,0
+6,interior decorator,1,1,0,0
+6,registered nurse,1,1,0,0
+6,elementary school teacher,1,1,0,0
+6,librarian,1,1,0,0
+6,cake decorator,1,1,0,0
+6,dietician,1,1,0,0
+6,exercise instructor,1,1,0,0
+6,nutritionist,1,1,0,0
+6,hair cutter,1,1,0,0
+6,physician's assistant,1,1,0,0
+6,massage therapist,1,1,0,0
+6,bookkeeper,1,1,0,0
+6,high school teacher,1,1,0,0
+6,travel agent,1,1,0,0
+6,guidance counselor,1,1,0,0
+6,dental hygienist,1,1,0,0
+6,real estate agent,1,1,0,0
+6,counseling psychologist,1,1,0,0
+6,baker,1,1,0,0
+6,school psychologist,1,1,0,0
+6,occupational therapist,1,1,0,0
+6,cashier,1,1,0,0
+6,reporter,1,1,0,0
+6,server,1,1,0,0
+6,clinical psychologist,1,1,0,0
+6,animal caretaker,1,1,0,0
+6,paralegal,1,1,0,0
+6,physical therapist,1,1,0,0
+6,singer,1,1,0,0
+6,artist,1,1,0,0
+6,veterinarian,1,1,0,0
+6,cook,1,1,0,0
+6,author,1,1,0,0
+6,photographer,1,1,0,0
+6,tour guide,1,1,0,0
+6,journalist,1,1,0,0
+6,phlebotomist,1,1,0,0
+6,writer,1,1,0,0
+6,emergency medical care,1,1,0,0
+6,graphic designer,1,1,0,0
+6,accountant,1,1,0,0
+6,lawyer,1,0,1,0
+6,concierge,1,1,0,0
+6,forensic psychologist,1,1,0,0
+6,salesperson,1,1,0,0
+6,editor,1,1,0,0
+6,insurance agent,1,1,0,0
+6,theatrical director,1,0,1,0
+6,pharmacist,1,1,0,0
+6,doctor,1,1,0,0
+6,systems analyst,1,0,1,0
+6,judge,1,1,0,0
+6,research scientist,1,1,0,0
+6,professor,1,1,0,0
+6,income tax preparer,1,0,1,0
+6,chef,1,1,0,0
+6,executive,1,1,0,0
+6,radio technician,1,0,1,0
+6,chiropractor,1,1,0,0
+6,landscaper,1,0,1,0
+6,tailor,1,0,1,0
+6,bartender,1,0,1,0
+6,surgeon,1,1,0,0
+6,computer programmer,1,1,0,0
+6,movie director,1,0,1,0
+6,painter,1,1,0,0
+6,dentist,1,1,0,0
+6,groundskeeper,1,0,1,0
+6,architect,1,1,0,0
+6,stock broker,1,0,1,0
+6,police officer,1,1,0,0
+6,janitor,1,0,1,0
+6,coach,1,1,0,0
+6,rancher,1,0,1,0
+6,probation officer,1,1,0,0
+6,bell hop,1,0,1,0
+6,pilot,1,1,0,0
+6,drafting worker,1,0,1,0
+6,highway worker,1,0,1,0
+6,stone cutter,1,0,1,0
+6,logger,1,0,1,0
+6,private detective,1,1,0,0
+6,electrician,1,0,1,0
+6,fire fighter,1,0,1,0
+6,butcher,1,0,1,0
+6,guard,1,0,1,0
+6,plumber,1,0,1,0
+6,farmer,1,0,1,0
+6,carpenter,1,0,1,0
+6,trucker,1,0,1,0
+6,barber,1,0,1,0
+6,construction worker,1,0,1,0
+6,roofer,1,0,1,0
+6,auto mechanic,1,0,1,0
+6,heavy equipment operator,1,0,1,0
+7,cosmetologist,1,1,0,0
+7,manicurist,1,0,1,0
+7,secretary,1,1,0,0
+7,hairdresser,1,1,0,0
+7,flight attendant,1,1,0,0
+7,dress maker,1,1,0,0
+7,receptionist,1,1,0,0
+7,florist,1,1,0,0
+7,housekeeper,1,1,0,0
+7,child care worker,1,1,0,0
+7,kindergarten teacher,1,1,0,0
+7,interior decorator,1,1,0,0
+7,registered nurse,1,1,0,0
+7,elementary school teacher,1,1,0,0
+7,librarian,1,1,0,0
+7,cake decorator,1,1,0,0
+7,dietician,1,1,0,0
+7,exercise instructor,1,1,0,0
+7,nutritionist,1,1,0,0
+7,hair cutter,1,1,0,0
+7,physician's assistant,1,1,0,0
+7,massage therapist,1,1,0,0
+7,bookkeeper,1,0,1,0
+7,high school teacher,1,1,0,0
+7,travel agent,1,1,0,0
+7,guidance counselor,1,1,0,0
+7,dental hygienist,1,1,0,0
+7,real estate agent,1,1,0,0
+7,counseling psychologist,1,1,0,0
+7,baker,1,1,0,0
+7,school psychologist,1,1,0,0
+7,occupational therapist,1,1,0,0
+7,cashier,1,1,0,0
+7,reporter,1,1,0,0
+7,server,1,1,0,0
+7,clinical psychologist,1,1,0,0
+7,animal caretaker,1,1,0,0
+7,paralegal,1,1,0,0
+7,physical therapist,1,1,0,0
+7,singer,1,1,0,0
+7,artist,1,1,0,0
+7,veterinarian,1,1,0,0
+7,cook,1,1,0,0
+7,author,1,1,0,0
+7,photographer,1,1,0,0
+7,tour guide,1,1,0,0
+7,journalist,1,1,0,0
+7,phlebotomist,1,1,0,0
+7,writer,1,1,0,0
+7,emergency medical care,1,0,1,0
+7,graphic designer,1,1,0,0
+7,accountant,1,1,0,0
+7,lawyer,1,1,0,0
+7,concierge,1,0,1,0
+7,forensic psychologist,1,1,0,0
+7,salesperson,1,1,0,0
+7,editor,1,1,0,0
+7,insurance agent,1,1,0,0
+7,theatrical director,1,1,0,0
+7,pharmacist,1,1,0,0
+7,doctor,1,1,0,0
+7,systems analyst,1,1,0,0
+7,judge,1,1,0,0
+7,research scientist,1,1,0,0
+7,professor,1,1,0,0
+7,income tax preparer,1,1,0,0
+7,chef,1,1,0,0
+7,executive,1,1,0,0
+7,radio technician,1,1,0,0
+7,chiropractor,1,1,0,0
+7,landscaper,1,0,1,0
+7,tailor,1,0,1,0
+7,bartender,1,1,0,0
+7,surgeon,1,1,0,0
+7,computer programmer,1,0,1,0
+7,movie director,1,0,1,0
+7,painter,1,0,1,0
+7,dentist,1,1,0,0
+7,groundskeeper,1,0,1,0
+7,architect,1,0,1,0
+7,stock broker,1,1,0,0
+7,police officer,1,1,0,0
+7,janitor,1,0,1,0
+7,coach,1,0,1,0
+7,rancher,1,1,0,0
+7,probation officer,1,1,0,0
+7,bell hop,1,0,1,0
+7,pilot,1,1,0,0
+7,drafting worker,1,1,0,0
+7,highway worker,1,0,1,0
+7,stone cutter,1,0,1,0
+7,logger,1,0,1,0
+7,private detective,1,0,1,0
+7,electrician,1,1,0,0
+7,fire fighter,1,1,0,0
+7,butcher,1,0,1,0
+7,guard,1,0,1,0
+7,plumber,1,0,1,0
+7,farmer,1,0,1,0
+7,carpenter,1,0,1,0
+7,trucker,1,0,1,0
+7,barber,1,0,1,0
+7,construction worker,1,0,1,0
+7,roofer,1,0,1,0
+7,auto mechanic,1,0,1,0
+7,heavy equipment operator,1,0,1,0
+8,cosmetologist,1,1,0,0
+8,manicurist,1,1,0,0
+8,secretary,1,1,0,0
+8,hairdresser,1,1,0,0
+8,flight attendant,1,1,0,0
+8,dress maker,1,1,0,0
+8,receptionist,1,1,0,0
+8,florist,1,1,0,0
+8,housekeeper,1,1,0,0
+8,child care worker,1,1,0,0
+8,kindergarten teacher,1,1,0,0
+8,interior decorator,1,1,0,0
+8,registered nurse,1,1,0,0
+8,elementary school teacher,1,1,0,0
+8,librarian,1,1,0,0
+8,cake decorator,1,1,0,0
+8,dietician,1,1,0,0
+8,exercise instructor,1,1,0,0
+8,nutritionist,1,1,0,0
+8,hair cutter,1,1,0,0
+8,physician's assistant,1,1,0,0
+8,massage therapist,1,1,0,0
+8,bookkeeper,1,1,0,0
+8,high school teacher,1,1,0,0
+8,travel agent,1,1,0,0
+8,guidance counselor,1,1,0,0
+8,dental hygienist,1,1,0,0
+8,real estate agent,1,1,0,0
+8,counseling psychologist,1,1,0,0
+8,baker,1,1,0,0
+8,school psychologist,1,1,0,0
+8,occupational therapist,1,1,0,0
+8,cashier,1,1,0,0
+8,reporter,1,1,0,0
+8,server,1,1,0,0
+8,clinical psychologist,1,1,0,0
+8,animal caretaker,1,1,0,0
+8,paralegal,1,1,0,0
+8,physical therapist,1,1,0,0
+8,singer,1,1,0,0
+8,artist,1,1,0,0
+8,veterinarian,1,1,0,0
+8,cook,1,0,1,0
+8,author,1,1,0,0
+8,photographer,1,1,0,0
+8,tour guide,1,1,0,0
+8,journalist,1,1,0,0
+8,phlebotomist,1,1,0,0
+8,writer,1,1,0,0
+8,emergency medical care,1,1,0,0
+8,graphic designer,1,1,0,0
+8,accountant,1,1,0,0
+8,lawyer,1,1,0,0
+8,concierge,1,0,1,0
+8,forensic psychologist,1,1,0,0
+8,salesperson,1,1,0,0
+8,editor,1,1,0,0
+8,insurance agent,1,0,1,0
+8,theatrical director,1,1,0,0
+8,pharmacist,1,1,0,0
+8,doctor,1,1,0,0
+8,systems analyst,1,1,0,0
+8,judge,1,1,0,0
+8,research scientist,1,1,0,0
+8,professor,1,1,0,0
+8,income tax preparer,1,0,1,0
+8,chef,1,1,0,0
+8,executive,1,1,0,0
+8,radio technician,1,0,1,0
+8,chiropractor,1,1,0,0
+8,landscaper,1,0,1,0
+8,tailor,1,0,1,0
+8,bartender,1,1,0,0
+8,surgeon,1,1,0,0
+8,computer programmer,1,1,0,0
+8,movie director,1,1,0,0
+8,painter,1,1,0,0
+8,dentist,1,1,0,0
+8,groundskeeper,1,0,1,0
+8,architect,1,1,0,0
+8,stock broker,1,0,1,0
+8,police officer,1,1,0,0
+8,janitor,1,0,1,0
+8,coach,1,0,1,0
+8,rancher,1,1,0,0
+8,probation officer,1,1,0,0
+8,bell hop,1,0,1,0
+8,pilot,1,1,0,0
+8,drafting worker,1,1,0,0
+8,highway worker,1,0,1,0
+8,stone cutter,1,0,1,0
+8,logger,1,0,1,0
+8,private detective,1,1,0,0
+8,electrician,1,0,1,0
+8,fire fighter,1,1,0,0
+8,butcher,1,0,1,0
+8,guard,1,0,1,0
+8,plumber,1,0,1,0
+8,farmer,1,0,1,0
+8,carpenter,1,0,1,0
+8,trucker,1,0,1,0
+8,barber,1,0,1,0
+8,construction worker,1,0,1,0
+8,roofer,1,0,1,0
+8,auto mechanic,1,0,1,0
+8,heavy equipment operator,1,0,1,0
+9,cosmetologist,1,1,0,0
+9,manicurist,1,1,0,0
+9,secretary,1,1,0,0
+9,hairdresser,1,1,0,0
+9,flight attendant,1,1,0,0
+9,dress maker,1,1,0,0
+9,receptionist,1,1,0,0
+9,florist,1,1,0,0
+9,housekeeper,1,1,0,0
+9,child care worker,1,1,0,0
+9,kindergarten teacher,1,1,0,0
+9,interior decorator,1,1,0,0
+9,registered nurse,1,1,0,0
+9,elementary school teacher,1,1,0,0
+9,librarian,1,1,0,0
+9,cake decorator,1,1,0,0
+9,dietician,1,0,1,0
+9,exercise instructor,1,1,0,0
+9,nutritionist,1,1,0,0
+9,hair cutter,1,1,0,0
+9,physician's assistant,1,1,0,0
+9,massage therapist,1,1,0,0
+9,bookkeeper,1,0,1,0
+9,high school teacher,1,1,0,0
+9,travel agent,1,1,0,0
+9,guidance counselor,1,1,0,0
+9,dental hygienist,1,1,0,0
+9,real estate agent,1,1,0,0
+9,counseling psychologist,1,1,0,0
+9,baker,1,1,0,0
+9,school psychologist,1,1,0,0
+9,occupational therapist,1,1,0,0
+9,cashier,1,1,0,0
+9,reporter,1,1,0,0
+9,server,1,1,0,0
+9,clinical psychologist,1,1,0,0
+9,animal caretaker,1,1,0,0
+9,paralegal,1,1,0,0
+9,physical therapist,1,1,0,0
+9,singer,1,1,0,0
+9,artist,1,1,0,0
+9,veterinarian,1,1,0,0
+9,cook,1,1,0,0
+9,author,1,1,0,0
+9,photographer,1,1,0,0
+9,tour guide,1,1,0,0
+9,journalist,1,1,0,0
+9,phlebotomist,1,1,0,0
+9,writer,1,1,0,0
+9,emergency medical care,1,1,0,0
+9,graphic designer,1,1,0,0
+9,accountant,1,1,0,0
+9,lawyer,1,1,0,0
+9,concierge,1,0,1,0
+9,forensic psychologist,1,1,0,0
+9,salesperson,1,0,1,0
+9,editor,1,1,0,0
+9,insurance agent,1,0,1,0
+9,theatrical director,1,1,0,0
+9,pharmacist,1,1,0,0
+9,doctor,1,1,0,0
+9,systems analyst,1,1,0,0
+9,judge,1,1,0,0
+9,research scientist,1,1,0,0
+9,professor,1,1,0,0
+9,income tax preparer,1,1,0,0
+9,chef,1,1,0,0
+9,executive,1,0,1,0
+9,radio technician,1,0,1,0
+9,chiropractor,1,1,0,0
+9,landscaper,1,0,1,0
+9,tailor,1,0,1,0
+9,bartender,1,1,0,0
+9,surgeon,1,1,0,0
+9,computer programmer,1,1,0,0
+9,movie director,1,0,1,0
+9,painter,1,1,0,0
+9,dentist,1,1,0,0
+9,groundskeeper,1,0,1,0
+9,architect,1,1,0,0
+9,stock broker,1,0,1,0
+9,police officer,1,1,0,0
+9,janitor,1,0,1,0
+9,coach,1,0,1,0
+9,rancher,1,0,1,0
+9,probation officer,1,1,0,0
+9,bell hop,1,0,1,0
+9,pilot,1,1,0,0
+9,drafting worker,1,0,1,0
+9,highway worker,1,0,1,0
+9,stone cutter,1,0,1,0
+9,logger,1,0,1,0
+9,private detective,1,0,1,0
+9,electrician,1,0,1,0
+9,fire fighter,1,0,1,0
+9,butcher,1,0,1,0
+9,guard,1,0,1,0
+9,plumber,1,0,1,0
+9,farmer,1,0,1,0
+9,carpenter,1,0,1,0
+9,trucker,1,0,1,0
+9,barber,1,0,1,0
+9,construction worker,1,0,1,0
+9,roofer,1,0,1,0
+9,auto mechanic,1,0,1,0
+9,heavy equipment operator,1,0,1,0
+10,cosmetologist,1,1,0,0
+10,manicurist,1,1,0,0
+10,secretary,1,1,0,0
+10,hairdresser,1,1,0,0
+10,flight attendant,1,1,0,0
+10,dress maker,1,1,0,0
+10,receptionist,1,1,0,0
+10,florist,1,1,0,0
+10,housekeeper,1,1,0,0
+10,child care worker,1,1,0,0
+10,kindergarten teacher,1,1,0,0
+10,interior decorator,1,1,0,0
+10,registered nurse,1,1,0,0
+10,elementary school teacher,1,1,0,0
+10,librarian,1,1,0,0
+10,cake decorator,1,1,0,0
+10,dietician,1,1,0,0
+10,exercise instructor,1,1,0,0
+10,nutritionist,1,1,0,0
+10,hair cutter,1,1,0,0
+10,physician's assistant,1,1,0,0
+10,massage therapist,1,1,0,0
+10,bookkeeper,1,1,0,0
+10,high school teacher,1,1,0,0
+10,travel agent,1,1,0,0
+10,guidance counselor,1,1,0,0
+10,dental hygienist,1,1,0,0
+10,real estate agent,1,1,0,0
+10,counseling psychologist,1,1,0,0
+10,baker,1,1,0,0
+10,school psychologist,1,1,0,0
+10,occupational therapist,1,1,0,0
+10,cashier,1,1,0,0
+10,reporter,1,1,0,0
+10,server,1,1,0,0
+10,clinical psychologist,1,1,0,0
+10,animal caretaker,1,1,0,0
+10,paralegal,1,1,0,0
+10,physical therapist,1,1,0,0
+10,singer,1,1,0,0
+10,artist,1,1,0,0
+10,veterinarian,1,1,0,0
+10,cook,1,1,0,0
+10,author,1,1,0,0
+10,photographer,1,0,1,0
+10,tour guide,1,1,0,0
+10,journalist,1,1,0,0
+10,phlebotomist,1,1,0,0
+10,writer,1,1,0,0
+10,emergency medical care,1,1,0,0
+10,graphic designer,1,1,0,0
+10,accountant,1,1,0,0
+10,lawyer,1,1,0,0
+10,concierge,1,0,1,0
+10,forensic psychologist,1,1,0,0
+10,salesperson,1,1,0,0
+10,editor,1,1,0,0
+10,insurance agent,1,0,1,0
+10,theatrical director,1,1,0,0
+10,pharmacist,1,1,0,0
+10,doctor,1,1,0,0
+10,systems analyst,1,0,1,0
+10,judge,1,1,0,0
+10,research scientist,1,1,0,0
+10,professor,1,1,0,0
+10,income tax preparer,1,1,0,0
+10,chef,1,1,0,0
+10,executive,1,1,0,0
+10,radio technician,1,0,1,0
+10,chiropractor,1,0,1,0
+10,landscaper,1,0,1,0
+10,tailor,1,1,0,0
+10,bartender,1,0,1,0
+10,surgeon,1,1,0,0
+10,computer programmer,1,1,0,0
+10,movie director,1,1,0,0
+10,painter,1,1,0,0
+10,dentist,1,1,0,0
+10,groundskeeper,1,0,1,0
+10,architect,1,1,0,0
+10,stock broker,1,0,1,0
+10,police officer,1,0,1,0
+10,janitor,1,0,1,0
+10,coach,1,0,1,0
+10,rancher,1,0,1,0
+10,probation officer,1,1,0,0
+10,bell hop,1,0,1,0
+10,pilot,1,1,0,0
+10,drafting worker,1,0,1,0
+10,highway worker,1,0,1,0
+10,stone cutter,1,1,0,0
+10,logger,1,1,0,0
+10,private detective,1,0,1,0
+10,electrician,1,1,0,0
+10,fire fighter,1,0,1,0
+10,butcher,1,0,1,0
+10,guard,1,0,1,0
+10,plumber,1,0,1,0
+10,farmer,1,0,1,0
+10,carpenter,1,0,1,0
+10,trucker,1,0,1,0
+10,barber,1,0,1,0
+10,construction worker,1,0,1,0
+10,roofer,1,0,1,0
+10,auto mechanic,1,0,1,0
+10,heavy equipment operator,1,0,1,0
+11,cosmetologist,1,1,0,0
+11,manicurist,1,1,0,0
+11,secretary,1,1,0,0
+11,hairdresser,1,1,0,0
+11,flight attendant,1,1,0,0
+11,dress maker,1,1,0,0
+11,receptionist,1,1,0,0
+11,florist,1,1,0,0
+11,housekeeper,1,1,0,0
+11,child care worker,1,1,0,0
+11,kindergarten teacher,1,1,0,0
+11,interior decorator,1,1,0,0
+11,registered nurse,1,1,0,0
+11,elementary school teacher,1,1,0,0
+11,librarian,1,1,0,0
+11,cake decorator,1,1,0,0
+11,dietician,1,1,0,0
+11,exercise instructor,1,1,0,0
+11,nutritionist,1,1,0,0
+11,hair cutter,1,1,0,0
+11,physician's assistant,1,1,0,0
+11,massage therapist,1,1,0,0
+11,bookkeeper,1,0,1,0
+11,high school teacher,1,1,0,0
+11,travel agent,1,1,0,0
+11,guidance counselor,1,1,0,0
+11,dental hygienist,1,1,0,0
+11,real estate agent,1,1,0,0
+11,counseling psychologist,1,1,0,0
+11,baker,1,1,0,0
+11,school psychologist,1,1,0,0
+11,occupational therapist,1,1,0,0
+11,cashier,1,1,0,0
+11,reporter,1,1,0,0
+11,server,1,1,0,0
+11,clinical psychologist,1,1,0,0
+11,animal caretaker,1,1,0,0
+11,paralegal,1,1,0,0
+11,physical therapist,1,1,0,0
+11,singer,1,1,0,0
+11,artist,1,1,0,0
+11,veterinarian,1,1,0,0
+11,cook,1,0,1,0
+11,author,1,1,0,0
+11,photographer,1,1,0,0
+11,tour guide,1,0,1,0
+11,journalist,1,1,0,0
+11,phlebotomist,1,1,0,0
+11,writer,1,1,0,0
+11,emergency medical care,1,1,0,0
+11,graphic designer,1,1,0,0
+11,accountant,1,1,0,0
+11,lawyer,1,1,0,0
+11,concierge,1,0,1,0
+11,forensic psychologist,1,1,0,0
+11,salesperson,1,1,0,0
+11,editor,1,1,0,0
+11,insurance agent,1,0,1,0
+11,theatrical director,1,0,1,0
+11,pharmacist,1,1,0,0
+11,doctor,1,1,0,0
+11,systems analyst,1,0,1,0
+11,judge,1,1,0,0
+11,research scientist,1,1,0,0
+11,professor,1,1,0,0
+11,income tax preparer,1,0,1,0
+11,chef,1,1,0,0
+11,executive,1,1,0,0
+11,radio technician,1,1,0,0
+11,chiropractor,1,1,0,0
+11,landscaper,1,0,1,0
+11,tailor,1,0,1,0
+11,bartender,1,0,1,0
+11,surgeon,1,1,0,0
+11,computer programmer,1,1,0,0
+11,movie director,1,0,1,0
+11,painter,1,1,0,0
+11,dentist,1,1,0,0
+11,groundskeeper,1,0,1,0
+11,architect,1,1,0,0
+11,stock broker,1,0,1,0
+11,police officer,1,1,0,0
+11,janitor,1,0,1,0
+11,coach,1,0,1,0
+11,rancher,1,1,0,0
+11,probation officer,1,1,0,0
+11,bell hop,1,0,1,0
+11,pilot,1,1,0,0
+11,drafting worker,1,0,1,0
+11,highway worker,1,0,1,0
+11,stone cutter,1,0,1,0
+11,logger,1,0,1,0
+11,private detective,1,0,1,0
+11,electrician,1,0,1,0
+11,fire fighter,1,0,1,0
+11,butcher,1,0,1,0
+11,guard,1,0,1,0
+11,plumber,1,0,1,0
+11,farmer,1,0,1,0
+11,carpenter,1,0,1,0
+11,trucker,1,1,0,0
+11,barber,1,0,1,0
+11,construction worker,1,0,1,0
+11,roofer,1,0,1,0
+11,auto mechanic,1,0,1,0
+11,heavy equipment operator,1,0,1,0
+12,cosmetologist,1,1,0,0
+12,manicurist,1,0,1,0
+12,secretary,1,1,0,0
+12,hairdresser,1,1,0,0
+12,flight attendant,1,1,0,0
+12,dress maker,1,1,0,0
+12,receptionist,1,1,0,0
+12,florist,1,1,0,0
+12,housekeeper,1,1,0,0
+12,child care worker,1,1,0,0
+12,kindergarten teacher,1,1,0,0
+12,interior decorator,1,1,0,0
+12,registered nurse,1,1,0,0
+12,elementary school teacher,1,1,0,0
+12,librarian,1,1,0,0
+12,cake decorator,1,1,0,0
+12,dietician,1,1,0,0
+12,exercise instructor,1,1,0,0
+12,nutritionist,1,1,0,0
+12,hair cutter,1,1,0,0
+12,physician's assistant,1,1,0,0
+12,massage therapist,1,1,0,0
+12,bookkeeper,1,1,0,0
+12,high school teacher,1,1,0,0
+12,travel agent,1,1,0,0
+12,guidance counselor,1,1,0,0
+12,dental hygienist,1,1,0,0
+12,real estate agent,1,1,0,0
+12,counseling psychologist,1,1,0,0
+12,baker,1,1,0,0
+12,school psychologist,1,1,0,0
+12,occupational therapist,1,1,0,0
+12,cashier,1,1,0,0
+12,reporter,1,1,0,0
+12,server,1,1,0,0
+12,clinical psychologist,1,1,0,0
+12,animal caretaker,1,1,0,0
+12,paralegal,1,1,0,0
+12,physical therapist,1,1,0,0
+12,singer,1,1,0,0
+12,artist,1,1,0,0
+12,veterinarian,1,1,0,0
+12,cook,1,0,1,0
+12,author,1,1,0,0
+12,photographer,1,1,0,0
+12,tour guide,1,1,0,0
+12,journalist,1,1,0,0
+12,phlebotomist,1,1,0,0
+12,writer,1,1,0,0
+12,emergency medical care,1,1,0,0
+12,graphic designer,1,1,0,0
+12,accountant,1,1,0,0
+12,lawyer,1,1,0,0
+12,concierge,1,1,0,0
+12,forensic psychologist,1,1,0,0
+12,salesperson,1,1,0,0
+12,editor,1,1,0,0
+12,insurance agent,1,1,0,0
+12,theatrical director,1,1,0,0
+12,pharmacist,1,1,0,0
+12,doctor,1,1,0,0
+12,systems analyst,1,1,0,0
+12,judge,1,1,0,0
+12,research scientist,1,1,0,0
+12,professor,1,1,0,0
+12,income tax preparer,1,1,0,0
+12,chef,1,1,0,0
+12,executive,1,1,0,0
+12,radio technician,1,0,1,0
+12,chiropractor,1,1,0,0
+12,landscaper,1,0,1,0
+12,tailor,1,0,1,0
+12,bartender,1,0,1,0
+12,surgeon,1,1,0,0
+12,computer programmer,1,1,0,0
+12,movie director,1,0,1,0
+12,painter,1,1,0,0
+12,dentist,1,1,0,0
+12,groundskeeper,1,0,1,0
+12,architect,1,1,0,0
+12,stock broker,1,0,1,0
+12,police officer,1,1,0,0
+12,janitor,1,0,1,0
+12,coach,1,0,1,0
+12,rancher,1,0,1,0
+12,probation officer,1,1,0,0
+12,bell hop,1,0,1,0
+12,pilot,1,0,1,0
+12,drafting worker,1,0,1,0
+12,highway worker,1,0,1,0
+12,stone cutter,1,1,0,0
+12,logger,1,0,1,0
+12,private detective,1,0,1,0
+12,electrician,1,0,1,0
+12,fire fighter,1,0,1,0
+12,butcher,1,0,1,0
+12,guard,1,0,1,0
+12,plumber,1,0,1,0
+12,farmer,1,1,0,0
+12,carpenter,1,0,1,0
+12,trucker,1,0,1,0
+12,barber,1,0,1,0
+12,construction worker,1,0,1,0
+12,roofer,1,0,1,0
+12,auto mechanic,1,0,1,0
+12,heavy equipment operator,1,0,1,0
+13,cosmetologist,1,1,0,0
+13,manicurist,1,1,0,0
+13,secretary,1,1,0,0
+13,hairdresser,1,1,0,0
+13,flight attendant,1,1,0,0
+13,dress maker,1,1,0,0
+13,receptionist,1,1,0,0
+13,florist,1,1,0,0
+13,housekeeper,1,1,0,0
+13,child care worker,1,1,0,0
+13,kindergarten teacher,1,1,0,0
+13,interior decorator,1,1,0,0
+13,registered nurse,1,1,0,0
+13,elementary school teacher,1,1,0,0
+13,librarian,1,1,0,0
+13,cake decorator,1,1,0,0
+13,dietician,1,1,0,0
+13,exercise instructor,1,1,0,0
+13,nutritionist,1,1,0,0
+13,hair cutter,1,1,0,0
+13,physician's assistant,1,1,0,0
+13,massage therapist,1,1,0,0
+13,bookkeeper,1,1,0,0
+13,high school teacher,1,1,0,0
+13,travel agent,1,1,0,0
+13,guidance counselor,1,1,0,0
+13,dental hygienist,1,1,0,0
+13,real estate agent,1,1,0,0
+13,counseling psychologist,1,1,0,0
+13,baker,1,1,0,0
+13,school psychologist,1,1,0,0
+13,occupational therapist,1,1,0,0
+13,cashier,1,1,0,0
+13,reporter,1,1,0,0
+13,server,1,1,0,0
+13,clinical psychologist,1,1,0,0
+13,animal caretaker,1,1,0,0
+13,paralegal,1,1,0,0
+13,physical therapist,1,1,0,0
+13,singer,1,1,0,0
+13,artist,1,1,0,0
+13,veterinarian,1,1,0,0
+13,cook,1,1,0,0
+13,author,1,0,1,0
+13,photographer,1,1,0,0
+13,tour guide,1,1,0,0
+13,journalist,1,1,0,0
+13,phlebotomist,1,1,0,0
+13,writer,1,1,0,0
+13,emergency medical care,1,1,0,0
+13,graphic designer,1,1,0,0
+13,accountant,1,1,0,0
+13,lawyer,1,1,0,0
+13,concierge,1,1,0,0
+13,forensic psychologist,1,1,0,0
+13,salesperson,1,1,0,0
+13,editor,1,0,1,0
+13,insurance agent,1,0,1,0
+13,theatrical director,1,1,0,0
+13,pharmacist,1,1,0,0
+13,doctor,1,1,0,0
+13,systems analyst,1,1,0,0
+13,judge,1,1,0,0
+13,research scientist,1,1,0,0
+13,professor,1,1,0,0
+13,income tax preparer,1,0,1,0
+13,chef,1,1,0,0
+13,executive,1,1,0,0
+13,radio technician,1,0,1,0
+13,chiropractor,1,0,1,0
+13,landscaper,1,0,1,0
+13,tailor,1,0,1,0
+13,bartender,1,0,1,0
+13,surgeon,1,1,0,0
+13,computer programmer,1,0,1,0
+13,movie director,1,0,1,0
+13,painter,1,1,0,0
+13,dentist,1,1,0,0
+13,groundskeeper,1,0,1,0
+13,architect,1,0,1,0
+13,stock broker,1,0,1,0
+13,police officer,1,1,0,0
+13,janitor,1,0,1,0
+13,coach,1,0,1,0
+13,rancher,1,0,1,0
+13,probation officer,1,1,0,0
+13,bell hop,1,0,1,0
+13,pilot,1,1,0,0
+13,drafting worker,1,0,1,0
+13,highway worker,1,0,1,0
+13,stone cutter,1,0,1,0
+13,logger,1,0,1,0
+13,private detective,1,0,1,0
+13,electrician,1,0,1,0
+13,fire fighter,1,0,1,0
+13,butcher,1,0,1,0
+13,guard,1,0,1,0
+13,plumber,1,0,1,0
+13,farmer,1,0,1,0
+13,carpenter,1,0,1,0
+13,trucker,1,1,0,0
+13,barber,1,0,1,0
+13,construction worker,1,0,1,0
+13,roofer,1,0,1,0
+13,auto mechanic,1,0,1,0
+13,heavy equipment operator,1,0,1,0
+14,cosmetologist,1,1,0,0
+14,manicurist,1,1,0,0
+14,secretary,1,1,0,0
+14,hairdresser,1,1,0,0
+14,flight attendant,1,1,0,0
+14,dress maker,1,1,0,0
+14,receptionist,1,1,0,0
+14,florist,1,1,0,0
+14,housekeeper,1,1,0,0
+14,child care worker,1,1,0,0
+14,kindergarten teacher,1,1,0,0
+14,interior decorator,1,1,0,0
+14,registered nurse,1,1,0,0
+14,elementary school teacher,1,1,0,0
+14,librarian,1,1,0,0
+14,cake decorator,1,1,0,0
+14,dietician,1,1,0,0
+14,exercise instructor,1,1,0,0
+14,nutritionist,1,1,0,0
+14,hair cutter,1,1,0,0
+14,physician's assistant,1,0,1,0
+14,massage therapist,1,1,0,0
+14,bookkeeper,1,1,0,0
+14,high school teacher,1,1,0,0
+14,travel agent,1,1,0,0
+14,guidance counselor,1,1,0,0
+14,dental hygienist,1,1,0,0
+14,real estate agent,1,1,0,0
+14,counseling psychologist,1,1,0,0
+14,baker,1,1,0,0
+14,school psychologist,1,1,0,0
+14,occupational therapist,1,1,0,0
+14,cashier,1,1,0,0
+14,reporter,1,1,0,0
+14,server,1,1,0,0
+14,clinical psychologist,1,1,0,0
+14,animal caretaker,1,1,0,0
+14,paralegal,1,1,0,0
+14,physical therapist,1,1,0,0
+14,singer,1,1,0,0
+14,artist,1,1,0,0
+14,veterinarian,1,1,0,0
+14,cook,1,1,0,0
+14,author,1,1,0,0
+14,photographer,1,1,0,0
+14,tour guide,1,0,1,0
+14,journalist,1,1,0,0
+14,phlebotomist,1,1,0,0
+14,writer,1,1,0,0
+14,emergency medical care,1,1,0,0
+14,graphic designer,1,1,0,0
+14,accountant,1,0,1,0
+14,lawyer,1,1,0,0
+14,concierge,1,1,0,0
+14,forensic psychologist,1,1,0,0
+14,salesperson,1,1,0,0
+14,editor,1,1,0,0
+14,insurance agent,1,0,1,0
+14,theatrical director,1,0,1,0
+14,pharmacist,1,1,0,0
+14,doctor,1,1,0,0
+14,systems analyst,1,0,1,0
+14,judge,1,1,0,0
+14,research scientist,1,1,0,0
+14,professor,1,1,0,0
+14,income tax preparer,1,0,1,0
+14,chef,1,1,0,0
+14,executive,1,1,0,0
+14,radio technician,1,1,0,0
+14,chiropractor,1,1,0,0
+14,landscaper,1,0,1,0
+14,tailor,1,0,1,0
+14,bartender,1,0,1,0
+14,surgeon,1,1,0,0
+14,computer programmer,1,1,0,0
+14,movie director,1,0,1,0
+14,painter,1,1,0,0
+14,dentist,1,1,0,0
+14,groundskeeper,1,0,1,0
+14,architect,1,1,0,0
+14,stock broker,1,0,1,0
+14,police officer,1,0,1,0
+14,janitor,1,0,1,0
+14,coach,1,1,0,0
+14,rancher,1,0,1,0
+14,probation officer,1,1,0,0
+14,bell hop,1,0,1,0
+14,pilot,1,1,0,0
+14,drafting worker,1,1,0,0
+14,highway worker,1,0,1,0
+14,stone cutter,1,0,1,0
+14,logger,1,0,1,0
+14,private detective,1,1,0,0
+14,electrician,1,0,1,0
+14,fire fighter,1,1,0,0
+14,butcher,1,0,1,0
+14,guard,1,0,1,0
+14,plumber,1,0,1,0
+14,farmer,1,0,1,0
+14,carpenter,1,0,1,0
+14,trucker,1,0,1,0
+14,barber,1,0,1,0
+14,construction worker,1,0,1,0
+14,roofer,1,0,1,0
+14,auto mechanic,1,0,1,0
+14,heavy equipment operator,1,1,0,0
+15,cosmetologist,1,1,0,0
+15,manicurist,1,1,0,0
+15,secretary,1,1,0,0
+15,hairdresser,1,1,0,0
+15,flight attendant,1,1,0,0
+15,dress maker,1,1,0,0
+15,receptionist,1,1,0,0
+15,florist,1,1,0,0
+15,housekeeper,1,1,0,0
+15,child care worker,1,1,0,0
+15,kindergarten teacher,1,1,0,0
+15,interior decorator,1,1,0,0
+15,registered nurse,1,1,0,0
+15,elementary school teacher,1,1,0,0
+15,librarian,1,1,0,0
+15,cake decorator,1,1,0,0
+15,dietician,1,1,0,0
+15,exercise instructor,1,1,0,0
+15,nutritionist,1,1,0,0
+15,hair cutter,1,1,0,0
+15,physician's assistant,1,1,0,0
+15,massage therapist,1,1,0,0
+15,bookkeeper,1,1,0,0
+15,high school teacher,1,1,0,0
+15,travel agent,1,1,0,0
+15,guidance counselor,1,1,0,0
+15,dental hygienist,1,1,0,0
+15,real estate agent,1,1,0,0
+15,counseling psychologist,1,1,0,0
+15,baker,1,1,0,0
+15,school psychologist,1,1,0,0
+15,occupational therapist,1,1,0,0
+15,cashier,1,1,0,0
+15,reporter,1,1,0,0
+15,server,1,1,0,0
+15,clinical psychologist,1,1,0,0
+15,animal caretaker,1,1,0,0
+15,paralegal,1,1,0,0
+15,physical therapist,1,1,0,0
+15,singer,1,1,0,0
+15,artist,1,1,0,0
+15,veterinarian,1,1,0,0
+15,cook,1,1,0,0
+15,author,1,1,0,0
+15,photographer,1,0,1,0
+15,tour guide,1,1,0,0
+15,journalist,1,1,0,0
+15,phlebotomist,1,1,0,0
+15,writer,1,1,0,0
+15,emergency medical care,1,1,0,0
+15,graphic designer,1,1,0,0
+15,accountant,1,1,0,0
+15,lawyer,1,1,0,0
+15,concierge,1,1,0,0
+15,forensic psychologist,1,1,0,0
+15,salesperson,1,1,0,0
+15,editor,1,1,0,0
+15,insurance agent,1,0,1,0
+15,theatrical director,1,1,0,0
+15,pharmacist,1,1,0,0
+15,doctor,1,1,0,0
+15,systems analyst,1,1,0,0
+15,judge,1,1,0,0
+15,research scientist,1,1,0,0
+15,professor,1,1,0,0
+15,income tax preparer,1,0,1,0
+15,chef,1,0,1,0
+15,executive,1,1,0,0
+15,radio technician,1,0,1,0
+15,chiropractor,1,1,0,0
+15,landscaper,1,0,1,0
+15,tailor,1,0,1,0
+15,bartender,1,0,1,0
+15,surgeon,1,0,1,0
+15,computer programmer,1,1,0,0
+15,movie director,1,1,0,0
+15,painter,1,1,0,0
+15,dentist,1,1,0,0
+15,groundskeeper,1,0,1,0
+15,architect,1,0,1,0
+15,stock broker,1,0,1,0
+15,police officer,1,1,0,0
+15,janitor,1,0,1,0
+15,coach,1,0,1,0
+15,rancher,1,0,1,0
+15,probation officer,1,1,0,0
+15,bell hop,1,0,1,0
+15,pilot,1,1,0,0
+15,drafting worker,1,1,0,0
+15,highway worker,1,0,1,0
+15,stone cutter,1,0,1,0
+15,logger,1,0,1,0
+15,private detective,1,0,1,0
+15,electrician,1,0,1,0
+15,fire fighter,1,1,0,0
+15,butcher,1,0,1,0
+15,guard,1,0,1,0
+15,plumber,1,0,1,0
+15,farmer,1,1,0,0
+15,carpenter,1,0,1,0
+15,trucker,1,1,0,0
+15,barber,1,0,1,0
+15,construction worker,1,0,1,0
+15,roofer,1,0,1,0
+15,auto mechanic,1,0,1,0
+15,heavy equipment operator,1,0,1,0
+16,cosmetologist,1,1,0,0
+16,manicurist,1,1,0,0
+16,secretary,1,1,0,0
+16,hairdresser,1,1,0,0
+16,flight attendant,1,1,0,0
+16,dress maker,1,1,0,0
+16,receptionist,1,1,0,0
+16,florist,1,1,0,0
+16,housekeeper,1,1,0,0
+16,child care worker,1,1,0,0
+16,kindergarten teacher,1,1,0,0
+16,interior decorator,1,1,0,0
+16,registered nurse,1,1,0,0
+16,elementary school teacher,1,1,0,0
+16,librarian,1,1,0,0
+16,cake decorator,1,1,0,0
+16,dietician,1,1,0,0
+16,exercise instructor,1,1,0,0
+16,nutritionist,1,1,0,0
+16,hair cutter,1,1,0,0
+16,physician's assistant,1,1,0,0
+16,massage therapist,1,1,0,0
+16,bookkeeper,1,1,0,0
+16,high school teacher,1,1,0,0
+16,travel agent,1,1,0,0
+16,guidance counselor,1,1,0,0
+16,dental hygienist,1,1,0,0
+16,real estate agent,1,1,0,0
+16,counseling psychologist,1,1,0,0
+16,baker,1,1,0,0
+16,school psychologist,1,1,0,0
+16,occupational therapist,1,1,0,0
+16,cashier,1,1,0,0
+16,reporter,1,1,0,0
+16,server,1,1,0,0
+16,clinical psychologist,1,1,0,0
+16,animal caretaker,1,1,0,0
+16,paralegal,1,1,0,0
+16,physical therapist,1,1,0,0
+16,singer,1,1,0,0
+16,artist,1,1,0,0
+16,veterinarian,1,1,0,0
+16,cook,1,1,0,0
+16,author,1,1,0,0
+16,photographer,1,0,1,0
+16,tour guide,1,1,0,0
+16,journalist,1,1,0,0
+16,phlebotomist,1,1,0,0
+16,writer,1,1,0,0
+16,emergency medical care,1,1,0,0
+16,graphic designer,1,1,0,0
+16,accountant,1,0,1,0
+16,lawyer,1,1,0,0
+16,concierge,1,0,1,0
+16,forensic psychologist,1,1,0,0
+16,salesperson,1,0,1,0
+16,editor,1,0,1,0
+16,insurance agent,1,0,1,0
+16,theatrical director,1,1,0,0
+16,pharmacist,1,1,0,0
+16,doctor,1,1,0,0
+16,systems analyst,1,1,0,0
+16,judge,1,1,0,0
+16,research scientist,1,1,0,0
+16,professor,1,1,0,0
+16,income tax preparer,1,1,0,0
+16,chef,1,1,0,0
+16,executive,1,1,0,0
+16,radio technician,1,1,0,0
+16,chiropractor,1,1,0,0
+16,landscaper,1,0,1,0
+16,tailor,1,0,1,0
+16,bartender,1,0,1,0
+16,surgeon,1,1,0,0
+16,computer programmer,1,1,0,0
+16,movie director,1,1,0,0
+16,painter,1,1,0,0
+16,dentist,1,1,0,0
+16,groundskeeper,1,0,1,0
+16,architect,1,1,0,0
+16,stock broker,1,0,1,0
+16,police officer,1,1,0,0
+16,janitor,1,0,1,0
+16,coach,1,1,0,0
+16,rancher,1,0,1,0
+16,probation officer,1,1,0,0
+16,bell hop,1,0,1,0
+16,pilot,1,1,0,0
+16,drafting worker,1,1,0,0
+16,highway worker,1,0,1,0
+16,stone cutter,1,1,0,0
+16,logger,1,0,1,0
+16,private detective,1,0,1,0
+16,electrician,1,0,1,0
+16,fire fighter,1,1,0,0
+16,butcher,1,0,1,0
+16,guard,1,0,1,0
+16,plumber,1,0,1,0
+16,farmer,1,0,1,0
+16,carpenter,1,0,1,0
+16,trucker,1,0,1,0
+16,barber,1,0,1,0
+16,construction worker,1,0,1,0
+16,roofer,1,0,1,0
+16,auto mechanic,1,0,1,0
+16,heavy equipment operator,1,0,1,0
+17,cosmetologist,1,1,0,0
+17,manicurist,1,1,0,0
+17,secretary,1,1,0,0
+17,hairdresser,1,1,0,0
+17,flight attendant,1,1,0,0
+17,dress maker,1,1,0,0
+17,receptionist,1,1,0,0
+17,florist,1,1,0,0
+17,housekeeper,1,1,0,0
+17,child care worker,1,1,0,0
+17,kindergarten teacher,1,1,0,0
+17,interior decorator,1,1,0,0
+17,registered nurse,1,1,0,0
+17,elementary school teacher,1,1,0,0
+17,librarian,1,1,0,0
+17,cake decorator,1,1,0,0
+17,dietician,1,1,0,0
+17,exercise instructor,1,1,0,0
+17,nutritionist,1,1,0,0
+17,hair cutter,1,1,0,0
+17,physician's assistant,1,1,0,0
+17,massage therapist,1,1,0,0
+17,bookkeeper,1,1,0,0
+17,high school teacher,1,1,0,0
+17,travel agent,1,1,0,0
+17,guidance counselor,1,1,0,0
+17,dental hygienist,1,1,0,0
+17,real estate agent,1,1,0,0
+17,counseling psychologist,1,1,0,0
+17,baker,1,1,0,0
+17,school psychologist,1,1,0,0
+17,occupational therapist,1,1,0,0
+17,cashier,1,1,0,0
+17,reporter,1,1,0,0
+17,server,1,1,0,0
+17,clinical psychologist,1,1,0,0
+17,animal caretaker,1,0,1,0
+17,paralegal,1,1,0,0
+17,physical therapist,1,1,0,0
+17,singer,1,1,0,0
+17,artist,1,1,0,0
+17,veterinarian,1,1,0,0
+17,cook,1,1,0,0
+17,author,1,1,0,0
+17,photographer,1,1,0,0
+17,tour guide,1,1,0,0
+17,journalist,1,1,0,0
+17,phlebotomist,1,1,0,0
+17,writer,1,1,0,0
+17,emergency medical care,1,1,0,0
+17,graphic designer,1,1,0,0
+17,accountant,1,1,0,0
+17,lawyer,1,1,0,0
+17,concierge,1,1,0,0
+17,forensic psychologist,1,1,0,0
+17,salesperson,1,0,1,0
+17,editor,1,1,0,0
+17,insurance agent,1,0,1,0
+17,theatrical director,1,1,0,0
+17,pharmacist,1,1,0,0
+17,doctor,1,1,0,0
+17,systems analyst,1,0,1,0
+17,judge,1,1,0,0
+17,research scientist,1,1,0,0
+17,professor,1,1,0,0
+17,income tax preparer,1,0,1,0
+17,chef,1,1,0,0
+17,executive,1,1,0,0
+17,radio technician,1,1,0,0
+17,chiropractor,1,1,0,0
+17,landscaper,1,1,0,0
+17,tailor,1,0,1,0
+17,bartender,1,1,0,0
+17,surgeon,1,1,0,0
+17,computer programmer,1,1,0,0
+17,movie director,1,0,1,0
+17,painter,1,1,0,0
+17,dentist,1,1,0,0
+17,groundskeeper,1,0,1,0
+17,architect,1,1,0,0
+17,stock broker,1,0,1,0
+17,police officer,1,1,0,0
+17,janitor,1,0,1,0
+17,coach,1,0,1,0
+17,rancher,1,1,0,0
+17,probation officer,1,1,0,0
+17,bell hop,1,0,1,0
+17,pilot,1,1,0,0
+17,drafting worker,1,1,0,0
+17,highway worker,1,0,1,0
+17,stone cutter,1,0,1,0
+17,logger,1,0,1,0
+17,private detective,1,1,0,0
+17,electrician,1,0,1,0
+17,fire fighter,1,1,0,0
+17,butcher,1,0,1,0
+17,guard,1,0,1,0
+17,plumber,1,0,1,0
+17,farmer,1,0,1,0
+17,carpenter,1,0,1,0
+17,trucker,1,0,1,0
+17,barber,1,0,1,0
+17,construction worker,1,0,1,0
+17,roofer,1,0,1,0
+17,auto mechanic,1,0,1,0
+17,heavy equipment operator,1,0,1,0
+18,cosmetologist,1,1,0,0
+18,manicurist,1,0,1,0
+18,secretary,1,1,0,0
+18,hairdresser,1,1,0,0
+18,flight attendant,1,1,0,0
+18,dress maker,1,1,0,0
+18,receptionist,1,1,0,0
+18,florist,1,1,0,0
+18,housekeeper,1,1,0,0
+18,child care worker,1,1,0,0
+18,kindergarten teacher,1,1,0,0
+18,interior decorator,1,1,0,0
+18,registered nurse,1,1,0,0
+18,elementary school teacher,1,1,0,0
+18,librarian,1,1,0,0
+18,cake decorator,1,1,0,0
+18,dietician,1,1,0,0
+18,exercise instructor,1,1,0,0
+18,nutritionist,1,1,0,0
+18,hair cutter,1,1,0,0
+18,physician's assistant,1,1,0,0
+18,massage therapist,1,1,0,0
+18,bookkeeper,1,1,0,0
+18,high school teacher,1,1,0,0
+18,travel agent,1,1,0,0
+18,guidance counselor,1,1,0,0
+18,dental hygienist,1,1,0,0
+18,real estate agent,1,1,0,0
+18,counseling psychologist,1,1,0,0
+18,baker,1,1,0,0
+18,school psychologist,1,1,0,0
+18,occupational therapist,1,1,0,0
+18,cashier,1,1,0,0
+18,reporter,1,1,0,0
+18,server,1,1,0,0
+18,clinical psychologist,1,1,0,0
+18,animal caretaker,1,1,0,0
+18,paralegal,1,1,0,0
+18,physical therapist,1,1,0,0
+18,singer,1,1,0,0
+18,artist,1,1,0,0
+18,veterinarian,1,1,0,0
+18,cook,1,1,0,0
+18,author,1,1,0,0
+18,photographer,1,1,0,0
+18,tour guide,1,1,0,0
+18,journalist,1,1,0,0
+18,phlebotomist,1,1,0,0
+18,writer,1,1,0,0
+18,emergency medical care,1,1,0,0
+18,graphic designer,1,1,0,0
+18,accountant,1,1,0,0
+18,lawyer,1,1,0,0
+18,concierge,1,0,1,0
+18,forensic psychologist,1,1,0,0
+18,salesperson,1,1,0,0
+18,editor,1,1,0,0
+18,insurance agent,1,0,1,0
+18,theatrical director,1,0,1,0
+18,pharmacist,1,1,0,0
+18,doctor,1,1,0,0
+18,systems analyst,1,1,0,0
+18,judge,1,1,0,0
+18,research scientist,1,1,0,0
+18,professor,1,1,0,0
+18,income tax preparer,1,1,0,0
+18,chef,1,1,0,0
+18,executive,1,1,0,0
+18,radio technician,1,1,0,0
+18,chiropractor,1,1,0,0
+18,landscaper,1,0,1,0
+18,tailor,1,0,1,0
+18,bartender,1,0,1,0
+18,surgeon,1,1,0,0
+18,computer programmer,1,1,0,0
+18,movie director,1,0,1,0
+18,painter,1,1,0,0
+18,dentist,1,1,0,0
+18,groundskeeper,1,0,1,0
+18,architect,1,0,1,0
+18,stock broker,1,0,1,0
+18,police officer,1,1,0,0
+18,janitor,1,1,0,0
+18,coach,1,0,1,0
+18,rancher,1,1,0,0
+18,probation officer,1,1,0,0
+18,bell hop,1,0,1,0
+18,pilot,1,1,0,0
+18,drafting worker,1,1,0,0
+18,highway worker,1,0,1,0
+18,stone cutter,1,0,1,0
+18,logger,1,0,1,0
+18,private detective,1,0,1,0
+18,electrician,1,0,1,0
+18,fire fighter,1,0,1,0
+18,butcher,1,0,1,0
+18,guard,1,0,1,0
+18,plumber,1,0,1,0
+18,farmer,1,0,1,0
+18,carpenter,1,0,1,0
+18,trucker,1,0,1,0
+18,barber,1,0,1,0
+18,construction worker,1,0,1,0
+18,roofer,1,0,1,0
+18,auto mechanic,1,0,1,0
+18,heavy equipment operator,1,0,1,0
+19,cosmetologist,1,1,0,0
+19,manicurist,1,1,0,0
+19,secretary,1,1,0,0
+19,hairdresser,1,1,0,0
+19,flight attendant,1,1,0,0
+19,dress maker,1,1,0,0
+19,receptionist,1,1,0,0
+19,florist,1,1,0,0
+19,housekeeper,1,1,0,0
+19,child care worker,1,1,0,0
+19,kindergarten teacher,1,1,0,0
+19,interior decorator,1,1,0,0
+19,registered nurse,1,1,0,0
+19,elementary school teacher,1,1,0,0
+19,librarian,1,1,0,0
+19,cake decorator,1,1,0,0
+19,dietician,1,1,0,0
+19,exercise instructor,1,1,0,0
+19,nutritionist,1,1,0,0
+19,hair cutter,1,1,0,0
+19,physician's assistant,1,1,0,0
+19,massage therapist,1,1,0,0
+19,bookkeeper,1,1,0,0
+19,high school teacher,1,0,1,0
+19,travel agent,1,1,0,0
+19,guidance counselor,1,1,0,0
+19,dental hygienist,1,1,0,0
+19,real estate agent,1,1,0,0
+19,counseling psychologist,1,1,0,0
+19,baker,1,1,0,0
+19,school psychologist,1,1,0,0
+19,occupational therapist,1,1,0,0
+19,cashier,1,1,0,0
+19,reporter,1,1,0,0
+19,server,1,1,0,0
+19,clinical psychologist,1,1,0,0
+19,animal caretaker,1,1,0,0
+19,paralegal,1,1,0,0
+19,physical therapist,1,1,0,0
+19,singer,1,1,0,0
+19,artist,1,1,0,0
+19,veterinarian,1,1,0,0
+19,cook,1,1,0,0
+19,author,1,1,0,0
+19,photographer,1,1,0,0
+19,tour guide,1,1,0,0
+19,journalist,1,1,0,0
+19,phlebotomist,1,1,0,0
+19,writer,1,0,1,0
+19,emergency medical care,1,1,0,0
+19,graphic designer,1,1,0,0
+19,accountant,1,0,1,0
+19,lawyer,1,1,0,0
+19,concierge,1,1,0,0
+19,forensic psychologist,1,1,0,0
+19,salesperson,1,1,0,0
+19,editor,1,1,0,0
+19,insurance agent,1,0,1,0
+19,theatrical director,1,0,1,0
+19,pharmacist,1,1,0,0
+19,doctor,1,1,0,0
+19,systems analyst,1,1,0,0
+19,judge,1,1,0,0
+19,research scientist,1,1,0,0
+19,professor,1,1,0,0
+19,income tax preparer,1,1,0,0
+19,chef,1,1,0,0
+19,executive,1,1,0,0
+19,radio technician,1,1,0,0
+19,chiropractor,1,1,0,0
+19,landscaper,1,0,1,0
+19,tailor,1,0,1,0
+19,bartender,1,0,1,0
+19,surgeon,1,1,0,0
+19,computer programmer,1,0,1,0
+19,movie director,1,0,1,0
+19,painter,1,1,0,0
+19,dentist,1,1,0,0
+19,groundskeeper,1,0,1,0
+19,architect,1,0,1,0
+19,stock broker,1,0,1,0
+19,police officer,1,0,1,0
+19,janitor,1,0,1,0
+19,coach,1,0,1,0
+19,rancher,1,0,1,0
+19,probation officer,1,1,0,0
+19,bell hop,1,0,1,0
+19,pilot,1,0,1,0
+19,drafting worker,1,0,1,0
+19,highway worker,1,0,1,0
+19,stone cutter,1,0,1,0
+19,logger,1,0,1,0
+19,private detective,1,1,0,0
+19,electrician,1,0,1,0
+19,fire fighter,1,0,1,0
+19,butcher,1,0,1,0
+19,guard,1,0,1,0
+19,plumber,1,0,1,0
+19,farmer,1,0,1,0
+19,carpenter,1,0,1,0
+19,trucker,1,0,1,0
+19,barber,1,0,1,0
+19,construction worker,1,0,1,0
+19,roofer,1,0,1,0
+19,auto mechanic,1,1,0,0
+19,heavy equipment operator,1,0,1,0
+20,cosmetologist,1,1,0,0
+20,manicurist,1,1,0,0
+20,secretary,1,1,0,0
+20,hairdresser,1,1,0,0
+20,flight attendant,1,1,0,0
+20,dress maker,1,1,0,0
+20,receptionist,1,1,0,0
+20,florist,1,1,0,0
+20,housekeeper,1,1,0,0
+20,child care worker,1,1,0,0
+20,kindergarten teacher,1,1,0,0
+20,interior decorator,1,1,0,0
+20,registered nurse,1,1,0,0
+20,elementary school teacher,1,1,0,0
+20,librarian,1,1,0,0
+20,cake decorator,1,1,0,0
+20,dietician,1,1,0,0
+20,exercise instructor,1,1,0,0
+20,nutritionist,1,1,0,0
+20,hair cutter,1,1,0,0
+20,physician's assistant,1,1,0,0
+20,massage therapist,1,1,0,0
+20,bookkeeper,1,1,0,0
+20,high school teacher,1,1,0,0
+20,travel agent,1,1,0,0
+20,guidance counselor,1,1,0,0
+20,dental hygienist,1,1,0,0
+20,real estate agent,1,1,0,0
+20,counseling psychologist,1,1,0,0
+20,baker,1,1,0,0
+20,school psychologist,1,1,0,0
+20,occupational therapist,1,1,0,0
+20,cashier,1,1,0,0
+20,reporter,1,1,0,0
+20,server,1,1,0,0
+20,clinical psychologist,1,1,0,0
+20,animal caretaker,1,1,0,0
+20,paralegal,1,1,0,0
+20,physical therapist,1,1,0,0
+20,singer,1,1,0,0
+20,artist,1,1,0,0
+20,veterinarian,1,1,0,0
+20,cook,1,1,0,0
+20,author,1,1,0,0
+20,photographer,1,1,0,0
+20,tour guide,1,1,0,0
+20,journalist,1,1,0,0
+20,phlebotomist,1,1,0,0
+20,writer,1,0,1,0
+20,emergency medical care,1,1,0,0
+20,graphic designer,1,1,0,0
+20,accountant,1,1,0,0
+20,lawyer,1,1,0,0
+20,concierge,1,0,1,0
+20,forensic psychologist,1,1,0,0
+20,salesperson,1,0,1,0
+20,editor,1,1,0,0
+20,insurance agent,1,1,0,0
+20,theatrical director,1,0,1,0
+20,pharmacist,1,1,0,0
+20,doctor,1,1,0,0
+20,systems analyst,1,0,1,0
+20,judge,1,1,0,0
+20,research scientist,1,1,0,0
+20,professor,1,1,0,0
+20,income tax preparer,1,1,0,0
+20,chef,1,1,0,0
+20,executive,1,1,0,0
+20,radio technician,1,0,1,0
+20,chiropractor,1,0,1,0
+20,landscaper,1,0,1,0
+20,tailor,1,0,1,0
+20,bartender,1,1,0,0
+20,surgeon,1,1,0,0
+20,computer programmer,1,0,1,0
+20,movie director,1,0,1,0
+20,painter,1,1,0,0
+20,dentist,1,1,0,0
+20,groundskeeper,1,0,1,0
+20,architect,1,1,0,0
+20,stock broker,1,0,1,0
+20,police officer,1,1,0,0
+20,janitor,1,0,1,0
+20,coach,1,1,0,0
+20,rancher,1,0,1,0
+20,probation officer,1,1,0,0
+20,bell hop,1,0,1,0
+20,pilot,1,1,0,0
+20,drafting worker,1,1,0,0
+20,highway worker,1,0,1,0
+20,stone cutter,1,0,1,0
+20,logger,1,0,1,0
+20,private detective,1,1,0,0
+20,electrician,1,0,1,0
+20,fire fighter,1,1,0,0
+20,butcher,1,0,1,0
+20,guard,1,0,1,0
+20,plumber,1,0,1,0
+20,farmer,1,0,1,0
+20,carpenter,1,0,1,0
+20,trucker,1,1,0,0
+20,barber,1,0,1,0
+20,construction worker,1,0,1,0
+20,roofer,1,0,1,0
+20,auto mechanic,1,0,1,0
+20,heavy equipment operator,1,0,1,0
+21,cosmetologist,1,1,0,0
+21,manicurist,1,0,1,0
+21,secretary,1,1,0,0
+21,hairdresser,1,1,0,0
+21,flight attendant,1,1,0,0
+21,dress maker,1,1,0,0
+21,receptionist,1,1,0,0
+21,florist,1,1,0,0
+21,housekeeper,1,1,0,0
+21,child care worker,1,1,0,0
+21,kindergarten teacher,1,1,0,0
+21,interior decorator,1,1,0,0
+21,registered nurse,1,1,0,0
+21,elementary school teacher,1,1,0,0
+21,librarian,1,1,0,0
+21,cake decorator,1,1,0,0
+21,dietician,1,1,0,0
+21,exercise instructor,1,1,0,0
+21,nutritionist,1,1,0,0
+21,hair cutter,1,1,0,0
+21,physician's assistant,1,1,0,0
+21,massage therapist,1,1,0,0
+21,bookkeeper,1,1,0,0
+21,high school teacher,1,1,0,0
+21,travel agent,1,1,0,0
+21,guidance counselor,1,1,0,0
+21,dental hygienist,1,1,0,0
+21,real estate agent,1,1,0,0
+21,counseling psychologist,1,1,0,0
+21,baker,1,1,0,0
+21,school psychologist,1,1,0,0
+21,occupational therapist,1,1,0,0
+21,cashier,1,1,0,0
+21,reporter,1,1,0,0
+21,server,1,1,0,0
+21,clinical psychologist,1,1,0,0
+21,animal caretaker,1,1,0,0
+21,paralegal,1,1,0,0
+21,physical therapist,1,1,0,0
+21,singer,1,1,0,0
+21,artist,1,1,0,0
+21,veterinarian,1,1,0,0
+21,cook,1,1,0,0
+21,author,1,1,0,0
+21,photographer,1,1,0,0
+21,tour guide,1,0,1,0
+21,journalist,1,1,0,0
+21,phlebotomist,1,1,0,0
+21,writer,1,1,0,0
+21,emergency medical care,1,1,0,0
+21,graphic designer,1,1,0,0
+21,accountant,1,1,0,0
+21,lawyer,1,1,0,0
+21,concierge,1,0,1,0
+21,forensic psychologist,1,1,0,0
+21,salesperson,1,0,1,0
+21,editor,1,1,0,0
+21,insurance agent,1,1,0,0
+21,theatrical director,1,0,1,0
+21,pharmacist,1,1,0,0
+21,doctor,1,1,0,0
+21,systems analyst,1,1,0,0
+21,judge,1,1,0,0
+21,research scientist,1,1,0,0
+21,professor,1,1,0,0
+21,income tax preparer,1,1,0,0
+21,chef,1,1,0,0
+21,executive,1,1,0,0
+21,radio technician,1,0,1,0
+21,chiropractor,1,1,0,0
+21,landscaper,1,1,0,0
+21,tailor,1,0,1,0
+21,bartender,1,0,1,0
+21,surgeon,1,1,0,0
+21,computer programmer,1,1,0,0
+21,movie director,1,1,0,0
+21,painter,1,1,0,0
+21,dentist,1,1,0,0
+21,groundskeeper,1,0,1,0
+21,architect,1,1,0,0
+21,stock broker,1,0,1,0
+21,police officer,1,1,0,0
+21,janitor,1,0,1,0
+21,coach,1,1,0,0
+21,rancher,1,0,1,0
+21,probation officer,1,1,0,0
+21,bell hop,1,0,1,0
+21,pilot,1,1,0,0
+21,drafting worker,1,1,0,0
+21,highway worker,1,0,1,0
+21,stone cutter,1,0,1,0
+21,logger,1,0,1,0
+21,private detective,1,1,0,0
+21,electrician,1,0,1,0
+21,fire fighter,1,0,1,0
+21,butcher,1,0,1,0
+21,guard,1,0,1,0
+21,plumber,1,0,1,0
+21,farmer,1,0,1,0
+21,carpenter,1,0,1,0
+21,trucker,1,0,1,0
+21,barber,1,0,1,0
+21,construction worker,1,0,1,0
+21,roofer,1,0,1,0
+21,auto mechanic,1,0,1,0
+21,heavy equipment operator,1,0,1,0
+22,cosmetologist,1,1,0,0
+22,manicurist,1,1,0,0
+22,secretary,1,1,0,0
+22,hairdresser,1,1,0,0
+22,flight attendant,1,1,0,0
+22,dress maker,1,1,0,0
+22,receptionist,1,1,0,0
+22,florist,1,1,0,0
+22,housekeeper,1,1,0,0
+22,child care worker,1,1,0,0
+22,kindergarten teacher,1,1,0,0
+22,interior decorator,1,1,0,0
+22,registered nurse,1,1,0,0
+22,elementary school teacher,1,1,0,0
+22,librarian,1,1,0,0
+22,cake decorator,1,1,0,0
+22,dietician,1,1,0,0
+22,exercise instructor,1,1,0,0
+22,nutritionist,1,1,0,0
+22,hair cutter,1,0,1,0
+22,physician's assistant,1,1,0,0
+22,massage therapist,1,1,0,0
+22,bookkeeper,1,1,0,0
+22,high school teacher,1,1,0,0
+22,travel agent,1,1,0,0
+22,guidance counselor,1,1,0,0
+22,dental hygienist,1,1,0,0
+22,real estate agent,1,1,0,0
+22,counseling psychologist,1,1,0,0
+22,baker,1,1,0,0
+22,school psychologist,1,1,0,0
+22,occupational therapist,1,1,0,0
+22,cashier,1,1,0,0
+22,reporter,1,1,0,0
+22,server,1,1,0,0
+22,clinical psychologist,1,1,0,0
+22,animal caretaker,1,1,0,0
+22,paralegal,1,1,0,0
+22,physical therapist,1,1,0,0
+22,singer,1,1,0,0
+22,artist,1,0,1,0
+22,veterinarian,1,1,0,0
+22,cook,1,0,1,0
+22,author,1,1,0,0
+22,photographer,1,1,0,0
+22,tour guide,1,1,0,0
+22,journalist,1,1,0,0
+22,phlebotomist,1,1,0,0
+22,writer,1,1,0,0
+22,emergency medical care,1,1,0,0
+22,graphic designer,1,1,0,0
+22,accountant,1,1,0,0
+22,lawyer,1,1,0,0
+22,concierge,1,1,0,0
+22,forensic psychologist,1,1,0,0
+22,salesperson,1,0,1,0
+22,editor,1,1,0,0
+22,insurance agent,1,0,1,0
+22,theatrical director,1,1,0,0
+22,pharmacist,1,1,0,0
+22,doctor,1,1,0,0
+22,systems analyst,1,1,0,0
+22,judge,1,1,0,0
+22,research scientist,1,1,0,0
+22,professor,1,1,0,0
+22,income tax preparer,1,1,0,0
+22,chef,1,1,0,0
+22,executive,1,1,0,0
+22,radio technician,1,0,1,0
+22,chiropractor,1,1,0,0
+22,landscaper,1,0,1,0
+22,tailor,1,1,0,0
+22,bartender,1,1,0,0
+22,surgeon,1,1,0,0
+22,computer programmer,1,0,1,0
+22,movie director,1,0,1,0
+22,painter,1,0,1,0
+22,dentist,1,1,0,0
+22,groundskeeper,1,0,1,0
+22,architect,1,0,1,0
+22,stock broker,1,0,1,0
+22,police officer,1,1,0,0
+22,janitor,1,0,1,0
+22,coach,1,1,0,0
+22,rancher,1,0,1,0
+22,probation officer,1,1,0,0
+22,bell hop,1,0,1,0
+22,pilot,1,1,0,0
+22,drafting worker,1,1,0,0
+22,highway worker,1,0,1,0
+22,stone cutter,1,0,1,0
+22,logger,1,0,1,0
+22,private detective,1,1,0,0
+22,electrician,1,0,1,0
+22,fire fighter,1,1,0,0
+22,butcher,1,0,1,0
+22,guard,1,0,1,0
+22,plumber,1,0,1,0
+22,farmer,1,0,1,0
+22,carpenter,1,0,1,0
+22,trucker,1,1,0,0
+22,barber,1,0,1,0
+22,construction worker,1,0,1,0
+22,roofer,1,0,1,0
+22,auto mechanic,1,0,1,0
+22,heavy equipment operator,1,1,0,0
+23,cosmetologist,1,1,0,0
+23,manicurist,1,1,0,0
+23,secretary,1,1,0,0
+23,hairdresser,1,1,0,0
+23,flight attendant,1,1,0,0
+23,dress maker,1,1,0,0
+23,receptionist,1,1,0,0
+23,florist,1,1,0,0
+23,housekeeper,1,1,0,0
+23,child care worker,1,1,0,0
+23,kindergarten teacher,1,1,0,0
+23,interior decorator,1,1,0,0
+23,registered nurse,1,1,0,0
+23,elementary school teacher,1,1,0,0
+23,librarian,1,1,0,0
+23,cake decorator,1,1,0,0
+23,dietician,1,1,0,0
+23,exercise instructor,1,0,1,0
+23,nutritionist,1,1,0,0
+23,hair cutter,1,0,1,0
+23,physician's assistant,1,1,0,0
+23,massage therapist,1,1,0,0
+23,bookkeeper,1,1,0,0
+23,high school teacher,1,1,0,0
+23,travel agent,1,1,0,0
+23,guidance counselor,1,1,0,0
+23,dental hygienist,1,1,0,0
+23,real estate agent,1,0,1,0
+23,counseling psychologist,1,1,0,0
+23,baker,1,1,0,0
+23,school psychologist,1,1,0,0
+23,occupational therapist,1,1,0,0
+23,cashier,1,0,1,0
+23,reporter,1,1,0,0
+23,server,1,1,0,0
+23,clinical psychologist,1,1,0,0
+23,animal caretaker,1,1,0,0
+23,paralegal,1,1,0,0
+23,physical therapist,1,1,0,0
+23,singer,1,1,0,0
+23,artist,1,1,0,0
+23,veterinarian,1,1,0,0
+23,cook,1,1,0,0
+23,author,1,1,0,0
+23,photographer,1,1,0,0
+23,tour guide,1,0,1,0
+23,journalist,1,1,0,0
+23,phlebotomist,1,1,0,0
+23,writer,1,1,0,0
+23,emergency medical care,1,1,0,0
+23,graphic designer,1,1,0,0
+23,accountant,1,1,0,0
+23,lawyer,1,1,0,0
+23,concierge,1,1,0,0
+23,forensic psychologist,1,1,0,0
+23,salesperson,1,0,1,0
+23,editor,1,1,0,0
+23,insurance agent,1,0,1,0
+23,theatrical director,1,1,0,0
+23,pharmacist,1,1,0,0
+23,doctor,1,1,0,0
+23,systems analyst,1,1,0,0
+23,judge,1,1,0,0
+23,research scientist,1,1,0,0
+23,professor,1,1,0,0
+23,income tax preparer,1,1,0,0
+23,chef,1,1,0,0
+23,executive,1,1,0,0
+23,radio technician,1,1,0,0
+23,chiropractor,1,1,0,0
+23,landscaper,1,0,1,0
+23,tailor,1,1,0,0
+23,bartender,1,0,1,0
+23,surgeon,1,1,0,0
+23,computer programmer,1,0,1,0
+23,movie director,1,0,1,0
+23,painter,1,1,0,0
+23,dentist,1,1,0,0
+23,groundskeeper,1,0,1,0
+23,architect,1,1,0,0
+23,stock broker,1,1,0,0
+23,police officer,1,1,0,0
+23,janitor,1,0,1,0
+23,coach,1,0,1,0
+23,rancher,1,0,1,0
+23,probation officer,1,1,0,0
+23,bell hop,1,0,1,0
+23,pilot,1,1,0,0
+23,drafting worker,1,1,0,0
+23,highway worker,1,0,1,0
+23,stone cutter,1,0,1,0
+23,logger,1,0,1,0
+23,private detective,1,0,1,0
+23,electrician,1,0,1,0
+23,fire fighter,1,0,1,0
+23,butcher,1,0,1,0
+23,guard,1,0,1,0
+23,plumber,1,1,0,0
+23,farmer,1,1,0,0
+23,carpenter,1,0,1,0
+23,trucker,1,0,1,0
+23,barber,1,0,1,0
+23,construction worker,1,0,1,0
+23,roofer,1,0,1,0
+23,auto mechanic,1,0,1,0
+23,heavy equipment operator,1,0,1,0
+24,cosmetologist,1,1,0,0
+24,manicurist,1,1,0,0
+24,secretary,1,1,0,0
+24,hairdresser,1,1,0,0
+24,flight attendant,1,1,0,0
+24,dress maker,1,1,0,0
+24,receptionist,1,1,0,0
+24,florist,1,1,0,0
+24,housekeeper,1,1,0,0
+24,child care worker,1,1,0,0
+24,kindergarten teacher,1,1,0,0
+24,interior decorator,1,1,0,0
+24,registered nurse,1,1,0,0
+24,elementary school teacher,1,1,0,0
+24,librarian,1,1,0,0
+24,cake decorator,1,1,0,0
+24,dietician,1,1,0,0
+24,exercise instructor,1,0,1,0
+24,nutritionist,1,1,0,0
+24,hair cutter,1,1,0,0
+24,physician's assistant,1,1,0,0
+24,massage therapist,1,1,0,0
+24,bookkeeper,1,1,0,0
+24,high school teacher,1,1,0,0
+24,travel agent,1,1,0,0
+24,guidance counselor,1,1,0,0
+24,dental hygienist,1,1,0,0
+24,real estate agent,1,1,0,0
+24,counseling psychologist,1,1,0,0
+24,baker,1,1,0,0
+24,school psychologist,1,1,0,0
+24,occupational therapist,1,1,0,0
+24,cashier,1,1,0,0
+24,reporter,1,1,0,0
+24,server,1,1,0,0
+24,clinical psychologist,1,1,0,0
+24,animal caretaker,1,1,0,0
+24,paralegal,1,1,0,0
+24,physical therapist,1,1,0,0
+24,singer,1,1,0,0
+24,artist,1,1,0,0
+24,veterinarian,1,1,0,0
+24,cook,1,1,0,0
+24,author,1,1,0,0
+24,photographer,1,1,0,0
+24,tour guide,1,1,0,0
+24,journalist,1,1,0,0
+24,phlebotomist,1,1,0,0
+24,writer,1,1,0,0
+24,emergency medical care,1,1,0,0
+24,graphic designer,1,1,0,0
+24,accountant,1,1,0,0
+24,lawyer,1,1,0,0
+24,concierge,1,0,1,0
+24,forensic psychologist,1,1,0,0
+24,salesperson,1,1,0,0
+24,editor,1,1,0,0
+24,insurance agent,1,0,1,0
+24,theatrical director,1,0,1,0
+24,pharmacist,1,1,0,0
+24,doctor,1,1,0,0
+24,systems analyst,1,1,0,0
+24,judge,1,0,1,0
+24,research scientist,1,1,0,0
+24,professor,1,1,0,0
+24,income tax preparer,1,0,1,0
+24,chef,1,1,0,0
+24,executive,1,1,0,0
+24,radio technician,1,0,1,0
+24,chiropractor,1,1,0,0
+24,landscaper,1,1,0,0
+24,tailor,1,0,1,0
+24,bartender,1,0,1,0
+24,surgeon,1,1,0,0
+24,computer programmer,1,1,0,0
+24,movie director,1,0,1,0
+24,painter,1,0,1,0
+24,dentist,1,1,0,0
+24,groundskeeper,1,0,1,0
+24,architect,1,0,1,0
+24,stock broker,1,0,1,0
+24,police officer,1,1,0,0
+24,janitor,1,0,1,0
+24,coach,1,1,0,0
+24,rancher,1,0,1,0
+24,probation officer,1,1,0,0
+24,bell hop,1,0,1,0
+24,pilot,1,1,0,0
+24,drafting worker,1,1,0,0
+24,highway worker,1,0,1,0
+24,stone cutter,1,0,1,0
+24,logger,1,0,1,0
+24,private detective,1,1,0,0
+24,electrician,1,0,1,0
+24,fire fighter,1,0,1,0
+24,butcher,1,0,1,0
+24,guard,1,0,1,0
+24,plumber,1,0,1,0
+24,farmer,1,0,1,0
+24,carpenter,1,0,1,0
+24,trucker,1,0,1,0
+24,barber,1,0,1,0
+24,construction worker,1,0,1,0
+24,roofer,1,0,1,0
+24,auto mechanic,1,0,1,0
+24,heavy equipment operator,1,0,1,0
+25,cosmetologist,1,1,0,0
+25,manicurist,1,1,0,0
+25,secretary,1,1,0,0
+25,hairdresser,1,1,0,0
+25,flight attendant,1,1,0,0
+25,dress maker,1,1,0,0
+25,receptionist,1,1,0,0
+25,florist,1,0,1,0
+25,housekeeper,1,1,0,0
+25,child care worker,1,1,0,0
+25,kindergarten teacher,1,1,0,0
+25,interior decorator,1,1,0,0
+25,registered nurse,1,1,0,0
+25,elementary school teacher,1,1,0,0
+25,librarian,1,1,0,0
+25,cake decorator,1,1,0,0
+25,dietician,1,1,0,0
+25,exercise instructor,1,1,0,0
+25,nutritionist,1,1,0,0
+25,hair cutter,1,1,0,0
+25,physician's assistant,1,1,0,0
+25,massage therapist,1,1,0,0
+25,bookkeeper,1,1,0,0
+25,high school teacher,1,1,0,0
+25,travel agent,1,1,0,0
+25,guidance counselor,1,1,0,0
+25,dental hygienist,1,1,0,0
+25,real estate agent,1,1,0,0
+25,counseling psychologist,1,1,0,0
+25,baker,1,1,0,0
+25,school psychologist,1,1,0,0
+25,occupational therapist,1,1,0,0
+25,cashier,1,1,0,0
+25,reporter,1,1,0,0
+25,server,1,1,0,0
+25,clinical psychologist,1,1,0,0
+25,animal caretaker,1,1,0,0
+25,paralegal,1,1,0,0
+25,physical therapist,1,1,0,0
+25,singer,1,1,0,0
+25,artist,1,1,0,0
+25,veterinarian,1,1,0,0
+25,cook,1,1,0,0
+25,author,1,1,0,0
+25,photographer,1,1,0,0
+25,tour guide,1,1,0,0
+25,journalist,1,1,0,0
+25,phlebotomist,1,1,0,0
+25,writer,1,0,1,0
+25,emergency medical care,1,1,0,0
+25,graphic designer,1,1,0,0
+25,accountant,1,1,0,0
+25,lawyer,1,1,0,0
+25,concierge,1,0,1,0
+25,forensic psychologist,1,1,0,0
+25,salesperson,1,1,0,0
+25,editor,1,1,0,0
+25,insurance agent,1,1,0,0
+25,theatrical director,1,0,1,0
+25,pharmacist,1,1,0,0
+25,doctor,1,1,0,0
+25,systems analyst,1,1,0,0
+25,judge,1,1,0,0
+25,research scientist,1,1,0,0
+25,professor,1,1,0,0
+25,income tax preparer,1,0,1,0
+25,chef,1,1,0,0
+25,executive,1,1,0,0
+25,radio technician,1,0,1,0
+25,chiropractor,1,1,0,0
+25,landscaper,1,0,1,0
+25,tailor,1,1,0,0
+25,bartender,1,1,0,0
+25,surgeon,1,1,0,0
+25,computer programmer,1,1,0,0
+25,movie director,1,0,1,0
+25,painter,1,1,0,0
+25,dentist,1,1,0,0
+25,groundskeeper,1,1,0,0
+25,architect,1,1,0,0
+25,stock broker,1,0,1,0
+25,police officer,1,1,0,0
+25,janitor,1,1,0,0
+25,coach,1,1,0,0
+25,rancher,1,0,1,0
+25,probation officer,1,1,0,0
+25,bell hop,1,0,1,0
+25,pilot,1,1,0,0
+25,drafting worker,1,0,1,0
+25,highway worker,1,0,1,0
+25,stone cutter,1,0,1,0
+25,logger,1,0,1,0
+25,private detective,1,1,0,0
+25,electrician,1,0,1,0
+25,fire fighter,1,0,1,0
+25,butcher,1,0,1,0
+25,guard,1,0,1,0
+25,plumber,1,0,1,0
+25,farmer,1,0,1,0
+25,carpenter,1,0,1,0
+25,trucker,1,0,1,0
+25,barber,1,0,1,0
+25,construction worker,1,0,1,0
+25,roofer,1,0,1,0
+25,auto mechanic,1,0,1,0
+25,heavy equipment operator,1,0,1,0
+26,cosmetologist,1,1,0,0
+26,manicurist,1,1,0,0
+26,secretary,1,1,0,0
+26,hairdresser,1,1,0,0
+26,flight attendant,1,1,0,0
+26,dress maker,1,1,0,0
+26,receptionist,1,1,0,0
+26,florist,1,1,0,0
+26,housekeeper,1,1,0,0
+26,child care worker,1,1,0,0
+26,kindergarten teacher,1,1,0,0
+26,interior decorator,1,1,0,0
+26,registered nurse,1,1,0,0
+26,elementary school teacher,1,1,0,0
+26,librarian,1,1,0,0
+26,cake decorator,1,1,0,0
+26,dietician,1,1,0,0
+26,exercise instructor,1,1,0,0
+26,nutritionist,1,1,0,0
+26,hair cutter,1,1,0,0
+26,physician's assistant,1,1,0,0
+26,massage therapist,1,1,0,0
+26,bookkeeper,1,1,0,0
+26,high school teacher,1,1,0,0
+26,travel agent,1,1,0,0
+26,guidance counselor,1,1,0,0
+26,dental hygienist,1,1,0,0
+26,real estate agent,1,1,0,0
+26,counseling psychologist,1,1,0,0
+26,baker,1,1,0,0
+26,school psychologist,1,1,0,0
+26,occupational therapist,1,1,0,0
+26,cashier,1,1,0,0
+26,reporter,1,1,0,0
+26,server,1,1,0,0
+26,clinical psychologist,1,1,0,0
+26,animal caretaker,1,1,0,0
+26,paralegal,1,1,0,0
+26,physical therapist,1,1,0,0
+26,singer,1,1,0,0
+26,artist,1,1,0,0
+26,veterinarian,1,1,0,0
+26,cook,1,1,0,0
+26,author,1,1,0,0
+26,photographer,1,1,0,0
+26,tour guide,1,1,0,0
+26,journalist,1,0,1,0
+26,phlebotomist,1,1,0,0
+26,writer,1,1,0,0
+26,emergency medical care,1,1,0,0
+26,graphic designer,1,0,1,0
+26,accountant,1,0,1,0
+26,lawyer,1,1,0,0
+26,concierge,1,1,0,0
+26,forensic psychologist,1,1,0,0
+26,salesperson,1,1,0,0
+26,editor,1,1,0,0
+26,insurance agent,1,0,1,0
+26,theatrical director,1,0,1,0
+26,pharmacist,1,1,0,0
+26,doctor,1,1,0,0
+26,systems analyst,1,1,0,0
+26,judge,1,1,0,0
+26,research scientist,1,1,0,0
+26,professor,1,1,0,0
+26,income tax preparer,1,1,0,0
+26,chef,1,1,0,0
+26,executive,1,1,0,0
+26,radio technician,1,1,0,0
+26,chiropractor,1,1,0,0
+26,landscaper,1,0,1,0
+26,tailor,1,1,0,0
+26,bartender,1,0,1,0
+26,surgeon,1,1,0,0
+26,computer programmer,1,1,0,0
+26,movie director,1,1,0,0
+26,painter,1,1,0,0
+26,dentist,1,1,0,0
+26,groundskeeper,1,0,1,0
+26,architect,1,1,0,0
+26,stock broker,1,0,1,0
+26,police officer,1,0,1,0
+26,janitor,1,0,1,0
+26,coach,1,0,1,0
+26,rancher,1,0,1,0
+26,probation officer,1,1,0,0
+26,bell hop,1,0,1,0
+26,pilot,1,1,0,0
+26,drafting worker,1,1,0,0
+26,highway worker,1,1,0,0
+26,stone cutter,1,0,1,0
+26,logger,1,0,1,0
+26,private detective,1,0,1,0
+26,electrician,1,0,1,0
+26,fire fighter,1,0,1,0
+26,butcher,1,0,1,0
+26,guard,1,0,1,0
+26,plumber,1,0,1,0
+26,farmer,1,0,1,0
+26,carpenter,1,0,1,0
+26,trucker,1,1,0,0
+26,barber,1,0,1,0
+26,construction worker,1,0,1,0
+26,roofer,1,0,1,0
+26,auto mechanic,1,0,1,0
+26,heavy equipment operator,1,0,1,0
+27,cosmetologist,1,1,0,0
+27,manicurist,1,0,1,0
+27,secretary,1,1,0,0
+27,hairdresser,1,1,0,0
+27,flight attendant,1,1,0,0
+27,dress maker,1,1,0,0
+27,receptionist,1,1,0,0
+27,florist,1,1,0,0
+27,housekeeper,1,1,0,0
+27,child care worker,1,1,0,0
+27,kindergarten teacher,1,1,0,0
+27,interior decorator,1,1,0,0
+27,registered nurse,1,1,0,0
+27,elementary school teacher,1,1,0,0
+27,librarian,1,1,0,0
+27,cake decorator,1,1,0,0
+27,dietician,1,1,0,0
+27,exercise instructor,1,1,0,0
+27,nutritionist,1,1,0,0
+27,hair cutter,1,1,0,0
+27,physician's assistant,1,1,0,0
+27,massage therapist,1,1,0,0
+27,bookkeeper,1,1,0,0
+27,high school teacher,1,1,0,0
+27,travel agent,1,1,0,0
+27,guidance counselor,1,0,1,0
+27,dental hygienist,1,1,0,0
+27,real estate agent,1,1,0,0
+27,counseling psychologist,1,1,0,0
+27,baker,1,1,0,0
+27,school psychologist,1,1,0,0
+27,occupational therapist,1,1,0,0
+27,cashier,1,1,0,0
+27,reporter,1,1,0,0
+27,server,1,1,0,0
+27,clinical psychologist,1,1,0,0
+27,animal caretaker,1,1,0,0
+27,paralegal,1,1,0,0
+27,physical therapist,1,1,0,0
+27,singer,1,1,0,0
+27,artist,1,1,0,0
+27,veterinarian,1,1,0,0
+27,cook,1,1,0,0
+27,author,1,1,0,0
+27,photographer,1,1,0,0
+27,tour guide,1,1,0,0
+27,journalist,1,1,0,0
+27,phlebotomist,1,1,0,0
+27,writer,1,0,1,0
+27,emergency medical care,1,1,0,0
+27,graphic designer,1,0,1,0
+27,accountant,1,0,1,0
+27,lawyer,1,1,0,0
+27,concierge,1,0,1,0
+27,forensic psychologist,1,1,0,0
+27,salesperson,1,0,1,0
+27,editor,1,1,0,0
+27,insurance agent,1,0,1,0
+27,theatrical director,1,1,0,0
+27,pharmacist,1,1,0,0
+27,doctor,1,1,0,0
+27,systems analyst,1,1,0,0
+27,judge,1,1,0,0
+27,research scientist,1,1,0,0
+27,professor,1,0,1,0
+27,income tax preparer,1,1,0,0
+27,chef,1,1,0,0
+27,executive,1,1,0,0
+27,radio technician,1,0,1,0
+27,chiropractor,1,1,0,0
+27,landscaper,1,0,1,0
+27,tailor,1,0,1,0
+27,bartender,1,0,1,0
+27,surgeon,1,1,0,0
+27,computer programmer,1,0,1,0
+27,movie director,1,0,1,0
+27,painter,1,1,0,0
+27,dentist,1,1,0,0
+27,groundskeeper,1,0,1,0
+27,architect,1,0,1,0
+27,stock broker,1,0,1,0
+27,police officer,1,1,0,0
+27,janitor,1,0,1,0
+27,coach,1,0,1,0
+27,rancher,1,0,1,0
+27,probation officer,1,1,0,0
+27,bell hop,1,0,1,0
+27,pilot,1,1,0,0
+27,drafting worker,1,1,0,0
+27,highway worker,1,0,1,0
+27,stone cutter,1,0,1,0
+27,logger,1,0,1,0
+27,private detective,1,1,0,0
+27,electrician,1,0,1,0
+27,fire fighter,1,0,1,0
+27,butcher,1,0,1,0
+27,guard,1,0,1,0
+27,plumber,1,0,1,0
+27,farmer,1,1,0,0
+27,carpenter,1,0,1,0
+27,trucker,1,0,1,0
+27,barber,1,0,1,0
+27,construction worker,1,0,1,0
+27,roofer,1,0,1,0
+27,auto mechanic,1,0,1,0
+27,heavy equipment operator,1,1,0,0
+28,cosmetologist,1,1,0,0
+28,manicurist,1,1,0,0
+28,secretary,1,1,0,0
+28,hairdresser,1,1,0,0
+28,flight attendant,1,1,0,0
+28,dress maker,1,1,0,0
+28,receptionist,1,1,0,0
+28,florist,1,1,0,0
+28,housekeeper,1,1,0,0
+28,child care worker,1,1,0,0
+28,kindergarten teacher,1,1,0,0
+28,interior decorator,1,1,0,0
+28,registered nurse,1,1,0,0
+28,elementary school teacher,1,1,0,0
+28,librarian,1,1,0,0
+28,cake decorator,1,1,0,0
+28,dietician,1,1,0,0
+28,exercise instructor,1,1,0,0
+28,nutritionist,1,1,0,0
+28,hair cutter,1,1,0,0
+28,physician's assistant,1,1,0,0
+28,massage therapist,1,1,0,0
+28,bookkeeper,1,1,0,0
+28,high school teacher,1,1,0,0
+28,travel agent,1,1,0,0
+28,guidance counselor,1,1,0,0
+28,dental hygienist,1,1,0,0
+28,real estate agent,1,1,0,0
+28,counseling psychologist,1,1,0,0
+28,baker,1,1,0,0
+28,school psychologist,1,1,0,0
+28,occupational therapist,1,1,0,0
+28,cashier,1,1,0,0
+28,reporter,1,1,0,0
+28,server,1,1,0,0
+28,clinical psychologist,1,1,0,0
+28,animal caretaker,1,1,0,0
+28,paralegal,1,1,0,0
+28,physical therapist,1,1,0,0
+28,singer,1,1,0,0
+28,artist,1,1,0,0
+28,veterinarian,1,1,0,0
+28,cook,1,0,1,0
+28,author,1,1,0,0
+28,photographer,1,1,0,0
+28,tour guide,1,1,0,0
+28,journalist,1,1,0,0
+28,phlebotomist,1,1,0,0
+28,writer,1,1,0,0
+28,emergency medical care,1,1,0,0
+28,graphic designer,1,1,0,0
+28,accountant,1,0,1,0
+28,lawyer,1,1,0,0
+28,concierge,1,0,1,0
+28,forensic psychologist,1,1,0,0
+28,salesperson,1,1,0,0
+28,editor,1,1,0,0
+28,insurance agent,1,0,1,0
+28,theatrical director,1,0,1,0
+28,pharmacist,1,1,0,0
+28,doctor,1,1,0,0
+28,systems analyst,1,1,0,0
+28,judge,1,1,0,0
+28,research scientist,1,1,0,0
+28,professor,1,1,0,0
+28,income tax preparer,1,1,0,0
+28,chef,1,0,1,0
+28,executive,1,1,0,0
+28,radio technician,1,0,1,0
+28,chiropractor,1,1,0,0
+28,landscaper,1,0,1,0
+28,tailor,1,1,0,0
+28,bartender,1,1,0,0
+28,surgeon,1,1,0,0
+28,computer programmer,1,1,0,0
+28,movie director,1,1,0,0
+28,painter,1,1,0,0
+28,dentist,1,1,0,0
+28,groundskeeper,1,0,1,0
+28,architect,1,1,0,0
+28,stock broker,1,0,1,0
+28,police officer,1,1,0,0
+28,janitor,1,0,1,0
+28,coach,1,1,0,0
+28,rancher,1,0,1,0
+28,probation officer,1,1,0,0
+28,bell hop,1,0,1,0
+28,pilot,1,1,0,0
+28,drafting worker,1,0,1,0
+28,highway worker,1,0,1,0
+28,stone cutter,1,0,1,0
+28,logger,1,0,1,0
+28,private detective,1,0,1,0
+28,electrician,1,0,1,0
+28,fire fighter,1,1,0,0
+28,butcher,1,0,1,0
+28,guard,1,0,1,0
+28,plumber,1,0,1,0
+28,farmer,1,0,1,0
+28,carpenter,1,0,1,0
+28,trucker,1,0,1,0
+28,barber,1,0,1,0
+28,construction worker,1,0,1,0
+28,roofer,1,0,1,0
+28,auto mechanic,1,0,1,0
+28,heavy equipment operator,1,0,1,0
+29,cosmetologist,1,1,0,0
+29,manicurist,1,0,1,0
+29,secretary,1,1,0,0
+29,hairdresser,1,1,0,0
+29,flight attendant,1,1,0,0
+29,dress maker,1,1,0,0
+29,receptionist,1,1,0,0
+29,florist,1,1,0,0
+29,housekeeper,1,1,0,0
+29,child care worker,1,1,0,0
+29,kindergarten teacher,1,1,0,0
+29,interior decorator,1,1,0,0
+29,registered nurse,1,1,0,0
+29,elementary school teacher,1,1,0,0
+29,librarian,1,1,0,0
+29,cake decorator,1,1,0,0
+29,dietician,1,1,0,0
+29,exercise instructor,1,1,0,0
+29,nutritionist,1,1,0,0
+29,hair cutter,1,1,0,0
+29,physician's assistant,1,1,0,0
+29,massage therapist,1,1,0,0
+29,bookkeeper,1,1,0,0
+29,high school teacher,1,1,0,0
+29,travel agent,1,1,0,0
+29,guidance counselor,1,1,0,0
+29,dental hygienist,1,1,0,0
+29,real estate agent,1,1,0,0
+29,counseling psychologist,1,1,0,0
+29,baker,1,1,0,0
+29,school psychologist,1,1,0,0
+29,occupational therapist,1,1,0,0
+29,cashier,1,0,1,0
+29,reporter,1,1,0,0
+29,server,1,1,0,0
+29,clinical psychologist,1,1,0,0
+29,animal caretaker,1,1,0,0
+29,paralegal,1,1,0,0
+29,physical therapist,1,1,0,0
+29,singer,1,1,0,0
+29,artist,1,1,0,0
+29,veterinarian,1,1,0,0
+29,cook,1,1,0,0
+29,author,1,1,0,0
+29,photographer,1,1,0,0
+29,tour guide,1,1,0,0
+29,journalist,1,1,0,0
+29,phlebotomist,1,1,0,0
+29,writer,1,1,0,0
+29,emergency medical care,1,0,1,0
+29,graphic designer,1,1,0,0
+29,accountant,1,1,0,0
+29,lawyer,1,1,0,0
+29,concierge,1,1,0,0
+29,forensic psychologist,1,1,0,0
+29,salesperson,1,0,1,0
+29,editor,1,1,0,0
+29,insurance agent,1,0,1,0
+29,theatrical director,1,1,0,0
+29,pharmacist,1,1,0,0
+29,doctor,1,1,0,0
+29,systems analyst,1,0,1,0
+29,judge,1,1,0,0
+29,research scientist,1,1,0,0
+29,professor,1,1,0,0
+29,income tax preparer,1,0,1,0
+29,chef,1,0,1,0
+29,executive,1,0,1,0
+29,radio technician,1,0,1,0
+29,chiropractor,1,1,0,0
+29,landscaper,1,0,1,0
+29,tailor,1,0,1,0
+29,bartender,1,1,0,0
+29,surgeon,1,1,0,0
+29,computer programmer,1,1,0,0
+29,movie director,1,1,0,0
+29,painter,1,1,0,0
+29,dentist,1,1,0,0
+29,groundskeeper,1,0,1,0
+29,architect,1,1,0,0
+29,stock broker,1,0,1,0
+29,police officer,1,1,0,0
+29,janitor,1,0,1,0
+29,coach,1,1,0,0
+29,rancher,1,0,1,0
+29,probation officer,1,1,0,0
+29,bell hop,1,0,1,0
+29,pilot,1,1,0,0
+29,drafting worker,1,1,0,0
+29,highway worker,1,0,1,0
+29,stone cutter,1,0,1,0
+29,logger,1,0,1,0
+29,private detective,1,1,0,0
+29,electrician,1,0,1,0
+29,fire fighter,1,0,1,0
+29,butcher,1,0,1,0
+29,guard,1,0,1,0
+29,plumber,1,0,1,0
+29,farmer,1,0,1,0
+29,carpenter,1,0,1,0
+29,trucker,1,0,1,0
+29,barber,1,0,1,0
+29,construction worker,1,0,1,0
+29,roofer,1,0,1,0
+29,auto mechanic,1,0,1,0
+29,heavy equipment operator,1,0,1,0
+30,cosmetologist,1,1,0,0
+30,manicurist,1,1,0,0
+30,secretary,1,1,0,0
+30,hairdresser,1,1,0,0
+30,flight attendant,1,1,0,0
+30,dress maker,1,1,0,0
+30,receptionist,1,1,0,0
+30,florist,1,1,0,0
+30,housekeeper,1,1,0,0
+30,child care worker,1,1,0,0
+30,kindergarten teacher,1,1,0,0
+30,interior decorator,1,1,0,0
+30,registered nurse,1,1,0,0
+30,elementary school teacher,1,1,0,0
+30,librarian,1,1,0,0
+30,cake decorator,1,1,0,0
+30,dietician,1,1,0,0
+30,exercise instructor,1,0,1,0
+30,nutritionist,1,1,0,0
+30,hair cutter,1,1,0,0
+30,physician's assistant,1,1,0,0
+30,massage therapist,1,1,0,0
+30,bookkeeper,1,1,0,0
+30,high school teacher,1,1,0,0
+30,travel agent,1,1,0,0
+30,guidance counselor,1,1,0,0
+30,dental hygienist,1,1,0,0
+30,real estate agent,1,1,0,0
+30,counseling psychologist,1,1,0,0
+30,baker,1,1,0,0
+30,school psychologist,1,1,0,0
+30,occupational therapist,1,1,0,0
+30,cashier,1,1,0,0
+30,reporter,1,1,0,0
+30,server,1,0,1,0
+30,clinical psychologist,1,1,0,0
+30,animal caretaker,1,0,1,0
+30,paralegal,1,1,0,0
+30,physical therapist,1,1,0,0
+30,singer,1,1,0,0
+30,artist,1,1,0,0
+30,veterinarian,1,1,0,0
+30,cook,1,1,0,0
+30,author,1,1,0,0
+30,photographer,1,1,0,0
+30,tour guide,1,1,0,0
+30,journalist,1,1,0,0
+30,phlebotomist,1,1,0,0
+30,writer,1,1,0,0
+30,emergency medical care,1,1,0,0
+30,graphic designer,1,1,0,0
+30,accountant,1,1,0,0
+30,lawyer,1,1,0,0
+30,concierge,1,1,0,0
+30,forensic psychologist,1,1,0,0
+30,salesperson,1,1,0,0
+30,editor,1,1,0,0
+30,insurance agent,1,0,1,0
+30,theatrical director,1,1,0,0
+30,pharmacist,1,1,0,0
+30,doctor,1,1,0,0
+30,systems analyst,1,0,0,1
+30,judge,1,1,0,0
+30,research scientist,1,1,0,0
+30,professor,1,1,0,0
+30,income tax preparer,1,1,0,0
+30,chef,1,1,0,0
+30,executive,1,1,0,0
+30,radio technician,1,1,0,0
+30,chiropractor,1,1,0,0
+30,landscaper,1,0,1,0
+30,tailor,1,1,0,0
+30,bartender,1,1,0,0
+30,surgeon,1,1,0,0
+30,computer programmer,1,1,0,0
+30,movie director,1,1,0,0
+30,painter,1,1,0,0
+30,dentist,1,1,0,0
+30,groundskeeper,1,0,1,0
+30,architect,1,0,1,0
+30,stock broker,1,0,1,0
+30,police officer,1,1,0,0
+30,janitor,1,1,0,0
+30,coach,1,0,1,0
+30,rancher,1,0,1,0
+30,probation officer,1,1,0,0
+30,bell hop,1,0,1,0
+30,pilot,1,0,1,0
+30,drafting worker,1,1,0,0
+30,highway worker,1,0,1,0
+30,stone cutter,1,0,1,0
+30,logger,1,0,1,0
+30,private detective,1,1,0,0
+30,electrician,1,0,1,0
+30,fire fighter,1,0,1,0
+30,butcher,1,0,1,0
+30,guard,1,0,1,0
+30,plumber,1,0,1,0
+30,farmer,1,0,1,0
+30,carpenter,1,0,1,0
+30,trucker,1,0,1,0
+30,barber,1,0,1,0
+30,construction worker,1,0,1,0
+30,roofer,1,0,1,0
+30,auto mechanic,1,0,1,0
+30,heavy equipment operator,1,0,1,0
+31,cosmetologist,1,1,0,0
+31,manicurist,1,1,0,0
+31,secretary,1,1,0,0
+31,hairdresser,1,1,0,0
+31,flight attendant,1,1,0,0
+31,dress maker,1,1,0,0
+31,receptionist,1,1,0,0
+31,florist,1,1,0,0
+31,housekeeper,1,1,0,0
+31,child care worker,1,1,0,0
+31,kindergarten teacher,1,1,0,0
+31,interior decorator,1,1,0,0
+31,registered nurse,1,1,0,0
+31,elementary school teacher,1,1,0,0
+31,librarian,1,1,0,0
+31,cake decorator,1,1,0,0
+31,dietician,1,1,0,0
+31,exercise instructor,1,1,0,0
+31,nutritionist,1,1,0,0
+31,hair cutter,1,1,0,0
+31,physician's assistant,1,1,0,0
+31,massage therapist,1,1,0,0
+31,bookkeeper,1,1,0,0
+31,high school teacher,1,0,1,0
+31,travel agent,1,1,0,0
+31,guidance counselor,1,1,0,0
+31,dental hygienist,1,1,0,0
+31,real estate agent,1,0,0,1
+31,counseling psychologist,1,1,0,0
+31,baker,1,1,0,0
+31,school psychologist,1,1,0,0
+31,occupational therapist,1,1,0,0
+31,cashier,1,1,0,0
+31,reporter,1,1,0,0
+31,server,1,0,1,0
+31,clinical psychologist,1,1,0,0
+31,animal caretaker,1,1,0,0
+31,paralegal,1,1,0,0
+31,physical therapist,1,1,0,0
+31,singer,1,1,0,0
+31,artist,1,0,1,0
+31,veterinarian,1,1,0,0
+31,cook,1,1,0,0
+31,author,1,1,0,0
+31,photographer,1,1,0,0
+31,tour guide,1,1,0,0
+31,journalist,1,1,0,0
+31,phlebotomist,1,1,0,0
+31,writer,1,1,0,0
+31,emergency medical care,1,1,0,0
+31,graphic designer,1,1,0,0
+31,accountant,1,1,0,0
+31,lawyer,1,1,0,0
+31,concierge,1,0,1,0
+31,forensic psychologist,1,1,0,0
+31,salesperson,1,0,1,0
+31,editor,1,1,0,0
+31,insurance agent,1,0,1,0
+31,theatrical director,1,1,0,0
+31,pharmacist,1,1,0,0
+31,doctor,1,1,0,0
+31,systems analyst,1,0,1,0
+31,judge,1,1,0,0
+31,research scientist,1,1,0,0
+31,professor,1,1,0,0
+31,income tax preparer,1,0,1,0
+31,chef,1,1,0,0
+31,executive,1,1,0,0
+31,radio technician,1,0,1,0
+31,chiropractor,1,1,0,0
+31,landscaper,1,0,1,0
+31,tailor,1,1,0,0
+31,bartender,1,0,1,0
+31,surgeon,1,1,0,0
+31,computer programmer,1,0,1,0
+31,movie director,1,1,0,0
+31,painter,1,1,0,0
+31,dentist,1,1,0,0
+31,groundskeeper,1,0,1,0
+31,architect,1,1,0,0
+31,stock broker,1,0,1,0
+31,police officer,1,1,0,0
+31,janitor,1,0,1,0
+31,coach,1,0,1,0
+31,rancher,1,0,1,0
+31,probation officer,1,1,0,0
+31,bell hop,1,0,1,0
+31,pilot,1,1,0,0
+31,drafting worker,1,0,1,0
+31,highway worker,1,0,1,0
+31,stone cutter,1,0,1,0
+31,logger,1,0,1,0
+31,private detective,1,1,0,0
+31,electrician,1,0,1,0
+31,fire fighter,1,1,0,0
+31,butcher,1,0,1,0
+31,guard,1,0,1,0
+31,plumber,1,0,1,0
+31,farmer,1,0,1,0
+31,carpenter,1,0,1,0
+31,trucker,1,0,1,0
+31,barber,1,0,1,0
+31,construction worker,1,0,1,0
+31,roofer,1,0,1,0
+31,auto mechanic,1,0,1,0
+31,heavy equipment operator,1,1,0,0
+32,cosmetologist,1,1,0,0
+32,manicurist,1,0,1,0
+32,secretary,1,1,0,0
+32,hairdresser,1,1,0,0
+32,flight attendant,1,1,0,0
+32,dress maker,1,0,1,0
+32,receptionist,1,1,0,0
+32,florist,1,1,0,0
+32,housekeeper,1,1,0,0
+32,child care worker,1,1,0,0
+32,kindergarten teacher,1,1,0,0
+32,interior decorator,1,1,0,0
+32,registered nurse,1,1,0,0
+32,elementary school teacher,1,1,0,0
+32,librarian,1,1,0,0
+32,cake decorator,1,1,0,0
+32,dietician,1,1,0,0
+32,exercise instructor,1,1,0,0
+32,nutritionist,1,1,0,0
+32,hair cutter,1,0,1,0
+32,physician's assistant,1,1,0,0
+32,massage therapist,1,1,0,0
+32,bookkeeper,1,1,0,0
+32,high school teacher,1,1,0,0
+32,travel agent,1,1,0,0
+32,guidance counselor,1,1,0,0
+32,dental hygienist,1,1,0,0
+32,real estate agent,1,1,0,0
+32,counseling psychologist,1,1,0,0
+32,baker,1,0,1,0
+32,school psychologist,1,1,0,0
+32,occupational therapist,1,1,0,0
+32,cashier,1,1,0,0
+32,reporter,1,1,0,0
+32,server,1,1,0,0
+32,clinical psychologist,1,1,0,0
+32,animal caretaker,1,1,0,0
+32,paralegal,1,1,0,0
+32,physical therapist,1,1,0,0
+32,singer,1,1,0,0
+32,artist,1,1,0,0
+32,veterinarian,1,1,0,0
+32,cook,1,1,0,0
+32,author,1,1,0,0
+32,photographer,1,0,1,0
+32,tour guide,1,1,0,0
+32,journalist,1,1,0,0
+32,phlebotomist,1,1,0,0
+32,writer,1,1,0,0
+32,emergency medical care,1,1,0,0
+32,graphic designer,1,1,0,0
+32,accountant,1,0,1,0
+32,lawyer,1,1,0,0
+32,concierge,1,1,0,0
+32,forensic psychologist,1,1,0,0
+32,salesperson,1,1,0,0
+32,editor,1,1,0,0
+32,insurance agent,1,0,1,0
+32,theatrical director,1,1,0,0
+32,pharmacist,1,1,0,0
+32,doctor,1,1,0,0
+32,systems analyst,1,1,0,0
+32,judge,1,1,0,0
+32,research scientist,1,1,0,0
+32,professor,1,1,0,0
+32,income tax preparer,1,0,1,0
+32,chef,1,0,1,0
+32,executive,1,1,0,0
+32,radio technician,1,0,1,0
+32,chiropractor,1,1,0,0
+32,landscaper,1,1,0,0
+32,tailor,1,0,1,0
+32,bartender,1,0,1,0
+32,surgeon,1,1,0,0
+32,computer programmer,1,1,0,0
+32,movie director,1,0,1,0
+32,painter,1,1,0,0
+32,dentist,1,1,0,0
+32,groundskeeper,1,0,1,0
+32,architect,1,1,0,0
+32,stock broker,1,0,1,0
+32,police officer,1,1,0,0
+32,janitor,1,0,1,0
+32,coach,1,1,0,0
+32,rancher,1,0,1,0
+32,probation officer,1,0,1,0
+32,bell hop,1,0,1,0
+32,pilot,1,1,0,0
+32,drafting worker,1,1,0,0
+32,highway worker,1,0,1,0
+32,stone cutter,1,0,1,0
+32,logger,1,0,1,0
+32,private detective,1,0,1,0
+32,electrician,1,0,1,0
+32,fire fighter,1,1,0,0
+32,butcher,1,0,1,0
+32,guard,1,0,1,0
+32,plumber,1,0,1,0
+32,farmer,1,0,1,0
+32,carpenter,1,0,1,0
+32,trucker,1,0,1,0
+32,barber,1,0,1,0
+32,construction worker,1,0,1,0
+32,roofer,1,0,1,0
+32,auto mechanic,1,0,1,0
+32,heavy equipment operator,1,0,1,0
+33,cosmetologist,1,1,0,0
+33,manicurist,1,1,0,0
+33,secretary,1,1,0,0
+33,hairdresser,1,1,0,0
+33,flight attendant,1,1,0,0
+33,dress maker,1,1,0,0
+33,receptionist,1,1,0,0
+33,florist,1,1,0,0
+33,housekeeper,1,1,0,0
+33,child care worker,1,1,0,0
+33,kindergarten teacher,1,1,0,0
+33,interior decorator,1,1,0,0
+33,registered nurse,1,1,0,0
+33,elementary school teacher,1,1,0,0
+33,librarian,1,1,0,0
+33,cake decorator,1,1,0,0
+33,dietician,1,1,0,0
+33,exercise instructor,1,1,0,0
+33,nutritionist,1,1,0,0
+33,hair cutter,1,1,0,0
+33,physician's assistant,1,1,0,0
+33,massage therapist,1,1,0,0
+33,bookkeeper,1,1,0,0
+33,high school teacher,1,1,0,0
+33,travel agent,1,1,0,0
+33,guidance counselor,1,1,0,0
+33,dental hygienist,1,1,0,0
+33,real estate agent,1,1,0,0
+33,counseling psychologist,1,1,0,0
+33,baker,1,1,0,0
+33,school psychologist,1,1,0,0
+33,occupational therapist,1,1,0,0
+33,cashier,1,1,0,0
+33,reporter,1,1,0,0
+33,server,1,1,0,0
+33,clinical psychologist,1,1,0,0
+33,animal caretaker,1,1,0,0
+33,paralegal,1,1,0,0
+33,physical therapist,1,1,0,0
+33,singer,1,1,0,0
+33,artist,1,1,0,0
+33,veterinarian,1,1,0,0
+33,cook,1,1,0,0
+33,author,1,1,0,0
+33,photographer,1,1,0,0
+33,tour guide,1,1,0,0
+33,journalist,1,1,0,0
+33,phlebotomist,1,1,0,0
+33,writer,1,1,0,0
+33,emergency medical care,1,1,0,0
+33,graphic designer,1,1,0,0
+33,accountant,1,1,0,0
+33,lawyer,1,1,0,0
+33,concierge,1,1,0,0
+33,forensic psychologist,1,1,0,0
+33,salesperson,1,0,1,0
+33,editor,1,1,0,0
+33,insurance agent,1,0,1,0
+33,theatrical director,1,0,1,0
+33,pharmacist,1,1,0,0
+33,doctor,1,1,0,0
+33,systems analyst,1,0,1,0
+33,judge,1,1,0,0
+33,research scientist,1,1,0,0
+33,professor,1,1,0,0
+33,income tax preparer,1,1,0,0
+33,chef,1,0,1,0
+33,executive,1,1,0,0
+33,radio technician,1,0,1,0
+33,chiropractor,1,1,0,0
+33,landscaper,1,1,0,0
+33,tailor,1,0,1,0
+33,bartender,1,1,0,0
+33,surgeon,1,1,0,0
+33,computer programmer,1,1,0,0
+33,movie director,1,0,1,0
+33,painter,1,1,0,0
+33,dentist,1,1,0,0
+33,groundskeeper,1,0,1,0
+33,architect,1,1,0,0
+33,stock broker,1,0,1,0
+33,police officer,1,1,0,0
+33,janitor,1,0,1,0
+33,coach,1,0,1,0
+33,rancher,1,0,1,0
+33,probation officer,1,1,0,0
+33,bell hop,1,0,1,0
+33,pilot,1,1,0,0
+33,drafting worker,1,1,0,0
+33,highway worker,1,0,1,0
+33,stone cutter,1,0,1,0
+33,logger,1,0,1,0
+33,private detective,1,0,1,0
+33,electrician,1,0,1,0
+33,fire fighter,1,1,0,0
+33,butcher,1,0,1,0
+33,guard,1,1,0,0
+33,plumber,1,0,1,0
+33,farmer,1,0,1,0
+33,carpenter,1,0,1,0
+33,trucker,1,0,1,0
+33,barber,1,0,1,0
+33,construction worker,1,0,1,0
+33,roofer,1,0,1,0
+33,auto mechanic,1,0,1,0
+33,heavy equipment operator,1,0,1,0
+34,cosmetologist,1,1,0,0
+34,manicurist,1,1,0,0
+34,secretary,1,1,0,0
+34,hairdresser,1,1,0,0
+34,flight attendant,1,1,0,0
+34,dress maker,1,1,0,0
+34,receptionist,1,1,0,0
+34,florist,1,1,0,0
+34,housekeeper,1,1,0,0
+34,child care worker,1,1,0,0
+34,kindergarten teacher,1,1,0,0
+34,interior decorator,1,1,0,0
+34,registered nurse,1,1,0,0
+34,elementary school teacher,1,1,0,0
+34,librarian,1,1,0,0
+34,cake decorator,1,1,0,0
+34,dietician,1,1,0,0
+34,exercise instructor,1,1,0,0
+34,nutritionist,1,1,0,0
+34,hair cutter,1,1,0,0
+34,physician's assistant,1,1,0,0
+34,massage therapist,1,1,0,0
+34,bookkeeper,1,1,0,0
+34,high school teacher,1,1,0,0
+34,travel agent,1,1,0,0
+34,guidance counselor,1,1,0,0
+34,dental hygienist,1,1,0,0
+34,real estate agent,1,1,0,0
+34,counseling psychologist,1,1,0,0
+34,baker,1,1,0,0
+34,school psychologist,1,1,0,0
+34,occupational therapist,1,1,0,0
+34,cashier,1,1,0,0
+34,reporter,1,1,0,0
+34,server,1,1,0,0
+34,clinical psychologist,1,1,0,0
+34,animal caretaker,1,1,0,0
+34,paralegal,1,1,0,0
+34,physical therapist,1,1,0,0
+34,singer,1,1,0,0
+34,artist,1,1,0,0
+34,veterinarian,1,1,0,0
+34,cook,1,1,0,0
+34,author,1,1,0,0
+34,photographer,1,1,0,0
+34,tour guide,1,1,0,0
+34,journalist,1,1,0,0
+34,phlebotomist,1,1,0,0
+34,writer,1,1,0,0
+34,emergency medical care,1,1,0,0
+34,graphic designer,1,1,0,0
+34,accountant,1,1,0,0
+34,lawyer,1,1,0,0
+34,concierge,1,0,1,0
+34,forensic psychologist,1,1,0,0
+34,salesperson,1,0,1,0
+34,editor,1,1,0,0
+34,insurance agent,1,1,0,0
+34,theatrical director,1,1,0,0
+34,pharmacist,1,1,0,0
+34,doctor,1,1,0,0
+34,systems analyst,1,0,1,0
+34,judge,1,1,0,0
+34,research scientist,1,1,0,0
+34,professor,1,1,0,0
+34,income tax preparer,1,0,1,0
+34,chef,1,1,0,0
+34,executive,1,1,0,0
+34,radio technician,1,1,0,0
+34,chiropractor,1,1,0,0
+34,landscaper,1,1,0,0
+34,tailor,1,0,1,0
+34,bartender,1,0,1,0
+34,surgeon,1,1,0,0
+34,computer programmer,1,0,1,0
+34,movie director,1,1,0,0
+34,painter,1,1,0,0
+34,dentist,1,1,0,0
+34,groundskeeper,1,0,1,0
+34,architect,1,1,0,0
+34,stock broker,1,0,1,0
+34,police officer,1,0,1,0
+34,janitor,1,0,1,0
+34,coach,1,0,1,0
+34,rancher,1,0,1,0
+34,probation officer,1,1,0,0
+34,bell hop,1,0,1,0
+34,pilot,1,0,1,0
+34,drafting worker,1,1,0,0
+34,highway worker,1,1,0,0
+34,stone cutter,1,0,1,0
+34,logger,1,0,1,0
+34,private detective,1,1,0,0
+34,electrician,1,0,1,0
+34,fire fighter,1,0,1,0
+34,butcher,1,0,1,0
+34,guard,1,0,1,0
+34,plumber,1,0,1,0
+34,farmer,1,0,1,0
+34,carpenter,1,0,1,0
+34,trucker,1,0,1,0
+34,barber,1,0,1,0
+34,construction worker,1,0,1,0
+34,roofer,1,0,1,0
+34,auto mechanic,1,0,1,0
+34,heavy equipment operator,1,0,1,0
+35,cosmetologist,1,1,0,0
+35,manicurist,1,1,0,0
+35,secretary,1,1,0,0
+35,hairdresser,1,1,0,0
+35,flight attendant,1,1,0,0
+35,dress maker,1,1,0,0
+35,receptionist,1,1,0,0
+35,florist,1,1,0,0
+35,housekeeper,1,1,0,0
+35,child care worker,1,1,0,0
+35,kindergarten teacher,1,1,0,0
+35,interior decorator,1,1,0,0
+35,registered nurse,1,1,0,0
+35,elementary school teacher,1,1,0,0
+35,librarian,1,1,0,0
+35,cake decorator,1,1,0,0
+35,dietician,1,1,0,0
+35,exercise instructor,1,1,0,0
+35,nutritionist,1,1,0,0
+35,hair cutter,1,1,0,0
+35,physician's assistant,1,1,0,0
+35,massage therapist,1,1,0,0
+35,bookkeeper,1,1,0,0
+35,high school teacher,1,1,0,0
+35,travel agent,1,1,0,0
+35,guidance counselor,1,1,0,0
+35,dental hygienist,1,1,0,0
+35,real estate agent,1,1,0,0
+35,counseling psychologist,1,1,0,0
+35,baker,1,1,0,0
+35,school psychologist,1,1,0,0
+35,occupational therapist,1,1,0,0
+35,cashier,1,1,0,0
+35,reporter,1,1,0,0
+35,server,1,1,0,0
+35,clinical psychologist,1,1,0,0
+35,animal caretaker,1,1,0,0
+35,paralegal,1,1,0,0
+35,physical therapist,1,1,0,0
+35,singer,1,1,0,0
+35,artist,1,1,0,0
+35,veterinarian,1,1,0,0
+35,cook,1,1,0,0
+35,author,1,1,0,0
+35,photographer,1,1,0,0
+35,tour guide,1,1,0,0
+35,journalist,1,1,0,0
+35,phlebotomist,1,1,0,0
+35,writer,1,1,0,0
+35,emergency medical care,1,1,0,0
+35,graphic designer,1,0,1,0
+35,accountant,1,0,1,0
+35,lawyer,1,1,0,0
+35,concierge,1,0,1,0
+35,forensic psychologist,1,1,0,0
+35,salesperson,1,0,1,0
+35,editor,1,1,0,0
+35,insurance agent,1,0,1,0
+35,theatrical director,1,1,0,0
+35,pharmacist,1,1,0,0
+35,doctor,1,1,0,0
+35,systems analyst,1,1,0,0
+35,judge,1,1,0,0
+35,research scientist,1,1,0,0
+35,professor,1,1,0,0
+35,income tax preparer,1,1,0,0
+35,chef,1,1,0,0
+35,executive,1,1,0,0
+35,radio technician,1,1,0,0
+35,chiropractor,1,1,0,0
+35,landscaper,1,0,1,0
+35,tailor,1,0,1,0
+35,bartender,1,1,0,0
+35,surgeon,1,1,0,0
+35,computer programmer,1,1,0,0
+35,movie director,1,0,1,0
+35,painter,1,1,0,0
+35,dentist,1,1,0,0
+35,groundskeeper,1,0,1,0
+35,architect,1,1,0,0
+35,stock broker,1,0,1,0
+35,police officer,1,1,0,0
+35,janitor,1,0,1,0
+35,coach,1,1,0,0
+35,rancher,1,0,1,0
+35,probation officer,1,0,1,0
+35,bell hop,1,0,1,0
+35,pilot,1,1,0,0
+35,drafting worker,1,0,1,0
+35,highway worker,1,0,1,0
+35,stone cutter,1,0,1,0
+35,logger,1,0,1,0
+35,private detective,1,0,1,0
+35,electrician,1,0,1,0
+35,fire fighter,1,0,1,0
+35,butcher,1,0,1,0
+35,guard,1,0,1,0
+35,plumber,1,0,1,0
+35,farmer,1,0,1,0
+35,carpenter,1,0,1,0
+35,trucker,1,0,1,0
+35,barber,1,0,1,0
+35,construction worker,1,0,1,0
+35,roofer,1,0,1,0
+35,auto mechanic,1,0,1,0
+35,heavy equipment operator,1,0,1,0
+36,cosmetologist,1,1,0,0
+36,manicurist,1,0,1,0
+36,secretary,1,1,0,0
+36,hairdresser,1,1,0,0
+36,flight attendant,1,1,0,0
+36,dress maker,1,1,0,0
+36,receptionist,1,1,0,0
+36,florist,1,1,0,0
+36,housekeeper,1,1,0,0
+36,child care worker,1,1,0,0
+36,kindergarten teacher,1,1,0,0
+36,interior decorator,1,1,0,0
+36,registered nurse,1,1,0,0
+36,elementary school teacher,1,1,0,0
+36,librarian,1,1,0,0
+36,cake decorator,1,0,1,0
+36,dietician,1,1,0,0
+36,exercise instructor,1,1,0,0
+36,nutritionist,1,1,0,0
+36,hair cutter,1,1,0,0
+36,physician's assistant,1,1,0,0
+36,massage therapist,1,1,0,0
+36,bookkeeper,1,1,0,0
+36,high school teacher,1,1,0,0
+36,travel agent,1,1,0,0
+36,guidance counselor,1,1,0,0
+36,dental hygienist,1,1,0,0
+36,real estate agent,1,1,0,0
+36,counseling psychologist,1,1,0,0
+36,baker,1,1,0,0
+36,school psychologist,1,1,0,0
+36,occupational therapist,1,1,0,0
+36,cashier,1,1,0,0
+36,reporter,1,1,0,0
+36,server,1,1,0,0
+36,clinical psychologist,1,1,0,0
+36,animal caretaker,1,1,0,0
+36,paralegal,1,1,0,0
+36,physical therapist,1,1,0,0
+36,singer,1,1,0,0
+36,artist,1,1,0,0
+36,veterinarian,1,1,0,0
+36,cook,1,1,0,0
+36,author,1,1,0,0
+36,photographer,1,0,1,0
+36,tour guide,1,1,0,0
+36,journalist,1,1,0,0
+36,phlebotomist,1,1,0,0
+36,writer,1,1,0,0
+36,emergency medical care,1,1,0,0
+36,graphic designer,1,1,0,0
+36,accountant,1,1,0,0
+36,lawyer,1,1,0,0
+36,concierge,1,1,0,0
+36,forensic psychologist,1,1,0,0
+36,salesperson,1,0,1,0
+36,editor,1,1,0,0
+36,insurance agent,1,0,1,0
+36,theatrical director,1,1,0,0
+36,pharmacist,1,1,0,0
+36,doctor,1,1,0,0
+36,systems analyst,1,1,0,0
+36,judge,1,1,0,0
+36,research scientist,1,1,0,0
+36,professor,1,1,0,0
+36,income tax preparer,1,1,0,0
+36,chef,1,1,0,0
+36,executive,1,1,0,0
+36,radio technician,1,0,1,0
+36,chiropractor,1,1,0,0
+36,landscaper,1,0,1,0
+36,tailor,1,0,1,0
+36,bartender,1,1,0,0
+36,surgeon,1,1,0,0
+36,computer programmer,1,0,1,0
+36,movie director,1,0,1,0
+36,painter,1,1,0,0
+36,dentist,1,1,0,0
+36,groundskeeper,1,0,1,0
+36,architect,1,0,1,0
+36,stock broker,1,1,0,0
+36,police officer,1,1,0,0
+36,janitor,1,0,1,0
+36,coach,1,0,1,0
+36,rancher,1,0,1,0
+36,probation officer,1,1,0,0
+36,bell hop,1,0,1,0
+36,pilot,1,1,0,0
+36,drafting worker,1,0,1,0
+36,highway worker,1,0,1,0
+36,stone cutter,1,0,1,0
+36,logger,1,0,1,0
+36,private detective,1,1,0,0
+36,electrician,1,0,1,0
+36,fire fighter,1,0,1,0
+36,butcher,1,0,1,0
+36,guard,1,0,1,0
+36,plumber,1,0,1,0
+36,farmer,1,0,1,0
+36,carpenter,1,0,1,0
+36,trucker,1,0,1,0
+36,barber,1,0,1,0
+36,construction worker,1,0,1,0
+36,roofer,1,0,1,0
+36,auto mechanic,1,0,1,0
+36,heavy equipment operator,1,0,1,0
+37,cosmetologist,1,1,0,0
+37,manicurist,1,1,0,0
+37,secretary,1,1,0,0
+37,hairdresser,1,1,0,0
+37,flight attendant,1,1,0,0
+37,dress maker,1,1,0,0
+37,receptionist,1,1,0,0
+37,florist,1,1,0,0
+37,housekeeper,1,1,0,0
+37,child care worker,1,1,0,0
+37,kindergarten teacher,1,1,0,0
+37,interior decorator,1,1,0,0
+37,registered nurse,1,1,0,0
+37,elementary school teacher,1,1,0,0
+37,librarian,1,1,0,0
+37,cake decorator,1,1,0,0
+37,dietician,1,1,0,0
+37,exercise instructor,1,1,0,0
+37,nutritionist,1,1,0,0
+37,hair cutter,1,1,0,0
+37,physician's assistant,1,1,0,0
+37,massage therapist,1,1,0,0
+37,bookkeeper,1,1,0,0
+37,high school teacher,1,1,0,0
+37,travel agent,1,1,0,0
+37,guidance counselor,1,1,0,0
+37,dental hygienist,1,1,0,0
+37,real estate agent,1,1,0,0
+37,counseling psychologist,1,1,0,0
+37,baker,1,1,0,0
+37,school psychologist,1,1,0,0
+37,occupational therapist,1,1,0,0
+37,cashier,1,0,1,0
+37,reporter,1,1,0,0
+37,server,1,1,0,0
+37,clinical psychologist,1,1,0,0
+37,animal caretaker,1,1,0,0
+37,paralegal,1,1,0,0
+37,physical therapist,1,1,0,0
+37,singer,1,1,0,0
+37,artist,1,1,0,0
+37,veterinarian,1,1,0,0
+37,cook,1,1,0,0
+37,author,1,1,0,0
+37,photographer,1,1,0,0
+37,tour guide,1,0,1,0
+37,journalist,1,1,0,0
+37,phlebotomist,1,1,0,0
+37,writer,1,1,0,0
+37,emergency medical care,1,1,0,0
+37,graphic designer,1,1,0,0
+37,accountant,1,1,0,0
+37,lawyer,1,1,0,0
+37,concierge,1,0,1,0
+37,forensic psychologist,1,1,0,0
+37,salesperson,1,0,1,0
+37,editor,1,1,0,0
+37,insurance agent,1,0,1,0
+37,theatrical director,1,1,0,0
+37,pharmacist,1,1,0,0
+37,doctor,1,1,0,0
+37,systems analyst,1,1,0,0
+37,judge,1,1,0,0
+37,research scientist,1,1,0,0
+37,professor,1,1,0,0
+37,income tax preparer,1,1,0,0
+37,chef,1,0,1,0
+37,executive,1,1,0,0
+37,radio technician,1,0,1,0
+37,chiropractor,1,1,0,0
+37,landscaper,1,1,0,0
+37,tailor,1,0,1,0
+37,bartender,1,0,1,0
+37,surgeon,1,1,0,0
+37,computer programmer,1,0,1,0
+37,movie director,1,0,1,0
+37,painter,1,1,0,0
+37,dentist,1,1,0,0
+37,groundskeeper,1,0,1,0
+37,architect,1,1,0,0
+37,stock broker,1,0,1,0
+37,police officer,1,1,0,0
+37,janitor,1,0,1,0
+37,coach,1,0,1,0
+37,rancher,1,0,1,0
+37,probation officer,1,1,0,0
+37,bell hop,1,0,1,0
+37,pilot,1,1,0,0
+37,drafting worker,1,0,1,0
+37,highway worker,1,0,1,0
+37,stone cutter,1,0,1,0
+37,logger,1,0,1,0
+37,private detective,1,0,1,0
+37,electrician,1,0,1,0
+37,fire fighter,1,1,0,0
+37,butcher,1,0,1,0
+37,guard,1,0,1,0
+37,plumber,1,0,1,0
+37,farmer,1,0,1,0
+37,carpenter,1,0,1,0
+37,trucker,1,0,1,0
+37,barber,1,0,1,0
+37,construction worker,1,0,1,0
+37,roofer,1,0,1,0
+37,auto mechanic,1,0,1,0
+37,heavy equipment operator,1,0,1,0
+38,cosmetologist,1,1,0,0
+38,manicurist,1,1,0,0
+38,secretary,1,1,0,0
+38,hairdresser,1,1,0,0
+38,flight attendant,1,1,0,0
+38,dress maker,1,1,0,0
+38,receptionist,1,1,0,0
+38,florist,1,1,0,0
+38,housekeeper,1,1,0,0
+38,child care worker,1,1,0,0
+38,kindergarten teacher,1,1,0,0
+38,interior decorator,1,1,0,0
+38,registered nurse,1,1,0,0
+38,elementary school teacher,1,1,0,0
+38,librarian,1,1,0,0
+38,cake decorator,1,1,0,0
+38,dietician,1,1,0,0
+38,exercise instructor,1,1,0,0
+38,nutritionist,1,1,0,0
+38,hair cutter,1,0,1,0
+38,physician's assistant,1,1,0,0
+38,massage therapist,1,1,0,0
+38,bookkeeper,1,1,0,0
+38,high school teacher,1,1,0,0
+38,travel agent,1,1,0,0
+38,guidance counselor,1,1,0,0
+38,dental hygienist,1,1,0,0
+38,real estate agent,1,1,0,0
+38,counseling psychologist,1,1,0,0
+38,baker,1,1,0,0
+38,school psychologist,1,1,0,0
+38,occupational therapist,1,1,0,0
+38,cashier,1,1,0,0
+38,reporter,1,1,0,0
+38,server,1,1,0,0
+38,clinical psychologist,1,1,0,0
+38,animal caretaker,1,1,0,0
+38,paralegal,1,1,0,0
+38,physical therapist,1,1,0,0
+38,singer,1,1,0,0
+38,artist,1,1,0,0
+38,veterinarian,1,1,0,0
+38,cook,1,1,0,0
+38,author,1,1,0,0
+38,photographer,1,1,0,0
+38,tour guide,1,1,0,0
+38,journalist,1,1,0,0
+38,phlebotomist,1,1,0,0
+38,writer,1,1,0,0
+38,emergency medical care,1,1,0,0
+38,graphic designer,1,1,0,0
+38,accountant,1,1,0,0
+38,lawyer,1,1,0,0
+38,concierge,1,1,0,0
+38,forensic psychologist,1,1,0,0
+38,salesperson,1,0,1,0
+38,editor,1,1,0,0
+38,insurance agent,1,0,1,0
+38,theatrical director,1,1,0,0
+38,pharmacist,1,1,0,0
+38,doctor,1,1,0,0
+38,systems analyst,1,1,0,0
+38,judge,1,1,0,0
+38,research scientist,1,1,0,0
+38,professor,1,1,0,0
+38,income tax preparer,1,1,0,0
+38,chef,1,1,0,0
+38,executive,1,1,0,0
+38,radio technician,1,0,1,0
+38,chiropractor,1,1,0,0
+38,landscaper,1,1,0,0
+38,tailor,1,0,1,0
+38,bartender,1,0,1,0
+38,surgeon,1,1,0,0
+38,computer programmer,1,0,1,0
+38,movie director,1,0,1,0
+38,painter,1,1,0,0
+38,dentist,1,1,0,0
+38,groundskeeper,1,0,1,0
+38,architect,1,0,1,0
+38,stock broker,1,0,1,0
+38,police officer,1,1,0,0
+38,janitor,1,0,1,0
+38,coach,1,0,1,0
+38,rancher,1,0,1,0
+38,probation officer,1,1,0,0
+38,bell hop,1,0,1,0
+38,pilot,1,1,0,0
+38,drafting worker,1,1,0,0
+38,highway worker,1,0,1,0
+38,stone cutter,1,0,1,0
+38,logger,1,0,1,0
+38,private detective,1,1,0,0
+38,electrician,1,0,1,0
+38,fire fighter,1,0,1,0
+38,butcher,1,0,1,0
+38,guard,1,0,1,0
+38,plumber,1,0,1,0
+38,farmer,1,0,1,0
+38,carpenter,1,0,1,0
+38,trucker,1,0,1,0
+38,barber,1,0,1,0
+38,construction worker,1,0,1,0
+38,roofer,1,0,1,0
+38,auto mechanic,1,1,0,0
+38,heavy equipment operator,1,1,0,0
+39,cosmetologist,1,1,0,0
+39,manicurist,1,0,1,0
+39,secretary,1,1,0,0
+39,hairdresser,1,1,0,0
+39,flight attendant,1,1,0,0
+39,dress maker,1,1,0,0
+39,receptionist,1,1,0,0
+39,florist,1,1,0,0
+39,housekeeper,1,1,0,0
+39,child care worker,1,1,0,0
+39,kindergarten teacher,1,1,0,0
+39,interior decorator,1,1,0,0
+39,registered nurse,1,1,0,0
+39,elementary school teacher,1,1,0,0
+39,librarian,1,1,0,0
+39,cake decorator,1,1,0,0
+39,dietician,1,1,0,0
+39,exercise instructor,1,1,0,0
+39,nutritionist,1,1,0,0
+39,hair cutter,1,1,0,0
+39,physician's assistant,1,1,0,0
+39,massage therapist,1,1,0,0
+39,bookkeeper,1,1,0,0
+39,high school teacher,1,1,0,0
+39,travel agent,1,1,0,0
+39,guidance counselor,1,1,0,0
+39,dental hygienist,1,1,0,0
+39,real estate agent,1,1,0,0
+39,counseling psychologist,1,1,0,0
+39,baker,1,1,0,0
+39,school psychologist,1,1,0,0
+39,occupational therapist,1,1,0,0
+39,cashier,1,1,0,0
+39,reporter,1,1,0,0
+39,server,1,1,0,0
+39,clinical psychologist,1,1,0,0
+39,animal caretaker,1,1,0,0
+39,paralegal,1,1,0,0
+39,physical therapist,1,1,0,0
+39,singer,1,1,0,0
+39,artist,1,1,0,0
+39,veterinarian,1,1,0,0
+39,cook,1,0,1,0
+39,author,1,1,0,0
+39,photographer,1,1,0,0
+39,tour guide,1,0,1,0
+39,journalist,1,1,0,0
+39,phlebotomist,1,1,0,0
+39,writer,1,1,0,0
+39,emergency medical care,1,1,0,0
+39,graphic designer,1,0,1,0
+39,accountant,1,1,0,0
+39,lawyer,1,1,0,0
+39,concierge,1,0,1,0
+39,forensic psychologist,1,1,0,0
+39,salesperson,1,1,0,0
+39,editor,1,1,0,0
+39,insurance agent,1,0,1,0
+39,theatrical director,1,1,0,0
+39,pharmacist,1,1,0,0
+39,doctor,1,1,0,0
+39,systems analyst,1,0,1,0
+39,judge,1,1,0,0
+39,research scientist,1,1,0,0
+39,professor,1,1,0,0
+39,income tax preparer,1,1,0,0
+39,chef,1,1,0,0
+39,executive,1,1,0,0
+39,radio technician,1,1,0,0
+39,chiropractor,1,1,0,0
+39,landscaper,1,1,0,0
+39,tailor,1,0,1,0
+39,bartender,1,0,1,0
+39,surgeon,1,1,0,0
+39,computer programmer,1,0,1,0
+39,movie director,1,0,1,0
+39,painter,1,1,0,0
+39,dentist,1,1,0,0
+39,groundskeeper,1,0,1,0
+39,architect,1,1,0,0
+39,stock broker,1,0,1,0
+39,police officer,1,1,0,0
+39,janitor,1,0,1,0
+39,coach,1,0,1,0
+39,rancher,1,1,0,0
+39,probation officer,1,1,0,0
+39,bell hop,1,0,1,0
+39,pilot,1,1,0,0
+39,drafting worker,1,1,0,0
+39,highway worker,1,0,1,0
+39,stone cutter,1,0,1,0
+39,logger,1,0,1,0
+39,private detective,1,1,0,0
+39,electrician,1,0,1,0
+39,fire fighter,1,0,1,0
+39,butcher,1,0,1,0
+39,guard,1,0,1,0
+39,plumber,1,0,1,0
+39,farmer,1,0,1,0
+39,carpenter,1,0,1,0
+39,trucker,1,0,1,0
+39,barber,1,0,1,0
+39,construction worker,1,0,1,0
+39,roofer,1,0,1,0
+39,auto mechanic,1,1,0,0
+39,heavy equipment operator,1,0,1,0
+40,cosmetologist,1,1,0,0
+40,manicurist,1,1,0,0
+40,secretary,1,1,0,0
+40,hairdresser,1,1,0,0
+40,flight attendant,1,1,0,0
+40,dress maker,1,1,0,0
+40,receptionist,1,1,0,0
+40,florist,1,1,0,0
+40,housekeeper,1,1,0,0
+40,child care worker,1,1,0,0
+40,kindergarten teacher,1,1,0,0
+40,interior decorator,1,1,0,0
+40,registered nurse,1,1,0,0
+40,elementary school teacher,1,1,0,0
+40,librarian,1,1,0,0
+40,cake decorator,1,1,0,0
+40,dietician,1,1,0,0
+40,exercise instructor,1,1,0,0
+40,nutritionist,1,1,0,0
+40,hair cutter,1,0,1,0
+40,physician's assistant,1,1,0,0
+40,massage therapist,1,1,0,0
+40,bookkeeper,1,0,1,0
+40,high school teacher,1,1,0,0
+40,travel agent,1,1,0,0
+40,guidance counselor,1,1,0,0
+40,dental hygienist,1,1,0,0
+40,real estate agent,1,1,0,0
+40,counseling psychologist,1,1,0,0
+40,baker,1,0,1,0
+40,school psychologist,1,1,0,0
+40,occupational therapist,1,1,0,0
+40,cashier,1,1,0,0
+40,reporter,1,1,0,0
+40,server,1,1,0,0
+40,clinical psychologist,1,1,0,0
+40,animal caretaker,1,1,0,0
+40,paralegal,1,1,0,0
+40,physical therapist,1,1,0,0
+40,singer,1,1,0,0
+40,artist,1,1,0,0
+40,veterinarian,1,1,0,0
+40,cook,1,1,0,0
+40,author,1,1,0,0
+40,photographer,1,1,0,0
+40,tour guide,1,1,0,0
+40,journalist,1,1,0,0
+40,phlebotomist,1,1,0,0
+40,writer,1,1,0,0
+40,emergency medical care,1,1,0,0
+40,graphic designer,1,1,0,0
+40,accountant,1,0,1,0
+40,lawyer,1,1,0,0
+40,concierge,1,0,1,0
+40,forensic psychologist,1,1,0,0
+40,salesperson,1,1,0,0
+40,editor,1,0,1,0
+40,insurance agent,1,1,0,0
+40,theatrical director,1,1,0,0
+40,pharmacist,1,1,0,0
+40,doctor,1,1,0,0
+40,systems analyst,1,1,0,0
+40,judge,1,1,0,0
+40,research scientist,1,1,0,0
+40,professor,1,1,0,0
+40,income tax preparer,1,1,0,0
+40,chef,1,0,1,0
+40,executive,1,0,1,0
+40,radio technician,1,0,1,0
+40,chiropractor,1,1,0,0
+40,landscaper,1,0,1,0
+40,tailor,1,0,1,0
+40,bartender,1,1,0,0
+40,surgeon,1,1,0,0
+40,computer programmer,1,1,0,0
+40,movie director,1,0,1,0
+40,painter,1,0,1,0
+40,dentist,1,1,0,0
+40,groundskeeper,1,0,1,0
+40,architect,1,1,0,0
+40,stock broker,1,0,1,0
+40,police officer,1,1,0,0
+40,janitor,1,0,1,0
+40,coach,1,1,0,0
+40,rancher,1,0,1,0
+40,probation officer,1,1,0,0
+40,bell hop,1,0,1,0
+40,pilot,1,1,0,0
+40,drafting worker,1,0,1,0
+40,highway worker,1,0,1,0
+40,stone cutter,1,0,1,0
+40,logger,1,0,1,0
+40,private detective,1,0,1,0
+40,electrician,1,0,1,0
+40,fire fighter,1,1,0,0
+40,butcher,1,0,1,0
+40,guard,1,0,1,0
+40,plumber,1,0,1,0
+40,farmer,1,0,1,0
+40,carpenter,1,0,1,0
+40,trucker,1,0,1,0
+40,barber,1,0,1,0
+40,construction worker,1,0,1,0
+40,roofer,1,0,1,0
+40,auto mechanic,1,0,1,0
+40,heavy equipment operator,1,0,1,0
+41,cosmetologist,1,1,0,0
+41,manicurist,1,1,0,0
+41,secretary,1,1,0,0
+41,hairdresser,1,1,0,0
+41,flight attendant,1,1,0,0
+41,dress maker,1,1,0,0
+41,receptionist,1,1,0,0
+41,florist,1,1,0,0
+41,housekeeper,1,1,0,0
+41,child care worker,1,1,0,0
+41,kindergarten teacher,1,1,0,0
+41,interior decorator,1,1,0,0
+41,registered nurse,1,1,0,0
+41,elementary school teacher,1,1,0,0
+41,librarian,1,1,0,0
+41,cake decorator,1,1,0,0
+41,dietician,1,1,0,0
+41,exercise instructor,1,1,0,0
+41,nutritionist,1,1,0,0
+41,hair cutter,1,1,0,0
+41,physician's assistant,1,1,0,0
+41,massage therapist,1,1,0,0
+41,bookkeeper,1,0,1,0
+41,high school teacher,1,1,0,0
+41,travel agent,1,1,0,0
+41,guidance counselor,1,1,0,0
+41,dental hygienist,1,1,0,0
+41,real estate agent,1,1,0,0
+41,counseling psychologist,1,1,0,0
+41,baker,1,1,0,0
+41,school psychologist,1,1,0,0
+41,occupational therapist,1,1,0,0
+41,cashier,1,1,0,0
+41,reporter,1,1,0,0
+41,server,1,1,0,0
+41,clinical psychologist,1,1,0,0
+41,animal caretaker,1,1,0,0
+41,paralegal,1,1,0,0
+41,physical therapist,1,1,0,0
+41,singer,1,1,0,0
+41,artist,1,1,0,0
+41,veterinarian,1,1,0,0
+41,cook,1,1,0,0
+41,author,1,1,0,0
+41,photographer,1,0,1,0
+41,tour guide,1,0,1,0
+41,journalist,1,1,0,0
+41,phlebotomist,1,1,0,0
+41,writer,1,0,1,0
+41,emergency medical care,1,1,0,0
+41,graphic designer,1,1,0,0
+41,accountant,1,0,1,0
+41,lawyer,1,1,0,0
+41,concierge,1,0,1,0
+41,forensic psychologist,1,1,0,0
+41,salesperson,1,0,1,0
+41,editor,1,1,0,0
+41,insurance agent,1,0,1,0
+41,theatrical director,1,1,0,0
+41,pharmacist,1,0,1,0
+41,doctor,1,1,0,0
+41,systems analyst,1,0,1,0
+41,judge,1,1,0,0
+41,research scientist,1,1,0,0
+41,professor,1,1,0,0
+41,income tax preparer,1,0,1,0
+41,chef,1,0,1,0
+41,executive,1,1,0,0
+41,radio technician,1,0,1,0
+41,chiropractor,1,1,0,0
+41,landscaper,1,1,0,0
+41,tailor,1,0,1,0
+41,bartender,1,1,0,0
+41,surgeon,1,1,0,0
+41,computer programmer,1,0,0,1
+41,movie director,1,0,1,0
+41,painter,1,1,0,0
+41,dentist,1,1,0,0
+41,groundskeeper,1,0,1,0
+41,architect,1,1,0,0
+41,stock broker,1,0,1,0
+41,police officer,1,1,0,0
+41,janitor,1,0,1,0
+41,coach,1,0,1,0
+41,rancher,1,0,1,0
+41,probation officer,1,1,0,0
+41,bell hop,1,0,1,0
+41,pilot,1,1,0,0
+41,drafting worker,1,0,1,0
+41,highway worker,1,0,1,0
+41,stone cutter,1,0,1,0
+41,logger,1,0,1,0
+41,private detective,1,0,1,0
+41,electrician,1,0,1,0
+41,fire fighter,1,0,1,0
+41,butcher,1,0,1,0
+41,guard,1,0,1,0
+41,plumber,1,0,1,0
+41,farmer,1,0,1,0
+41,carpenter,1,0,1,0
+41,trucker,1,1,0,0
+41,barber,1,0,1,0
+41,construction worker,1,0,1,0
+41,roofer,1,0,1,0
+41,auto mechanic,1,0,1,0
+41,heavy equipment operator,1,1,0,0
+42,cosmetologist,1,1,0,0
+42,manicurist,1,1,0,0
+42,secretary,1,1,0,0
+42,hairdresser,1,1,0,0
+42,flight attendant,1,1,0,0
+42,dress maker,1,1,0,0
+42,receptionist,1,1,0,0
+42,florist,1,1,0,0
+42,housekeeper,1,1,0,0
+42,child care worker,1,1,0,0
+42,kindergarten teacher,1,1,0,0
+42,interior decorator,1,1,0,0
+42,registered nurse,1,1,0,0
+42,elementary school teacher,1,1,0,0
+42,librarian,1,1,0,0
+42,cake decorator,1,1,0,0
+42,dietician,1,1,0,0
+42,exercise instructor,1,1,0,0
+42,nutritionist,1,1,0,0
+42,hair cutter,1,1,0,0
+42,physician's assistant,1,1,0,0
+42,massage therapist,1,1,0,0
+42,bookkeeper,1,1,0,0
+42,high school teacher,1,1,0,0
+42,travel agent,1,1,0,0
+42,guidance counselor,1,1,0,0
+42,dental hygienist,1,1,0,0
+42,real estate agent,1,1,0,0
+42,counseling psychologist,1,1,0,0
+42,baker,1,1,0,0
+42,school psychologist,1,1,0,0
+42,occupational therapist,1,1,0,0
+42,cashier,1,1,0,0
+42,reporter,1,1,0,0
+42,server,1,1,0,0
+42,clinical psychologist,1,1,0,0
+42,animal caretaker,1,1,0,0
+42,paralegal,1,1,0,0
+42,physical therapist,1,1,0,0
+42,singer,1,1,0,0
+42,artist,1,1,0,0
+42,veterinarian,1,1,0,0
+42,cook,1,1,0,0
+42,author,1,1,0,0
+42,photographer,1,1,0,0
+42,tour guide,1,1,0,0
+42,journalist,1,1,0,0
+42,phlebotomist,1,1,0,0
+42,writer,1,1,0,0
+42,emergency medical care,1,1,0,0
+42,graphic designer,1,1,0,0
+42,accountant,1,0,1,0
+42,lawyer,1,1,0,0
+42,concierge,1,0,1,0
+42,forensic psychologist,1,1,0,0
+42,salesperson,1,1,0,0
+42,editor,1,1,0,0
+42,insurance agent,1,0,1,0
+42,theatrical director,1,1,0,0
+42,pharmacist,1,1,0,0
+42,doctor,1,1,0,0
+42,systems analyst,1,1,0,0
+42,judge,1,1,0,0
+42,research scientist,1,1,0,0
+42,professor,1,1,0,0
+42,income tax preparer,1,1,0,0
+42,chef,1,0,1,0
+42,executive,1,1,0,0
+42,radio technician,1,1,0,0
+42,chiropractor,1,1,0,0
+42,landscaper,1,1,0,0
+42,tailor,1,0,1,0
+42,bartender,1,1,0,0
+42,surgeon,1,1,0,0
+42,computer programmer,1,1,0,0
+42,movie director,1,0,1,0
+42,painter,1,1,0,0
+42,dentist,1,1,0,0
+42,groundskeeper,1,0,1,0
+42,architect,1,1,0,0
+42,stock broker,1,0,1,0
+42,police officer,1,0,1,0
+42,janitor,1,0,1,0
+42,coach,1,0,1,0
+42,rancher,1,1,0,0
+42,probation officer,1,1,0,0
+42,bell hop,1,0,1,0
+42,pilot,1,1,0,0
+42,drafting worker,1,0,1,0
+42,highway worker,1,0,1,0
+42,stone cutter,1,0,1,0
+42,logger,1,0,1,0
+42,private detective,1,1,0,0
+42,electrician,1,0,1,0
+42,fire fighter,1,1,0,0
+42,butcher,1,0,1,0
+42,guard,1,0,1,0
+42,plumber,1,0,1,0
+42,farmer,1,0,1,0
+42,carpenter,1,0,1,0
+42,trucker,1,0,1,0
+42,barber,1,0,1,0
+42,construction worker,1,0,1,0
+42,roofer,1,0,1,0
+42,auto mechanic,1,0,1,0
+42,heavy equipment operator,1,0,1,0
+43,cosmetologist,1,1,0,0
+43,manicurist,1,0,1,0
+43,secretary,1,1,0,0
+43,hairdresser,1,1,0,0
+43,flight attendant,1,1,0,0
+43,dress maker,1,1,0,0
+43,receptionist,1,1,0,0
+43,florist,1,1,0,0
+43,housekeeper,1,1,0,0
+43,child care worker,1,1,0,0
+43,kindergarten teacher,1,1,0,0
+43,interior decorator,1,1,0,0
+43,registered nurse,1,1,0,0
+43,elementary school teacher,1,1,0,0
+43,librarian,1,1,0,0
+43,cake decorator,1,1,0,0
+43,dietician,1,1,0,0
+43,exercise instructor,1,1,0,0
+43,nutritionist,1,1,0,0
+43,hair cutter,1,1,0,0
+43,physician's assistant,1,1,0,0
+43,massage therapist,1,1,0,0
+43,bookkeeper,1,1,0,0
+43,high school teacher,1,1,0,0
+43,travel agent,1,1,0,0
+43,guidance counselor,1,1,0,0
+43,dental hygienist,1,1,0,0
+43,real estate agent,1,1,0,0
+43,counseling psychologist,1,1,0,0
+43,baker,1,1,0,0
+43,school psychologist,1,1,0,0
+43,occupational therapist,1,1,0,0
+43,cashier,1,0,1,0
+43,reporter,1,1,0,0
+43,server,1,1,0,0
+43,clinical psychologist,1,1,0,0
+43,animal caretaker,1,1,0,0
+43,paralegal,1,1,0,0
+43,physical therapist,1,1,0,0
+43,singer,1,1,0,0
+43,artist,1,1,0,0
+43,veterinarian,1,1,0,0
+43,cook,1,1,0,0
+43,author,1,0,1,0
+43,photographer,1,1,0,0
+43,tour guide,1,1,0,0
+43,journalist,1,1,0,0
+43,phlebotomist,1,1,0,0
+43,writer,1,1,0,0
+43,emergency medical care,1,1,0,0
+43,graphic designer,1,1,0,0
+43,accountant,1,1,0,0
+43,lawyer,1,1,0,0
+43,concierge,1,1,0,0
+43,forensic psychologist,1,1,0,0
+43,salesperson,1,0,1,0
+43,editor,1,1,0,0
+43,insurance agent,1,0,1,0
+43,theatrical director,1,0,1,0
+43,pharmacist,1,0,1,0
+43,doctor,1,1,0,0
+43,systems analyst,1,1,0,0
+43,judge,1,1,0,0
+43,research scientist,1,1,0,0
+43,professor,1,1,0,0
+43,income tax preparer,1,1,0,0
+43,chef,1,1,0,0
+43,executive,1,1,0,0
+43,radio technician,1,0,1,0
+43,chiropractor,1,1,0,0
+43,landscaper,1,0,1,0
+43,tailor,1,0,1,0
+43,bartender,1,0,1,0
+43,surgeon,1,1,0,0
+43,computer programmer,1,0,1,0
+43,movie director,1,0,1,0
+43,painter,1,1,0,0
+43,dentist,1,1,0,0
+43,groundskeeper,1,0,1,0
+43,architect,1,0,1,0
+43,stock broker,1,0,1,0
+43,police officer,1,1,0,0
+43,janitor,1,0,1,0
+43,coach,1,1,0,0
+43,rancher,1,1,0,0
+43,probation officer,1,1,0,0
+43,bell hop,1,0,1,0
+43,pilot,1,1,0,0
+43,drafting worker,1,1,0,0
+43,highway worker,1,0,1,0
+43,stone cutter,1,0,1,0
+43,logger,1,0,1,0
+43,private detective,1,1,0,0
+43,electrician,1,0,1,0
+43,fire fighter,1,0,1,0
+43,butcher,1,0,1,0
+43,guard,1,0,1,0
+43,plumber,1,0,1,0
+43,farmer,1,0,1,0
+43,carpenter,1,0,1,0
+43,trucker,1,0,1,0
+43,barber,1,0,1,0
+43,construction worker,1,0,1,0
+43,roofer,1,0,1,0
+43,auto mechanic,1,0,1,0
+43,heavy equipment operator,1,0,1,0
+44,cosmetologist,1,1,0,0
+44,manicurist,1,1,0,0
+44,secretary,1,1,0,0
+44,hairdresser,1,1,0,0
+44,flight attendant,1,1,0,0
+44,dress maker,1,1,0,0
+44,receptionist,1,1,0,0
+44,florist,1,1,0,0
+44,housekeeper,1,1,0,0
+44,child care worker,1,1,0,0
+44,kindergarten teacher,1,1,0,0
+44,interior decorator,1,1,0,0
+44,registered nurse,1,1,0,0
+44,elementary school teacher,1,1,0,0
+44,librarian,1,1,0,0
+44,cake decorator,1,1,0,0
+44,dietician,1,1,0,0
+44,exercise instructor,1,1,0,0
+44,nutritionist,1,1,0,0
+44,hair cutter,1,1,0,0
+44,physician's assistant,1,1,0,0
+44,massage therapist,1,1,0,0
+44,bookkeeper,1,1,0,0
+44,high school teacher,1,1,0,0
+44,travel agent,1,0,1,0
+44,guidance counselor,1,1,0,0
+44,dental hygienist,1,1,0,0
+44,real estate agent,1,1,0,0
+44,counseling psychologist,1,1,0,0
+44,baker,1,1,0,0
+44,school psychologist,1,1,0,0
+44,occupational therapist,1,1,0,0
+44,cashier,1,1,0,0
+44,reporter,1,1,0,0
+44,server,1,1,0,0
+44,clinical psychologist,1,1,0,0
+44,animal caretaker,1,0,1,0
+44,paralegal,1,1,0,0
+44,physical therapist,1,1,0,0
+44,singer,1,1,0,0
+44,artist,1,1,0,0
+44,veterinarian,1,1,0,0
+44,cook,1,1,0,0
+44,author,1,1,0,0
+44,photographer,1,0,1,0
+44,tour guide,1,1,0,0
+44,journalist,1,1,0,0
+44,phlebotomist,1,1,0,0
+44,writer,1,1,0,0
+44,emergency medical care,1,1,0,0
+44,graphic designer,1,1,0,0
+44,accountant,1,1,0,0
+44,lawyer,1,1,0,0
+44,concierge,1,1,0,0
+44,forensic psychologist,1,1,0,0
+44,salesperson,1,0,1,0
+44,editor,1,1,0,0
+44,insurance agent,1,1,0,0
+44,theatrical director,1,1,0,0
+44,pharmacist,1,1,0,0
+44,doctor,1,1,0,0
+44,systems analyst,1,1,0,0
+44,judge,1,1,0,0
+44,research scientist,1,1,0,0
+44,professor,1,1,0,0
+44,income tax preparer,1,1,0,0
+44,chef,1,1,0,0
+44,executive,1,1,0,0
+44,radio technician,1,0,1,0
+44,chiropractor,1,1,0,0
+44,landscaper,1,0,1,0
+44,tailor,1,0,1,0
+44,bartender,1,0,1,0
+44,surgeon,1,1,0,0
+44,computer programmer,1,1,0,0
+44,movie director,1,0,1,0
+44,painter,1,1,0,0
+44,dentist,1,1,0,0
+44,groundskeeper,1,0,1,0
+44,architect,1,1,0,0
+44,stock broker,1,0,1,0
+44,police officer,1,1,0,0
+44,janitor,1,0,1,0
+44,coach,1,0,1,0
+44,rancher,1,1,0,0
+44,probation officer,1,1,0,0
+44,bell hop,1,0,1,0
+44,pilot,1,1,0,0
+44,drafting worker,1,0,1,0
+44,highway worker,1,0,1,0
+44,stone cutter,1,0,1,0
+44,logger,1,0,1,0
+44,private detective,1,0,1,0
+44,electrician,1,0,1,0
+44,fire fighter,1,0,1,0
+44,butcher,1,0,1,0
+44,guard,1,0,1,0
+44,plumber,1,0,1,0
+44,farmer,1,0,1,0
+44,carpenter,1,0,1,0
+44,trucker,1,0,1,0
+44,barber,1,0,1,0
+44,construction worker,1,0,1,0
+44,roofer,1,0,1,0
+44,auto mechanic,1,0,1,0
+44,heavy equipment operator,1,0,1,0
+45,cosmetologist,1,1,0,0
+45,manicurist,1,1,0,0
+45,secretary,1,1,0,0
+45,hairdresser,1,1,0,0
+45,flight attendant,1,1,0,0
+45,dress maker,1,1,0,0
+45,receptionist,1,1,0,0
+45,florist,1,1,0,0
+45,housekeeper,1,1,0,0
+45,child care worker,1,1,0,0
+45,kindergarten teacher,1,1,0,0
+45,interior decorator,1,1,0,0
+45,registered nurse,1,1,0,0
+45,elementary school teacher,1,1,0,0
+45,librarian,1,1,0,0
+45,cake decorator,1,1,0,0
+45,dietician,1,1,0,0
+45,exercise instructor,1,1,0,0
+45,nutritionist,1,1,0,0
+45,hair cutter,1,1,0,0
+45,physician's assistant,1,1,0,0
+45,massage therapist,1,1,0,0
+45,bookkeeper,1,1,0,0
+45,high school teacher,1,1,0,0
+45,travel agent,1,1,0,0
+45,guidance counselor,1,1,0,0
+45,dental hygienist,1,1,0,0
+45,real estate agent,1,1,0,0
+45,counseling psychologist,1,1,0,0
+45,baker,1,1,0,0
+45,school psychologist,1,1,0,0
+45,occupational therapist,1,1,0,0
+45,cashier,1,1,0,0
+45,reporter,1,1,0,0
+45,server,1,1,0,0
+45,clinical psychologist,1,1,0,0
+45,animal caretaker,1,1,0,0
+45,paralegal,1,1,0,0
+45,physical therapist,1,1,0,0
+45,singer,1,1,0,0
+45,artist,1,1,0,0
+45,veterinarian,1,1,0,0
+45,cook,1,1,0,0
+45,author,1,1,0,0
+45,photographer,1,1,0,0
+45,tour guide,1,1,0,0
+45,journalist,1,1,0,0
+45,phlebotomist,1,1,0,0
+45,writer,1,1,0,0
+45,emergency medical care,1,1,0,0
+45,graphic designer,1,1,0,0
+45,accountant,1,1,0,0
+45,lawyer,1,1,0,0
+45,concierge,1,1,0,0
+45,forensic psychologist,1,1,0,0
+45,salesperson,1,0,1,0
+45,editor,1,1,0,0
+45,insurance agent,1,0,1,0
+45,theatrical director,1,1,0,0
+45,pharmacist,1,1,0,0
+45,doctor,1,1,0,0
+45,systems analyst,1,1,0,0
+45,judge,1,1,0,0
+45,research scientist,1,1,0,0
+45,professor,1,1,0,0
+45,income tax preparer,1,1,0,0
+45,chef,1,1,0,0
+45,executive,1,1,0,0
+45,radio technician,1,0,1,0
+45,chiropractor,1,1,0,0
+45,landscaper,1,0,1,0
+45,tailor,1,0,1,0
+45,bartender,1,0,1,0
+45,surgeon,1,0,1,0
+45,computer programmer,1,0,1,0
+45,movie director,1,0,1,0
+45,painter,1,1,0,0
+45,dentist,1,1,0,0
+45,groundskeeper,1,0,1,0
+45,architect,1,0,1,0
+45,stock broker,1,0,1,0
+45,police officer,1,1,0,0
+45,janitor,1,0,1,0
+45,coach,1,0,1,0
+45,rancher,1,0,1,0
+45,probation officer,1,1,0,0
+45,bell hop,1,0,1,0
+45,pilot,1,1,0,0
+45,drafting worker,1,1,0,0
+45,highway worker,1,0,1,0
+45,stone cutter,1,0,1,0
+45,logger,1,0,1,0
+45,private detective,1,1,0,0
+45,electrician,1,0,1,0
+45,fire fighter,1,0,1,0
+45,butcher,1,0,1,0
+45,guard,1,0,1,0
+45,plumber,1,0,1,0
+45,farmer,1,1,0,0
+45,carpenter,1,1,0,0
+45,trucker,1,0,1,0
+45,barber,1,0,1,0
+45,construction worker,1,0,1,0
+45,roofer,1,0,1,0
+45,auto mechanic,1,0,1,0
+45,heavy equipment operator,1,0,1,0
+46,cosmetologist,1,1,0,0
+46,manicurist,1,1,0,0
+46,secretary,1,1,0,0
+46,hairdresser,1,1,0,0
+46,flight attendant,1,1,0,0
+46,dress maker,1,1,0,0
+46,receptionist,1,1,0,0
+46,florist,1,1,0,0
+46,housekeeper,1,1,0,0
+46,child care worker,1,1,0,0
+46,kindergarten teacher,1,1,0,0
+46,interior decorator,1,1,0,0
+46,registered nurse,1,1,0,0
+46,elementary school teacher,1,1,0,0
+46,librarian,1,1,0,0
+46,cake decorator,1,1,0,0
+46,dietician,1,1,0,0
+46,exercise instructor,1,0,1,0
+46,nutritionist,1,1,0,0
+46,hair cutter,1,1,0,0
+46,physician's assistant,1,1,0,0
+46,massage therapist,1,1,0,0
+46,bookkeeper,1,1,0,0
+46,high school teacher,1,1,0,0
+46,travel agent,1,1,0,0
+46,guidance counselor,1,1,0,0
+46,dental hygienist,1,1,0,0
+46,real estate agent,1,1,0,0
+46,counseling psychologist,1,1,0,0
+46,baker,1,1,0,0
+46,school psychologist,1,1,0,0
+46,occupational therapist,1,1,0,0
+46,cashier,1,1,0,0
+46,reporter,1,1,0,0
+46,server,1,1,0,0
+46,clinical psychologist,1,1,0,0
+46,animal caretaker,1,1,0,0
+46,paralegal,1,1,0,0
+46,physical therapist,1,1,0,0
+46,singer,1,1,0,0
+46,artist,1,0,1,0
+46,veterinarian,1,1,0,0
+46,cook,1,1,0,0
+46,author,1,1,0,0
+46,photographer,1,0,1,0
+46,tour guide,1,0,1,0
+46,journalist,1,1,0,0
+46,phlebotomist,1,1,0,0
+46,writer,1,1,0,0
+46,emergency medical care,1,1,0,0
+46,graphic designer,1,1,0,0
+46,accountant,1,1,0,0
+46,lawyer,1,1,0,0
+46,concierge,1,0,1,0
+46,forensic psychologist,1,1,0,0
+46,salesperson,1,1,0,0
+46,editor,1,1,0,0
+46,insurance agent,1,0,1,0
+46,theatrical director,1,0,1,0
+46,pharmacist,1,1,0,0
+46,doctor,1,1,0,0
+46,systems analyst,1,1,0,0
+46,judge,1,1,0,0
+46,research scientist,1,1,0,0
+46,professor,1,1,0,0
+46,income tax preparer,1,1,0,0
+46,chef,1,0,1,0
+46,executive,1,0,1,0
+46,radio technician,1,0,1,0
+46,chiropractor,1,1,0,0
+46,landscaper,1,0,1,0
+46,tailor,1,0,1,0
+46,bartender,1,0,1,0
+46,surgeon,1,1,0,0
+46,computer programmer,1,1,0,0
+46,movie director,1,0,1,0
+46,painter,1,1,0,0
+46,dentist,1,1,0,0
+46,groundskeeper,1,0,1,0
+46,architect,1,0,1,0
+46,stock broker,1,0,1,0
+46,police officer,1,1,0,0
+46,janitor,1,0,1,0
+46,coach,1,1,0,0
+46,rancher,1,0,1,0
+46,probation officer,1,1,0,0
+46,bell hop,1,0,1,0
+46,pilot,1,1,0,0
+46,drafting worker,1,1,0,0
+46,highway worker,1,0,1,0
+46,stone cutter,1,0,1,0
+46,logger,1,0,1,0
+46,private detective,1,1,0,0
+46,electrician,1,0,1,0
+46,fire fighter,1,0,1,0
+46,butcher,1,0,1,0
+46,guard,1,0,1,0
+46,plumber,1,0,1,0
+46,farmer,1,0,1,0
+46,carpenter,1,0,1,0
+46,trucker,1,0,1,0
+46,barber,1,0,1,0
+46,construction worker,1,0,1,0
+46,roofer,1,0,1,0
+46,auto mechanic,1,0,1,0
+46,heavy equipment operator,1,0,1,0
+47,cosmetologist,1,1,0,0
+47,manicurist,1,1,0,0
+47,secretary,1,1,0,0
+47,hairdresser,1,1,0,0
+47,flight attendant,1,1,0,0
+47,dress maker,1,1,0,0
+47,receptionist,1,1,0,0
+47,florist,1,1,0,0
+47,housekeeper,1,1,0,0
+47,child care worker,1,1,0,0
+47,kindergarten teacher,1,1,0,0
+47,interior decorator,1,1,0,0
+47,registered nurse,1,1,0,0
+47,elementary school teacher,1,1,0,0
+47,librarian,1,1,0,0
+47,cake decorator,1,1,0,0
+47,dietician,1,1,0,0
+47,exercise instructor,1,1,0,0
+47,nutritionist,1,1,0,0
+47,hair cutter,1,1,0,0
+47,physician's assistant,1,1,0,0
+47,massage therapist,1,1,0,0
+47,bookkeeper,1,1,0,0
+47,high school teacher,1,1,0,0
+47,travel agent,1,1,0,0
+47,guidance counselor,1,1,0,0
+47,dental hygienist,1,1,0,0
+47,real estate agent,1,1,0,0
+47,counseling psychologist,1,1,0,0
+47,baker,1,1,0,0
+47,school psychologist,1,1,0,0
+47,occupational therapist,1,1,0,0
+47,cashier,1,0,1,0
+47,reporter,1,1,0,0
+47,server,1,1,0,0
+47,clinical psychologist,1,1,0,0
+47,animal caretaker,1,1,0,0
+47,paralegal,1,1,0,0
+47,physical therapist,1,1,0,0
+47,singer,1,1,0,0
+47,artist,1,1,0,0
+47,veterinarian,1,1,0,0
+47,cook,1,0,1,0
+47,author,1,1,0,0
+47,photographer,1,1,0,0
+47,tour guide,1,1,0,0
+47,journalist,1,1,0,0
+47,phlebotomist,1,1,0,0
+47,writer,1,1,0,0
+47,emergency medical care,1,1,0,0
+47,graphic designer,1,1,0,0
+47,accountant,1,1,0,0
+47,lawyer,1,1,0,0
+47,concierge,1,0,1,0
+47,forensic psychologist,1,1,0,0
+47,salesperson,1,1,0,0
+47,editor,1,1,0,0
+47,insurance agent,1,0,1,0
+47,theatrical director,1,0,1,0
+47,pharmacist,1,1,0,0
+47,doctor,1,1,0,0
+47,systems analyst,1,1,0,0
+47,judge,1,1,0,0
+47,research scientist,1,1,0,0
+47,professor,1,1,0,0
+47,income tax preparer,1,1,0,0
+47,chef,1,1,0,0
+47,executive,1,1,0,0
+47,radio technician,1,0,1,0
+47,chiropractor,1,1,0,0
+47,landscaper,1,1,0,0
+47,tailor,1,1,0,0
+47,bartender,1,0,1,0
+47,surgeon,1,1,0,0
+47,computer programmer,1,1,0,0
+47,movie director,1,1,0,0
+47,painter,1,1,0,0
+47,dentist,1,1,0,0
+47,groundskeeper,1,0,1,0
+47,architect,1,1,0,0
+47,stock broker,1,0,1,0
+47,police officer,1,1,0,0
+47,janitor,1,0,1,0
+47,coach,1,0,1,0
+47,rancher,1,0,1,0
+47,probation officer,1,1,0,0
+47,bell hop,1,0,1,0
+47,pilot,1,1,0,0
+47,drafting worker,1,1,0,0
+47,highway worker,1,0,1,0
+47,stone cutter,1,0,1,0
+47,logger,1,0,1,0
+47,private detective,1,0,1,0
+47,electrician,1,0,1,0
+47,fire fighter,1,1,0,0
+47,butcher,1,0,1,0
+47,guard,1,1,0,0
+47,plumber,1,0,1,0
+47,farmer,1,0,1,0
+47,carpenter,1,0,1,0
+47,trucker,1,1,0,0
+47,barber,1,0,1,0
+47,construction worker,1,0,1,0
+47,roofer,1,0,1,0
+47,auto mechanic,1,0,1,0
+47,heavy equipment operator,1,0,1,0
+48,cosmetologist,1,1,0,0
+48,manicurist,1,1,0,0
+48,secretary,1,1,0,0
+48,hairdresser,1,1,0,0
+48,flight attendant,1,1,0,0
+48,dress maker,1,1,0,0
+48,receptionist,1,1,0,0
+48,florist,1,1,0,0
+48,housekeeper,1,1,0,0
+48,child care worker,1,1,0,0
+48,kindergarten teacher,1,1,0,0
+48,interior decorator,1,1,0,0
+48,registered nurse,1,1,0,0
+48,elementary school teacher,1,1,0,0
+48,librarian,1,1,0,0
+48,cake decorator,1,1,0,0
+48,dietician,1,1,0,0
+48,exercise instructor,1,1,0,0
+48,nutritionist,1,1,0,0
+48,hair cutter,1,1,0,0
+48,physician's assistant,1,1,0,0
+48,massage therapist,1,1,0,0
+48,bookkeeper,1,1,0,0
+48,high school teacher,1,1,0,0
+48,travel agent,1,1,0,0
+48,guidance counselor,1,1,0,0
+48,dental hygienist,1,1,0,0
+48,real estate agent,1,1,0,0
+48,counseling psychologist,1,1,0,0
+48,baker,1,1,0,0
+48,school psychologist,1,1,0,0
+48,occupational therapist,1,1,0,0
+48,cashier,1,1,0,0
+48,reporter,1,1,0,0
+48,server,1,1,0,0
+48,clinical psychologist,1,1,0,0
+48,animal caretaker,1,1,0,0
+48,paralegal,1,1,0,0
+48,physical therapist,1,1,0,0
+48,singer,1,1,0,0
+48,artist,1,1,0,0
+48,veterinarian,1,1,0,0
+48,cook,1,1,0,0
+48,author,1,1,0,0
+48,photographer,1,1,0,0
+48,tour guide,1,1,0,0
+48,journalist,1,1,0,0
+48,phlebotomist,1,1,0,0
+48,writer,1,1,0,0
+48,emergency medical care,1,1,0,0
+48,graphic designer,1,1,0,0
+48,accountant,1,0,1,0
+48,lawyer,1,1,0,0
+48,concierge,1,1,0,0
+48,forensic psychologist,1,1,0,0
+48,salesperson,1,1,0,0
+48,editor,1,1,0,0
+48,insurance agent,1,1,0,0
+48,theatrical director,1,0,1,0
+48,pharmacist,1,1,0,0
+48,doctor,1,1,0,0
+48,systems analyst,1,1,0,0
+48,judge,1,1,0,0
+48,research scientist,1,1,0,0
+48,professor,1,1,0,0
+48,income tax preparer,1,0,1,0
+48,chef,1,1,0,0
+48,executive,1,0,1,0
+48,radio technician,1,0,1,0
+48,chiropractor,1,1,0,0
+48,landscaper,1,0,1,0
+48,tailor,1,0,1,0
+48,bartender,1,1,0,0
+48,surgeon,1,1,0,0
+48,computer programmer,1,1,0,0
+48,movie director,1,0,1,0
+48,painter,1,1,0,0
+48,dentist,1,1,0,0
+48,groundskeeper,1,0,1,0
+48,architect,1,1,0,0
+48,stock broker,1,0,1,0
+48,police officer,1,1,0,0
+48,janitor,1,0,1,0
+48,coach,1,1,0,0
+48,rancher,1,1,0,0
+48,probation officer,1,1,0,0
+48,bell hop,1,0,1,0
+48,pilot,1,1,0,0
+48,drafting worker,1,1,0,0
+48,highway worker,1,0,1,0
+48,stone cutter,1,0,1,0
+48,logger,1,0,1,0
+48,private detective,1,1,0,0
+48,electrician,1,0,1,0
+48,fire fighter,1,1,0,0
+48,butcher,1,0,1,0
+48,guard,1,0,1,0
+48,plumber,1,0,1,0
+48,farmer,1,0,1,0
+48,carpenter,1,0,1,0
+48,trucker,1,0,1,0
+48,barber,1,0,1,0
+48,construction worker,1,0,1,0
+48,roofer,1,0,1,0
+48,auto mechanic,1,0,1,0
+48,heavy equipment operator,1,0,1,0
+49,cosmetologist,1,1,0,0
+49,manicurist,1,1,0,0
+49,secretary,1,1,0,0
+49,hairdresser,1,1,0,0
+49,flight attendant,1,1,0,0
+49,dress maker,1,1,0,0
+49,receptionist,1,1,0,0
+49,florist,1,1,0,0
+49,housekeeper,1,1,0,0
+49,child care worker,1,1,0,0
+49,kindergarten teacher,1,1,0,0
+49,interior decorator,1,1,0,0
+49,registered nurse,1,1,0,0
+49,elementary school teacher,1,1,0,0
+49,librarian,1,1,0,0
+49,cake decorator,1,1,0,0
+49,dietician,1,1,0,0
+49,exercise instructor,1,1,0,0
+49,nutritionist,1,1,0,0
+49,hair cutter,1,1,0,0
+49,physician's assistant,1,1,0,0
+49,massage therapist,1,1,0,0
+49,bookkeeper,1,1,0,0
+49,high school teacher,1,1,0,0
+49,travel agent,1,1,0,0
+49,guidance counselor,1,1,0,0
+49,dental hygienist,1,1,0,0
+49,real estate agent,1,1,0,0
+49,counseling psychologist,1,1,0,0
+49,baker,1,1,0,0
+49,school psychologist,1,1,0,0
+49,occupational therapist,1,1,0,0
+49,cashier,1,1,0,0
+49,reporter,1,1,0,0
+49,server,1,1,0,0
+49,clinical psychologist,1,1,0,0
+49,animal caretaker,1,1,0,0
+49,paralegal,1,1,0,0
+49,physical therapist,1,1,0,0
+49,singer,1,1,0,0
+49,artist,1,1,0,0
+49,veterinarian,1,1,0,0
+49,cook,1,1,0,0
+49,author,1,1,0,0
+49,photographer,1,1,0,0
+49,tour guide,1,1,0,0
+49,journalist,1,1,0,0
+49,phlebotomist,1,1,0,0
+49,writer,1,1,0,0
+49,emergency medical care,1,1,0,0
+49,graphic designer,1,1,0,0
+49,accountant,1,1,0,0
+49,lawyer,1,1,0,0
+49,concierge,1,0,1,0
+49,forensic psychologist,1,1,0,0
+49,salesperson,1,1,0,0
+49,editor,1,1,0,0
+49,insurance agent,1,0,1,0
+49,theatrical director,1,0,1,0
+49,pharmacist,1,1,0,0
+49,doctor,1,1,0,0
+49,systems analyst,1,1,0,0
+49,judge,1,1,0,0
+49,research scientist,1,1,0,0
+49,professor,1,1,0,0
+49,income tax preparer,1,0,1,0
+49,chef,1,1,0,0
+49,executive,1,1,0,0
+49,radio technician,1,1,0,0
+49,chiropractor,1,1,0,0
+49,landscaper,1,0,1,0
+49,tailor,1,1,0,0
+49,bartender,1,1,0,0
+49,surgeon,1,1,0,0
+49,computer programmer,1,1,0,0
+49,movie director,1,0,1,0
+49,painter,1,0,1,0
+49,dentist,1,1,0,0
+49,groundskeeper,1,0,1,0
+49,architect,1,1,0,0
+49,stock broker,1,0,1,0
+49,police officer,1,1,0,0
+49,janitor,1,0,1,0
+49,coach,1,0,1,0
+49,rancher,1,0,1,0
+49,probation officer,1,1,0,0
+49,bell hop,1,0,1,0
+49,pilot,1,1,0,0
+49,drafting worker,1,0,1,0
+49,highway worker,1,0,1,0
+49,stone cutter,1,0,1,0
+49,logger,1,0,1,0
+49,private detective,1,0,1,0
+49,electrician,1,0,1,0
+49,fire fighter,1,0,1,0
+49,butcher,1,0,1,0
+49,guard,1,0,1,0
+49,plumber,1,0,1,0
+49,farmer,1,0,1,0
+49,carpenter,1,0,1,0
+49,trucker,1,0,1,0
+49,barber,1,0,1,0
+49,construction worker,1,0,1,0
+49,roofer,1,0,1,0
+49,auto mechanic,1,0,1,0
+49,heavy equipment operator,1,0,1,0
+50,cosmetologist,1,1,0,0
+50,manicurist,1,1,0,0
+50,secretary,1,1,0,0
+50,hairdresser,1,1,0,0
+50,flight attendant,1,1,0,0
+50,dress maker,1,1,0,0
+50,receptionist,1,1,0,0
+50,florist,1,1,0,0
+50,housekeeper,1,1,0,0
+50,child care worker,1,1,0,0
+50,kindergarten teacher,1,1,0,0
+50,interior decorator,1,1,0,0
+50,registered nurse,1,1,0,0
+50,elementary school teacher,1,1,0,0
+50,librarian,1,1,0,0
+50,cake decorator,1,1,0,0
+50,dietician,1,1,0,0
+50,exercise instructor,1,0,1,0
+50,nutritionist,1,1,0,0
+50,hair cutter,1,1,0,0
+50,physician's assistant,1,1,0,0
+50,massage therapist,1,1,0,0
+50,bookkeeper,1,1,0,0
+50,high school teacher,1,1,0,0
+50,travel agent,1,1,0,0
+50,guidance counselor,1,0,1,0
+50,dental hygienist,1,1,0,0
+50,real estate agent,1,1,0,0
+50,counseling psychologist,1,1,0,0
+50,baker,1,1,0,0
+50,school psychologist,1,1,0,0
+50,occupational therapist,1,1,0,0
+50,cashier,1,1,0,0
+50,reporter,1,0,1,0
+50,server,1,1,0,0
+50,clinical psychologist,1,1,0,0
+50,animal caretaker,1,1,0,0
+50,paralegal,1,1,0,0
+50,physical therapist,1,1,0,0
+50,singer,1,1,0,0
+50,artist,1,1,0,0
+50,veterinarian,1,1,0,0
+50,cook,1,1,0,0
+50,author,1,1,0,0
+50,photographer,1,1,0,0
+50,tour guide,1,0,1,0
+50,journalist,1,1,0,0
+50,phlebotomist,1,1,0,0
+50,writer,1,1,0,0
+50,emergency medical care,1,1,0,0
+50,graphic designer,1,1,0,0
+50,accountant,1,1,0,0
+50,lawyer,1,0,1,0
+50,concierge,1,1,0,0
+50,forensic psychologist,1,1,0,0
+50,salesperson,1,1,0,0
+50,editor,1,1,0,0
+50,insurance agent,1,1,0,0
+50,theatrical director,1,0,1,0
+50,pharmacist,1,1,0,0
+50,doctor,1,1,0,0
+50,systems analyst,1,1,0,0
+50,judge,1,1,0,0
+50,research scientist,1,1,0,0
+50,professor,1,1,0,0
+50,income tax preparer,1,1,0,0
+50,chef,1,1,0,0
+50,executive,1,1,0,0
+50,radio technician,1,1,0,0
+50,chiropractor,1,1,0,0
+50,landscaper,1,1,0,0
+50,tailor,1,0,1,0
+50,bartender,1,1,0,0
+50,surgeon,1,1,0,0
+50,computer programmer,1,0,1,0
+50,movie director,1,1,0,0
+50,painter,1,1,0,0
+50,dentist,1,1,0,0
+50,groundskeeper,1,0,1,0
+50,architect,1,1,0,0
+50,stock broker,1,0,1,0
+50,police officer,1,1,0,0
+50,janitor,1,0,1,0
+50,coach,1,1,0,0
+50,rancher,1,0,1,0
+50,probation officer,1,1,0,0
+50,bell hop,1,0,1,0
+50,pilot,1,1,0,0
+50,drafting worker,1,1,0,0
+50,highway worker,1,0,1,0
+50,stone cutter,1,0,1,0
+50,logger,1,0,1,0
+50,private detective,1,1,0,0
+50,electrician,1,0,1,0
+50,fire fighter,1,0,1,0
+50,butcher,1,0,1,0
+50,guard,1,0,1,0
+50,plumber,1,0,1,0
+50,farmer,1,0,1,0
+50,carpenter,1,0,1,0
+50,trucker,1,0,1,0
+50,barber,1,0,1,0
+50,construction worker,1,0,1,0
+50,roofer,1,0,1,0
+50,auto mechanic,1,0,1,0
+50,heavy equipment operator,1,0,1,0
+51,cosmetologist,1,1,0,0
+51,manicurist,1,1,0,0
+51,secretary,1,1,0,0
+51,hairdresser,1,1,0,0
+51,flight attendant,1,1,0,0
+51,dress maker,1,1,0,0
+51,receptionist,1,1,0,0
+51,florist,1,1,0,0
+51,housekeeper,1,1,0,0
+51,child care worker,1,1,0,0
+51,kindergarten teacher,1,1,0,0
+51,interior decorator,1,1,0,0
+51,registered nurse,1,1,0,0
+51,elementary school teacher,1,1,0,0
+51,librarian,1,1,0,0
+51,cake decorator,1,1,0,0
+51,dietician,1,0,0,1
+51,exercise instructor,1,1,0,0
+51,nutritionist,1,1,0,0
+51,hair cutter,1,1,0,0
+51,physician's assistant,1,1,0,0
+51,massage therapist,1,1,0,0
+51,bookkeeper,1,1,0,0
+51,high school teacher,1,1,0,0
+51,travel agent,1,1,0,0
+51,guidance counselor,1,1,0,0
+51,dental hygienist,1,1,0,0
+51,real estate agent,1,1,0,0
+51,counseling psychologist,1,1,0,0
+51,baker,1,1,0,0
+51,school psychologist,1,1,0,0
+51,occupational therapist,1,1,0,0
+51,cashier,1,1,0,0
+51,reporter,1,1,0,0
+51,server,1,1,0,0
+51,clinical psychologist,1,1,0,0
+51,animal caretaker,1,1,0,0
+51,paralegal,1,1,0,0
+51,physical therapist,1,0,1,0
+51,singer,1,1,0,0
+51,artist,1,1,0,0
+51,veterinarian,1,1,0,0
+51,cook,1,1,0,0
+51,author,1,1,0,0
+51,photographer,1,1,0,0
+51,tour guide,1,1,0,0
+51,journalist,1,1,0,0
+51,phlebotomist,1,0,1,0
+51,writer,1,1,0,0
+51,emergency medical care,1,1,0,0
+51,graphic designer,1,1,0,0
+51,accountant,1,1,0,0
+51,lawyer,1,1,0,0
+51,concierge,1,0,1,0
+51,forensic psychologist,1,1,0,0
+51,salesperson,1,1,0,0
+51,editor,1,1,0,0
+51,insurance agent,1,0,1,0
+51,theatrical director,1,1,0,0
+51,pharmacist,1,1,0,0
+51,doctor,1,1,0,0
+51,systems analyst,1,1,0,0
+51,judge,1,1,0,0
+51,research scientist,1,1,0,0
+51,professor,1,1,0,0
+51,income tax preparer,1,1,0,0
+51,chef,1,1,0,0
+51,executive,1,1,0,0
+51,radio technician,1,1,0,0
+51,chiropractor,1,1,0,0
+51,landscaper,1,1,0,0
+51,tailor,1,0,1,0
+51,bartender,1,0,1,0
+51,surgeon,1,1,0,0
+51,computer programmer,1,0,1,0
+51,movie director,1,0,1,0
+51,painter,1,1,0,0
+51,dentist,1,1,0,0
+51,groundskeeper,1,0,1,0
+51,architect,1,0,1,0
+51,stock broker,1,0,1,0
+51,police officer,1,1,0,0
+51,janitor,1,0,1,0
+51,coach,1,0,1,0
+51,rancher,1,0,1,0
+51,probation officer,1,1,0,0
+51,bell hop,1,0,1,0
+51,pilot,1,1,0,0
+51,drafting worker,1,1,0,0
+51,highway worker,1,0,1,0
+51,stone cutter,1,0,1,0
+51,logger,1,0,1,0
+51,private detective,1,0,1,0
+51,electrician,1,0,1,0
+51,fire fighter,1,0,1,0
+51,butcher,1,0,1,0
+51,guard,1,1,0,0
+51,plumber,1,0,1,0
+51,farmer,1,0,1,0
+51,carpenter,1,0,1,0
+51,trucker,1,0,1,0
+51,barber,1,0,1,0
+51,construction worker,1,0,1,0
+51,roofer,1,0,1,0
+51,auto mechanic,1,1,0,0
+51,heavy equipment operator,1,0,1,0
+52,cosmetologist,1,1,0,0
+52,manicurist,1,1,0,0
+52,secretary,1,1,0,0
+52,hairdresser,1,1,0,0
+52,flight attendant,1,1,0,0
+52,dress maker,1,1,0,0
+52,receptionist,1,1,0,0
+52,florist,1,1,0,0
+52,housekeeper,1,1,0,0
+52,child care worker,1,1,0,0
+52,kindergarten teacher,1,1,0,0
+52,interior decorator,1,1,0,0
+52,registered nurse,1,1,0,0
+52,elementary school teacher,1,1,0,0
+52,librarian,1,1,0,0
+52,cake decorator,1,1,0,0
+52,dietician,1,1,0,0
+52,exercise instructor,1,0,1,0
+52,nutritionist,1,1,0,0
+52,hair cutter,1,1,0,0
+52,physician's assistant,1,1,0,0
+52,massage therapist,1,1,0,0
+52,bookkeeper,1,1,0,0
+52,high school teacher,1,0,1,0
+52,travel agent,1,1,0,0
+52,guidance counselor,1,1,0,0
+52,dental hygienist,1,1,0,0
+52,real estate agent,1,1,0,0
+52,counseling psychologist,1,1,0,0
+52,baker,1,1,0,0
+52,school psychologist,1,1,0,0
+52,occupational therapist,1,1,0,0
+52,cashier,1,1,0,0
+52,reporter,1,1,0,0
+52,server,1,1,0,0
+52,clinical psychologist,1,1,0,0
+52,animal caretaker,1,1,0,0
+52,paralegal,1,1,0,0
+52,physical therapist,1,1,0,0
+52,singer,1,1,0,0
+52,artist,1,1,0,0
+52,veterinarian,1,1,0,0
+52,cook,1,0,1,0
+52,author,1,1,0,0
+52,photographer,1,1,0,0
+52,tour guide,1,1,0,0
+52,journalist,1,1,0,0
+52,phlebotomist,1,1,0,0
+52,writer,1,1,0,0
+52,emergency medical care,1,1,0,0
+52,graphic designer,1,0,1,0
+52,accountant,1,1,0,0
+52,lawyer,1,1,0,0
+52,concierge,1,1,0,0
+52,forensic psychologist,1,1,0,0
+52,salesperson,1,0,1,0
+52,editor,1,1,0,0
+52,insurance agent,1,0,1,0
+52,theatrical director,1,1,0,0
+52,pharmacist,1,1,0,0
+52,doctor,1,1,0,0
+52,systems analyst,1,1,0,0
+52,judge,1,1,0,0
+52,research scientist,1,1,0,0
+52,professor,1,1,0,0
+52,income tax preparer,1,0,1,0
+52,chef,1,1,0,0
+52,executive,1,1,0,0
+52,radio technician,1,0,1,0
+52,chiropractor,1,1,0,0
+52,landscaper,1,0,1,0
+52,tailor,1,0,1,0
+52,bartender,1,0,1,0
+52,surgeon,1,1,0,0
+52,computer programmer,1,1,0,0
+52,movie director,1,0,1,0
+52,painter,1,1,0,0
+52,dentist,1,1,0,0
+52,groundskeeper,1,0,1,0
+52,architect,1,1,0,0
+52,stock broker,1,0,1,0
+52,police officer,1,1,0,0
+52,janitor,1,0,1,0
+52,coach,1,0,1,0
+52,rancher,1,0,1,0
+52,probation officer,1,1,0,0
+52,bell hop,1,0,1,0
+52,pilot,1,1,0,0
+52,drafting worker,1,1,0,0
+52,highway worker,1,1,0,0
+52,stone cutter,1,0,1,0
+52,logger,1,0,1,0
+52,private detective,1,1,0,0
+52,electrician,1,0,1,0
+52,fire fighter,1,1,0,0
+52,butcher,1,0,1,0
+52,guard,1,0,1,0
+52,plumber,1,0,1,0
+52,farmer,1,0,1,0
+52,carpenter,1,0,1,0
+52,trucker,1,0,1,0
+52,barber,1,0,1,0
+52,construction worker,1,0,1,0
+52,roofer,1,0,1,0
+52,auto mechanic,1,0,1,0
+52,heavy equipment operator,1,0,1,0
+53,cosmetologist,1,1,0,0
+53,manicurist,1,1,0,0
+53,secretary,1,1,0,0
+53,hairdresser,1,1,0,0
+53,flight attendant,1,1,0,0
+53,dress maker,1,1,0,0
+53,receptionist,1,1,0,0
+53,florist,1,1,0,0
+53,housekeeper,1,1,0,0
+53,child care worker,1,1,0,0
+53,kindergarten teacher,1,1,0,0
+53,interior decorator,1,1,0,0
+53,registered nurse,1,1,0,0
+53,elementary school teacher,1,1,0,0
+53,librarian,1,1,0,0
+53,cake decorator,1,1,0,0
+53,dietician,1,1,0,0
+53,exercise instructor,1,0,1,0
+53,nutritionist,1,1,0,0
+53,hair cutter,1,1,0,0
+53,physician's assistant,1,1,0,0
+53,massage therapist,1,1,0,0
+53,bookkeeper,1,1,0,0
+53,high school teacher,1,1,0,0
+53,travel agent,1,1,0,0
+53,guidance counselor,1,1,0,0
+53,dental hygienist,1,1,0,0
+53,real estate agent,1,1,0,0
+53,counseling psychologist,1,1,0,0
+53,baker,1,1,0,0
+53,school psychologist,1,1,0,0
+53,occupational therapist,1,1,0,0
+53,cashier,1,0,1,0
+53,reporter,1,1,0,0
+53,server,1,1,0,0
+53,clinical psychologist,1,1,0,0
+53,animal caretaker,1,1,0,0
+53,paralegal,1,1,0,0
+53,physical therapist,1,1,0,0
+53,singer,1,1,0,0
+53,artist,1,1,0,0
+53,veterinarian,1,1,0,0
+53,cook,1,1,0,0
+53,author,1,1,0,0
+53,photographer,1,1,0,0
+53,tour guide,1,1,0,0
+53,journalist,1,1,0,0
+53,phlebotomist,1,1,0,0
+53,writer,1,1,0,0
+53,emergency medical care,1,1,0,0
+53,graphic designer,1,1,0,0
+53,accountant,1,0,1,0
+53,lawyer,1,1,0,0
+53,concierge,1,1,0,0
+53,forensic psychologist,1,1,0,0
+53,salesperson,1,0,1,0
+53,editor,1,1,0,0
+53,insurance agent,1,1,0,0
+53,theatrical director,1,0,1,0
+53,pharmacist,1,1,0,0
+53,doctor,1,1,0,0
+53,systems analyst,1,1,0,0
+53,judge,1,1,0,0
+53,research scientist,1,1,0,0
+53,professor,1,1,0,0
+53,income tax preparer,1,1,0,0
+53,chef,1,0,1,0
+53,executive,1,0,1,0
+53,radio technician,1,1,0,0
+53,chiropractor,1,1,0,0
+53,landscaper,1,1,0,0
+53,tailor,1,0,1,0
+53,bartender,1,0,1,0
+53,surgeon,1,1,0,0
+53,computer programmer,1,0,1,0
+53,movie director,1,1,0,0
+53,painter,1,1,0,0
+53,dentist,1,1,0,0
+53,groundskeeper,1,0,1,0
+53,architect,1,1,0,0
+53,stock broker,1,0,1,0
+53,police officer,1,1,0,0
+53,janitor,1,0,1,0
+53,coach,1,0,1,0
+53,rancher,1,0,1,0
+53,probation officer,1,1,0,0
+53,bell hop,1,0,1,0
+53,pilot,1,1,0,0
+53,drafting worker,1,0,1,0
+53,highway worker,1,0,1,0
+53,stone cutter,1,0,1,0
+53,logger,1,0,1,0
+53,private detective,1,1,0,0
+53,electrician,1,0,1,0
+53,fire fighter,1,1,0,0
+53,butcher,1,0,1,0
+53,guard,1,0,1,0
+53,plumber,1,0,1,0
+53,farmer,1,0,1,0
+53,carpenter,1,0,1,0
+53,trucker,1,0,1,0
+53,barber,1,0,1,0
+53,construction worker,1,0,1,0
+53,roofer,1,0,1,0
+53,auto mechanic,1,1,0,0
+53,heavy equipment operator,1,0,1,0
+54,cosmetologist,1,1,0,0
+54,manicurist,1,1,0,0
+54,secretary,1,1,0,0
+54,hairdresser,1,1,0,0
+54,flight attendant,1,1,0,0
+54,dress maker,1,1,0,0
+54,receptionist,1,1,0,0
+54,florist,1,1,0,0
+54,housekeeper,1,1,0,0
+54,child care worker,1,1,0,0
+54,kindergarten teacher,1,1,0,0
+54,interior decorator,1,1,0,0
+54,registered nurse,1,1,0,0
+54,elementary school teacher,1,1,0,0
+54,librarian,1,1,0,0
+54,cake decorator,1,1,0,0
+54,dietician,1,1,0,0
+54,exercise instructor,1,1,0,0
+54,nutritionist,1,1,0,0
+54,hair cutter,1,1,0,0
+54,physician's assistant,1,1,0,0
+54,massage therapist,1,1,0,0
+54,bookkeeper,1,1,0,0
+54,high school teacher,1,1,0,0
+54,travel agent,1,1,0,0
+54,guidance counselor,1,1,0,0
+54,dental hygienist,1,1,0,0
+54,real estate agent,1,1,0,0
+54,counseling psychologist,1,1,0,0
+54,baker,1,0,1,0
+54,school psychologist,1,1,0,0
+54,occupational therapist,1,1,0,0
+54,cashier,1,1,0,0
+54,reporter,1,1,0,0
+54,server,1,1,0,0
+54,clinical psychologist,1,1,0,0
+54,animal caretaker,1,1,0,0
+54,paralegal,1,1,0,0
+54,physical therapist,1,1,0,0
+54,singer,1,1,0,0
+54,artist,1,1,0,0
+54,veterinarian,1,1,0,0
+54,cook,1,1,0,0
+54,author,1,1,0,0
+54,photographer,1,1,0,0
+54,tour guide,1,1,0,0
+54,journalist,1,1,0,0
+54,phlebotomist,1,1,0,0
+54,writer,1,1,0,0
+54,emergency medical care,1,1,0,0
+54,graphic designer,1,1,0,0
+54,accountant,1,1,0,0
+54,lawyer,1,1,0,0
+54,concierge,1,0,1,0
+54,forensic psychologist,1,1,0,0
+54,salesperson,1,0,1,0
+54,editor,1,1,0,0
+54,insurance agent,1,1,0,0
+54,theatrical director,1,1,0,0
+54,pharmacist,1,0,1,0
+54,doctor,1,1,0,0
+54,systems analyst,1,1,0,0
+54,judge,1,1,0,0
+54,research scientist,1,1,0,0
+54,professor,1,1,0,0
+54,income tax preparer,1,1,0,0
+54,chef,1,1,0,0
+54,executive,1,1,0,0
+54,radio technician,1,0,1,0
+54,chiropractor,1,1,0,0
+54,landscaper,1,1,0,0
+54,tailor,1,1,0,0
+54,bartender,1,1,0,0
+54,surgeon,1,1,0,0
+54,computer programmer,1,1,0,0
+54,movie director,1,0,1,0
+54,painter,1,0,1,0
+54,dentist,1,1,0,0
+54,groundskeeper,1,0,1,0
+54,architect,1,1,0,0
+54,stock broker,1,0,1,0
+54,police officer,1,1,0,0
+54,janitor,1,0,1,0
+54,coach,1,0,1,0
+54,rancher,1,0,1,0
+54,probation officer,1,1,0,0
+54,bell hop,1,0,1,0
+54,pilot,1,1,0,0
+54,drafting worker,1,1,0,0
+54,highway worker,1,0,1,0
+54,stone cutter,1,0,1,0
+54,logger,1,0,1,0
+54,private detective,1,0,1,0
+54,electrician,1,0,1,0
+54,fire fighter,1,0,1,0
+54,butcher,1,0,1,0
+54,guard,1,1,0,0
+54,plumber,1,0,1,0
+54,farmer,1,0,1,0
+54,carpenter,1,0,1,0
+54,trucker,1,0,1,0
+54,barber,1,0,1,0
+54,construction worker,1,0,1,0
+54,roofer,1,0,1,0
+54,auto mechanic,1,0,1,0
+54,heavy equipment operator,1,0,1,0
+55,cosmetologist,1,1,0,0
+55,manicurist,1,0,1,0
+55,secretary,1,1,0,0
+55,hairdresser,1,1,0,0
+55,flight attendant,1,1,0,0
+55,dress maker,1,1,0,0
+55,receptionist,1,1,0,0
+55,florist,1,1,0,0
+55,housekeeper,1,1,0,0
+55,child care worker,1,1,0,0
+55,kindergarten teacher,1,1,0,0
+55,interior decorator,1,1,0,0
+55,registered nurse,1,1,0,0
+55,elementary school teacher,1,1,0,0
+55,librarian,1,1,0,0
+55,cake decorator,1,1,0,0
+55,dietician,1,1,0,0
+55,exercise instructor,1,1,0,0
+55,nutritionist,1,1,0,0
+55,hair cutter,1,1,0,0
+55,physician's assistant,1,1,0,0
+55,massage therapist,1,1,0,0
+55,bookkeeper,1,0,1,0
+55,high school teacher,1,1,0,0
+55,travel agent,1,1,0,0
+55,guidance counselor,1,1,0,0
+55,dental hygienist,1,1,0,0
+55,real estate agent,1,1,0,0
+55,counseling psychologist,1,1,0,0
+55,baker,1,1,0,0
+55,school psychologist,1,1,0,0
+55,occupational therapist,1,1,0,0
+55,cashier,1,1,0,0
+55,reporter,1,1,0,0
+55,server,1,1,0,0
+55,clinical psychologist,1,1,0,0
+55,animal caretaker,1,1,0,0
+55,paralegal,1,1,0,0
+55,physical therapist,1,1,0,0
+55,singer,1,1,0,0
+55,artist,1,1,0,0
+55,veterinarian,1,1,0,0
+55,cook,1,0,1,0
+55,author,1,1,0,0
+55,photographer,1,1,0,0
+55,tour guide,1,1,0,0
+55,journalist,1,1,0,0
+55,phlebotomist,1,1,0,0
+55,writer,1,1,0,0
+55,emergency medical care,1,1,0,0
+55,graphic designer,1,1,0,0
+55,accountant,1,0,1,0
+55,lawyer,1,1,0,0
+55,concierge,1,0,1,0
+55,forensic psychologist,1,1,0,0
+55,salesperson,1,1,0,0
+55,editor,1,1,0,0
+55,insurance agent,1,1,0,0
+55,theatrical director,1,1,0,0
+55,pharmacist,1,1,0,0
+55,doctor,1,1,0,0
+55,systems analyst,1,0,1,0
+55,judge,1,1,0,0
+55,research scientist,1,1,0,0
+55,professor,1,1,0,0
+55,income tax preparer,1,1,0,0
+55,chef,1,1,0,0
+55,executive,1,1,0,0
+55,radio technician,1,0,1,0
+55,chiropractor,1,1,0,0
+55,landscaper,1,0,1,0
+55,tailor,1,0,1,0
+55,bartender,1,0,1,0
+55,surgeon,1,1,0,0
+55,computer programmer,1,1,0,0
+55,movie director,1,1,0,0
+55,painter,1,1,0,0
+55,dentist,1,1,0,0
+55,groundskeeper,1,0,1,0
+55,architect,1,1,0,0
+55,stock broker,1,0,1,0
+55,police officer,1,1,0,0
+55,janitor,1,0,1,0
+55,coach,1,0,1,0
+55,rancher,1,0,1,0
+55,probation officer,1,1,0,0
+55,bell hop,1,0,1,0
+55,pilot,1,1,0,0
+55,drafting worker,1,1,0,0
+55,highway worker,1,0,1,0
+55,stone cutter,1,0,1,0
+55,logger,1,0,1,0
+55,private detective,1,1,0,0
+55,electrician,1,0,1,0
+55,fire fighter,1,0,1,0
+55,butcher,1,0,1,0
+55,guard,1,0,1,0
+55,plumber,1,0,1,0
+55,farmer,1,0,1,0
+55,carpenter,1,0,1,0
+55,trucker,1,0,1,0
+55,barber,1,0,1,0
+55,construction worker,1,0,1,0
+55,roofer,1,0,1,0
+55,auto mechanic,1,0,1,0
+55,heavy equipment operator,1,1,0,0
+56,cosmetologist,1,1,0,0
+56,manicurist,1,1,0,0
+56,secretary,1,1,0,0
+56,hairdresser,1,1,0,0
+56,flight attendant,1,1,0,0
+56,dress maker,1,1,0,0
+56,receptionist,1,1,0,0
+56,florist,1,1,0,0
+56,housekeeper,1,1,0,0
+56,child care worker,1,1,0,0
+56,kindergarten teacher,1,1,0,0
+56,interior decorator,1,1,0,0
+56,registered nurse,1,1,0,0
+56,elementary school teacher,1,1,0,0
+56,librarian,1,1,0,0
+56,cake decorator,1,1,0,0
+56,dietician,1,1,0,0
+56,exercise instructor,1,1,0,0
+56,nutritionist,1,1,0,0
+56,hair cutter,1,1,0,0
+56,physician's assistant,1,0,1,0
+56,massage therapist,1,1,0,0
+56,bookkeeper,1,1,0,0
+56,high school teacher,1,1,0,0
+56,travel agent,1,1,0,0
+56,guidance counselor,1,1,0,0
+56,dental hygienist,1,1,0,0
+56,real estate agent,1,1,0,0
+56,counseling psychologist,1,1,0,0
+56,baker,1,1,0,0
+56,school psychologist,1,1,0,0
+56,occupational therapist,1,1,0,0
+56,cashier,1,1,0,0
+56,reporter,1,1,0,0
+56,server,1,1,0,0
+56,clinical psychologist,1,1,0,0
+56,animal caretaker,1,0,1,0
+56,paralegal,1,1,0,0
+56,physical therapist,1,1,0,0
+56,singer,1,1,0,0
+56,artist,1,1,0,0
+56,veterinarian,1,1,0,0
+56,cook,1,0,1,0
+56,author,1,1,0,0
+56,photographer,1,1,0,0
+56,tour guide,1,1,0,0
+56,journalist,1,1,0,0
+56,phlebotomist,1,1,0,0
+56,writer,1,0,1,0
+56,emergency medical care,1,1,0,0
+56,graphic designer,1,1,0,0
+56,accountant,1,1,0,0
+56,lawyer,1,1,0,0
+56,concierge,1,0,1,0
+56,forensic psychologist,1,1,0,0
+56,salesperson,1,1,0,0
+56,editor,1,1,0,0
+56,insurance agent,1,1,0,0
+56,theatrical director,1,1,0,0
+56,pharmacist,1,1,0,0
+56,doctor,1,1,0,0
+56,systems analyst,1,1,0,0
+56,judge,1,1,0,0
+56,research scientist,1,1,0,0
+56,professor,1,1,0,0
+56,income tax preparer,1,0,1,0
+56,chef,1,0,1,0
+56,executive,1,1,0,0
+56,radio technician,1,0,1,0
+56,chiropractor,1,1,0,0
+56,landscaper,1,0,1,0
+56,tailor,1,0,1,0
+56,bartender,1,0,1,0
+56,surgeon,1,1,0,0
+56,computer programmer,1,1,0,0
+56,movie director,1,0,1,0
+56,painter,1,1,0,0
+56,dentist,1,1,0,0
+56,groundskeeper,1,0,1,0
+56,architect,1,1,0,0
+56,stock broker,1,0,1,0
+56,police officer,1,0,1,0
+56,janitor,1,0,1,0
+56,coach,1,0,1,0
+56,rancher,1,0,1,0
+56,probation officer,1,1,0,0
+56,bell hop,1,0,1,0
+56,pilot,1,1,0,0
+56,drafting worker,1,1,0,0
+56,highway worker,1,0,1,0
+56,stone cutter,1,0,1,0
+56,logger,1,0,1,0
+56,private detective,1,1,0,0
+56,electrician,1,0,1,0
+56,fire fighter,1,1,0,0
+56,butcher,1,0,1,0
+56,guard,1,0,1,0
+56,plumber,1,0,1,0
+56,farmer,1,1,0,0
+56,carpenter,1,0,1,0
+56,trucker,1,0,1,0
+56,barber,1,0,1,0
+56,construction worker,1,0,1,0
+56,roofer,1,0,1,0
+56,auto mechanic,1,0,1,0
+56,heavy equipment operator,1,0,1,0
+57,cosmetologist,1,1,0,0
+57,manicurist,1,1,0,0
+57,secretary,1,1,0,0
+57,hairdresser,1,1,0,0
+57,flight attendant,1,1,0,0
+57,dress maker,1,1,0,0
+57,receptionist,1,1,0,0
+57,florist,1,1,0,0
+57,housekeeper,1,1,0,0
+57,child care worker,1,1,0,0
+57,kindergarten teacher,1,1,0,0
+57,interior decorator,1,1,0,0
+57,registered nurse,1,1,0,0
+57,elementary school teacher,1,1,0,0
+57,librarian,1,1,0,0
+57,cake decorator,1,1,0,0
+57,dietician,1,1,0,0
+57,exercise instructor,1,1,0,0
+57,nutritionist,1,1,0,0
+57,hair cutter,1,1,0,0
+57,physician's assistant,1,1,0,0
+57,massage therapist,1,1,0,0
+57,bookkeeper,1,1,0,0
+57,high school teacher,1,1,0,0
+57,travel agent,1,1,0,0
+57,guidance counselor,1,1,0,0
+57,dental hygienist,1,1,0,0
+57,real estate agent,1,0,1,0
+57,counseling psychologist,1,1,0,0
+57,baker,1,1,0,0
+57,school psychologist,1,1,0,0
+57,occupational therapist,1,1,0,0
+57,cashier,1,1,0,0
+57,reporter,1,1,0,0
+57,server,1,1,0,0
+57,clinical psychologist,1,1,0,0
+57,animal caretaker,1,1,0,0
+57,paralegal,1,1,0,0
+57,physical therapist,1,1,0,0
+57,singer,1,1,0,0
+57,artist,1,1,0,0
+57,veterinarian,1,1,0,0
+57,cook,1,1,0,0
+57,author,1,1,0,0
+57,photographer,1,1,0,0
+57,tour guide,1,0,1,0
+57,journalist,1,1,0,0
+57,phlebotomist,1,1,0,0
+57,writer,1,1,0,0
+57,emergency medical care,1,1,0,0
+57,graphic designer,1,1,0,0
+57,accountant,1,1,0,0
+57,lawyer,1,1,0,0
+57,concierge,1,0,1,0
+57,forensic psychologist,1,1,0,0
+57,salesperson,1,0,1,0
+57,editor,1,1,0,0
+57,insurance agent,1,1,0,0
+57,theatrical director,1,1,0,0
+57,pharmacist,1,1,0,0
+57,doctor,1,1,0,0
+57,systems analyst,1,1,0,0
+57,judge,1,1,0,0
+57,research scientist,1,1,0,0
+57,professor,1,1,0,0
+57,income tax preparer,1,1,0,0
+57,chef,1,0,1,0
+57,executive,1,1,0,0
+57,radio technician,1,0,1,0
+57,chiropractor,1,1,0,0
+57,landscaper,1,1,0,0
+57,tailor,1,0,1,0
+57,bartender,1,0,1,0
+57,surgeon,1,1,0,0
+57,computer programmer,1,0,1,0
+57,movie director,1,1,0,0
+57,painter,1,0,1,0
+57,dentist,1,1,0,0
+57,groundskeeper,1,0,1,0
+57,architect,1,0,1,0
+57,stock broker,1,1,0,0
+57,police officer,1,1,0,0
+57,janitor,1,0,1,0
+57,coach,1,0,1,0
+57,rancher,1,0,1,0
+57,probation officer,1,1,0,0
+57,bell hop,1,0,1,0
+57,pilot,1,1,0,0
+57,drafting worker,1,1,0,0
+57,highway worker,1,0,1,0
+57,stone cutter,1,0,1,0
+57,logger,1,0,1,0
+57,private detective,1,1,0,0
+57,electrician,1,0,1,0
+57,fire fighter,1,0,1,0
+57,butcher,1,0,1,0
+57,guard,1,0,1,0
+57,plumber,1,0,1,0
+57,farmer,1,0,1,0
+57,carpenter,1,0,1,0
+57,trucker,1,0,1,0
+57,barber,1,0,1,0
+57,construction worker,1,1,0,0
+57,roofer,1,0,1,0
+57,auto mechanic,1,0,1,0
+57,heavy equipment operator,1,0,1,0
+58,cosmetologist,1,1,0,0
+58,manicurist,1,0,1,0
+58,secretary,1,1,0,0
+58,hairdresser,1,1,0,0
+58,flight attendant,1,1,0,0
+58,dress maker,1,1,0,0
+58,receptionist,1,1,0,0
+58,florist,1,1,0,0
+58,housekeeper,1,1,0,0
+58,child care worker,1,1,0,0
+58,kindergarten teacher,1,1,0,0
+58,interior decorator,1,1,0,0
+58,registered nurse,1,1,0,0
+58,elementary school teacher,1,1,0,0
+58,librarian,1,1,0,0
+58,cake decorator,1,1,0,0
+58,dietician,1,1,0,0
+58,exercise instructor,1,1,0,0
+58,nutritionist,1,1,0,0
+58,hair cutter,1,1,0,0
+58,physician's assistant,1,1,0,0
+58,massage therapist,1,1,0,0
+58,bookkeeper,1,1,0,0
+58,high school teacher,1,1,0,0
+58,travel agent,1,1,0,0
+58,guidance counselor,1,1,0,0
+58,dental hygienist,1,1,0,0
+58,real estate agent,1,1,0,0
+58,counseling psychologist,1,1,0,0
+58,baker,1,1,0,0
+58,school psychologist,1,1,0,0
+58,occupational therapist,1,1,0,0
+58,cashier,1,1,0,0
+58,reporter,1,1,0,0
+58,server,1,1,0,0
+58,clinical psychologist,1,1,0,0
+58,animal caretaker,1,1,0,0
+58,paralegal,1,1,0,0
+58,physical therapist,1,1,0,0
+58,singer,1,1,0,0
+58,artist,1,1,0,0
+58,veterinarian,1,1,0,0
+58,cook,1,1,0,0
+58,author,1,1,0,0
+58,photographer,1,1,0,0
+58,tour guide,1,1,0,0
+58,journalist,1,1,0,0
+58,phlebotomist,1,1,0,0
+58,writer,1,1,0,0
+58,emergency medical care,1,1,0,0
+58,graphic designer,1,1,0,0
+58,accountant,1,0,1,0
+58,lawyer,1,1,0,0
+58,concierge,1,1,0,0
+58,forensic psychologist,1,1,0,0
+58,salesperson,1,1,0,0
+58,editor,1,1,0,0
+58,insurance agent,1,0,1,0
+58,theatrical director,1,1,0,0
+58,pharmacist,1,1,0,0
+58,doctor,1,1,0,0
+58,systems analyst,1,0,1,0
+58,judge,1,1,0,0
+58,research scientist,1,1,0,0
+58,professor,1,1,0,0
+58,income tax preparer,1,1,0,0
+58,chef,1,1,0,0
+58,executive,1,1,0,0
+58,radio technician,1,0,1,0
+58,chiropractor,1,1,0,0
+58,landscaper,1,0,1,0
+58,tailor,1,0,1,0
+58,bartender,1,0,1,0
+58,surgeon,1,1,0,0
+58,computer programmer,1,1,0,0
+58,movie director,1,1,0,0
+58,painter,1,1,0,0
+58,dentist,1,1,0,0
+58,groundskeeper,1,0,1,0
+58,architect,1,0,1,0
+58,stock broker,1,0,1,0
+58,police officer,1,1,0,0
+58,janitor,1,0,1,0
+58,coach,1,1,0,0
+58,rancher,1,0,1,0
+58,probation officer,1,1,0,0
+58,bell hop,1,0,1,0
+58,pilot,1,1,0,0
+58,drafting worker,1,1,0,0
+58,highway worker,1,0,1,0
+58,stone cutter,1,0,1,0
+58,logger,1,0,1,0
+58,private detective,1,1,0,0
+58,electrician,1,0,1,0
+58,fire fighter,1,1,0,0
+58,butcher,1,0,1,0
+58,guard,1,1,0,0
+58,plumber,1,0,1,0
+58,farmer,1,0,1,0
+58,carpenter,1,0,1,0
+58,trucker,1,0,1,0
+58,barber,1,0,1,0
+58,construction worker,1,0,1,0
+58,roofer,1,0,1,0
+58,auto mechanic,1,1,0,0
+58,heavy equipment operator,1,0,1,0
+59,cosmetologist,1,1,0,0
+59,manicurist,1,1,0,0
+59,secretary,1,1,0,0
+59,hairdresser,1,1,0,0
+59,flight attendant,1,1,0,0
+59,dress maker,1,1,0,0
+59,receptionist,1,1,0,0
+59,florist,1,1,0,0
+59,housekeeper,1,1,0,0
+59,child care worker,1,1,0,0
+59,kindergarten teacher,1,1,0,0
+59,interior decorator,1,1,0,0
+59,registered nurse,1,1,0,0
+59,elementary school teacher,1,1,0,0
+59,librarian,1,1,0,0
+59,cake decorator,1,1,0,0
+59,dietician,1,1,0,0
+59,exercise instructor,1,1,0,0
+59,nutritionist,1,1,0,0
+59,hair cutter,1,1,0,0
+59,physician's assistant,1,1,0,0
+59,massage therapist,1,1,0,0
+59,bookkeeper,1,1,0,0
+59,high school teacher,1,1,0,0
+59,travel agent,1,1,0,0
+59,guidance counselor,1,1,0,0
+59,dental hygienist,1,1,0,0
+59,real estate agent,1,1,0,0
+59,counseling psychologist,1,1,0,0
+59,baker,1,1,0,0
+59,school psychologist,1,1,0,0
+59,occupational therapist,1,1,0,0
+59,cashier,1,1,0,0
+59,reporter,1,1,0,0
+59,server,1,1,0,0
+59,clinical psychologist,1,1,0,0
+59,animal caretaker,1,1,0,0
+59,paralegal,1,1,0,0
+59,physical therapist,1,1,0,0
+59,singer,1,1,0,0
+59,artist,1,1,0,0
+59,veterinarian,1,1,0,0
+59,cook,1,1,0,0
+59,author,1,1,0,0
+59,photographer,1,1,0,0
+59,tour guide,1,1,0,0
+59,journalist,1,0,1,0
+59,phlebotomist,1,1,0,0
+59,writer,1,1,0,0
+59,emergency medical care,1,1,0,0
+59,graphic designer,1,1,0,0
+59,accountant,1,1,0,0
+59,lawyer,1,0,1,0
+59,concierge,1,0,1,0
+59,forensic psychologist,1,1,0,0
+59,salesperson,1,1,0,0
+59,editor,1,1,0,0
+59,insurance agent,1,0,1,0
+59,theatrical director,1,1,0,0
+59,pharmacist,1,1,0,0
+59,doctor,1,1,0,0
+59,systems analyst,1,0,1,0
+59,judge,1,1,0,0
+59,research scientist,1,1,0,0
+59,professor,1,1,0,0
+59,income tax preparer,1,1,0,0
+59,chef,1,1,0,0
+59,executive,1,1,0,0
+59,radio technician,1,0,1,0
+59,chiropractor,1,1,0,0
+59,landscaper,1,0,1,0
+59,tailor,1,1,0,0
+59,bartender,1,1,0,0
+59,surgeon,1,1,0,0
+59,computer programmer,1,1,0,0
+59,movie director,1,0,1,0
+59,painter,1,1,0,0
+59,dentist,1,1,0,0
+59,groundskeeper,1,0,1,0
+59,architect,1,0,1,0
+59,stock broker,1,0,1,0
+59,police officer,1,1,0,0
+59,janitor,1,0,1,0
+59,coach,1,0,1,0
+59,rancher,1,0,1,0
+59,probation officer,1,1,0,0
+59,bell hop,1,0,1,0
+59,pilot,1,1,0,0
+59,drafting worker,1,1,0,0
+59,highway worker,1,0,1,0
+59,stone cutter,1,0,1,0
+59,logger,1,0,1,0
+59,private detective,1,1,0,0
+59,electrician,1,0,1,0
+59,fire fighter,1,0,1,0
+59,butcher,1,0,1,0
+59,guard,1,0,1,0
+59,plumber,1,0,1,0
+59,farmer,1,0,1,0
+59,carpenter,1,0,1,0
+59,trucker,1,1,0,0
+59,barber,1,0,1,0
+59,construction worker,1,1,0,0
+59,roofer,1,0,1,0
+59,auto mechanic,1,0,1,0
+59,heavy equipment operator,1,1,0,0
+60,cosmetologist,1,1,0,0
+60,manicurist,1,1,0,0
+60,secretary,1,1,0,0
+60,hairdresser,1,1,0,0
+60,flight attendant,1,1,0,0
+60,dress maker,1,1,0,0
+60,receptionist,1,1,0,0
+60,florist,1,1,0,0
+60,housekeeper,1,1,0,0
+60,child care worker,1,1,0,0
+60,kindergarten teacher,1,1,0,0
+60,interior decorator,1,1,0,0
+60,registered nurse,1,1,0,0
+60,elementary school teacher,1,1,0,0
+60,librarian,1,1,0,0
+60,cake decorator,1,1,0,0
+60,dietician,1,1,0,0
+60,exercise instructor,1,1,0,0
+60,nutritionist,1,1,0,0
+60,hair cutter,1,0,1,0
+60,physician's assistant,1,1,0,0
+60,massage therapist,1,0,1,0
+60,bookkeeper,1,1,0,0
+60,high school teacher,1,1,0,0
+60,travel agent,1,1,0,0
+60,guidance counselor,1,1,0,0
+60,dental hygienist,1,1,0,0
+60,real estate agent,1,1,0,0
+60,counseling psychologist,1,1,0,0
+60,baker,1,1,0,0
+60,school psychologist,1,1,0,0
+60,occupational therapist,1,1,0,0
+60,cashier,1,0,1,0
+60,reporter,1,1,0,0
+60,server,1,1,0,0
+60,clinical psychologist,1,1,0,0
+60,animal caretaker,1,1,0,0
+60,paralegal,1,1,0,0
+60,physical therapist,1,1,0,0
+60,singer,1,1,0,0
+60,artist,1,1,0,0
+60,veterinarian,1,1,0,0
+60,cook,1,1,0,0
+60,author,1,0,1,0
+60,photographer,1,1,0,0
+60,tour guide,1,1,0,0
+60,journalist,1,1,0,0
+60,phlebotomist,1,1,0,0
+60,writer,1,0,1,0
+60,emergency medical care,1,0,1,0
+60,graphic designer,1,1,0,0
+60,accountant,1,0,1,0
+60,lawyer,1,1,0,0
+60,concierge,1,1,0,0
+60,forensic psychologist,1,1,0,0
+60,salesperson,1,0,1,0
+60,editor,1,1,0,0
+60,insurance agent,1,1,0,0
+60,theatrical director,1,1,0,0
+60,pharmacist,1,1,0,0
+60,doctor,1,1,0,0
+60,systems analyst,1,1,0,0
+60,judge,1,1,0,0
+60,research scientist,1,1,0,0
+60,professor,1,1,0,0
+60,income tax preparer,1,1,0,0
+60,chef,1,1,0,0
+60,executive,1,1,0,0
+60,radio technician,1,0,1,0
+60,chiropractor,1,1,0,0
+60,landscaper,1,0,1,0
+60,tailor,1,0,1,0
+60,bartender,1,0,1,0
+60,surgeon,1,1,0,0
+60,computer programmer,1,1,0,0
+60,movie director,1,1,0,0
+60,painter,1,1,0,0
+60,dentist,1,1,0,0
+60,groundskeeper,1,0,1,0
+60,architect,1,0,1,0
+60,stock broker,1,1,0,0
+60,police officer,1,1,0,0
+60,janitor,1,0,1,0
+60,coach,1,1,0,0
+60,rancher,1,0,1,0
+60,probation officer,1,1,0,0
+60,bell hop,1,0,1,0
+60,pilot,1,1,0,0
+60,drafting worker,1,1,0,0
+60,highway worker,1,0,1,0
+60,stone cutter,1,0,1,0
+60,logger,1,0,1,0
+60,private detective,1,0,1,0
+60,electrician,1,0,1,0
+60,fire fighter,1,0,1,0
+60,butcher,1,0,1,0
+60,guard,1,0,1,0
+60,plumber,1,0,1,0
+60,farmer,1,0,1,0
+60,carpenter,1,0,1,0
+60,trucker,1,0,1,0
+60,barber,1,0,1,0
+60,construction worker,1,0,1,0
+60,roofer,1,0,1,0
+60,auto mechanic,1,0,1,0
+60,heavy equipment operator,1,1,0,0
+61,cosmetologist,1,1,0,0
+61,manicurist,1,1,0,0
+61,secretary,1,1,0,0
+61,hairdresser,1,1,0,0
+61,flight attendant,1,1,0,0
+61,dress maker,1,1,0,0
+61,receptionist,1,1,0,0
+61,florist,1,1,0,0
+61,housekeeper,1,1,0,0
+61,child care worker,1,1,0,0
+61,kindergarten teacher,1,1,0,0
+61,interior decorator,1,1,0,0
+61,registered nurse,1,1,0,0
+61,elementary school teacher,1,1,0,0
+61,librarian,1,1,0,0
+61,cake decorator,1,1,0,0
+61,dietician,1,1,0,0
+61,exercise instructor,1,1,0,0
+61,nutritionist,1,1,0,0
+61,hair cutter,1,1,0,0
+61,physician's assistant,1,0,1,0
+61,massage therapist,1,1,0,0
+61,bookkeeper,1,1,0,0
+61,high school teacher,1,1,0,0
+61,travel agent,1,1,0,0
+61,guidance counselor,1,1,0,0
+61,dental hygienist,1,1,0,0
+61,real estate agent,1,1,0,0
+61,counseling psychologist,1,1,0,0
+61,baker,1,1,0,0
+61,school psychologist,1,1,0,0
+61,occupational therapist,1,1,0,0
+61,cashier,1,1,0,0
+61,reporter,1,1,0,0
+61,server,1,1,0,0
+61,clinical psychologist,1,1,0,0
+61,animal caretaker,1,1,0,0
+61,paralegal,1,1,0,0
+61,physical therapist,1,1,0,0
+61,singer,1,1,0,0
+61,artist,1,1,0,0
+61,veterinarian,1,1,0,0
+61,cook,1,0,1,0
+61,author,1,1,0,0
+61,photographer,1,1,0,0
+61,tour guide,1,1,0,0
+61,journalist,1,1,0,0
+61,phlebotomist,1,1,0,0
+61,writer,1,1,0,0
+61,emergency medical care,1,1,0,0
+61,graphic designer,1,1,0,0
+61,accountant,1,1,0,0
+61,lawyer,1,1,0,0
+61,concierge,1,0,1,0
+61,forensic psychologist,1,1,0,0
+61,salesperson,1,1,0,0
+61,editor,1,1,0,0
+61,insurance agent,1,0,1,0
+61,theatrical director,1,1,0,0
+61,pharmacist,1,1,0,0
+61,doctor,1,1,0,0
+61,systems analyst,1,1,0,0
+61,judge,1,1,0,0
+61,research scientist,1,1,0,0
+61,professor,1,1,0,0
+61,income tax preparer,1,1,0,0
+61,chef,1,1,0,0
+61,executive,1,1,0,0
+61,radio technician,1,0,1,0
+61,chiropractor,1,1,0,0
+61,landscaper,1,0,1,0
+61,tailor,1,0,1,0
+61,bartender,1,0,1,0
+61,surgeon,1,1,0,0
+61,computer programmer,1,0,1,0
+61,movie director,1,0,1,0
+61,painter,1,1,0,0
+61,dentist,1,1,0,0
+61,groundskeeper,1,0,1,0
+61,architect,1,0,1,0
+61,stock broker,1,0,1,0
+61,police officer,1,1,0,0
+61,janitor,1,0,1,0
+61,coach,1,1,0,0
+61,rancher,1,1,0,0
+61,probation officer,1,1,0,0
+61,bell hop,1,0,1,0
+61,pilot,1,1,0,0
+61,drafting worker,1,0,1,0
+61,highway worker,1,0,1,0
+61,stone cutter,1,0,1,0
+61,logger,1,0,1,0
+61,private detective,1,1,0,0
+61,electrician,1,0,1,0
+61,fire fighter,1,0,1,0
+61,butcher,1,0,1,0
+61,guard,1,0,1,0
+61,plumber,1,0,1,0
+61,farmer,1,0,1,0
+61,carpenter,1,0,1,0
+61,trucker,1,0,1,0
+61,barber,1,0,1,0
+61,construction worker,1,0,1,0
+61,roofer,1,0,1,0
+61,auto mechanic,1,0,1,0
+61,heavy equipment operator,1,0,1,0
+62,cosmetologist,1,1,0,0
+62,manicurist,1,1,0,0
+62,secretary,1,1,0,0
+62,hairdresser,1,1,0,0
+62,flight attendant,1,1,0,0
+62,dress maker,1,1,0,0
+62,receptionist,1,1,0,0
+62,florist,1,1,0,0
+62,housekeeper,1,1,0,0
+62,child care worker,1,1,0,0
+62,kindergarten teacher,1,1,0,0
+62,interior decorator,1,1,0,0
+62,registered nurse,1,1,0,0
+62,elementary school teacher,1,1,0,0
+62,librarian,1,1,0,0
+62,cake decorator,1,1,0,0
+62,dietician,1,1,0,0
+62,exercise instructor,1,1,0,0
+62,nutritionist,1,1,0,0
+62,hair cutter,1,1,0,0
+62,physician's assistant,1,1,0,0
+62,massage therapist,1,1,0,0
+62,bookkeeper,1,1,0,0
+62,high school teacher,1,1,0,0
+62,travel agent,1,1,0,0
+62,guidance counselor,1,1,0,0
+62,dental hygienist,1,1,0,0
+62,real estate agent,1,1,0,0
+62,counseling psychologist,1,1,0,0
+62,baker,1,1,0,0
+62,school psychologist,1,1,0,0
+62,occupational therapist,1,1,0,0
+62,cashier,1,1,0,0
+62,reporter,1,1,0,0
+62,server,1,1,0,0
+62,clinical psychologist,1,1,0,0
+62,animal caretaker,1,1,0,0
+62,paralegal,1,1,0,0
+62,physical therapist,1,1,0,0
+62,singer,1,1,0,0
+62,artist,1,1,0,0
+62,veterinarian,1,1,0,0
+62,cook,1,0,1,0
+62,author,1,1,0,0
+62,photographer,1,1,0,0
+62,tour guide,1,1,0,0
+62,journalist,1,1,0,0
+62,phlebotomist,1,0,1,0
+62,writer,1,1,0,0
+62,emergency medical care,1,1,0,0
+62,graphic designer,1,0,1,0
+62,accountant,1,1,0,0
+62,lawyer,1,1,0,0
+62,concierge,1,1,0,0
+62,forensic psychologist,1,1,0,0
+62,salesperson,1,0,1,0
+62,editor,1,1,0,0
+62,insurance agent,1,0,1,0
+62,theatrical director,1,0,1,0
+62,pharmacist,1,1,0,0
+62,doctor,1,1,0,0
+62,systems analyst,1,0,1,0
+62,judge,1,1,0,0
+62,research scientist,1,1,0,0
+62,professor,1,1,0,0
+62,income tax preparer,1,1,0,0
+62,chef,1,1,0,0
+62,executive,1,1,0,0
+62,radio technician,1,1,0,0
+62,chiropractor,1,1,0,0
+62,landscaper,1,0,1,0
+62,tailor,1,0,1,0
+62,bartender,1,1,0,0
+62,surgeon,1,1,0,0
+62,computer programmer,1,0,1,0
+62,movie director,1,1,0,0
+62,painter,1,1,0,0
+62,dentist,1,1,0,0
+62,groundskeeper,1,0,1,0
+62,architect,1,1,0,0
+62,stock broker,1,0,1,0
+62,police officer,1,1,0,0
+62,janitor,1,0,1,0
+62,coach,1,1,0,0
+62,rancher,1,0,1,0
+62,probation officer,1,1,0,0
+62,bell hop,1,0,1,0
+62,pilot,1,1,0,0
+62,drafting worker,1,1,0,0
+62,highway worker,1,0,1,0
+62,stone cutter,1,0,1,0
+62,logger,1,1,0,0
+62,private detective,1,1,0,0
+62,electrician,1,1,0,0
+62,fire fighter,1,1,0,0
+62,butcher,1,0,1,0
+62,guard,1,0,1,0
+62,plumber,1,0,1,0
+62,farmer,1,0,1,0
+62,carpenter,1,0,1,0
+62,trucker,1,0,1,0
+62,barber,1,0,1,0
+62,construction worker,1,0,1,0
+62,roofer,1,0,1,0
+62,auto mechanic,1,1,0,0
+62,heavy equipment operator,1,1,0,0
+63,cosmetologist,1,1,0,0
+63,manicurist,1,0,1,0
+63,secretary,1,1,0,0
+63,hairdresser,1,1,0,0
+63,flight attendant,1,1,0,0
+63,dress maker,1,1,0,0
+63,receptionist,1,1,0,0
+63,florist,1,1,0,0
+63,housekeeper,1,1,0,0
+63,child care worker,1,1,0,0
+63,kindergarten teacher,1,1,0,0
+63,interior decorator,1,1,0,0
+63,registered nurse,1,1,0,0
+63,elementary school teacher,1,1,0,0
+63,librarian,1,1,0,0
+63,cake decorator,1,1,0,0
+63,dietician,1,1,0,0
+63,exercise instructor,1,1,0,0
+63,nutritionist,1,1,0,0
+63,hair cutter,1,1,0,0
+63,physician's assistant,1,1,0,0
+63,massage therapist,1,1,0,0
+63,bookkeeper,1,1,0,0
+63,high school teacher,1,1,0,0
+63,travel agent,1,1,0,0
+63,guidance counselor,1,1,0,0
+63,dental hygienist,1,1,0,0
+63,real estate agent,1,1,0,0
+63,counseling psychologist,1,1,0,0
+63,baker,1,1,0,0
+63,school psychologist,1,1,0,0
+63,occupational therapist,1,1,0,0
+63,cashier,1,0,1,0
+63,reporter,1,1,0,0
+63,server,1,1,0,0
+63,clinical psychologist,1,1,0,0
+63,animal caretaker,1,1,0,0
+63,paralegal,1,1,0,0
+63,physical therapist,1,1,0,0
+63,singer,1,1,0,0
+63,artist,1,1,0,0
+63,veterinarian,1,1,0,0
+63,cook,1,0,1,0
+63,author,1,1,0,0
+63,photographer,1,1,0,0
+63,tour guide,1,1,0,0
+63,journalist,1,1,0,0
+63,phlebotomist,1,1,0,0
+63,writer,1,0,1,0
+63,emergency medical care,1,1,0,0
+63,graphic designer,1,1,0,0
+63,accountant,1,0,1,0
+63,lawyer,1,0,1,0
+63,concierge,1,1,0,0
+63,forensic psychologist,1,1,0,0
+63,salesperson,1,1,0,0
+63,editor,1,1,0,0
+63,insurance agent,1,0,1,0
+63,theatrical director,1,1,0,0
+63,pharmacist,1,1,0,0
+63,doctor,1,1,0,0
+63,systems analyst,1,1,0,0
+63,judge,1,1,0,0
+63,research scientist,1,1,0,0
+63,professor,1,1,0,0
+63,income tax preparer,1,1,0,0
+63,chef,1,0,1,0
+63,executive,1,1,0,0
+63,radio technician,1,0,1,0
+63,chiropractor,1,1,0,0
+63,landscaper,1,0,1,0
+63,tailor,1,0,1,0
+63,bartender,1,0,1,0
+63,surgeon,1,1,0,0
+63,computer programmer,1,1,0,0
+63,movie director,1,0,1,0
+63,painter,1,1,0,0
+63,dentist,1,1,0,0
+63,groundskeeper,1,0,1,0
+63,architect,1,0,1,0
+63,stock broker,1,1,0,0
+63,police officer,1,1,0,0
+63,janitor,1,0,1,0
+63,coach,1,1,0,0
+63,rancher,1,1,0,0
+63,probation officer,1,1,0,0
+63,bell hop,1,0,1,0
+63,pilot,1,1,0,0
+63,drafting worker,1,1,0,0
+63,highway worker,1,0,1,0
+63,stone cutter,1,0,1,0
+63,logger,1,0,1,0
+63,private detective,1,1,0,0
+63,electrician,1,0,1,0
+63,fire fighter,1,0,1,0
+63,butcher,1,0,1,0
+63,guard,1,0,1,0
+63,plumber,1,0,1,0
+63,farmer,1,0,1,0
+63,carpenter,1,0,1,0
+63,trucker,1,0,1,0
+63,barber,1,0,1,0
+63,construction worker,1,0,1,0
+63,roofer,1,0,1,0
+63,auto mechanic,1,0,1,0
+63,heavy equipment operator,1,0,1,0
+64,cosmetologist,1,1,0,0
+64,manicurist,1,1,0,0
+64,secretary,1,1,0,0
+64,hairdresser,1,1,0,0
+64,flight attendant,1,1,0,0
+64,dress maker,1,1,0,0
+64,receptionist,1,1,0,0
+64,florist,1,1,0,0
+64,housekeeper,1,1,0,0
+64,child care worker,1,1,0,0
+64,kindergarten teacher,1,1,0,0
+64,interior decorator,1,1,0,0
+64,registered nurse,1,1,0,0
+64,elementary school teacher,1,1,0,0
+64,librarian,1,1,0,0
+64,cake decorator,1,1,0,0
+64,dietician,1,1,0,0
+64,exercise instructor,1,0,1,0
+64,nutritionist,1,1,0,0
+64,hair cutter,1,1,0,0
+64,physician's assistant,1,1,0,0
+64,massage therapist,1,1,0,0
+64,bookkeeper,1,1,0,0
+64,high school teacher,1,0,1,0
+64,travel agent,1,1,0,0
+64,guidance counselor,1,1,0,0
+64,dental hygienist,1,1,0,0
+64,real estate agent,1,1,0,0
+64,counseling psychologist,1,1,0,0
+64,baker,1,1,0,0
+64,school psychologist,1,1,0,0
+64,occupational therapist,1,1,0,0
+64,cashier,1,1,0,0
+64,reporter,1,1,0,0
+64,server,1,1,0,0
+64,clinical psychologist,1,1,0,0
+64,animal caretaker,1,0,1,0
+64,paralegal,1,1,0,0
+64,physical therapist,1,1,0,0
+64,singer,1,1,0,0
+64,artist,1,1,0,0
+64,veterinarian,1,1,0,0
+64,cook,1,1,0,0
+64,author,1,1,0,0
+64,photographer,1,1,0,0
+64,tour guide,1,1,0,0
+64,journalist,1,1,0,0
+64,phlebotomist,1,1,0,0
+64,writer,1,0,1,0
+64,emergency medical care,1,1,0,0
+64,graphic designer,1,1,0,0
+64,accountant,1,0,1,0
+64,lawyer,1,1,0,0
+64,concierge,1,0,1,0
+64,forensic psychologist,1,1,0,0
+64,salesperson,1,0,1,0
+64,editor,1,1,0,0
+64,insurance agent,1,0,1,0
+64,theatrical director,1,0,1,0
+64,pharmacist,1,0,1,0
+64,doctor,1,1,0,0
+64,systems analyst,1,0,1,0
+64,judge,1,1,0,0
+64,research scientist,1,1,0,0
+64,professor,1,1,0,0
+64,income tax preparer,1,1,0,0
+64,chef,1,1,0,0
+64,executive,1,1,0,0
+64,radio technician,1,0,1,0
+64,chiropractor,1,1,0,0
+64,landscaper,1,0,1,0
+64,tailor,1,0,1,0
+64,bartender,1,0,1,0
+64,surgeon,1,1,0,0
+64,computer programmer,1,0,1,0
+64,movie director,1,1,0,0
+64,painter,1,1,0,0
+64,dentist,1,1,0,0
+64,groundskeeper,1,0,1,0
+64,architect,1,0,1,0
+64,stock broker,1,0,1,0
+64,police officer,1,1,0,0
+64,janitor,1,0,1,0
+64,coach,1,0,1,0
+64,rancher,1,0,1,0
+64,probation officer,1,1,0,0
+64,bell hop,1,0,1,0
+64,pilot,1,1,0,0
+64,drafting worker,1,0,1,0
+64,highway worker,1,0,1,0
+64,stone cutter,1,0,1,0
+64,logger,1,0,1,0
+64,private detective,1,0,1,0
+64,electrician,1,0,1,0
+64,fire fighter,1,0,1,0
+64,butcher,1,0,1,0
+64,guard,1,0,1,0
+64,plumber,1,0,1,0
+64,farmer,1,0,1,0
+64,carpenter,1,0,1,0
+64,trucker,1,1,0,0
+64,barber,1,0,1,0
+64,construction worker,1,0,1,0
+64,roofer,1,0,1,0
+64,auto mechanic,1,0,1,0
+64,heavy equipment operator,1,0,1,0
+65,cosmetologist,1,1,0,0
+65,manicurist,1,0,1,0
+65,secretary,1,1,0,0
+65,hairdresser,1,1,0,0
+65,flight attendant,1,1,0,0
+65,dress maker,1,1,0,0
+65,receptionist,1,1,0,0
+65,florist,1,1,0,0
+65,housekeeper,1,1,0,0
+65,child care worker,1,1,0,0
+65,kindergarten teacher,1,1,0,0
+65,interior decorator,1,1,0,0
+65,registered nurse,1,1,0,0
+65,elementary school teacher,1,1,0,0
+65,librarian,1,1,0,0
+65,cake decorator,1,1,0,0
+65,dietician,1,1,0,0
+65,exercise instructor,1,1,0,0
+65,nutritionist,1,1,0,0
+65,hair cutter,1,1,0,0
+65,physician's assistant,1,1,0,0
+65,massage therapist,1,1,0,0
+65,bookkeeper,1,1,0,0
+65,high school teacher,1,1,0,0
+65,travel agent,1,1,0,0
+65,guidance counselor,1,1,0,0
+65,dental hygienist,1,1,0,0
+65,real estate agent,1,1,0,0
+65,counseling psychologist,1,1,0,0
+65,baker,1,1,0,0
+65,school psychologist,1,1,0,0
+65,occupational therapist,1,1,0,0
+65,cashier,1,1,0,0
+65,reporter,1,1,0,0
+65,server,1,1,0,0
+65,clinical psychologist,1,1,0,0
+65,animal caretaker,1,1,0,0
+65,paralegal,1,1,0,0
+65,physical therapist,1,1,0,0
+65,singer,1,1,0,0
+65,artist,1,1,0,0
+65,veterinarian,1,1,0,0
+65,cook,1,1,0,0
+65,author,1,1,0,0
+65,photographer,1,0,1,0
+65,tour guide,1,0,1,0
+65,journalist,1,1,0,0
+65,phlebotomist,1,0,1,0
+65,writer,1,1,0,0
+65,emergency medical care,1,1,0,0
+65,graphic designer,1,1,0,0
+65,accountant,1,1,0,0
+65,lawyer,1,0,1,0
+65,concierge,1,0,1,0
+65,forensic psychologist,1,1,0,0
+65,salesperson,1,1,0,0
+65,editor,1,1,0,0
+65,insurance agent,1,0,1,0
+65,theatrical director,1,1,0,0
+65,pharmacist,1,1,0,0
+65,doctor,1,1,0,0
+65,systems analyst,1,1,0,0
+65,judge,1,1,0,0
+65,research scientist,1,1,0,0
+65,professor,1,1,0,0
+65,income tax preparer,1,1,0,0
+65,chef,1,1,0,0
+65,executive,1,1,0,0
+65,radio technician,1,0,1,0
+65,chiropractor,1,1,0,0
+65,landscaper,1,0,1,0
+65,tailor,1,0,1,0
+65,bartender,1,1,0,0
+65,surgeon,1,0,1,0
+65,computer programmer,1,0,1,0
+65,movie director,1,0,1,0
+65,painter,1,1,0,0
+65,dentist,1,1,0,0
+65,groundskeeper,1,0,1,0
+65,architect,1,1,0,0
+65,stock broker,1,0,1,0
+65,police officer,1,1,0,0
+65,janitor,1,0,1,0
+65,coach,1,0,1,0
+65,rancher,1,0,1,0
+65,probation officer,1,1,0,0
+65,bell hop,1,0,1,0
+65,pilot,1,1,0,0
+65,drafting worker,1,0,1,0
+65,highway worker,1,0,1,0
+65,stone cutter,1,0,1,0
+65,logger,1,0,1,0
+65,private detective,1,0,1,0
+65,electrician,1,0,1,0
+65,fire fighter,1,0,1,0
+65,butcher,1,0,1,0
+65,guard,1,0,1,0
+65,plumber,1,0,1,0
+65,farmer,1,0,1,0
+65,carpenter,1,0,1,0
+65,trucker,1,0,1,0
+65,barber,1,0,1,0
+65,construction worker,1,0,1,0
+65,roofer,1,0,1,0
+65,auto mechanic,1,0,1,0
+65,heavy equipment operator,1,1,0,0
+66,cosmetologist,1,1,0,0
+66,manicurist,1,1,0,0
+66,secretary,1,1,0,0
+66,hairdresser,1,1,0,0
+66,flight attendant,1,0,1,0
+66,dress maker,1,1,0,0
+66,receptionist,1,1,0,0
+66,florist,1,1,0,0
+66,housekeeper,1,1,0,0
+66,child care worker,1,1,0,0
+66,kindergarten teacher,1,1,0,0
+66,interior decorator,1,1,0,0
+66,registered nurse,1,1,0,0
+66,elementary school teacher,1,1,0,0
+66,librarian,1,1,0,0
+66,cake decorator,1,1,0,0
+66,dietician,1,1,0,0
+66,exercise instructor,1,1,0,0
+66,nutritionist,1,1,0,0
+66,hair cutter,1,1,0,0
+66,physician's assistant,1,1,0,0
+66,massage therapist,1,1,0,0
+66,bookkeeper,1,1,0,0
+66,high school teacher,1,1,0,0
+66,travel agent,1,1,0,0
+66,guidance counselor,1,0,1,0
+66,dental hygienist,1,1,0,0
+66,real estate agent,1,1,0,0
+66,counseling psychologist,1,1,0,0
+66,baker,1,0,1,0
+66,school psychologist,1,1,0,0
+66,occupational therapist,1,1,0,0
+66,cashier,1,1,0,0
+66,reporter,1,1,0,0
+66,server,1,0,1,0
+66,clinical psychologist,1,1,0,0
+66,animal caretaker,1,1,0,0
+66,paralegal,1,1,0,0
+66,physical therapist,1,1,0,0
+66,singer,1,1,0,0
+66,artist,1,1,0,0
+66,veterinarian,1,1,0,0
+66,cook,1,1,0,0
+66,author,1,1,0,0
+66,photographer,1,1,0,0
+66,tour guide,1,0,1,0
+66,journalist,1,1,0,0
+66,phlebotomist,1,1,0,0
+66,writer,1,1,0,0
+66,emergency medical care,1,1,0,0
+66,graphic designer,1,1,0,0
+66,accountant,1,1,0,0
+66,lawyer,1,1,0,0
+66,concierge,1,0,1,0
+66,forensic psychologist,1,1,0,0
+66,salesperson,1,0,1,0
+66,editor,1,1,0,0
+66,insurance agent,1,0,1,0
+66,theatrical director,1,1,0,0
+66,pharmacist,1,1,0,0
+66,doctor,1,1,0,0
+66,systems analyst,1,0,1,0
+66,judge,1,1,0,0
+66,research scientist,1,1,0,0
+66,professor,1,1,0,0
+66,income tax preparer,1,1,0,0
+66,chef,1,1,0,0
+66,executive,1,1,0,0
+66,radio technician,1,1,0,0
+66,chiropractor,1,1,0,0
+66,landscaper,1,0,1,0
+66,tailor,1,0,1,0
+66,bartender,1,0,1,0
+66,surgeon,1,1,0,0
+66,computer programmer,1,0,1,0
+66,movie director,1,0,1,0
+66,painter,1,1,0,0
+66,dentist,1,1,0,0
+66,groundskeeper,1,1,0,0
+66,architect,1,1,0,0
+66,stock broker,1,1,0,0
+66,police officer,1,1,0,0
+66,janitor,1,0,1,0
+66,coach,1,0,1,0
+66,rancher,1,0,1,0
+66,probation officer,1,1,0,0
+66,bell hop,1,0,1,0
+66,pilot,1,1,0,0
+66,drafting worker,1,0,1,0
+66,highway worker,1,0,1,0
+66,stone cutter,1,1,0,0
+66,logger,1,0,1,0
+66,private detective,1,1,0,0
+66,electrician,1,0,1,0
+66,fire fighter,1,0,1,0
+66,butcher,1,0,1,0
+66,guard,1,0,1,0
+66,plumber,1,0,1,0
+66,farmer,1,0,1,0
+66,carpenter,1,0,1,0
+66,trucker,1,0,1,0
+66,barber,1,0,1,0
+66,construction worker,1,0,1,0
+66,roofer,1,0,1,0
+66,auto mechanic,1,0,1,0
+66,heavy equipment operator,1,0,1,0
+67,cosmetologist,1,1,0,0
+67,manicurist,1,0,1,0
+67,secretary,1,1,0,0
+67,hairdresser,1,1,0,0
+67,flight attendant,1,1,0,0
+67,dress maker,1,1,0,0
+67,receptionist,1,1,0,0
+67,florist,1,0,1,0
+67,housekeeper,1,1,0,0
+67,child care worker,1,1,0,0
+67,kindergarten teacher,1,1,0,0
+67,interior decorator,1,1,0,0
+67,registered nurse,1,1,0,0
+67,elementary school teacher,1,1,0,0
+67,librarian,1,1,0,0
+67,cake decorator,1,1,0,0
+67,dietician,1,1,0,0
+67,exercise instructor,1,1,0,0
+67,nutritionist,1,1,0,0
+67,hair cutter,1,1,0,0
+67,physician's assistant,1,1,0,0
+67,massage therapist,1,1,0,0
+67,bookkeeper,1,1,0,0
+67,high school teacher,1,1,0,0
+67,travel agent,1,1,0,0
+67,guidance counselor,1,1,0,0
+67,dental hygienist,1,1,0,0
+67,real estate agent,1,1,0,0
+67,counseling psychologist,1,1,0,0
+67,baker,1,1,0,0
+67,school psychologist,1,1,0,0
+67,occupational therapist,1,1,0,0
+67,cashier,1,1,0,0
+67,reporter,1,1,0,0
+67,server,1,1,0,0
+67,clinical psychologist,1,1,0,0
+67,animal caretaker,1,1,0,0
+67,paralegal,1,1,0,0
+67,physical therapist,1,1,0,0
+67,singer,1,0,1,0
+67,artist,1,1,0,0
+67,veterinarian,1,1,0,0
+67,cook,1,1,0,0
+67,author,1,1,0,0
+67,photographer,1,1,0,0
+67,tour guide,1,1,0,0
+67,journalist,1,1,0,0
+67,phlebotomist,1,1,0,0
+67,writer,1,1,0,0
+67,emergency medical care,1,1,0,0
+67,graphic designer,1,1,0,0
+67,accountant,1,1,0,0
+67,lawyer,1,1,0,0
+67,concierge,1,0,1,0
+67,forensic psychologist,1,1,0,0
+67,salesperson,1,1,0,0
+67,editor,1,1,0,0
+67,insurance agent,1,0,1,0
+67,theatrical director,1,1,0,0
+67,pharmacist,1,1,0,0
+67,doctor,1,1,0,0
+67,systems analyst,1,1,0,0
+67,judge,1,1,0,0
+67,research scientist,1,1,0,0
+67,professor,1,1,0,0
+67,income tax preparer,1,0,1,0
+67,chef,1,1,0,0
+67,executive,1,1,0,0
+67,radio technician,1,1,0,0
+67,chiropractor,1,1,0,0
+67,landscaper,1,0,1,0
+67,tailor,1,0,1,0
+67,bartender,1,0,1,0
+67,surgeon,1,1,0,0
+67,computer programmer,1,1,0,0
+67,movie director,1,0,1,0
+67,painter,1,1,0,0
+67,dentist,1,1,0,0
+67,groundskeeper,1,0,1,0
+67,architect,1,1,0,0
+67,stock broker,1,0,1,0
+67,police officer,1,1,0,0
+67,janitor,1,0,1,0
+67,coach,1,0,1,0
+67,rancher,1,0,1,0
+67,probation officer,1,1,0,0
+67,bell hop,1,0,1,0
+67,pilot,1,1,0,0
+67,drafting worker,1,1,0,0
+67,highway worker,1,1,0,0
+67,stone cutter,1,0,1,0
+67,logger,1,0,1,0
+67,private detective,1,0,1,0
+67,electrician,1,0,1,0
+67,fire fighter,1,0,1,0
+67,butcher,1,0,1,0
+67,guard,1,0,1,0
+67,plumber,1,0,1,0
+67,farmer,1,0,1,0
+67,carpenter,1,0,1,0
+67,trucker,1,0,1,0
+67,barber,1,0,1,0
+67,construction worker,1,0,1,0
+67,roofer,1,0,1,0
+67,auto mechanic,1,0,1,0
+67,heavy equipment operator,1,0,1,0
+68,cosmetologist,1,1,0,0
+68,manicurist,1,1,0,0
+68,secretary,1,1,0,0
+68,hairdresser,1,1,0,0
+68,flight attendant,1,1,0,0
+68,dress maker,1,1,0,0
+68,receptionist,1,1,0,0
+68,florist,1,1,0,0
+68,housekeeper,1,1,0,0
+68,child care worker,1,1,0,0
+68,kindergarten teacher,1,1,0,0
+68,interior decorator,1,1,0,0
+68,registered nurse,1,1,0,0
+68,elementary school teacher,1,1,0,0
+68,librarian,1,1,0,0
+68,cake decorator,1,1,0,0
+68,dietician,1,1,0,0
+68,exercise instructor,1,0,1,0
+68,nutritionist,1,1,0,0
+68,hair cutter,1,0,1,0
+68,physician's assistant,1,1,0,0
+68,massage therapist,1,1,0,0
+68,bookkeeper,1,0,1,0
+68,high school teacher,1,1,0,0
+68,travel agent,1,1,0,0
+68,guidance counselor,1,1,0,0
+68,dental hygienist,1,1,0,0
+68,real estate agent,1,0,1,0
+68,counseling psychologist,1,1,0,0
+68,baker,1,1,0,0
+68,school psychologist,1,1,0,0
+68,occupational therapist,1,1,0,0
+68,cashier,1,1,0,0
+68,reporter,1,1,0,0
+68,server,1,1,0,0
+68,clinical psychologist,1,1,0,0
+68,animal caretaker,1,1,0,0
+68,paralegal,1,1,0,0
+68,physical therapist,1,1,0,0
+68,singer,1,1,0,0
+68,artist,1,0,1,0
+68,veterinarian,1,1,0,0
+68,cook,1,1,0,0
+68,author,1,1,0,0
+68,photographer,1,1,0,0
+68,tour guide,1,1,0,0
+68,journalist,1,1,0,0
+68,phlebotomist,1,1,0,0
+68,writer,1,0,1,0
+68,emergency medical care,1,1,0,0
+68,graphic designer,1,1,0,0
+68,accountant,1,1,0,0
+68,lawyer,1,0,1,0
+68,concierge,1,0,1,0
+68,forensic psychologist,1,1,0,0
+68,salesperson,1,0,1,0
+68,editor,1,1,0,0
+68,insurance agent,1,0,1,0
+68,theatrical director,1,0,1,0
+68,pharmacist,1,1,0,0
+68,doctor,1,1,0,0
+68,systems analyst,1,0,1,0
+68,judge,1,1,0,0
+68,research scientist,1,1,0,0
+68,professor,1,1,0,0
+68,income tax preparer,1,0,1,0
+68,chef,1,1,0,0
+68,executive,1,1,0,0
+68,radio technician,1,0,1,0
+68,chiropractor,1,1,0,0
+68,landscaper,1,0,1,0
+68,tailor,1,0,1,0
+68,bartender,1,0,1,0
+68,surgeon,1,1,0,0
+68,computer programmer,1,1,0,0
+68,movie director,1,0,1,0
+68,painter,1,1,0,0
+68,dentist,1,1,0,0
+68,groundskeeper,1,0,1,0
+68,architect,1,1,0,0
+68,stock broker,1,1,0,0
+68,police officer,1,1,0,0
+68,janitor,1,0,1,0
+68,coach,1,0,1,0
+68,rancher,1,0,1,0
+68,probation officer,1,1,0,0
+68,bell hop,1,0,1,0
+68,pilot,1,1,0,0
+68,drafting worker,1,1,0,0
+68,highway worker,1,0,1,0
+68,stone cutter,1,0,1,0
+68,logger,1,0,1,0
+68,private detective,1,0,1,0
+68,electrician,1,0,1,0
+68,fire fighter,1,0,1,0
+68,butcher,1,0,1,0
+68,guard,1,0,1,0
+68,plumber,1,0,1,0
+68,farmer,1,0,1,0
+68,carpenter,1,0,1,0
+68,trucker,1,0,1,0
+68,barber,1,0,1,0
+68,construction worker,1,0,1,0
+68,roofer,1,1,0,0
+68,auto mechanic,1,1,0,0
+68,heavy equipment operator,1,0,1,0
+69,cosmetologist,1,1,0,0
+69,manicurist,1,1,0,0
+69,secretary,1,1,0,0
+69,hairdresser,1,1,0,0
+69,flight attendant,1,1,0,0
+69,dress maker,1,1,0,0
+69,receptionist,1,1,0,0
+69,florist,1,1,0,0
+69,housekeeper,1,1,0,0
+69,child care worker,1,1,0,0
+69,kindergarten teacher,1,1,0,0
+69,interior decorator,1,1,0,0
+69,registered nurse,1,1,0,0
+69,elementary school teacher,1,1,0,0
+69,librarian,1,1,0,0
+69,cake decorator,1,1,0,0
+69,dietician,1,1,0,0
+69,exercise instructor,1,1,0,0
+69,nutritionist,1,1,0,0
+69,hair cutter,1,1,0,0
+69,physician's assistant,1,0,1,0
+69,massage therapist,1,1,0,0
+69,bookkeeper,1,1,0,0
+69,high school teacher,1,0,1,0
+69,travel agent,1,0,1,0
+69,guidance counselor,1,1,0,0
+69,dental hygienist,1,1,0,0
+69,real estate agent,1,1,0,0
+69,counseling psychologist,1,1,0,0
+69,baker,1,1,0,0
+69,school psychologist,1,1,0,0
+69,occupational therapist,1,1,0,0
+69,cashier,1,1,0,0
+69,reporter,1,1,0,0
+69,server,1,1,0,0
+69,clinical psychologist,1,1,0,0
+69,animal caretaker,1,1,0,0
+69,paralegal,1,1,0,0
+69,physical therapist,1,1,0,0
+69,singer,1,1,0,0
+69,artist,1,1,0,0
+69,veterinarian,1,1,0,0
+69,cook,1,1,0,0
+69,author,1,1,0,0
+69,photographer,1,1,0,0
+69,tour guide,1,1,0,0
+69,journalist,1,1,0,0
+69,phlebotomist,1,1,0,0
+69,writer,1,1,0,0
+69,emergency medical care,1,1,0,0
+69,graphic designer,1,1,0,0
+69,accountant,1,1,0,0
+69,lawyer,1,0,1,0
+69,concierge,1,1,0,0
+69,forensic psychologist,1,1,0,0
+69,salesperson,1,1,0,0
+69,editor,1,1,0,0
+69,insurance agent,1,1,0,0
+69,theatrical director,1,0,1,0
+69,pharmacist,1,1,0,0
+69,doctor,1,1,0,0
+69,systems analyst,1,1,0,0
+69,judge,1,1,0,0
+69,research scientist,1,1,0,0
+69,professor,1,1,0,0
+69,income tax preparer,1,1,0,0
+69,chef,1,1,0,0
+69,executive,1,0,1,0
+69,radio technician,1,1,0,0
+69,chiropractor,1,1,0,0
+69,landscaper,1,0,1,0
+69,tailor,1,0,1,0
+69,bartender,1,1,0,0
+69,surgeon,1,1,0,0
+69,computer programmer,1,0,1,0
+69,movie director,1,0,1,0
+69,painter,1,1,0,0
+69,dentist,1,1,0,0
+69,groundskeeper,1,0,1,0
+69,architect,1,1,0,0
+69,stock broker,1,0,1,0
+69,police officer,1,1,0,0
+69,janitor,1,0,1,0
+69,coach,1,1,0,0
+69,rancher,1,0,1,0
+69,probation officer,1,1,0,0
+69,bell hop,1,0,1,0
+69,pilot,1,1,0,0
+69,drafting worker,1,1,0,0
+69,highway worker,1,0,1,0
+69,stone cutter,1,0,1,0
+69,logger,1,0,1,0
+69,private detective,1,1,0,0
+69,electrician,1,0,1,0
+69,fire fighter,1,0,1,0
+69,butcher,1,0,1,0
+69,guard,1,0,1,0
+69,plumber,1,0,1,0
+69,farmer,1,0,1,0
+69,carpenter,1,0,1,0
+69,trucker,1,0,1,0
+69,barber,1,0,1,0
+69,construction worker,1,0,1,0
+69,roofer,1,0,1,0
+69,auto mechanic,1,0,1,0
+69,heavy equipment operator,1,0,1,0
+70,cosmetologist,1,1,0,0
+70,manicurist,1,1,0,0
+70,secretary,1,1,0,0
+70,hairdresser,1,1,0,0
+70,flight attendant,1,1,0,0
+70,dress maker,1,1,0,0
+70,receptionist,1,1,0,0
+70,florist,1,1,0,0
+70,housekeeper,1,1,0,0
+70,child care worker,1,1,0,0
+70,kindergarten teacher,1,1,0,0
+70,interior decorator,1,1,0,0
+70,registered nurse,1,1,0,0
+70,elementary school teacher,1,1,0,0
+70,librarian,1,1,0,0
+70,cake decorator,1,1,0,0
+70,dietician,1,1,0,0
+70,exercise instructor,1,1,0,0
+70,nutritionist,1,1,0,0
+70,hair cutter,1,1,0,0
+70,physician's assistant,1,1,0,0
+70,massage therapist,1,1,0,0
+70,bookkeeper,1,1,0,0
+70,high school teacher,1,1,0,0
+70,travel agent,1,1,0,0
+70,guidance counselor,1,1,0,0
+70,dental hygienist,1,1,0,0
+70,real estate agent,1,1,0,0
+70,counseling psychologist,1,1,0,0
+70,baker,1,1,0,0
+70,school psychologist,1,1,0,0
+70,occupational therapist,1,1,0,0
+70,cashier,1,1,0,0
+70,reporter,1,1,0,0
+70,server,1,1,0,0
+70,clinical psychologist,1,1,0,0
+70,animal caretaker,1,1,0,0
+70,paralegal,1,1,0,0
+70,physical therapist,1,1,0,0
+70,singer,1,1,0,0
+70,artist,1,1,0,0
+70,veterinarian,1,1,0,0
+70,cook,1,1,0,0
+70,author,1,1,0,0
+70,photographer,1,1,0,0
+70,tour guide,1,0,1,0
+70,journalist,1,1,0,0
+70,phlebotomist,1,1,0,0
+70,writer,1,1,0,0
+70,emergency medical care,1,1,0,0
+70,graphic designer,1,1,0,0
+70,accountant,1,0,1,0
+70,lawyer,1,0,1,0
+70,concierge,1,1,0,0
+70,forensic psychologist,1,1,0,0
+70,salesperson,1,1,0,0
+70,editor,1,1,0,0
+70,insurance agent,1,0,1,0
+70,theatrical director,1,1,0,0
+70,pharmacist,1,1,0,0
+70,doctor,1,1,0,0
+70,systems analyst,1,0,1,0
+70,judge,1,1,0,0
+70,research scientist,1,1,0,0
+70,professor,1,1,0,0
+70,income tax preparer,1,0,1,0
+70,chef,1,1,0,0
+70,executive,1,1,0,0
+70,radio technician,1,0,1,0
+70,chiropractor,1,1,0,0
+70,landscaper,1,0,1,0
+70,tailor,1,0,1,0
+70,bartender,1,1,0,0
+70,surgeon,1,1,0,0
+70,computer programmer,1,0,1,0
+70,movie director,1,0,1,0
+70,painter,1,1,0,0
+70,dentist,1,1,0,0
+70,groundskeeper,1,0,1,0
+70,architect,1,1,0,0
+70,stock broker,1,0,1,0
+70,police officer,1,1,0,0
+70,janitor,1,0,1,0
+70,coach,1,0,1,0
+70,rancher,1,0,1,0
+70,probation officer,1,1,0,0
+70,bell hop,1,0,1,0
+70,pilot,1,1,0,0
+70,drafting worker,1,1,0,0
+70,highway worker,1,0,1,0
+70,stone cutter,1,0,1,0
+70,logger,1,0,1,0
+70,private detective,1,0,1,0
+70,electrician,1,0,1,0
+70,fire fighter,1,0,1,0
+70,butcher,1,0,1,0
+70,guard,1,1,0,0
+70,plumber,1,0,1,0
+70,farmer,1,0,1,0
+70,carpenter,1,0,1,0
+70,trucker,1,0,1,0
+70,barber,1,0,1,0
+70,construction worker,1,0,1,0
+70,roofer,1,0,1,0
+70,auto mechanic,1,1,0,0
+70,heavy equipment operator,1,0,1,0
+71,cosmetologist,1,1,0,0
+71,manicurist,1,1,0,0
+71,secretary,1,1,0,0
+71,hairdresser,1,1,0,0
+71,flight attendant,1,1,0,0
+71,dress maker,1,1,0,0
+71,receptionist,1,1,0,0
+71,florist,1,1,0,0
+71,housekeeper,1,1,0,0
+71,child care worker,1,1,0,0
+71,kindergarten teacher,1,1,0,0
+71,interior decorator,1,1,0,0
+71,registered nurse,1,1,0,0
+71,elementary school teacher,1,1,0,0
+71,librarian,1,1,0,0
+71,cake decorator,1,1,0,0
+71,dietician,1,1,0,0
+71,exercise instructor,1,0,1,0
+71,nutritionist,1,1,0,0
+71,hair cutter,1,1,0,0
+71,physician's assistant,1,0,1,0
+71,massage therapist,1,1,0,0
+71,bookkeeper,1,1,0,0
+71,high school teacher,1,1,0,0
+71,travel agent,1,1,0,0
+71,guidance counselor,1,1,0,0
+71,dental hygienist,1,1,0,0
+71,real estate agent,1,1,0,0
+71,counseling psychologist,1,1,0,0
+71,baker,1,0,1,0
+71,school psychologist,1,1,0,0
+71,occupational therapist,1,1,0,0
+71,cashier,1,1,0,0
+71,reporter,1,1,0,0
+71,server,1,1,0,0
+71,clinical psychologist,1,1,0,0
+71,animal caretaker,1,1,0,0
+71,paralegal,1,1,0,0
+71,physical therapist,1,1,0,0
+71,singer,1,1,0,0
+71,artist,1,0,1,0
+71,veterinarian,1,1,0,0
+71,cook,1,1,0,0
+71,author,1,1,0,0
+71,photographer,1,1,0,0
+71,tour guide,1,0,1,0
+71,journalist,1,1,0,0
+71,phlebotomist,1,1,0,0
+71,writer,1,1,0,0
+71,emergency medical care,1,1,0,0
+71,graphic designer,1,1,0,0
+71,accountant,1,1,0,0
+71,lawyer,1,1,0,0
+71,concierge,1,1,0,0
+71,forensic psychologist,1,1,0,0
+71,salesperson,1,1,0,0
+71,editor,1,1,0,0
+71,insurance agent,1,0,1,0
+71,theatrical director,1,1,0,0
+71,pharmacist,1,1,0,0
+71,doctor,1,1,0,0
+71,systems analyst,1,1,0,0
+71,judge,1,1,0,0
+71,research scientist,1,1,0,0
+71,professor,1,1,0,0
+71,income tax preparer,1,1,0,0
+71,chef,1,1,0,0
+71,executive,1,1,0,0
+71,radio technician,1,0,1,0
+71,chiropractor,1,1,0,0
+71,landscaper,1,1,0,0
+71,tailor,1,0,1,0
+71,bartender,1,0,1,0
+71,surgeon,1,1,0,0
+71,computer programmer,1,1,0,0
+71,movie director,1,0,1,0
+71,painter,1,1,0,0
+71,dentist,1,1,0,0
+71,groundskeeper,1,0,1,0
+71,architect,1,1,0,0
+71,stock broker,1,0,1,0
+71,police officer,1,1,0,0
+71,janitor,1,0,1,0
+71,coach,1,1,0,0
+71,rancher,1,0,1,0
+71,probation officer,1,1,0,0
+71,bell hop,1,0,1,0
+71,pilot,1,1,0,0
+71,drafting worker,1,0,1,0
+71,highway worker,1,0,1,0
+71,stone cutter,1,0,1,0
+71,logger,1,0,1,0
+71,private detective,1,0,1,0
+71,electrician,1,0,1,0
+71,fire fighter,1,1,0,0
+71,butcher,1,0,1,0
+71,guard,1,0,1,0
+71,plumber,1,0,1,0
+71,farmer,1,0,1,0
+71,carpenter,1,0,1,0
+71,trucker,1,0,1,0
+71,barber,1,0,1,0
+71,construction worker,1,0,1,0
+71,roofer,1,0,1,0
+71,auto mechanic,1,0,1,0
+71,heavy equipment operator,1,0,1,0
+72,cosmetologist,1,1,0,0
+72,manicurist,1,1,0,0
+72,secretary,1,1,0,0
+72,hairdresser,1,1,0,0
+72,flight attendant,1,1,0,0
+72,dress maker,1,1,0,0
+72,receptionist,1,1,0,0
+72,florist,1,1,0,0
+72,housekeeper,1,1,0,0
+72,child care worker,1,1,0,0
+72,kindergarten teacher,1,1,0,0
+72,interior decorator,1,1,0,0
+72,registered nurse,1,1,0,0
+72,elementary school teacher,1,1,0,0
+72,librarian,1,1,0,0
+72,cake decorator,1,1,0,0
+72,dietician,1,1,0,0
+72,exercise instructor,1,0,1,0
+72,nutritionist,1,1,0,0
+72,hair cutter,1,1,0,0
+72,physician's assistant,1,1,0,0
+72,massage therapist,1,1,0,0
+72,bookkeeper,1,1,0,0
+72,high school teacher,1,1,0,0
+72,travel agent,1,1,0,0
+72,guidance counselor,1,1,0,0
+72,dental hygienist,1,1,0,0
+72,real estate agent,1,1,0,0
+72,counseling psychologist,1,1,0,0
+72,baker,1,1,0,0
+72,school psychologist,1,1,0,0
+72,occupational therapist,1,1,0,0
+72,cashier,1,1,0,0
+72,reporter,1,1,0,0
+72,server,1,1,0,0
+72,clinical psychologist,1,1,0,0
+72,animal caretaker,1,1,0,0
+72,paralegal,1,1,0,0
+72,physical therapist,1,1,0,0
+72,singer,1,1,0,0
+72,artist,1,1,0,0
+72,veterinarian,1,1,0,0
+72,cook,1,0,1,0
+72,author,1,0,1,0
+72,photographer,1,1,0,0
+72,tour guide,1,1,0,0
+72,journalist,1,1,0,0
+72,phlebotomist,1,1,0,0
+72,writer,1,1,0,0
+72,emergency medical care,1,1,0,0
+72,graphic designer,1,1,0,0
+72,accountant,1,0,1,0
+72,lawyer,1,1,0,0
+72,concierge,1,1,0,0
+72,forensic psychologist,1,1,0,0
+72,salesperson,1,1,0,0
+72,editor,1,1,0,0
+72,insurance agent,1,1,0,0
+72,theatrical director,1,1,0,0
+72,pharmacist,1,1,0,0
+72,doctor,1,1,0,0
+72,systems analyst,1,0,1,0
+72,judge,1,1,0,0
+72,research scientist,1,1,0,0
+72,professor,1,1,0,0
+72,income tax preparer,1,1,0,0
+72,chef,1,1,0,0
+72,executive,1,1,0,0
+72,radio technician,1,0,1,0
+72,chiropractor,1,1,0,0
+72,landscaper,1,0,1,0
+72,tailor,1,0,1,0
+72,bartender,1,0,1,0
+72,surgeon,1,1,0,0
+72,computer programmer,1,0,1,0
+72,movie director,1,1,0,0
+72,painter,1,1,0,0
+72,dentist,1,1,0,0
+72,groundskeeper,1,0,1,0
+72,architect,1,1,0,0
+72,stock broker,1,0,1,0
+72,police officer,1,1,0,0
+72,janitor,1,0,1,0
+72,coach,1,0,1,0
+72,rancher,1,0,1,0
+72,probation officer,1,1,0,0
+72,bell hop,1,0,1,0
+72,pilot,1,1,0,0
+72,drafting worker,1,0,1,0
+72,highway worker,1,0,1,0
+72,stone cutter,1,0,1,0
+72,logger,1,0,1,0
+72,private detective,1,0,1,0
+72,electrician,1,0,1,0
+72,fire fighter,1,0,1,0
+72,butcher,1,0,1,0
+72,guard,1,0,1,0
+72,plumber,1,0,1,0
+72,farmer,1,0,1,0
+72,carpenter,1,0,1,0
+72,trucker,1,0,1,0
+72,barber,1,0,1,0
+72,construction worker,1,0,1,0
+72,roofer,1,0,1,0
+72,auto mechanic,1,1,0,0
+72,heavy equipment operator,1,0,1,0
+73,cosmetologist,1,1,0,0
+73,manicurist,1,1,0,0
+73,secretary,1,1,0,0
+73,hairdresser,1,1,0,0
+73,flight attendant,1,1,0,0
+73,dress maker,1,1,0,0
+73,receptionist,1,1,0,0
+73,florist,1,1,0,0
+73,housekeeper,1,1,0,0
+73,child care worker,1,1,0,0
+73,kindergarten teacher,1,1,0,0
+73,interior decorator,1,1,0,0
+73,registered nurse,1,0,1,0
+73,elementary school teacher,1,1,0,0
+73,librarian,1,1,0,0
+73,cake decorator,1,1,0,0
+73,dietician,1,1,0,0
+73,exercise instructor,1,1,0,0
+73,nutritionist,1,1,0,0
+73,hair cutter,1,0,1,0
+73,physician's assistant,1,1,0,0
+73,massage therapist,1,1,0,0
+73,bookkeeper,1,1,0,0
+73,high school teacher,1,1,0,0
+73,travel agent,1,1,0,0
+73,guidance counselor,1,1,0,0
+73,dental hygienist,1,1,0,0
+73,real estate agent,1,1,0,0
+73,counseling psychologist,1,1,0,0
+73,baker,1,1,0,0
+73,school psychologist,1,1,0,0
+73,occupational therapist,1,1,0,0
+73,cashier,1,1,0,0
+73,reporter,1,1,0,0
+73,server,1,1,0,0
+73,clinical psychologist,1,1,0,0
+73,animal caretaker,1,1,0,0
+73,paralegal,1,1,0,0
+73,physical therapist,1,1,0,0
+73,singer,1,1,0,0
+73,artist,1,1,0,0
+73,veterinarian,1,1,0,0
+73,cook,1,1,0,0
+73,author,1,1,0,0
+73,photographer,1,1,0,0
+73,tour guide,1,1,0,0
+73,journalist,1,1,0,0
+73,phlebotomist,1,0,1,0
+73,writer,1,1,0,0
+73,emergency medical care,1,1,0,0
+73,graphic designer,1,1,0,0
+73,accountant,1,0,1,0
+73,lawyer,1,1,0,0
+73,concierge,1,1,0,0
+73,forensic psychologist,1,1,0,0
+73,salesperson,1,0,1,0
+73,editor,1,1,0,0
+73,insurance agent,1,0,1,0
+73,theatrical director,1,0,1,0
+73,pharmacist,1,1,0,0
+73,doctor,1,1,0,0
+73,systems analyst,1,1,0,0
+73,judge,1,1,0,0
+73,research scientist,1,1,0,0
+73,professor,1,1,0,0
+73,income tax preparer,1,1,0,0
+73,chef,1,1,0,0
+73,executive,1,1,0,0
+73,radio technician,1,0,1,0
+73,chiropractor,1,1,0,0
+73,landscaper,1,0,1,0
+73,tailor,1,0,1,0
+73,bartender,1,1,0,0
+73,surgeon,1,1,0,0
+73,computer programmer,1,1,0,0
+73,movie director,1,1,0,0
+73,painter,1,1,0,0
+73,dentist,1,1,0,0
+73,groundskeeper,1,0,1,0
+73,architect,1,1,0,0
+73,stock broker,1,0,1,0
+73,police officer,1,1,0,0
+73,janitor,1,1,0,0
+73,coach,1,0,1,0
+73,rancher,1,0,1,0
+73,probation officer,1,1,0,0
+73,bell hop,1,0,1,0
+73,pilot,1,1,0,0
+73,drafting worker,1,1,0,0
+73,highway worker,1,0,1,0
+73,stone cutter,1,1,0,0
+73,logger,1,0,1,0
+73,private detective,1,0,1,0
+73,electrician,1,0,1,0
+73,fire fighter,1,0,1,0
+73,butcher,1,0,1,0
+73,guard,1,0,1,0
+73,plumber,1,0,1,0
+73,farmer,1,0,1,0
+73,carpenter,1,0,1,0
+73,trucker,1,0,1,0
+73,barber,1,0,1,0
+73,construction worker,1,0,1,0
+73,roofer,1,0,1,0
+73,auto mechanic,1,0,1,0
+73,heavy equipment operator,1,0,1,0
+74,cosmetologist,1,1,0,0
+74,manicurist,1,0,1,0
+74,secretary,1,1,0,0
+74,hairdresser,1,1,0,0
+74,flight attendant,1,1,0,0
+74,dress maker,1,1,0,0
+74,receptionist,1,1,0,0
+74,florist,1,1,0,0
+74,housekeeper,1,1,0,0
+74,child care worker,1,1,0,0
+74,kindergarten teacher,1,1,0,0
+74,interior decorator,1,1,0,0
+74,registered nurse,1,1,0,0
+74,elementary school teacher,1,1,0,0
+74,librarian,1,1,0,0
+74,cake decorator,1,1,0,0
+74,dietician,1,1,0,0
+74,exercise instructor,1,1,0,0
+74,nutritionist,1,1,0,0
+74,hair cutter,1,1,0,0
+74,physician's assistant,1,1,0,0
+74,massage therapist,1,1,0,0
+74,bookkeeper,1,1,0,0
+74,high school teacher,1,1,0,0
+74,travel agent,1,1,0,0
+74,guidance counselor,1,1,0,0
+74,dental hygienist,1,1,0,0
+74,real estate agent,1,1,0,0
+74,counseling psychologist,1,1,0,0
+74,baker,1,1,0,0
+74,school psychologist,1,1,0,0
+74,occupational therapist,1,1,0,0
+74,cashier,1,1,0,0
+74,reporter,1,1,0,0
+74,server,1,1,0,0
+74,clinical psychologist,1,1,0,0
+74,animal caretaker,1,1,0,0
+74,paralegal,1,1,0,0
+74,physical therapist,1,1,0,0
+74,singer,1,1,0,0
+74,artist,1,1,0,0
+74,veterinarian,1,1,0,0
+74,cook,1,1,0,0
+74,author,1,1,0,0
+74,photographer,1,1,0,0
+74,tour guide,1,1,0,0
+74,journalist,1,1,0,0
+74,phlebotomist,1,1,0,0
+74,writer,1,1,0,0
+74,emergency medical care,1,1,0,0
+74,graphic designer,1,1,0,0
+74,accountant,1,1,0,0
+74,lawyer,1,0,1,0
+74,concierge,1,0,1,0
+74,forensic psychologist,1,1,0,0
+74,salesperson,1,0,1,0
+74,editor,1,1,0,0
+74,insurance agent,1,0,1,0
+74,theatrical director,1,0,1,0
+74,pharmacist,1,1,0,0
+74,doctor,1,1,0,0
+74,systems analyst,1,0,1,0
+74,judge,1,1,0,0
+74,research scientist,1,1,0,0
+74,professor,1,1,0,0
+74,income tax preparer,1,1,0,0
+74,chef,1,1,0,0
+74,executive,1,1,0,0
+74,radio technician,1,0,1,0
+74,chiropractor,1,1,0,0
+74,landscaper,1,0,1,0
+74,tailor,1,0,1,0
+74,bartender,1,0,1,0
+74,surgeon,1,1,0,0
+74,computer programmer,1,0,1,0
+74,movie director,1,0,1,0
+74,painter,1,1,0,0
+74,dentist,1,1,0,0
+74,groundskeeper,1,0,1,0
+74,architect,1,0,1,0
+74,stock broker,1,0,1,0
+74,police officer,1,1,0,0
+74,janitor,1,0,1,0
+74,coach,1,0,1,0
+74,rancher,1,0,1,0
+74,probation officer,1,1,0,0
+74,bell hop,1,0,1,0
+74,pilot,1,1,0,0
+74,drafting worker,1,1,0,0
+74,highway worker,1,0,1,0
+74,stone cutter,1,0,1,0
+74,logger,1,0,1,0
+74,private detective,1,1,0,0
+74,electrician,1,0,1,0
+74,fire fighter,1,0,1,0
+74,butcher,1,0,1,0
+74,guard,1,0,1,0
+74,plumber,1,0,1,0
+74,farmer,1,0,1,0
+74,carpenter,1,0,1,0
+74,trucker,1,0,1,0
+74,barber,1,0,1,0
+74,construction worker,1,0,1,0
+74,roofer,1,0,1,0
+74,auto mechanic,1,0,1,0
+74,heavy equipment operator,1,1,0,0
+75,cosmetologist,1,1,0,0
+75,manicurist,1,1,0,0
+75,secretary,1,1,0,0
+75,hairdresser,1,1,0,0
+75,flight attendant,1,1,0,0
+75,dress maker,1,1,0,0
+75,receptionist,1,1,0,0
+75,florist,1,1,0,0
+75,housekeeper,1,1,0,0
+75,child care worker,1,0,1,0
+75,kindergarten teacher,1,1,0,0
+75,interior decorator,1,1,0,0
+75,registered nurse,1,1,0,0
+75,elementary school teacher,1,1,0,0
+75,librarian,1,1,0,0
+75,cake decorator,1,1,0,0
+75,dietician,1,1,0,0
+75,exercise instructor,1,1,0,0
+75,nutritionist,1,1,0,0
+75,hair cutter,1,1,0,0
+75,physician's assistant,1,1,0,0
+75,massage therapist,1,1,0,0
+75,bookkeeper,1,1,0,0
+75,high school teacher,1,1,0,0
+75,travel agent,1,1,0,0
+75,guidance counselor,1,1,0,0
+75,dental hygienist,1,1,0,0
+75,real estate agent,1,1,0,0
+75,counseling psychologist,1,1,0,0
+75,baker,1,1,0,0
+75,school psychologist,1,1,0,0
+75,occupational therapist,1,1,0,0
+75,cashier,1,1,0,0
+75,reporter,1,1,0,0
+75,server,1,1,0,0
+75,clinical psychologist,1,1,0,0
+75,animal caretaker,1,1,0,0
+75,paralegal,1,1,0,0
+75,physical therapist,1,1,0,0
+75,singer,1,1,0,0
+75,artist,1,1,0,0
+75,veterinarian,1,1,0,0
+75,cook,1,1,0,0
+75,author,1,1,0,0
+75,photographer,1,1,0,0
+75,tour guide,1,1,0,0
+75,journalist,1,1,0,0
+75,phlebotomist,1,1,0,0
+75,writer,1,1,0,0
+75,emergency medical care,1,1,0,0
+75,graphic designer,1,1,0,0
+75,accountant,1,1,0,0
+75,lawyer,1,1,0,0
+75,concierge,1,0,1,0
+75,forensic psychologist,1,1,0,0
+75,salesperson,1,1,0,0
+75,editor,1,1,0,0
+75,insurance agent,1,0,1,0
+75,theatrical director,1,1,0,0
+75,pharmacist,1,1,0,0
+75,doctor,1,1,0,0
+75,systems analyst,1,1,0,0
+75,judge,1,1,0,0
+75,research scientist,1,1,0,0
+75,professor,1,1,0,0
+75,income tax preparer,1,0,1,0
+75,chef,1,1,0,0
+75,executive,1,0,1,0
+75,radio technician,1,1,0,0
+75,chiropractor,1,1,0,0
+75,landscaper,1,0,1,0
+75,tailor,1,0,1,0
+75,bartender,1,0,1,0
+75,surgeon,1,1,0,0
+75,computer programmer,1,0,1,0
+75,movie director,1,0,1,0
+75,painter,1,1,0,0
+75,dentist,1,1,0,0
+75,groundskeeper,1,0,1,0
+75,architect,1,1,0,0
+75,stock broker,1,0,1,0
+75,police officer,1,1,0,0
+75,janitor,1,0,1,0
+75,coach,1,0,1,0
+75,rancher,1,0,1,0
+75,probation officer,1,1,0,0
+75,bell hop,1,0,1,0
+75,pilot,1,1,0,0
+75,drafting worker,1,0,1,0
+75,highway worker,1,0,1,0
+75,stone cutter,1,0,1,0
+75,logger,1,0,1,0
+75,private detective,1,0,1,0
+75,electrician,1,1,0,0
+75,fire fighter,1,0,1,0
+75,butcher,1,0,1,0
+75,guard,1,0,1,0
+75,plumber,1,0,1,0
+75,farmer,1,0,1,0
+75,carpenter,1,0,1,0
+75,trucker,1,0,1,0
+75,barber,1,0,1,0
+75,construction worker,1,0,1,0
+75,roofer,1,0,1,0
+75,auto mechanic,1,0,1,0
+75,heavy equipment operator,1,0,1,0

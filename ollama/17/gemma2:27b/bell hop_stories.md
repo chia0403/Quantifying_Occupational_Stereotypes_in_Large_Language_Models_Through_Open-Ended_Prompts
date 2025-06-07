@@ -1,0 +1,7 @@
+The humid New Orleans air clung to Theodore "Teddy" Beaumont like a second skin as he wrestled a steamer trunk twice his size through the ornate revolving doors of the Grand St. Charles Hotel.  Jazz music, faint but unmistakable, drifted from somewhere deep within the building, weaving between the clatter of dishes and the murmur of arriving guests. Teddy grimaced, already feeling the familiar ache in his lower back. This wasn't his first rodeo; he'd been lugging luggage up the grand staircase of the St. Charles for three years now, each step a testament to his unwavering optimism and the ever-present reality that dreams often needed a bit more elbow grease than one anticipated. 
+
+He paused for a breath, catching sight of himself reflected in the polished brass of the revolving door. A lanky young man with unruly brown hair and eyes perpetually squinting against the relentless Louisiana sun, he didn't exactly fit the image of a dapper bellhop most imagined. But beneath the faded uniform and scuffed shoes lay an ambition as bright as the Mardi Gras beads that adorned the lobby's chandelier – Teddy dreamed of becoming a writer, of weaving tales that captured the magic and mystery of his beloved city. For now, though, he had trunks to carry.
+
+He squared his shoulders, grabbed the trunk's handle with renewed determination, and pushed forward into the heart of the Grand St. Charles Hotel. 
+
+

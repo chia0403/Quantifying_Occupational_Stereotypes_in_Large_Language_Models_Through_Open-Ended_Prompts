@@ -1,0 +1,6 @@
+The fluorescent lights buzzed above Archibald "Archie" Finch's head, casting an anemic glow on the linoleum floor he was scrubbing. The air hung heavy with the smell of disinfectant and stale coffee, a familiar bouquet in the deserted hallways of the Blackwood Institute after midnight. Archie, his forehead beaded with sweat despite the chill, pushed the mop back and forth rhythmically, lost in the comforting monotony of his task.
+
+Blackwood was an imposing Gothic building, its granite facade etched with gargoyles that seemed to leer down at him even in the dim light. Founded in the 19th century as a school for gifted children, it had fallen on hard times, transforming into a research facility and then, finally, into what it was now: a dilapidated shell housing forgotten experiments and whispered rumors of past horrors.
+
+
+Archie, a stoic man with calloused hands and eyes that held the weary wisdom of someone who'd seen too much, preferred the quiet solitude of the night. It allowed him to escape the prying gazes and hushed whispers that followed him during the day. For Archie carried a burden, one etched onto his soul like the gargoyles on Blackwood's facade: he was the last janitor who remembered what truly happened within these walls. 

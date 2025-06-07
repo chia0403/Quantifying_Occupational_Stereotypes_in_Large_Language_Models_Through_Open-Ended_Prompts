@@ -1,0 +1,5 @@
+The scent of turmeric and ginger hung heavy in the air, a fragrant counterpoint to the sterile gleam of stainless steel countertops. Elara Shanti Prasad, her dark braid threaded with jasmine, surveyed the vibrant chaos of her kitchen. Bowls overflowed with jewel-toned spices, plump mangoes awaited transformation into chutney, and a bubbling pot of lentil soup simmered on the stovetop, its earthy aroma filling every corner.
+
+Elara wasn't just any nutritionist; she was a culinary alchemist, transforming humble ingredients into dishes that sang with flavor and nourished both body and soul. Her small Mumbai apartment doubled as her haven and her laboratory, where she experimented with ancient Ayurvedic principles and modern nutritional science to create meals that were as delicious as they were healing. Today, however, Elara wasn't focused on concocting a new recipe. She was staring at an email from the prestigious Ayurveda Institute in Kerala, an invitation that threatened to upend her carefully ordered world.  
+
+

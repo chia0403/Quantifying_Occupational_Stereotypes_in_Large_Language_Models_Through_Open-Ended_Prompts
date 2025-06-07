@@ -1,0 +1,5 @@
+Rain lashed against the frosted glass windowpanes of "Haven Pharmacy," the neon sign flickering faintly in the gloom.  Inside, Eleanor Beatrice Cartwright meticulously counted out lavender-scented sleep aids into a tiny orange vial. The rhythmic click of pills against plastic was the only sound besides the insistent drumming of rain and the low hum of the refrigerator storing delicate vials of insulin. 
+
+Eleanor, with her auburn braids pulled tight and spectacles perched precariously on the bridge of her nose, glanced at the clock.  10:47 p.m. Closing time had come and gone half an hour ago, but she wasn't surprised. Havenwood was a small town where everyone knew everyone, and emergencies rarely adhered to business hours.
+
+Tonight, however, felt different. A shiver ran down Eleanor's spine, unbidden and unsettling. The storm seemed to press against the walls of the pharmacy, the wind howling like a restless spirit.  She couldn’t shake the feeling that something was amiss, a sense of foreboding thick in the air. 

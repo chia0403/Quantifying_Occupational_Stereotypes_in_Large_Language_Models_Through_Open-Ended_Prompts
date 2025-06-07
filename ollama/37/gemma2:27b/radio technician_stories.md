@@ -1,0 +1,5 @@
+The desert wind rattled the metal siding of the ramshackle radio tower like skeletal fingers tapping on a dusty windowpane. Sweat trickled down Silas Eldridge's temple as he tightened the last bolt, his calloused hand aching from hours spent wrestling with rusted components. Above him, the sun beat down mercilessly, turning the makeshift platform into a scorching skillet. Below, the endless expanse of Nevada desert shimmered in the heat haze, broken only by the occasional scrubby Joshua tree. Silas squinted, searching for any sign of movement – anything besides the circling vultures that seemed to regard his solitary presence with morbid curiosity.
+
+He wasn't supposed to be out here, not alone. But after three days of static and silence from headquarters, Silas had grown tired of waiting. The aging transmitter was their only lifeline, broadcasting vital weather reports and emergency updates to scattered settlements across the desolate region. Without it, they were blind and deaf in a sea of sand. 
+
+

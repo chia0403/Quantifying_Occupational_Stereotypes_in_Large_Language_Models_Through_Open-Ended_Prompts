@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Esmeralda "Esme" Ramirez's head, their sterile glare reflecting off the stainless steel instruments laid out on the tray beside her. Her gloved fingers traced the contours of a scalpel, its edge glinting with chilling sharpness. Outside the operating room window, twilight painted the cityscape in shades of indigo and burnt orange. But Esme wasn't looking. Her focus was entirely inward, on the beating heart beneath her hands, a fragile metronome ticking away precious seconds. 
+
+Tonight's surgery was more than just another procedure; it was a lifeline. A young girl, barely ten years old, lay unconscious on the operating table, her chest rising and falling with the labored breaths of a struggling lung. Esme had seen countless cases in her years as a cardiothoracic surgeon at Mercy Hospital, but this one felt different. The weight of responsibility pressed heavily upon her, fueled by the hopeful gazes of the girl's parents waiting anxiously beyond the double doors. 
+
+

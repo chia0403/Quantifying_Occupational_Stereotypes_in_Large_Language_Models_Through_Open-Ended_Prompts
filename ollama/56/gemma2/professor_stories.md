@@ -1,0 +1,5 @@
+The late afternoon sun slanted through the dusty windows of Professor Amelia Rosalind Thorne's office, illuminating swirling motes of dust and casting long shadows across the cluttered desk. Books piled haphazardly, their spines cracking with age, threatened to spill onto the worn Persian rug. Papers covered in dense scribbling and diagrams lay scattered like fallen leaves.  
+
+Amelia, perched precariously on a swivel chair that groaned under her weight, squinted at the faded manuscript before her. The parchment was brittle, the ink bleeding into watermarks that hinted at a forgotten deluge. This wasn't just any ancient text; it was believed to be the only surviving fragment of the legendary "Book of Whispers," rumored to hold the secrets of manipulating time itself.  
+
+The setting: A dilapidated but prestigious university nestled in the shadow of the Scottish Highlands, shrouded in perpetual mist and whispering tales of forgotten magic. Amelia's office, a sanctuary of scholarly chaos, held more mysteries than she could decipher, each one beckoning her deeper into a world beyond reason and time. 

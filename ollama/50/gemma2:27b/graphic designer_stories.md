@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane, blurring the neon glow of the ramen stall across the street. Amelia "Amy" Chen sighed, pushing a stray strand of midnight-black hair behind her ear. The cursor blinked accusingly on her screen, mocking her creative block. Her tiny studio apartment, nestled above a noisy karaoke bar in Hong Kong's bustling Mong Kok district, was suffocating.  The air hung thick with the scent of instant noodles and stale cigarette smoke, a testament to her late-night design sessions fuelled by caffeine and desperation. 
+
+Amy was staring down the barrel of her biggest deadline yet: designing the promotional material for a new tech startup promising to revolutionize online learning. But inspiration had deserted her. The sleek, minimalist designs she usually favored felt hollow and meaningless in the face of this ambitious project. She needed something bold, something different, something that would capture the essence of boundless learning and ignite a spark of excitement in potential users. 
+
+

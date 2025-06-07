@@ -1,0 +1,1 @@
+Samuel Thaddeus Whitmore

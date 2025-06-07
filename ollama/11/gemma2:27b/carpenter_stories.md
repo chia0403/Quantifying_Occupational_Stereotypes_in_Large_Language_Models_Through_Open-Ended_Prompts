@@ -1,0 +1,6 @@
+Sawdust danced in the morning sunbeams slanting through the grimy windows of Silas Thaddeus Blackwood's workshop. The air hung heavy with the scent of cedar and pine, punctuated by the sharp tang of linseed oil. Outside, the cobblestone streets of Port Haven bustled with the early risers – fishermen hauling their nets, merchants hawking wares, children chasing stray cats through the maze of alleyways. But inside Silas's world, time moved at a different pace, dictated by the rhythm of his plane gliding across wood, the rasping bite of his chisel, and the satisfying thunk of mallet meeting peg.
+
+Silas, a man whose face bore the map of a life spent outdoors and amongst the elements, paused in his work, wiping the sweat from his brow with the back of a calloused hand. He was a wiry figure, all sinew and bone, with eyes the color of weathered oak that held a quiet intensity. Today's commission – a intricately carved music box for the daughter of the town mayor – lay half-finished on his workbench, its delicate melody yet to be unlocked. 
+
+
+But as Silas reached for another chisel, a sharp rapping at his workshop door startled him. He knew who it was before he even opened it. It was always the same man. And he always brought trouble.

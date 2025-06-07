@@ -1,0 +1,6 @@
+The wind whipped through the skeletal trees lining the cobblestone path, carrying with it the scent of woodsmoke and distant rain. A shiver snaked down Thaddeus Thorne's spine, pulling his threadbare cloak tighter around him. Moonlight cast long, distorted shadows across the weathered stones of the ancient wall he guarded, making the moss-covered gargoyles seem to leer from their perches. The only sound besides the wind was the rhythmic thud of Thaddeus's boots against the uneven path as he patrolled his assigned section: a stretch of crumbling ramparts overlooking a valley cloaked in perpetual twilight.
+
+
+Thaddeus had never known anything else but this lonely vigil. Since he was a boy, orphaned and taken in by the Order of the Silver Griffin, he had dedicated his life to guarding the ancient gateway rumored to hold the key to forgotten realms. He'd heard tales whispered by the older guards – stories of shimmering portals opening within the crumbling archway at midnight, leading to worlds filled with unimaginable wonders and unspeakable terrors.
+
+But tonight, something felt different. The air thrummed with a subtle energy, a prickling sensation that ran along Thaddeus’s skin. He paused, his hand instinctively reaching for the hilt of the rusty sword hanging at his side. His eyes scanned the valley below, searching for any sign of disturbance.

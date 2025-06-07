@@ -1,0 +1,5 @@
+The relentless tick-tock of the antique clock on the wall felt like a metronome counting down Amelia Rose Hawthorne's sanity. Dust motes danced in the afternoon sunbeams slicing through the grimy windowpanes of her boss's office, illuminating a battlefield of overflowing inboxes and teetering stacks of paper. Outside, the clamor of 1920s New York City – the screech of trolley cars, the hawkers' cries, the rhythmic rumble of jazz from a nearby speakeasy – only amplified the claustrophobia settling over Amelia like a shroud.
+
+For five years, she had diligently served Mr. Bartholomew Pendleton, a man whose ambition was inversely proportional to his organizational skills. Today, however, something felt different. A letter arrived, its creamy envelope embossed with an unfamiliar crest - a phoenix rising from flames. This wasn't just another mundane request for dictation or the scheduling of yet another luncheon with a dubious "investor."  Amelia could feel it in her bones: this letter held the key to unlocking a world beyond Pendleton's cluttered office and the drudgery of her secretarial duties. 
+
+

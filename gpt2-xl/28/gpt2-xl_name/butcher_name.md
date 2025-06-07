@@ -1,2 +1,1 @@
-John Wayne
-Walter
+John

@@ -1,0 +1,4 @@
+The pungent aroma of lavender and clove hung heavy in the air, mingling with the sweet smell of freshly brewed coffee. Sunlight streamed through the dusty windows of "Shear Perfection," casting long shadows across the checkered linoleum floor. Amelia Rose Beaumont hummed along to Ella Fitzgerald's sultry voice wafting from the vintage record player perched on a shelf overflowing with colorful bottles and jars. She expertly snipped away at Mrs. Henderson's unruly curls, transforming them into a sleek bob that framed her face perfectly. 
+
+
+Amelia loved this time of day – the quiet hum before the lunchtime rush. It gave her space to breathe, to think, and to lose herself in the precise dance of scissors and comb. But today, something felt different. A prickle of unease danced along her spine as she caught sight of a figure lurking outside the shop window.  

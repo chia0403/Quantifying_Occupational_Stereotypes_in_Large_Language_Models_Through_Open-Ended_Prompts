@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the lab, each drop a hammer blow on Elara Anya Sharma's already frayed nerves. The fluorescent lights flickered, casting dancing shadows across the cluttered workbench where vials bubbled and beakers steamed. Outside, the wind howled like a banshee, whipping the skeletal branches of the eucalyptus trees into a frenzy. 
+
+Elara gripped the edge of her worn-out notebook, knuckles white. She hadn't slept in days, fuelled by coffee and a desperate hope that tonight would be different. Tonight, she would finally isolate it – the elusive genetic anomaly responsible for the accelerated growth in these exotic flora samples.  The discovery could revolutionize agriculture, potentially solving global food shortages. But first, she had to crack the code hidden within the tangled strands of DNA before her funding ran out.
+
+As another deafening clap of thunder echoed through the lab, Elara felt a surge of adrenaline. This was it. She could feel it in her bones.  Tonight, she would make history. 

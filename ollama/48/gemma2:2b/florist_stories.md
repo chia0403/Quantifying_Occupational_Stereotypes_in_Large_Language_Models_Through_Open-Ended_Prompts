@@ -1,0 +1,5 @@
+The morning mist clung to Willow Creek like damp gauze as Emilia “Em" Hawthorne opened her shop door. A faint chill hung in the air, even with the burgeoning warmth of spring just a whisper away. The scent of dew-kissed honeysuckle and freshly bloomed tulips drifted out, promising a sweet start to her day. Em's 'The Blooming Grove' had been her family's for generations, its roots running deeper than the ancient oak that stood guard at the edge of her property.
+
+Em loved her little corner of Willow Creek; it was a symphony of life she orchestrated with each delicate bloom and artful arrangement. But lately, something felt…off. A creeping unease settled in her stomach like a forgotten dream. The silence between customers had become heavier than usual, their smiles less genuine, their conversations clipped. Even the playful chirping of sparrows who usually serenaded her morning was subdued today. 
+
+She looked at the shop's front door - and for the first time since inheriting the business, felt something like dread. 

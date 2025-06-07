@@ -1,0 +1,5 @@
+The neon sign outside buzzed with a tired hum, casting an anemic green glow onto the rain-slicked pavement. "Shear Serenity," it proclaimed in bold, cursive letters, a stark contrast to the gritty reality of the dilapidated strip mall it inhabited. Inside, Amelia Rose Beaumont meticulously sharpened her shears, the rhythmic rasp a counterpoint to the mournful jazz wailing from the tinny radio perched on the shelf. Rain lashed against the greasy windows, blurring the outside world into an impressionistic mess. 
+
+Amelia sighed, her reflection staring back at her from the polished chrome of the sink. Dark circles shadowed her hazel eyes, and her usually vibrant red hair was pulled back in a haphazard bun, strands escaping like errant brushstrokes. The bell above the door jingled, startling her. A lone figure stepped inside, shaking droplets onto the worn linoleum floor.  Amelia straightened, plastering on a smile that felt brittle even to her own lips. "Welcome to Shear Serenity," she said, her voice betraying none of the exhaustion weighing down her shoulders. "What can I do for you?" 
+
+

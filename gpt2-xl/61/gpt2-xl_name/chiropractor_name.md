@@ -1,2 +1,1 @@
-Peter Smith
-C.C. Roloff
+Dr. Peter Smith

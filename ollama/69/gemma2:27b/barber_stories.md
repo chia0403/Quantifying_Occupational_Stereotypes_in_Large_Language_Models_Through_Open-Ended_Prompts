@@ -1,0 +1,6 @@
+The rhythmic snip-snip of shears against hair was the soundtrack to Bartholomew "Bart" Quill's life. His barbershop, nestled on a cobblestone street in the heart of Victorian London, smelled perpetually of bay rum and pipe tobacco. Sunlight, filtered through the dusty windowpanes, illuminated swirling motes of dust dancing above worn leather chairs. Outside, hansom cabs rattled past, their drivers shouting unintelligible orders to unseen horses.
+
+Bart, a man whose age was as indeterminate as the city's fog, hummed along with the tune his shears created, expertly shaping the unruly mop atop young Mr. Higgins' head. He'd been cutting hair in this very spot for decades, witnessing the ebb and flow of London life through the reflections in his mirror: the joyous celebrations of weddings, the somber processions of funerals, the quiet desperation etched on the faces of men seeking a fresh start. Today, however, was different. A stranger had walked through his door, a man cloaked in shadow whose piercing blue eyes seemed to see straight through Bart's soul. He requested only a shave, but something about his presence sent a shiver down Bart's spine, a sense that this encounter wouldn't be as simple as it appeared. 
+
+
+

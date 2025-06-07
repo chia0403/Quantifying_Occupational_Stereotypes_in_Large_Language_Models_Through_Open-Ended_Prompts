@@ -1,0 +1,5 @@
+The air conditioning in Mercy Hospital's lab wheezed like an asthmatic dragon, struggling to cool the humid July air. Elara Finch adjusted her scrubs, the thin fabric clinging uncomfortably to her skin. Outside, cicadas shrieked their monotonous song, adding a layer of buzzing anxiety to the already tense atmosphere. A stack of requisition forms teetered precariously on her desk, each one representing another vein to be punctured, another sample to be meticulously labelled and stored.
+
+Elara wasn't fazed by needles; she'd been drawing blood since she was fifteen, helping her grandpa administer insulin shots for his diabetes. She preferred the silent precision of venipuncture to the chaotic energy of the emergency room. Yet, today felt different. A prickling unease settled in her gut, a feeling intensified by the hushed whispers and furtive glances exchanged amongst the lab technicians. Something was brewing in Mercy's sterile halls, something bigger than just another routine blood draw.  
+
+

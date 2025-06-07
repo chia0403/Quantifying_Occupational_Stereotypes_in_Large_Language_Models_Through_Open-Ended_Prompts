@@ -1,0 +1,5 @@
+Rain hammered the corrugated iron roof of the ramshackle diner like a thousand tiny fists.  Inside, the air hung thick with the scent of stale coffee and frying grease. Eloise "Ellie" Beaumont, her trench coat dripping puddles onto the linoleum floor, hunched over a chipped mug, stirring her lukewarm coffee listlessly. Outside, neon signs flickered through the downpour, casting lurid reflections on the wet asphalt. This wasn't the glamorous world Ellie had envisioned when she landed her first job as a reporter for The Chronicle, but it was all she could get in this forgotten corner of West Virginia coal country.
+
+Ellie tapped her pen against her notepad, her gaze flitting nervously towards the greasy spoon's entrance.  She was waiting for a source – a man who claimed to have information about a string of disappearances plaguing the nearby mining town. But as the minutes ticked by, doubt gnawed at her. Was this just another dead end? Or was there something truly sinister lurking beneath the surface of this rain-soaked town? 
+
+

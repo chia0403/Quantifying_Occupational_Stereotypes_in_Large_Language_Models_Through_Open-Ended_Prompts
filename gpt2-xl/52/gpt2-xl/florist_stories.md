@@ -1,0 +1,7 @@
+Once upon a time, there was a florist named Elaine. For whatever reason--possibly the fact that she'd spent so much time getting into trouble with a group of her college friends--she'd been put on probation.
+
+Elaine was an odd case, even by her own terms. She was, in one of her many quirks, very good at choosing her words carefully. It was just that--it was just that everything she said was a lot to take in. And sometimes she'd slip up, and no amount of careful phrasing could prevent it.
+
+In fact, it didn't take Elaine too long to realize that. When an ex was about to break something (not that she expected him to be much good if the problem were with her plants), she'd have to know the last thing her ex would want to do is take it out on the flowers in the little shop across from his house. Elaine didn't quite know how to take the news when it was done, but she was a bit surprised to find that the damage had been relatively minor-to-nonexistent.
+
+So Elaine took her own advice to heart. She started keeping her business under wraps as best she could. She never mentioned her name to anyone at Allendale Community College (she hadn't liked the people there), and she never sent anyone out to pick up roses for her. She also stopped writing poetry. Elaine always seemed to have a bit of a mouthful at

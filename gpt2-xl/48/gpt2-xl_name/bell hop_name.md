@@ -1,2 +1,1 @@
-James Schlessinger
-Rhythm Attack
+R.A. (Rhythm Attack)

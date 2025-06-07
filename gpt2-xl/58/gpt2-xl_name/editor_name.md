@@ -1,2 +1,1 @@
 Andy Weir
-Spencer Ackerman

@@ -1,0 +1,7 @@
+Dr. Isabella Margaux Verlaine stood at the edge of the bustling hospital corridor, the hum of fluorescent lights overhead combining with the murmured conversations and the rhythmic beeping of monitors. It was early morning, and the sun bathed the polished floors in a soft golden hue, casting long shadows that flickered like the lives she touched each day.
+
+She had dedicated the last decade to her role as a trauma surgeon at St. Jude's Medical Center in the heart of a city that never slowed down. On the surface, all seemed in order: nurses hustled about, patients received their morning medications, and the caffeine-fueled energy of residents filtered through the air. Yet within her, an invisible storm brewed, the weight of countless lives resting heavy on her shoulders.
+
+Isabella’s steel-blue eyes scanned the myriad of faces, each reflecting the triumphs and tragedies she had witnessed firsthand. Her long dark hair was pulled back in a tidy bun, accentuating the furrow of concentration etched onto her brow. Today was not simply another day of saving lives; it was the anniversary of a patient she had lost—a reminder of the delicate balance between life and death that hung precariously in the operating room.
+
+Outside the window, rain began to patter against the glass, mirroring the turmoil that brewed within. As the world blurred in droplets, Dr. Verlaine took a deep breath and prepared to face the day, determined to carry the hope of healing amid the chaos that enveloped St. Jude's.

@@ -1,0 +1,5 @@
+The sun beat down on Esmeralda "Esme" Reyes's weathered face as she squinted across the dusty expanse of her family's ranch. Generations of Reyeses had wrangled cattle and coaxed life from this arid land in the heart of New Mexico. Now, with drought tightening its grip and cattle prices plummeting, Esme felt the weight of history pressing down on her shoulders. She adjusted the worn brim of her Stetson, a faint scent of leather and sweat clinging to it, and surveyed the parched landscape. The once-lush grama grass was withered and brown, offering little sustenance for the restless herd grazing in the distance.  
+
+Esme's calloused hands tightened around the reins of her old mare, Paloma. A loyal companion through countless sunrises and storms, Paloma snorted softly, sensing Esme's growing anxiety. Today, a representative from the bank was coming to assess the ranch's viability. If Esme couldn't convince him that she could weather this storm, she might lose everything her family had fought so hard to build.  
+
+

@@ -1,0 +1,11 @@
+## The Story Opening:
+
+The bell above the door of "Forget-Me-Not Florals" chimed a frantic, high-pitched melody that sent a shiver down Genevieve "Gen" Amara Dubois' spine. It was never a good sign. Usually, it meant someone was either desperately late for a birthday, or worse, needed a last-minute peace offering after a monumental screw-up. Gen sighed, wiping the damp earth from her gloved hands onto her floral apron. She glanced at the perfectly arranged vase of lavender freesia, a silent wish for calm emanating from their delicate petals.
+
+"Just a minute!" she called out, her voice a cheerful lilt that belied the gnawing anxiety in her stomach. As she rounded the counter, ready to greet whatever crisis awaited, her eyes widened. It wasn't a frantic customer. It was a delivery man, holding a package the size of a small badger, completely swathed in brown paper and twine. No card, no return address. Just an unsettling silence and the weight of unanswered questions pressing down on her, heavy as the fertile soil she loved to cultivate.
+
+## The Setting:
+
+Forget-Me-Not Florals was nestled in the heart of Rosewood, a charming, if somewhat predictable, suburb on the outskirts of Meadowbrook City. The shop itself was a riot of colour and fragrance, a welcome oasis of nature amidst the neatly manicured lawns and cookie-cutter houses. Sunlight streamed through the large bay window, illuminating rows of vibrant roses, fragrant lilies, and trailing vines of ivy.
+
+Gen had inherited the shop from her grandmother, a woman as vibrant and eccentric as the blooms she nurtured. The old wooden floorboards creaked with history, each scuff and stain a testament to decades of floral arrangements and whispered secrets. The walls were painted a soft, calming green, adorned with framed botanical prints and vintage floral advertisements. A large, antique workbench served as Gen's primary workspace, cluttered with剪刀, ribbon, wire, and the scattered petals of a thousand discarded dreams. In the back room, a walk-in cooler hummed with the promise of fresh blooms, while a small, cluttered office served as Gen's sanctuary – a place for paperwork, seed catalogues, and the occasional quiet moment of contemplation amidst the fragrant chaos.

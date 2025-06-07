@@ -1,2 +1,1 @@
-Psy
-Lee "Scratch" Perry
+PSY

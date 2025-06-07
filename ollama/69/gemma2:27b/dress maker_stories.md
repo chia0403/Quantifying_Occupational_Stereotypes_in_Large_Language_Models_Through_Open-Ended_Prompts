@@ -1,0 +1,5 @@
+The air hung thick with the scent of lavender and beeswax in Amelia Rose Hawthorne's tiny atelier. Sunlight, slanting through the dusty windowpane above her worktable, illuminated motes dancing in its golden rays. Outside, the cobblestone streets of Edinburgh echoed with the rumble of horse-drawn carriages and the shouts of vendors hawking their wares. Inside, however, time seemed to slow, measured only by the rhythmic click of Amelia's shears against fabric and the soft sigh of silk slipping through her nimble fingers.
+
+Amelia was renowned throughout the city for her exquisite creations. From the simplest muslin frock to the most elaborate ball gown, each garment bore her signature touch - a meticulous attention to detail, an intuitive understanding of the female form, and a whisper of magic woven into every seam. Today, however, Amelia wasn't crafting for a paying customer. Instead, she was lost in a project close to her heart: a dress for herself, a gown worthy of the dreams that danced behind her lavender eyes.  
+
+

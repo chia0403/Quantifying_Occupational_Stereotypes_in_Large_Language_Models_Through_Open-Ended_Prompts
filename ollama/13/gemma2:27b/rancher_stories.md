@@ -1,0 +1,5 @@
+The dust swirled around Eleanor "Ellie" Blackwood's boots as she surveyed her domain. The sun beat down mercilessly on the parched Arizona landscape, baking the earth a cracked, pale ochre.  Her weathered face, framed by strands of fiery red hair escaping from beneath her worn Stetson, held a stoic expression honed by years of battling unforgiving elements and stubborn cattle. 
+
+Blackwood Ranch sprawled before her, a patchwork quilt of sun-bleached pastures dotted with gnarled mesquite trees and the occasional hardy saguaro cactus reaching skyward like ancient sentinels. Ellie loved this land; its stark beauty resonated deep within her soul. But today, even the rugged charm couldn't mask the worry gnawing at her gut. The last monsoon had been a fickle tease, leaving their watering holes alarmingly low and the grasslands brittle underfoot.  
+
+Ellie adjusted the brim of her hat and headed towards the barn, the mournful creak of its weathered doors echoing in the oppressive silence. It was time to face the hard truth – they were running out of water. 

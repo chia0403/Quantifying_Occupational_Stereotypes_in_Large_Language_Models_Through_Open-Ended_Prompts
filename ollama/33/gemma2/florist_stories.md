@@ -1,0 +1,6 @@
+The air hung heavy with the scent of lilies and damp earth, a symphony only Evelyn Rosewater truly appreciated.  Her shop, "Petal & Thorn," nestled on a quiet cobblestone street in Edinburgh's Old Town, was her sanctuary. Sunlight streamed through the stained glass window, casting rainbows across the vibrant blooms lining the shelves – crimson roses, blushing peonies, and delicate lavender sprigs. The rhythmic clinking of watering cans and Evelyn's soft humming filled the space, a soothing melody for weary souls seeking solace in the language of flowers.
+
+Evelyn herself, with her auburn curls peeking out from beneath a worn woolen beret, was as much a part of the shop's charm as the blooms themselves. Her fingers, calloused yet gentle, expertly wove together intricate arrangements, each petal placed with care and intention. She knew the stories behind every flower – their symbolism, their history, their whispered secrets. To Evelyn, they weren't just plants; they were messengers, carrying emotions and memories on delicate stems.
+
+
+This morning, however, a different kind of story was about to unfold within the walls of Petal & Thorn. A woman with eyes as dark as midnight and lips stained crimson entered the shop, her presence casting a shadow over Evelyn's peaceful domain.  The air itself seemed to thicken with unspoken tension. 

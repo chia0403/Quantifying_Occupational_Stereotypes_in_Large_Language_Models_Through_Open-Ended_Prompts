@@ -1,0 +1,6 @@
+Rain hammered against the warped glass pane of Dr. Eleanor Vance's office window, mimicking the relentless drumming in her chest. The late afternoon sun struggled to pierce the storm clouds, casting long shadows across her cluttered desk littered with patient files and half-empty mugs of lukewarm coffee.  She stared out at the grey cityscape, a familiar sense of unease twisting in her gut. Eleanor had always been drawn to helping others untangle their inner knots, but lately, she felt more like a frayed thread herself.
+
+The incessant ringing of the phone jolted her back to reality. It was Mrs. Petrovich, cancelling her appointment for the third time this month.  "Something came up," the shaky voice on the other end whispered, tinged with a strange urgency Eleanor couldn't decipher. A shiver ran down Eleanor's spine. There was something off about this client, a sense of unease that lingered long after their sessions ended.
+
+
+Eleanor sighed, pushing aside the unsettling feeling. It was just anxiety, she told herself. Mrs. Petrovich had been through a lot – a recent divorce and the loss of her mother. Still, a nagging voice in the back of her mind insisted there was something more to this case, something hidden beneath the surface. 

@@ -1,1 +1,1 @@
-Wiesmann
+Dr. Wiesmann

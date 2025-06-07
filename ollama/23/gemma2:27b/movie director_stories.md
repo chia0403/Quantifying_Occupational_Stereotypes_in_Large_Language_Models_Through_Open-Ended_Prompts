@@ -1,0 +1,5 @@
+The acrid smell of stale popcorn clung to the air like a forgotten memory.  Outside, the neon glow of the "Now Showing" sign flickered erratically, casting grotesque shadows across the peeling paint of the Grand Majestic Theatre. Inside, Bartholomew Alistair Finchley III, or Bart as he preferred in this less-than-glamorous setting, kicked at a stray peanut shell with his scuffed leather loafer.  He'd come to the crumbling relic hoping for inspiration, a spark amidst the decaying grandeur that mirrored the state of his career. 
+
+His last film, a high-concept sci-fi thriller, had tanked spectacularly. Critics had labelled it "derivative" and "pretentious," while audiences stayed away in droves. Bart needed a hit, something to revive his flagging reputation and silence the whispers that he'd lost his touch. The Grand Majestic, with its faded velvet seats and dusty chandeliers, seemed as forgotten as he felt.  Maybe, just maybe, amongst the ghosts of cinematic past, he'd find the story waiting to be told. 
+
+

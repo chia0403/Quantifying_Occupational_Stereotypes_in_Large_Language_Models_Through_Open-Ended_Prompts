@@ -1,0 +1,5 @@
+The scent of lilac and argan oil hung heavy in the air, battling for dominance with the acrid tang of bleach.  Elara "Ellie" Moreau tugged at the tangle of fiery curls she was attempting to tame, the woman in her chair groaning softly as Ellie expertly maneuvered the comb through a particularly stubborn knot. Outside, the late afternoon sun painted the Parisian street in hues of orange and purple, casting long shadows that stretched across the cobblestones.  Ellie glanced up at the clock above the vintage salon mirror, its ornate frame chipped and worn with age, just like everything else in Madame Dubois' salon. 4:57 pm.
+
+Two more appointments and she could finally escape the cramped heat of the salon and breathe in the cool evening air. Ellie dreamt of a day when she wouldn't be squeezed between overflowing buckets of colourant and dusty jars of hairspray, her own dreams tangled as hopelessly as Madame Dubois' collection of ancient curling irons. But for now, she focused on the task at hand, willing the curls to submit to her masterful touch. 
+
+

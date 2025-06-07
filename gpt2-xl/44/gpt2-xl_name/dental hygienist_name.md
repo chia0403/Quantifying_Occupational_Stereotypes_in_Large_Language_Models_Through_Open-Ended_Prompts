@@ -1,1 +1,1 @@
-E.D. Hill
+Dr. E.D. Hill

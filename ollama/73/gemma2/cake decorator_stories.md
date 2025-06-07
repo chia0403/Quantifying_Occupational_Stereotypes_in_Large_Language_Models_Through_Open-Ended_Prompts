@@ -1,0 +1,5 @@
+The air hung heavy with the scent of buttercream and vanilla extract, a symphony for Eloise Beatrice Dupont’s nose. It was like breathing in pure happiness. Her tiny bakery, "Flourish," nestled on a cobbled street corner in Prague's Old Town, hummed with a quiet energy. Sunlight streamed through the dusty-rose windowpanes, casting dancing shadows on the rows of intricately decorated cakes. Eloise, her hands dusted white with powdered sugar, surveyed her creations: a towering wedding cake adorned with delicate sugar roses, a birthday cake sculpted into a whimsical dragon, and a simple but elegant loaf cake destined for a local tea shop.  
+
+She ran a fingertip along the smooth surface of the dragon cake, admiring its fiery scales made of spun sugar. Eloise thrived on the transformation – turning ordinary ingredients into edible masterpieces, each one a story waiting to be told.  But today felt different. A palpable tension thrummed beneath the usual calm, a feeling that something was about to shift in her little corner of Prague. 
+
+

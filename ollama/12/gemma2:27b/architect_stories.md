@@ -1,0 +1,5 @@
+The relentless Mumbai sun beat down on Elara Khanna's back as she surveyed the skeletal structure rising from the dusty plot. A symphony of clanging metal and shouted instructions filled the air, punctuated by the insistent honking of rickshaws navigating the labyrinthine streets beyond the construction site. Elara shielded her eyes with a hand, squinting at the blueprints clutched in the other. This wasn't just another apartment complex; it was her magnum opus, a beacon of sustainable design meant to revitalize this neglected corner of the city.  
+
+But doubt gnawed at her. Was she being too ambitious? Could she truly weave together traditional Indian architecture with cutting-edge green technology and create something both beautiful and functional? The pressure was immense, not just from the developer breathing down her neck but also from the weight of her own expectations. This project was more than just a building; it was Elara's chance to prove herself, to show Mumbai, and the world, what she could do. 
+
+

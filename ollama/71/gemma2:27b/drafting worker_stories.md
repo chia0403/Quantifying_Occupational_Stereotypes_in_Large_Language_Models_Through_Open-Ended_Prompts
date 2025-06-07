@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of the drafting office, blurring the cityscape into a watercolour wash of greys and blues. Inside, fluorescent lights hummed their monotonous tune, casting a sickly yellow glow over Amelia Cartwright's workstation. She hunched over her drafting table, a tangle of pencils and rulers scattered around her like fallen soldiers. The air hung heavy with the scent of stale coffee and graphite, a familiar aroma that had become both comforting and suffocating.
+
+Amelia sighed, rubbing her tired eyes. Her latest project – a sprawling urban redevelopment scheme – felt more like a labyrinth than a blueprint.  Every line she drew seemed to spawn another problem, another logistical nightmare. The city council wanted green spaces, affordable housing, and a vibrant commercial district, all squeezed into a space already choked by infrastructure. It was a puzzle with too many pieces, and Amelia, despite her years of experience, felt hopelessly lost in its complexity. 
+
+

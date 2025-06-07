@@ -1,0 +1,6 @@
+Rain lashed against the grimy windowpane, blurring the neon glow of the "Open 24 Hours" sign across the street. Amelia Hawthorne sighed, pushing a stray strand of damp hair behind her ear. The air in the cramped diner booth smelled faintly of burnt coffee and desperation. It wasn't exactly the glamorous setting she'd envisioned for herself when she'd landed the job at Zenith Pharmaceuticals, selling their revolutionary new anti-aging serum "Eternal Youth." 
+
+But three months in, Amelia was starting to question everything. Her quota seemed impossible, her leads were colder than the greasy spoon fries on her plate, and the relentless optimism preached by her manager felt increasingly hollow. Still, she couldn't afford to give up. Rent was due next week, and the thought of sleeping in her car for a second time this year sent a shiver down her spine. 
+
+
+This diner, with its flickering fluorescent lights and tired waitresses, had become her haven - a place to regroup, refuel, and plot her next move before braving the unforgiving streets again. Tonight, Amelia needed a miracle, not just another sale. She needed something to reignite the spark in her weary soul, something to remind her why she'd chosen this path in the first place.  

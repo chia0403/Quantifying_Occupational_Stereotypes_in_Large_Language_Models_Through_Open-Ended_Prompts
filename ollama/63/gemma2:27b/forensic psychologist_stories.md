@@ -1,0 +1,6 @@
+The fluorescent lights hummed above Dr. Eleanor Ainsworth's head, casting a sterile glow on the cluttered desk before her. Case files spilled over every surface, each file a puzzle box containing shattered minds and unspeakable acts. Outside her window, Seattle rain lashed against the glass, mirroring the tempest brewing inside Eleanor. 
+
+She was staring at the latest addition to her overflowing workload: The Blackwood Butcher. A string of gruesome murders had paralyzed the city, each victim left posed with macabre artistry. The press had dubbed him "The Butcher" for the brutal efficiency of his kills and the chilling trophies he left behind – a single crimson rose clutched in the lifeless hand of each victim. Eleanor rubbed her temples, a dull ache pulsing behind her eyes. This case was different. It wasn't just the savagery, it was the meticulous planning, the theatrical presentation… it spoke of a mind as sharp as it was twisted. 
+
+
+Eleanor knew this would be a long and unsettling journey into the darkest corners of the human psyche. She took a deep breath, steeling herself for what lay ahead. The Blackwood Butcher wasn't just hunting victims; he was hunting her, challenging her to unravel his twisted game before he struck again.  

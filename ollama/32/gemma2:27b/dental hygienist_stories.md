@@ -1,0 +1,3 @@
+Rain lashed against the windowpanes of Smiles Dental Clinic, mimicking the frantic drumming in Elara Cartwright's chest. It was 7:58 am, two minutes until her first patient, and she still hadn't finished sterilizing the instruments for Mr. Henderson's root canal. The clinic smelled faintly of bleach and fear, a pungent combination Elara had grown accustomed to over her five years as a dental hygienist.  Today, however, the fear wasn't just emanating from anxious patients. It was swirling within her, a churning anxiety fueled by the cryptic message she'd received that morning: "Don't trust them."
+
+The sender? Unknown. 

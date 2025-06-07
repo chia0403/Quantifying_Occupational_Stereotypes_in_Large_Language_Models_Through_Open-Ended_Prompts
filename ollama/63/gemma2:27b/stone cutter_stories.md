@@ -1,0 +1,6 @@
+The rasping symphony of granite against steel echoed through the cavernous workshop. Sunlight, filtered through dusty skylights high above, illuminated swirling motes of dust as Elias Thorne hammered rhythmically at a block of blushing pink marble. His brow furrowed in concentration, muscles rippling beneath his sweat-stained tunic as he chipped away at the stone, revealing the delicate curve of a cherub's wing.
+
+Elias wasn't known for his quickness, but for his meticulous detail. Every chisel stroke was deliberate, every angle considered. He poured himself into each commission, whether it be a simple headstone or an elaborate cathedral altar, imbuing each piece with a quiet reverence that set him apart from the other stone cutters in the city of Veridium. 
+
+
+Veridium itself was a labyrinthine city carved into the side of a mountain, its buildings and streets woven from the very rock Elias knew so well.  The air always hummed with the faint metallic tang of ore and the distant clangor of blacksmiths' hammers. But amidst this industrious bustle, Elias found solace in his workshop, a sanctuary where stone whispered tales of forgotten times and he could sculpt not just images, but emotions themselves.

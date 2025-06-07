@@ -1,0 +1,5 @@
+The air hung thick with the scent of bay rum and talcum powder, a comforting familiarity that had permeated Bartholomew "Bart" Eldridge's life since he was a boy perched on his father's knee in this very shop. Sunlight slanted through the dusty windowpane, illuminating motes dancing above rows of gleaming razors and antique shaving mugs. Outside, the rumble of the El train echoed down Archer Avenue, a constant reminder of Chicago's relentless rhythm.
+
+Bart leaned back against the worn leather of his barber chair, its familiar creak a soothing counterpoint to the clatter of clippers and the rhythmic snip-snip of scissors. He surveyed his domain - Eldridge's Barbershop, a sanctuary of wood paneling and faded photographs, where generations of men had sought solace in a hot towel shave and Bart's quiet wisdom.  Today, however, a palpable tension hung in the air. A stranger sat in his chair, fidgeting beneath the weight of a thick wool coat even though the late April sun promised warmth. His face was obscured by shadows cast from a wide-brimmed fedora, but Bart could sense a simmering anxiety radiating from him like heat from a stovetop. 
+
+

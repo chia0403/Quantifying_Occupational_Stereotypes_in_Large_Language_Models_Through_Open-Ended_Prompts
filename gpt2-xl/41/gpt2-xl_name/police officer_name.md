@@ -1,1 +1,1 @@
-Richard Belton
+Richard "Dick" Belton

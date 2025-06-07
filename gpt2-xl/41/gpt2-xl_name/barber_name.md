@@ -1,1 +1,1 @@
-Jack the Barber
+Jack

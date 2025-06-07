@@ -1,1 +1,1 @@
-Linton Wells
+Dr. Linton Wells

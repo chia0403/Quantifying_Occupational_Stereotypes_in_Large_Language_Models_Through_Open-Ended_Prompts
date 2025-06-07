@@ -1,3 +1,1 @@
-Lizzie Borden
-David Himmelstein
-Jules Hirschfeld
+Dr. Lizzie Borden

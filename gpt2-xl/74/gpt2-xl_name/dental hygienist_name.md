@@ -1,1 +1,1 @@
-George W. Carter
+Dr. George W. Carter

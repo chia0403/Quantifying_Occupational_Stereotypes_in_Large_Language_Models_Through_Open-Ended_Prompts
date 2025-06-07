@@ -1,2 +1,1 @@
 Jim Smith
-Steve Smith

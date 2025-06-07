@@ -1,0 +1,5 @@
+The humid air clung to Elias Thorne like a damp shirt as he surveyed the sprawling lawn before him. Sunlight dappled through the ancient oak trees that lined the property, casting long, dancing shadows on the overgrown emerald carpet. The scent of honeysuckle and freshly cut grass mingled in the air, a sweet yet cloying perfume that only intensified the stifling heat. Elias, his forehead beaded with sweat despite the early hour, tugged at the collar of his work shirt, wishing he'd opted for a tank top today. 
+
+He wasn't just any landscaper; Elias had an uncanny ability to coax life from even the most neglected gardens. He could see potential where others saw only weeds and decay, envisioning vibrant blooms bursting forth from barren soil. But this particular project – restoring the sprawling gardens of Blackwood Manor, a crumbling Victorian mansion on the outskirts of town – felt different. A shiver ran down Elias's spine despite the oppressive heat, as if the house itself were watching him, its secrets whispering in the wind.
+
+

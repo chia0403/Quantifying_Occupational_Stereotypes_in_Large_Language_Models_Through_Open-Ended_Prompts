@@ -1,0 +1,5 @@
+Rain lashed against the arched windows of Professor Elias Thorne's cluttered study, mirroring the tempest brewing within him. Stacks of leather-bound volumes threatened to topple from their precarious perch on every surface, illuminated by the flickering glow of a gas lamp casting long shadows across the room. Outside, the cobblestone streets of Edinburgh were slick with water, reflecting the dim orange glow of streetlamps like fractured jewels. Elias, his silver hair askew and his tweed jacket rumpled, paced before a massive oak desk piled high with faded maps, handwritten journals, and cryptic symbols scrawled on parchment.
+
+He had dedicated his life to unraveling the mysteries of ancient civilizations, but tonight, he felt a gnawing doubt, a chilling premonition that whispered of danger lurking in the shadows. His latest discovery – a crumbling artifact unearthed from a forgotten tomb in Egypt – promised untold secrets, but it also seemed to emanate an unsettling energy, a palpable sense of malevolence that chilled him to the bone. 
+
+

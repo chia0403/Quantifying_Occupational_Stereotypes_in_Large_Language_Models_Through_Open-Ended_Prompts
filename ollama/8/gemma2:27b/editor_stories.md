@@ -1,0 +1,3 @@
+The incessant buzz of fluorescent lights above mirrored the frantic drumming in Eleanor Beatrice Cavendish's chest.  Stacks of manuscripts teetered precariously on her desk, each one a potential literary gold mine or a soul-crushing abyss of cliché. Outside, New York City pulsed with its usual frenetic energy, but inside her cramped office at "Pen & Quill" publishing, the air hung heavy with deadlines and unspoken anxiety. Eleanor, a woman whose sharp wit was matched only by her unwavering dedication to her craft, rubbed her temples wearily. Another late night loomed, another battle against the ticking clock and the ever-present fear of missing that elusive masterpiece. 
+
+

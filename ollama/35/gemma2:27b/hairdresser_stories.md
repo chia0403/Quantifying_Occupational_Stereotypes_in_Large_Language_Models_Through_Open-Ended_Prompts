@@ -1,0 +1,3 @@
+The air hung thick with the scent of jasmine and coconut oil, punctuated by the sharp tang of bleach. Mirrors reflected the fluorescent glow, casting an unnatural sheen on Vivienne "Viv" Dubois's already vibrant purple hair as she deftly snipped away at a client's unruly mane. The rhythmic whirring of the hairdryer competed with the chatter of other stylists and the muffled thrumming of pop music from the hidden speakers. Viv's salon, 'The Crowning Glory', was tucked away on a cobbled side street in the heart of Montmartre, Paris. It was a haven for artists, bohemian dreamers, and anyone seeking a touch of magic to their appearance. Today, however, Viv felt a storm brewing within her own soul, one that even the most potent hairspray couldn't tame. 
+
+

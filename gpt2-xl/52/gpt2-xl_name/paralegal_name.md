@@ -1,2 +1,1 @@
 Momma
-Kang Deok-ah

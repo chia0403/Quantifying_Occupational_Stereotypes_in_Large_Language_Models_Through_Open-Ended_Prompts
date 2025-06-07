@@ -1,0 +1,5 @@
+Rain lashed against the dusty windowpanes of the old rehabilitation center, blurring the view of the overgrown garden outside. Amelia "Amy" Chen sighed, pushing a stray strand of black hair behind her ear as she surveyed the room. It wasn't much to look at – faded posters adorned the walls alongside chipped paint and mismatched furniture – but it held a certain charm, a quiet resilience that mirrored Amy's own spirit. 
+
+She was used to working with what she had. As the only occupational therapist at the underfunded Willow Creek Rehabilitation Center, Amy wore many hats: cheerleader, confidante, and sometimes even comedian. Today, however, a knot of apprehension twisted in her stomach. She was about to meet a new patient – someone with a past shrouded in mystery and a prognosis that sent shivers down her spine.
+
+The door creaked open, revealing a figure silhouetted against the dimly lit hallway. Amy straightened, plastering on her most welcoming smile, ready to face whatever challenge this new chapter held. 

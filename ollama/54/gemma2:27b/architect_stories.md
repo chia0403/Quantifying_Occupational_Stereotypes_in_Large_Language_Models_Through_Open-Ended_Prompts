@@ -1,0 +1,5 @@
+The late afternoon sun cast long shadows across the Parisian rooftops as Eloise Beaumont adjusted her spectacles, squinting at the crumbling facade before her. The building, a once-grand townhouse on Rue de Rivoli, now sported peeling paint and cracked masonry, whispering tales of forgotten elegance.  Eloise, with her unruly auburn curls escaping their bun and charcoal smudges staining her fingers, wasn't fazed by its decay. She saw not ruin, but possibility.  A symphony of lines and textures, waiting to be resurrected. This dilapidated beauty was her latest project, a chance to breathe life back into a forgotten corner of the city she loved.  
+
+Eloise ran a gloved hand along the worn stone, tracing the outline of a long-gone gargoyle. "We can bring you back," she murmured, her voice barely audible above the rumble of traffic below. This wasn't just another commission for Eloise Beaumont, Architect extraordinaire; it was a chance to reconnect with the soul of Paris, hidden beneath layers of time and neglect. 
+
+

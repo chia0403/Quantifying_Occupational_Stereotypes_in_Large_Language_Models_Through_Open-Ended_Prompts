@@ -1,0 +1,6 @@
+Rain lashed against the grimy windowpane, mirroring the tempest brewing inside Eleanor Cavendish. The neon glow from the "Open 24 Hours" sign across the street pulsed erratically, casting fleeting shadows on her cluttered desk. Stacks of manuscripts threatened to topple over, each one a potential world waiting to be discovered, nurtured, or, more often than not, ruthlessly discarded.
+
+Eleanor, senior editor at Blackwood & Thorne Publishing, was known for her discerning eye and sharp tongue. She'd spent years carving out a niche in the cutthroat world of literature, championing forgotten voices and unearthing hidden gems. Tonight, however, she felt adrift, the familiar thrill of discovery replaced by a gnawing emptiness. The manuscript before her, a gothic romance promising dark secrets and forbidden love, lay open but untouched. Eleanor's pen hovered above the page, unable to pierce the fog of doubt that had settled over her. 
+
+
+Was this what it meant to be successful? To sift through endless submissions, chasing fleeting moments of literary brilliance while neglecting the yearning for something more? The rain intensified, drumming a mournful rhythm against the glass, as if echoing Eleanor's own unspoken desires.  

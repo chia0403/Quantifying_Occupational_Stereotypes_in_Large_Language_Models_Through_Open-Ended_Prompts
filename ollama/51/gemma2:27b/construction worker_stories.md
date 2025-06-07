@@ -1,0 +1,5 @@
+The sun hammered down on Elijah "Eli" Blackwood's neck, sweat stinging his eyes as he wrestled a stubborn length of rebar into place. The skeletal frame of the skyscraper stretched up into the hazy New York City sky, mocking Eli with its impossible height.  Dust and the clang of metal filled the air, a symphony of construction in progress. Below him, the city throbbed – a sea of honking yellow cabs and bustling pedestrians that seemed impossibly far away from his perch on the 20th floor. 
+
+Eli wiped his brow with a calloused hand, yearning for a cold beer and the blessed shade of his tiny Brooklyn apartment. Today, though, felt different. There was a tension in the air, an unsettling stillness punctuated by whispers among his colleagues. Rumors were swirling about sabotage – someone threatening to bring down the whole structure if their demands weren't met. Eli, a man who preferred the company of concrete and steel to people, tried to ignore it all. But deep down, he couldn't shake the feeling that something was terribly wrong. 
+
+

@@ -1,2 +1,1 @@
 Ben Stiller
-Charlie Sheen

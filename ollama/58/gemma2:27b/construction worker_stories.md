@@ -1,0 +1,5 @@
+The midday sun beat down on Elias "Eli" Davenport's neck, turning his already sweat-soaked t-shirt into something resembling a damp rag. Dust devils danced across the parched earth of the Nevada desert, swirling grit and tumbleweeds around the half-built skeleton of what would someday be a luxury resort casino. Eli squinted at the blueprints spread out on the makeshift table – a rickety collection of planks held together with duct tape – trying to decipher the architect's intricate vision amidst the swirling heat haze. 
+
+The cacophony of construction was relentless: the clang of metal against metal, the growl of machinery, the shouts of his fellow workers echoing across the desolate landscape. Eli wiped a hand across his forehead, leaving a streak of grime in its wake. He wasn't built for this kind of heat, but he needed the work. This resort, with its promise of air-conditioned rooms and sparkling swimming pools, represented a chance at something better – a chance to escape the dead-end life he was stuck in. 
+
+

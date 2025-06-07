@@ -1,0 +1,6 @@
+Rain lashed against the grimy windows of the law office, blurring the neon glow of the "Justice For All" sign outside.  Inside, Amelia Harding sighed, pushing a stray curl behind her ear. The air hung heavy with the scent of stale coffee and desperation, a familiar cocktail in this part of town. Stacks of dusty files threatened to topple over from her overflowing desk, each one representing another life caught in the tangled web of the legal system.
+
+Amelia wasn't a lawyer, just a paralegal, but she saw enough heartbreak every day to understand the weight of justice, however elusive it might seem. Tonight, though, there was something different in the air. A file lay open on her desk, its contents more intriguing, and unnerving, than anything she'd encountered before. It belonged to a client Amelia had never met –  a recluse named Silas Blackwood, accused of a crime so bizarre, so seemingly impossible, that even seasoned detectives were baffled. 
+
+
+Let me know if you'd like me to continue the story!

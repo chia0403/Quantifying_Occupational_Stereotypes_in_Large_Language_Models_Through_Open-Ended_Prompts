@@ -1,2 +1,1 @@
 Richard Carrier
-Michael Crichton

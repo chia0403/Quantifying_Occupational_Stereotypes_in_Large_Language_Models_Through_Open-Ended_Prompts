@@ -1,0 +1,5 @@
+The rusted carcass of a bulldozer groaned under Amelia "Amy" Callahan's practiced hand. She coaxed it forward with a grunt, the hydraulic whine echoing through the desolate junkyard. The Arizona sun beat down on her neck, sweat stinging her eyes. Around her, mountains of scrap metal rose like twisted sculptures against the endless blue sky. This was Amy's world: a symphony of clanging metal and sputtering engines, where order emerged from chaos with every precise movement of her joystick.
+
+Today was different though. The usual rhythmic clank of dismantling old machinery was punctuated by the insistent chirping of her phone tucked in her greasy overalls pocket. She ignored it at first, focused on delicately separating a mangled car chassis from a twisted heap of rusted beams. But the chirping persisted, becoming an annoying counterpoint to the symphony of destruction. Finally, with a sigh, Amy lowered the bulldozer's arm and reached for her phone.  It was a call from her sister, Maggie. Something was wrong. Very wrong. 
+
+

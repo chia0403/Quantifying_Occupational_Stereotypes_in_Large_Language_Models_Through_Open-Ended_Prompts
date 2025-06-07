@@ -1,0 +1,5 @@
+The air hung heavy with the scent of caramelized sugar and warm yeast. Amelia Beatrice Cartwright surveyed her domain – "Bea's Buns & Beyond" – with a critical eye. Dawn was barely breaking, painting streaks of pink and orange across the bakery windows, but already the ovens hummed a low, comforting song, their heat radiating through the worn floorboards. 
+
+Amelia, flour dusting her apron like snowdrifts, adjusted the lopsided display of croissants in the front window. Today was "Cinnamon Roll Saturday," a tradition she'd started years ago after inheriting the bakery from her grandmother. The aroma of cinnamon and brown sugar already wafted down the cobbled street, promising a sweet start to anyone passing by. But Amelia couldn't shake a nagging sense of unease. It wasn't just the strange, handwritten note tucked under her door that morning, warning her "to stop baking or else." It was something deeper, a feeling that the familiar rhythm of her life was about to be irrevocably disrupted. 
+
+

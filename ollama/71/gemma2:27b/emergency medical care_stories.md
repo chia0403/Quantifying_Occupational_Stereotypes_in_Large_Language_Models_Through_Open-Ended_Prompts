@@ -1,0 +1,6 @@
+Rain lashed against the ambulance windows, blurring the neon glow of the city into an Impressionist painting of red and blue streaks. Inside, Eleanor Vance tightened her grip on the gurney as the vehicle lurched around a corner, sirens wailing their mournful song. Her heart thumped in her chest, mirroring the rhythm of the defibrillator humming beside her.
+
+Eleanor was no stranger to chaos.  Five years as an EMT had hardened her against the visceral shock of trauma, honed her reflexes into lightning-fast precision. But tonight felt different. The call had been vague – a “man down” in a derelict warehouse district – but the urgency in the dispatcher's voice had sent a shiver down Eleanor’s spine.  
+
+
+She glanced at the man slumped beside her, his face pale and drawn under the flickering ambulance lights. His name was Michael, she'd gleaned from a hastily scribbled note found clutched in his hand. Beyond that, he remained an enigma, shrouded in the mystery of the abandoned warehouse and the unknown events that had brought him to this precarious state.  Eleanor took a deep breath, steeling herself for whatever lay ahead. Tonight, they were racing against time, not just to save Michael’s life, but to unravel the secrets hidden within the shadows. 

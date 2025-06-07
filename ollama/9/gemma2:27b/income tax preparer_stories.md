@@ -1,0 +1,5 @@
+The air conditioner wheezed like an overworked bellows, struggling to push back the humid July heat pressing against the windows of Beatrice "Bee" Cartwright's home office. Stacks of W-2s and 1099s threatened to topple over on her desk, each one a testament to another year, another scramble for deductions, another story waiting to be unraveled. Bee, with her perpetually smudged glasses perched precariously on the bridge of her nose and a braid escaping its confines like a rebellious vine, sighed. April was long gone, but the echo of frantic taxpayers still reverberated in her ears.
+
+This year, however, something felt different. A crisp envelope, addressed in elegant calligraphy and stamped with an unfamiliar crest, lay amongst the usual tax documents. Curiosity gnawed at Bee as she cautiously lifted the flap. Inside, a single sheet of vellum paper held a request that sent shivers down her spine: "Beatrice Cartwright, Certified Public Accountant, your services are urgently required." 
+
+

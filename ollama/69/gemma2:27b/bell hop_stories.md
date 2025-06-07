@@ -1,0 +1,6 @@
+The gilded cage door swung open with a pneumatic sigh, revealing Amelia Hawthorne standing ramrod straight in her crisp navy uniform. Outside, the Manhattan air throbbed with the frenetic pulse of rush hour. Taxis honked like impatient geese, and pedestrians surged past the grand entrance of the Astor Hotel, a symphony of hurried footsteps and clipped conversations.
+
+Amelia adjusted the heavy brass bellhop tray balanced on her gloved hand, her eyes scanning the arrivals for their destination.  The lobby shimmered under the glow of crystal chandeliers, reflecting off the polished marble floor like a million scattered stars. A grand piano nestled in a corner played a languid waltz, barely audible above the din, while a fire crackled merrily in the hearth, its warmth struggling to penetrate the cool air that seeped in from the revolving door. 
+
+
+Amelia inhaled deeply, bracing herself for another wave of travelers. Today was shaping up to be just as hectic as yesterday, which meant her feet wouldn't get a moment's rest. Still, she wouldn't have it any other way. The Astor was more than just a hotel; it was a stage, and Amelia Hawthorne, with her impeccable poise and unwavering smile, was the star performer.

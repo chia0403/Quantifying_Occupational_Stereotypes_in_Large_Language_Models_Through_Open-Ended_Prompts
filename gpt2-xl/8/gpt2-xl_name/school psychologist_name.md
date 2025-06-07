@@ -1,1 +1,1 @@
-David Schabas
+Dr. David Schabas

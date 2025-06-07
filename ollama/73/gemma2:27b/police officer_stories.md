@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane, blurring the neon glow of the "Open 24 Hours" sign across the street. Detective Elias "Eli" Thorne rubbed his tired eyes, the fluorescent lights of the precinct doing little to alleviate the throbbing behind them. A stale scent of coffee and despair hung heavy in the air. Outside, sirens wailed, a mournful symphony that punctuated the endless drumbeat of the rain. Eli sighed, pushing away the untouched mug on his desk. He'd been chasing shadows for three days straight - missing persons cases rarely ended well in this city. This one was different though, gnawing at him like a persistent toothache. Sarah Chen, a bright-eyed college student with a future as promising as the dawn, had vanished without a trace.  Eli knew he had to find her.
+
+The worn photograph on his desk stared back at him – Sarah's beaming smile, a stark contrast to the grim reality of the case file beside it. Her parents, faces etched with worry and disbelief, haunted Eli's dreams. He owed them answers, even if those answers were buried beneath layers of unanswered questions and the city's relentless grime. 
+
+

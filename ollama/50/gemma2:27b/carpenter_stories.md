@@ -1,0 +1,5 @@
+The scent of sawdust and cedar hung heavy in the air, swirling with the late afternoon sunbeams slanting through the dusty windows of Elias Hawthorne's workshop. Outside, the bustling heart of Charleston hummed with the rhythm of horse-drawn carriages and vendors hawking their wares, but inside, it was a sanctuary of wood and whispered promises. Elias, his calloused hands tracing the grain of a cherrywood table leg, felt the familiar peace settle over him. He inhaled deeply, the scent grounding him in this space he'd carved out for himself amidst the city's clamor. 
+
+Today, however, the usual tranquility was tinged with unease. A commission had arrived that morning - an intricate clock case, the likes of which Elias had never seen before. The patron, a mysterious woman shrouded in whispers and veiled threats, demanded perfection within an impossibly tight deadline. As Elias studied the elaborate sketches, he couldn't shake the feeling that this wasn't just another job. It was a test, a challenge whispered on the wind, and Elias, despite his better judgement, felt compelled to answer its call. 
+
+

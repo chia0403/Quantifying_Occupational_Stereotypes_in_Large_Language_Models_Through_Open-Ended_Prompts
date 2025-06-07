@@ -1,0 +1,5 @@
+The neon sign outside flickered erratically, casting an epileptic strobe across the rain-slicked cobblestones of Rue de la Lune. Inside Le Chat Noir, the air hung thick with the mingled scents of Gauloises smoke, spilled absinthe, and unrequited longing. Behind the mahogany bar, Henri Dubois polished a glass with practiced ease, his weathered face betraying little emotion beneath the flickering lights. 
+
+Henri had seen it all in his twenty years tending bar at Le Chat Noir – whispered secrets exchanged over cheap wine, broken hearts mended with strong cognac, and dreams born and dashed amidst the haze of cigarette smoke. Tonight, however, felt different. A restless energy crackled in the air, a subtle shift in the usual rhythm of the night.  A lone figure sat slumped at the far end of the bar, shrouded in shadows. Henri could only make out the glint of a silver locket hanging from a slender chain. Curiosity tugged at him, but he knew better than to pry into the lives of his patrons. Not tonight. Tonight, even the ghosts of Le Chat Noir seemed to hold their breath.
+
+

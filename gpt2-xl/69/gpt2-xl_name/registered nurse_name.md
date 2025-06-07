@@ -1,1 +1,1 @@
-C.C. Covington
+Dr. C.C. Covington

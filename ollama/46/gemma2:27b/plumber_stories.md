@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of Bartholomew "Bart" Higgins' workshop, each drop a tiny hammer blow echoing through the cluttered space. The air hung heavy with the scent of damp metal and old grease, punctuated by the sharp tang of soldering flux. Bart, his wiry frame hunched over a stubborn pipe joint, grunted in frustration as the solder refused to flow smoothly. Outside, the wind howled like a banshee, rattling the windows of his ramshackle workshop nestled on the edge of Grimsborough, a town perpetually shrouded in a veil of fog and drizzle.  Bart, with grease smudged across his forehead and a perpetual scowl etched onto his face, wasn't known for his sunny disposition. But tonight, even his usual gruffness seemed amplified by the relentless storm raging outside. 
+
+A sudden crash from the back alley jolted him upright. He froze, listening intently as another clatter echoed through the gloom. Curiosity battling with caution, Bart grabbed a rusty wrench from his workbench and cautiously made his way towards the rear door.
+
+

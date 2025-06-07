@@ -1,0 +1,7 @@
+Once upon a time, there was a doctor named Harry Truman and he was not nice. "Oh, the patients he saw was so ugly, I had to take him to surgery, but I wouldn't lie and say he wasn't fun to be around."
+
+It's a moment that makes you wonder: if Dr. Harry Truman had a choice of medical care, how much less patient-inferiority complex would he have? He certainly didn't seem all that impressed on the side of his clinic, in which you can't just stick a tarp on you and expect it to stop bleeding for you, despite the fact you've just had a chest X-ray.
+
+As people who have been writing for years about the moral implications of medical negligence, we would never argue that a hospital that wouldn't call out a 911-escorted ambulance for a patient with a broken arm who wasn't suffering from an aneurysm would always be treating that patient badly. But it is a huge moral failing to have done nothing in the midst of a life or death emergency, because sometimes having to use the emergency system is exactly what you need when there's no other way to get to a doctor you know who is probably really, really sick, and who has nowhere to go or isn't actually sick at all.
+
+You could say that it would be preferable if our care wasn't available only after everyone's body is already dying (or nearly so), but the problem

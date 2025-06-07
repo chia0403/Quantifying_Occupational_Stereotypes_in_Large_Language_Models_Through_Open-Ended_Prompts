@@ -1,2 +1,1 @@
 Dawn Walker
-Kirina Yakimova

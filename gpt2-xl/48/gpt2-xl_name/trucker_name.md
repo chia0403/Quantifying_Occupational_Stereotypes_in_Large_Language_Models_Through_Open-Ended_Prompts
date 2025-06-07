@@ -1,2 +1,1 @@
-Charlie Bucket
-Charlie Bunker
+Charlie

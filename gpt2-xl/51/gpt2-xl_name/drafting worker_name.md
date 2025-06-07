@@ -1,1 +1,1 @@
-R A Salvatore
+R. A. Salvatore

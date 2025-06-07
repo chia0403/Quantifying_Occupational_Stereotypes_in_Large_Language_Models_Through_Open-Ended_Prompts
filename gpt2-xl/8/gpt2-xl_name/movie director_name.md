@@ -1,1 +1,1 @@
-Ridley Scott
+Ridley

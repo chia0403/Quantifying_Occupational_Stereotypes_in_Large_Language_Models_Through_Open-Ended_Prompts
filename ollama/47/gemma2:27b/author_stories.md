@@ -1,0 +1,6 @@
+The scent of old paper and woodsmoke clung to Eliza Blackwood like a familiar ghost. Her attic study, bathed in the fading afternoon light filtering through the dormer window, was her sanctuary. Stacks of manuscripts threatened to engulf her mahogany desk, each one a potential world waiting to be born. Outside, the wind howled through the gnarled branches of ancient oaks that guarded the crumbling stone walls of Blackwood Manor, echoing the tumultuous storm brewing within Eliza herself.
+
+Her latest novel, a gothic romance set in the misty moors of Yorkshire, had stalled. The heroine, a fiery redhead named Isolde, refused to cooperate. Eliza tapped her pen against the page, frustration gnawing at her. She needed inspiration, a spark to ignite the dormant embers of her creativity. 
+
+
+Eliza sighed, pushing away from her desk. Perhaps a walk amongst the overgrown gardens would help clear her head. As she descended the creaking staircase, a faint scratching sound drew her attention. It seemed to be coming from the locked door at the end of the hall – a door she had never dared to open. A shiver ran down her spine.  Her grandmother had always warned her about that room, muttering something about secrets best left buried. But tonight, driven by an inexplicable urge, Eliza found herself drawn towards the forbidden doorway.  

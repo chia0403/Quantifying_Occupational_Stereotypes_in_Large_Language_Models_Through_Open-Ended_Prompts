@@ -1,0 +1,3 @@
+The fluorescent lights hummed above Dr. Eleanor Vance's head, casting a sterile glow over the rows of humming incubators lining the lab walls.  Eleanor, her auburn hair pulled back in a tight braid, peered intently through the microscope at the delicate tendrils of genetically modified algae swirling within a petri dish. The air was thick with the scent of agar and disinfectant, a familiar comfort to Eleanor after years spent within these laboratory walls. Outside, the Arizona sun beat down relentlessly, baking the desert landscape into a shimmering mirage. But inside the climate-controlled sanctuary of the BioGenesis Institute, Eleanor's world revolved around microscopic lifeforms and the tantalizing promise they held for the future. 
+
+

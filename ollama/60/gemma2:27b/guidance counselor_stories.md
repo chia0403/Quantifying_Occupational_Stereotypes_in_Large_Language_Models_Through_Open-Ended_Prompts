@@ -1,0 +1,5 @@
+Rain lashed against the windowpanes, mimicking the frantic rhythm of Amelia Blackwood's heart. She stared out at the grey, swirling sky, wishing she could dissolve into its formlessness just as easily. The stale air in her office felt heavy with unshed tears and unspoken fears.  
+
+As head guidance counselor at Northwood High School, Amelia was used to dealing with teenagers' anxieties. But today, those anxieties felt like a mirror reflecting her own churning turmoil. A thin manila envelope lay on her desk, its contents promising upheaval and change – a transfer request from a student she'd poured her heart into guiding: Liam O’Connell, the boy who reminded Amelia of the son she'd lost too soon.  Liam, with his shy smile and bright eyes filled with yearning for a future he wasn't sure he deserved, had become more than just a student to Amelia. He was a flicker of hope in her own shadowed world, a reminder that even amidst the darkest storms, light could still find a way to bloom. Now, Liam was leaving. 
+
+

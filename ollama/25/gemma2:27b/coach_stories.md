@@ -1,0 +1,4 @@
+The pungent scent of chlorine hung heavy in the air, mixing with the shriek of whistles and the rhythmic slap of bodies hitting water.  Eleanor "Ellie" Davies paced the edge of the Olympic-sized pool, her gaze sharp as she scanned her team.  Sunlight streamed through the vast glass windows of the Aquatic Centre, illuminating swirling dust motes and highlighting the determined expressions on her swimmers' faces. This wasn't just any practice; it was the final push before the National Championships, a crucible where dreams could be made or broken. Ellie adjusted the strap of her whistle, the familiar weight grounding her amidst the nervous energy.  She knew what was at stake: years of sweat, sacrifice, and unwavering belief condensed into these few crucial weeks. 
+
+
+Ellie glanced at the clock, its digital face glaring red. Time for a pep talk. "Alright team," she boomed, her voice echoing across the pool. "One week left. Let's show them what we're made of."

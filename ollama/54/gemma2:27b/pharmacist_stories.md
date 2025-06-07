@@ -1,0 +1,5 @@
+The brass bell above the door tinkled mournfully as Elara Finch adjusted her spectacles, peering at the rain lashing against the windowpane. Her small apothecary, nestled on a cobblestone street in the perpetually misty village of Oakhaven, felt colder than usual. The scent of chamomile and lavender usually permeated the air, but today it was overwhelmed by the dampness seeping through the ancient stone walls.  Elara sighed, her breath fogging the glass. Business had been sluggish lately. Perhaps the villagers were simply stocking up on remedies for the encroaching winter, she mused. Or maybe, just maybe, they were starting to trust the travelling doctor who’d recently set up shop across the square. Elara frowned. She hadn't met him yet, but the whispers about his “miracle cures” and unorthodox methods bothered her.
+
+Suddenly, the bell chimed again, jolting Elara from her thoughts. A figure shrouded in a dark cloak entered, water dripping from their woolen hood.  Elara straightened, her gaze meeting the stranger’s hidden face. 
+
+

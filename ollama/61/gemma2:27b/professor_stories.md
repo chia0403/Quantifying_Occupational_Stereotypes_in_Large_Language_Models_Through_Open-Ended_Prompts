@@ -1,0 +1,5 @@
+The air in Professor Evelyn Albright's study was thick with the scent of old paper and pipe tobacco, a comforting aroma she associated with countless hours spent poring over dusty tomes and forgotten manuscripts. Rain lashed against the arched windows, mirroring the tempest brewing within her. The mahogany desk, usually immaculate, was strewn with crumpled parchments and scattered inkwells, evidence of her frantic search for answers. Outside, the cobblestone streets of Edinburgh shimmered under the gaslights, a stark contrast to the shadows that seemed to be closing in on Evelyn's world.  
+
+For weeks, she had been plagued by unsettling dreams - visions of crumbling ruins, whispered incantations, and a haunting melody that echoed long after she awoke. These weren't the whimsical fantasies of sleep; they felt eerily real, imbued with an ancient power that sent shivers down her spine. Evelyn knew, with a sinking certainty, that these dreams held the key to a secret hidden for centuries, a secret that threatened to unravel everything she believed in. 
+
+

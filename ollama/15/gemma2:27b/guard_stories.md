@@ -1,0 +1,5 @@
+Rain hammered against the iron gate, each drop exploding into a miniature geyser on the cobblestones below. The wind howled like a banshee, whipping through the gnarled branches of the ancient oak trees that lined the path leading to Castle Blackwood. Elias Thorne, his face weathered and grim beneath a dripping woolen cap, tightened his grip on his spear. He'd seen countless storms in his twenty years guarding the castle walls, but this one felt different, colder, heavier with an unspoken menace. 
+
+The torches lining the ramparts flickered precariously, casting grotesque shadows that danced across the courtyard. Beyond the gate, the rolling hills of Blackwood County were swallowed by a veil of grey mist, their familiar contours lost in the swirling gloom. Elias shivered, pulling his threadbare cloak tighter around his shoulders. Something felt off tonight. An uneasy tension hung in the air, thick as the fog that clung to the castle walls. He couldn't shake the feeling that this storm was more than just rain and wind – it was a harbinger of something darker, something waiting to break through the veil.
+
+

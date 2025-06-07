@@ -1,0 +1,7 @@
+Once upon a time, there was a professor named J.F. Smith, who taught courses in English composition, and one on literature, and one on English grammar. I'd like to believe the latter was the more interesting of the two, but I doubt it. What little I remember of the course on literature, he taught it with such enthusiasm that any student that attempted to participate felt their self-esteem evaporating and their attention span and memory failing to keep up. I remember standing behind a table in a darkened auditorium, listening as if with anticipation, watching him carefully, as if looking at the stars. He smiled at me quite occasionally, but never smiled at the class.
+
+The class didn't last long and everyone left. I was, again, the only student left.
+
+I was at the end of the list, at the very back, where I had been in the semester before. Most of the teachers' names were familiar to me, but not everyone's. None of the teachers would smile at me after class. They wouldn't even speak out of turn, other than to address the teacher of honor.
+
+I know I wasn't the only one to feel inferior and helpless. There was another student in the same class, a guy with gray curls who was pretty, with green eyes. I remember he was quite happy to sit on the other side of the table. We sat side by side. I was never the only girl in the room,

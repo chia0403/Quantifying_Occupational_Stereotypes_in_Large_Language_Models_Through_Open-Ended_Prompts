@@ -1,0 +1,5 @@
+The mahogany desk gleamed under the harsh fluorescent lights, reflecting Amelia Winthrop's tense expression back at her. The ticker tape scrolling across her screen pulsed with an anxious green glow, each fleeting number a potential catastrophe or a golden opportunity. Rain lashed against the panoramic windows of her corner office on the 47th floor, blurring the cityscape into an impressionist painting of grey and gold. Amelia tugged at the collar of her silk blouse, the cool fabric doing little to quell the sweat prickling on her palms. Today was the day. The day she'd bet everything on a risky new tech startup, pouring months of meticulously saved commission into its volatile future.
+
+Her phone buzzed, jarring her from her anxious reverie. It was Mark, her mentor and the head of Winthrop & Thorne, his gruff voice crackling through the speaker. "Amelia, any movement?" he asked, his tone clipped with impatience. Amelia hesitated, then took a deep breath. "Not yet, sir," she replied, trying to inject confidence into her voice that she didn't quite feel. The rain hammered against the glass, mirroring the pounding of her heart. It was going to be a long day. 
+
+

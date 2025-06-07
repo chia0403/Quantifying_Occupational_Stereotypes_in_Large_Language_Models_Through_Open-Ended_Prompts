@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Dr. Evelyn Blackwood’s office, blurring the already indistinct cityscape beyond. The neon glow from a nearby liquor store pulsed intermittently, casting an eerie green light across her cluttered desk.  Files overflowed from worn manila folders, their contents spilling onto the surface: crime scene photos, witness statements, and handwritten notes in Evelyn’s meticulous script. A half-empty mug of lukewarm coffee sat beside a tattered copy of “The Criminal Mind,” its pages dog-eared and marked with underlined passages.
+
+Evelyn sighed, pushing back a stray strand of dark auburn hair that had escaped her loose bun. The case file before her, labeled “Subject X: The Clockmaker Murders," was proving to be particularly perplexing. Three victims in as many weeks, each found posed within elaborate clockwork contraptions – macabre tableaux vivant frozen in time. The killer's meticulous attention to detail and seemingly random choice of victims left even Evelyn, with her years of experience delving into the darkest corners of the human psyche, feeling profoundly unsettled. 
+
+

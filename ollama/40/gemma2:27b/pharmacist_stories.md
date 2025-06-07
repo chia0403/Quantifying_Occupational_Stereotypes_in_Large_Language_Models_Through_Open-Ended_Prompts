@@ -1,0 +1,7 @@
+The bell above the pharmacy door tinkled incessantly, a jarring counterpoint to Eloise Blackwood's attempts at concentration. Outside, the summer storm raged, wind whipping rain against the windowpanes like angry fists. Inside, "Pharmacy Remix" by Lizzo blasted from the ancient speaker system Eloise had inherited with the shop, its upbeat tempo doing little to soothe her mounting anxiety. 
+
+Eloise was alone. Again. Mr. Henderson, her usual Wednesday evening help, had called in sick, leaving her to manage the steady trickle of customers braving the storm for their prescriptions.  She glanced at the clock - 6:47 pm.  Just another thirteen minutes until closing time, then she could escape the stifling humidity and finally indulge in a hot bath and a good book. But first, she had to face Mrs. Ramirez, who was currently hovering by the counter, tapping her foot impatiently. Eloise sighed, steeling herself for another round of demanding questions about her granddaughter's cough medicine.
+
+The air hung thick with the scent of lavender hand sanitizer and dusty pill bottles. The worn linoleum floor, scuffed from years of hurried footsteps, reflected the flickering fluorescent lights overhead. Eloise, surrounded by shelves overflowing with pharmaceutical wonders, felt a familiar pang of loneliness. Running a pharmacy in this small coastal town was fulfilling, yes, but it could also be isolating, especially on nights like these.  
+
+

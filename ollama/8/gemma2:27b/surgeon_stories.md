@@ -1,0 +1,3 @@
+Rain lashed against the grimy windows of St. Jude's Hospital, blurring the cityscape into an impressionistic smear of yellow and grey. Inside, the air crackled with tension. Dr. Evelyn Sinclair, her brow creased with concern, scrubbed in with practiced efficiency, her sapphire scrubs a stark contrast to the bloodstains already marring the operating table.  The rhythmic beep of the heart monitor filled the sterile silence, each pulse a hammer blow against Evelyn's nerves. The patient, a young boy named Daniel, lay vulnerable beneath the harsh surgical lights, his life hanging precariously in the balance. Tonight, every movement mattered. Every decision could be the difference between life and death. 
+
+

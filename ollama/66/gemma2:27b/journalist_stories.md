@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Elara Finch's cramped apartment, mirroring the storm brewing inside her. The air hung thick with the smell of stale coffee and unfulfilled promises. Spread across her cluttered desk lay a stack of unanswered emails - pitches rejected, sources gone cold. Three months into freelance journalism in this city, and Elara was starting to feel like a ship adrift in a sea of indifference.
+
+Tonight, however, something felt different. A crumpled note tucked between the pages of an outdated magazine promised a story unlike any she'd encountered before: a shadowy figure, whispered rumors of hidden artifacts, and a conspiracy stretching back centuries. It seemed too good to be true, but Elara, desperate for a break and driven by a gnawing sense of curiosity, couldn't resist the allure.  She pulled on her worn leather jacket, grabbed her battered notebook, and stepped out into the deluge. The neon signs of Chinatown blurred through the rain-streaked glass, beckoning her towards the unknown.
+
+**Setting:** A gritty, rain-soaked Chinatown in a nameless city, teeming with secrets and shadowed alleyways.

@@ -1,0 +1,5 @@
+The sun beat down on Jedediah "Jed" Blackwood's weathered face as he surveyed his herd from atop Widowmaker Hill. The rolling expanse of his Wyoming ranch stretched out before him, a tapestry woven with ochre grasslands, sapphire rivers, and the skeletal silhouettes of ancient cottonwoods. Jed squinted, his pale blue eyes searching for any sign of trouble amongst the 300 head of Angus cattle grazing below. Dust devils danced on the horizon, mirroring the turmoil in his own gut.
+
+The bank was breathing down his neck, threatening foreclosure if he couldn't make the payment by next month. His wife, Sarah, had been gone five years now, leaving Jed to shoulder the burden of their dream alone. The ranch was all they had ever wanted – a legacy for their children, a life etched into the earth. But lately, the earth seemed to be turning against him. Drought had withered the pasture, and cattle prices were plummeting faster than a hawk diving for prey.  Jed sighed, his calloused fingers tightening around the worn brim of his Stetson. He needed a miracle. 
+
+

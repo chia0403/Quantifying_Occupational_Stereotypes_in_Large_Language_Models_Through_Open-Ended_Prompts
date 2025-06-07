@@ -1,0 +1,6 @@
+The air backstage at the Grand Majestic Theatre crackled with nervous energy.  Rosalind Beatrice Thorne, her silver hair pulled back in a tight bun, strode through the labyrinthine corridors, her crimson velvet coat swirling behind her.  A symphony of hammering, sawing, and muffled curses accompanied her steps. Tonight was opening night for "The Tempest," Rosalind's ambitious reimagining of Shakespeare's classic, set not on a fantastical island but within the decaying grandeur of an abandoned Victorian asylum.
+
+Rosalind paused outside Ariel's dressing room, the scent of lavender oil and something faintly metallic wafting through the cracked door. She inhaled deeply, her mind replaying the countless hours spent dissecting the text, sculpting the characters, and coaxing brilliance from her cast. This production was a culmination of years of dreaming, a testament to her unwavering belief in the transformative power of theatre. 
+
+
+But as she reached for the doorknob, a chill snaked down her spine. A sense of unease prickled at the edges of her excitement.  Something wasn't right. The silence from Ariel's room was unnerving, a stark contrast to the usual pre-show buzz. Rosalind hesitated, then pushed open the door.

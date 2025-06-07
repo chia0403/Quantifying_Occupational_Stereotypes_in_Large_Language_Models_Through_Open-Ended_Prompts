@@ -1,0 +1,5 @@
+Rain lashed against the windows of Smile Central Dental Clinic, blurring the neon "Open" sign into a smudged, yellow streak.  Inside, the fluorescent lights hummed, casting a sterile glow over the waiting room where Eleanor Beatrice Harper, DDS hygiene specialist, meticulously sharpened her instruments. Eleanor preferred the rhythmic rasping to the incessant drumming of rain, which always seemed to amplify the anxieties of her patients. Today was no exception.
+
+Eleanor glanced at the overflowing appointment book – a testament to the clinic's popularity in their small coastal town. She sighed, anticipating the usual parade of nervous smiles and chattering teeth. Still, Eleanor took pride in her work.  She saw herself as more than just a dental hygienist; she was a translator, bridging the gap between fear and healthy gums. Today, however, a knot of unease tightened in her stomach. A new patient, scheduled for 3 pm sharp, had sparked an unexpected premonition.
+
+His name was Silas Blackwood, and something about it, perhaps its dark resonance or the way it hung in the air like whispered rumour, sent shivers down Eleanor's spine.  

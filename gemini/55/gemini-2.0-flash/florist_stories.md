@@ -1,0 +1,5 @@
+The cloying sweetness of lilies hung heavy in the air, a scent that usually comforted Esmeralda Fiore, but today felt oppressive, almost suffocating. Outside, the relentless Chicago wind howled like a wounded beast, rattling the charmingly crooked windows of "Esmeralda's Blooms" on Clark Street. Snow, the kind that felt more like stinging needles, plastered itself against the glass, obscuring the already dim December light.
+
+Esmeralda, a small woman with perpetually dirt-stained hands and eyes the color of deep violets, sighed, pinching the bridge of her nose. She hadn't had a customer all day, and the wilting gladioli in the corner were starting to mirror her mood. She was supposed to be creating a festive centerpiece for Mrs. Higgins' annual Christmas Eve dinner, but the vibrant reds and greens felt muted, somehow...wrong.
+
+The bell above the door jingled, a hopeful sound that momentarily banished the oppressive gloom. Esmeralda straightened, forcing a smile that didn't quite reach her eyes. Perhaps, just perhaps, the storm would deliver a Christmas miracle in the form of a last-minute shopper.

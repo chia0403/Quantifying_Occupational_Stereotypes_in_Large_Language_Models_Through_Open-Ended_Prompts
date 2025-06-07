@@ -1,0 +1,6 @@
+The air hung thick with the scent of vanilla and buttercream, punctuated by the occasional sharp tang of citrus zest. A rainbow of sprinkles littered Elsie Clementine's work surface, each tiny jewel glinting under the warm fluorescent lights. Outside, the midday sun beat down on the bustling streets of New Orleans, a stark contrast to the cool, quiet haven of Elsie's bakery, "Clementine's Confections." 
+
+Elsie hummed softly, her nimble fingers expertly piping delicate rosebuds onto a tiered wedding cake. It was her masterpiece for the day – a three-tiered ivory confection adorned with fresh lilies and sugar pearls, destined to be the centerpiece of a lavish celebration in the French Quarter. But beneath the calm surface of her focused artistry, Elsie felt a tremor of unease. The phone hadn't rung all morning, not even once. This was unheard of for Clementine's Confections. A silence this profound usually heralded trouble brewing.
+
+
+Elsie set down her piping bag and reached for her phone, a familiar knot forming in her stomach. As she flipped it open, the melody of "When the Saints Go Marching In" faded into the background, replaced by the sudden, jarring chime of an incoming message. Her heart pounded as she read the words:  "Your bakery needs you." 

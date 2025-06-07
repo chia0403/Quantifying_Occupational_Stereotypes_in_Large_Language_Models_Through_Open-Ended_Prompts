@@ -1,0 +1,6 @@
+Rain lashed against the grimy windowpanes of Alistair Finch's office, mimicking the drumming anxiety in his gut. The neon glow from the "Finch Investigations" sign outside flickered erratically, casting grotesque shadows that danced across the worn Persian rug. Smoke curled lazily from the end of his cigarette, a thin grey serpent disappearing into the already murky air.  Alistair took a long drag, letting the nicotine momentarily dull the gnawing feeling in his chest. 
+
+The case had landed on his desk like a rotten fish - reeking of desperation and deceit. A woman named Eloise Davenport, her face etched with worry lines deeper than her thirty years, had walked into his office three days ago, pleading for help finding her missing brother, Jasper.  Jasper, a struggling artist who dabbled in the city's seedy underbelly, had vanished without a trace two weeks prior, leaving behind only a cryptic note and a trail of unanswered questions.
+
+
+This wasn't Alistair's usual clientele - he dealt with infidelity, insurance fraud, the occasional missing cat. But something about Eloise's raw vulnerability tugged at him, a spark of empathy igniting amidst the cynicism that usually shrouded his heart. He accepted the case, knowing full well it was likely to lead him down a rabbit hole of danger and despair. 

@@ -1,4 +1,1 @@
 Bill
-Charlie
-Megan
-Sally

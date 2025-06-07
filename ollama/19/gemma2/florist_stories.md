@@ -1,0 +1,6 @@
+The air in "Petals & Promises" was thick with the scent of lilies, their white trumpets gleaming like polished ivory under the warm glow of the shop's antique chandelier.  A gentle breeze from the open front door carried the faint murmur of traffic on Elm Street, a constant hum that usually faded into the background for Amelia Rose Hawthorne. Today, however, it was amplified, as if the bustling city itself was holding its breath, waiting for something to happen. 
+
+Amelia, her auburn braid cascading down her back like a waterfall of autumn leaves, paused in her work, arranging a bouquet of vibrant sunflowers destined for a first date anniversary. Her green eyes, usually sparkling with mischief, held a pensive frown as she listened to the silence between the city's hum and the usual symphony of birdsong from the tiny birdhouse perched on the windowsill.  Something felt different. The air crackled with an almost imperceptible tension, a feeling Amelia had always attributed to the city's unpredictable nature. But today, it was deeper, more primal. 
+
+
+The bell above the door chimed, and Amelia turned, a smile ready to bloom on her face until she saw who stood in the doorway.  Her smile faded into a tight line. It was him. The man from the dream. 

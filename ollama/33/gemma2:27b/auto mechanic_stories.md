@@ -1,0 +1,5 @@
+The greasy scent of motor oil and burnt rubber hung heavy in the air, mingling with the faint tang of exhaust fumes wafting in from the open garage door.  A radio, perched precariously on a toolbox overflowing with wrenches and screwdrivers, blared out a scratchy blues tune, punctuated by the rhythmic clang of Reginald "Reggie" Beaumont's wrench against a rusted bolt. Reggie, his brow furrowed in concentration, was hunched over the engine of a sputtering 1967 Mustang, its faded cherry red paint mirroring the setting sun outside his cluttered workshop in the heart of dusty, forgotten Harmony Springs.
+
+Harmony Springs, population 842 (give or take), was the kind of town where everyone knew your name, and if they didn't, they sure as hell knew about your grandpappy. It wasn't exactly bustling with excitement, but Reggie wouldn't have it any other way. He had inherited Beaumont's Auto Repair from his father, who'd inherited it from his own pa. The grease under his fingernails and the calluses on his palms were badges of honor, proof he belonged in this small town, surrounded by the familiar symphony of engines sputtering to life. 
+
+

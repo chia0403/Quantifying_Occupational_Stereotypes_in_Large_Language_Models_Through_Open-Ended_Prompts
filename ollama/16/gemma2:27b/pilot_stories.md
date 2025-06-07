@@ -1,0 +1,5 @@
+The rusty wind whipped Amelia "Ace" Harding's braid against her cheek as she surveyed the desolate landscape below. Miles of cracked earth stretched out in every direction, punctuated only by the skeletal remains of long-dead trees. Above, the sky was an angry bruise of purple and orange, bruised further by the streaks left behind by her aging biplane, The Nightingale. Ace squinted at the horizon, searching for any sign of life, any indication that she hadn't flown into a forgotten corner of the world.
+
+She'd been hired for a simple retrieval job – fly to a remote research outpost in the Great Chasm and pick up a scientist who'd fallen ill. Simple enough, except the maps were decades old, the radio was spitting static, and Ace had a sneaking suspicion that "ill" might be code for something far more sinister.
+
+Ace tightened her grip on the yoke, The Nightingale groaning in response. This wasn't her usual gig ferrying tourists over scenic mountains or delivering cargo to coastal towns. This felt different, steeped in a hushed danger that prickled at the back of her neck. 

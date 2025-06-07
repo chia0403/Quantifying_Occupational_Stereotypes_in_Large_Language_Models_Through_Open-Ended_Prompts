@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Professor Elara Blackwood's office, mirroring the storm raging within her. Stacks of dusty tomes threatened to topple over, their spines cracked and faded with age. The air hung thick with the scent of mildew and old paper, a familiar comfort in this cluttered sanctuary she called home. Outside, the cobblestone streets of Prague echoed with the mournful cries of street vendors struggling against the wind, but Elara barely registered the commotion. Her gaze was fixed on an ancient grimoire lying open on her desk, its pages filled with cryptic symbols and faded ink.
+
+This wasn't just any book. This was the Codex Umbra, rumored to hold secrets of forbidden alchemy and forgotten magic. For years, Elara had scoured dusty libraries and shadowed ancient ruins in pursuit of this elusive artifact. Now, finally holding it in her hands, she felt a thrill mixed with apprehension. The power contained within these pages could be both wondrous and destructive. And Elara knew, deep down, that unlocking its secrets would forever change her life. 
+
+

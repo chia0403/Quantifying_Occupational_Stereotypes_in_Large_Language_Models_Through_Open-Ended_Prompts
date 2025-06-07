@@ -1,0 +1,9 @@
+## Story Opening and Setting:
+
+**Story Opening:**
+
+Beatrice "Bea" Amelia Butterfield inhaled the saccharine air of "The Sweet Surrender" bakery, letting it fill her lungs like a comforting, if slightly overwhelming, perfume. The smell of vanilla, almond, and burnt sugar was both her living and her constant headache. Today, however, it was tinged with something else, something sharper, something… metallic? Bea wrinkled her nose, pulling off her polka-dotted apron and setting it on the counter. This wasn't right. This was definitely *not* right. It wasn't the usual stressed baker anxiety; this was something tangible, something in the air… something that might just ruin the meticulously sculpted swan wedding cake she’d been working on for the past three days.
+
+**Setting:**
+
+"The Sweet Surrender" is a charming, if slightly cramped, bakery nestled on the cobblestone street of Havenwood, a small town in the heart of the English countryside. Ivy climbs the honey-colored brick facade, softening the edges and giving it an air of timelessness. The front window, currently adorned with a whimsical display of sugar flowers and gingerbread houses, draws tourists and locals alike. Inside, the walls are painted a soft, buttery yellow, and mismatched vintage furniture provides seating for patrons eager to indulge in a slice of Bea's famous Victoria Sponge or a decadent chocolate truffle. The back of the bakery houses the kitchen, a controlled chaos of stainless steel counters, mixers humming busily, and shelves overflowing with pastry bags, sprinkles, and enough fondant to construct a small castle. Despite its idyllic appearance, Havenwood is not without its secrets, secrets whispered in hushed tones over cups of tea and slices of cake, secrets that Beatrice Butterfield, much to her chagrin, might soon find herself entangled in.

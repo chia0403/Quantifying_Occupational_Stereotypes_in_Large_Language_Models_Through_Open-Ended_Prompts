@@ -1,0 +1,7 @@
+Once upon a time, there was a stock broker named Jim, who lived in the city of San Paulo in Brazil. Jim bought stocks in a company called FRS-100, an oilfield services company and sold some of his shares to be worth only about one thousand dollars. Jim was a very good trader – in a country where everyone was a good trader, in a country with the most volatile currency of any in the world. But when it was time for him to make his money, he lost it – in a single day.
+
+This is how he ended up bankrupt.
+
+A few days after selling his shares, Jim ran into a fellow broker who was a friend who had traded some of his shares as well. Jim asked, "Hm, I guess this is your lucky day. Now how are you coming on this?" The man replied that he had lost about seven grand in one day's trading. Jim thought, "What a loser." He then remembered what he had heard in the newspaper on the previous day: that a certain currency had gone from five reals to seventy. He then asked the guy, "How big was the amount of money I bought that day?" The fellow responded, "Maybe seven million reals."
+
+Jim was a great trader, but not in a country with the third-most variable currency in the world, a country with all the other risk investors feared. The stock broker was a fool, who took a quick buck when

@@ -1,2 +1,1 @@
 Stanley Kramer
-Henry Mancini

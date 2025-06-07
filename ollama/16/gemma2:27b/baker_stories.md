@@ -1,0 +1,5 @@
+The aroma of caramelized sugar and warm yeast hung thick in the air, a comforting veil against the biting November wind whipping down Mulberry Street. Inside "The Rolling Pin," Amelia Rose Thornton kneaded dough with the practiced rhythm of someone who had spent a lifetime crafting sweet delights. Her flour-dusted hands moved like dancers, stretching and folding the gluten strands into submission. Outside, snow began to fall, fat flakes swirling in the twilight, but Amelia hardly noticed. She was lost in the world of her bread, imagining the golden crust shattering under a hungry bite. 
+
+The bell above the shop door jingled, announcing a customer. Amelia glanced up, a floury smile already blooming on her face. It was Mrs. O'Malley from down the street, her eyes crinkling with warmth as she surveyed the trays of freshly baked croissants and sourdough loaves. This was Amelia's haven, this little bakery nestled in the heart of Brooklyn. Here, amidst the scent of sugar and spice, she felt truly at home. 
+
+

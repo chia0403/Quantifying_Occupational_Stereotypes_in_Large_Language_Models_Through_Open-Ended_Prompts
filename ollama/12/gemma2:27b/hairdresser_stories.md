@@ -1,0 +1,5 @@
+The air hung thick with the scent of lavender and hairspray in "Curl Up & Dye," Beatrice "Bea" Augustine's haven of scissors and secrets. Sunlight streamed through the dusty storefront window, illuminating motes dancing in the air above her station. Bea, with her fiery red curls piled atop her head like a crown and hands that moved with the practiced grace of a sculptor, was coaxing life back into Mrs. O'Malley's limp, greying locks. 
+
+Outside, the quiet suburban street bustled with the mundane rhythms of a Tuesday morning - children giggling on their way to school, lawnmowers droning in the distance, and the occasional impatient honk from someone stuck behind a garbage truck. But inside "Curl Up & Dye," time moved at Bea's pace, punctuated by the snip of scissors, the hum of the hairdryer, and the gentle murmur of confessions whispered between stylist and client. Today, however, the usual rhythm felt off-kilter. A tightness in Bea's chest mirrored the storm brewing on the horizon, a feeling she couldn't quite shake, like a forgotten melody lingering just out of reach. 
+
+

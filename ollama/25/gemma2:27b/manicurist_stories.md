@@ -1,0 +1,5 @@
+The air in "Nails by Nadine" was thick with the scent of acetone and lavender polish, a peculiar perfume that Nadine had come to find oddly comforting.  She leaned across her station, carefully shaping Mrs. Henderson's nails into neat ovals. Sunlight streamed through the shop window, illuminating dust motes dancing in the air and turning the bottles of shimmering polishes into miniature rainbows. Outside, the bustling street scene of downtown Asheville hummed with life, a stark contrast to the quiet intimacy Nadine cultivated within her tiny salon.
+
+Nadine Evangeline Cartwright, with her fiery red curls piled atop her head in a messy bun and freckled nose dusted with iridescent powder from her latest manicure, was the heart and soul of "Nails by Nadine."  She knew each client's preferred shade, their life stories, their deepest secrets – all confided between coats of polish. Today, however, something felt different. A restlessness buzzed beneath Nadine's skin, a premonition that something extraordinary was about to unfold.
+
+

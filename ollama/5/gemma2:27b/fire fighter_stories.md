@@ -1,0 +1,3 @@
+Smoke choked Elias "Eli" Vance as he wrestled the hose, its weight nearly pulling him back into the inferno. Flames danced around him, hungry tongues licking at the crumbling facade of the Victorian townhouse. A child's laughter, distorted by the crackling heat, pierced through the roar. Eli gritted his teeth, pushing harder, knowing that somewhere behind the flames a family waited for salvation. The cobblestone streets of Charleston were slick with rain mixed with ash, reflecting the orange glow of the blaze against the darkening sky. Above them, thunder grumbled ominously, mirroring the turmoil brewing within Eli's gut. This was no ordinary fire; something felt off, sinister even, and it gnawed at him as he battled the relentless heat. 
+
+

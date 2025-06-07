@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Amelia "Amy" Harding's cramped apartment, mirroring the storm brewing inside her. The neon glow from the "Open 24 Hours" sign across the street pulsed like a migraine, mocking her lack of sleep. For three days straight, Amy had been chasing leads on the string of bizarre robberies plaguing the city: art heists where the only thing stolen were seemingly worthless trinkets - a chipped porcelain doll, a rusty spoon, a half-burnt photograph. The police dismissed them as pranks, but Amy smelled something bigger, something rotten beneath the surface.
+
+She shoved aside crumpled takeout containers and overflowing ashtrays on her desk, sifting through interview notes and blurry photographs taken at the crime scenes. Each object stolen seemed innocuous on its own, yet together they formed a cryptic pattern she couldn't decipher. The pressure was mounting; her editor, a perpetually scowling man with a nose for sensationalism, was breathing down her neck. He wanted answers, and Amy was running out of time. 
+
+

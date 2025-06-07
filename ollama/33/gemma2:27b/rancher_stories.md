@@ -1,0 +1,5 @@
+The sun, a relentless hammer against an unforgiving sky, beat down on Jedediah “Jed” Caleb Hawkins as he surveyed his land. Dust devils danced across the parched earth, mocking the withered crops that stubbornly clung to life. The once-lush fields, now cracked and brown, stretched out before him like a rumpled tapestry woven from despair. 
+
+Jed’s calloused hand shielded his eyes, squinting at the horizon where the distant mesa seemed to shimmer in the heat haze. It was a harsh landscape, unforgiving and unrelenting, much like the man himself. He had inherited this land from his father, who had wrestled it into submission with grit and sweat. Now, Jed fought the same battle, but the enemy seemed more formidable than ever before - drought clung to the valley like a curse.  
+
+The silence was broken only by the mournful cry of a hawk circling overhead and the faint creak of the windmill struggling to pump precious water from the depths. Jed sighed, a sound heavy with weariness and worry. He needed rain. 

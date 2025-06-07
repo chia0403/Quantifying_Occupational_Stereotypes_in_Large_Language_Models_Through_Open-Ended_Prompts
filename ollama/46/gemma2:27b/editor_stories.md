@@ -1,0 +1,3 @@
+Rain lashed against the grimy windowpane of Beatrice "Bea" Hawthorne's office, blurring the already hazy cityscape beyond. The incessant drumming mirrored the rhythm of her headache, throbbing in time with the clattering keys of her ancient typewriter. Stacks of manuscripts teetered precariously on every surface – a testament to Bea's relentless work ethic and the mountain of aspiring authors she tirelessly championed at Hawthorne & Quill Literary Agency. Tonight, however, the usual spark of literary excitement was dulled by a gnawing sense of unease. A single envelope, addressed in an elegant, spidery script, lay open on her desk, its contents a chilling manuscript titled "The Whispering Gallery." 
+
+

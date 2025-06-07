@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named Frank T. Wilson. He was the founder of the University of Georgia, where he was a professor of psychology. He found a way to identify a person's moods by measuring their pulse. Not only could he discern what moods individuals were in, he could also give them a rating on how happy, sad, or angry they tended to be.
+
+From this he built a science. And people were convinced that it worked, because it did. Wilson and his associates were able to predict how individuals would behave by gauging their pulse. And then, by testing the people and calibrating the test with the right parameters, they could find out whether one person's behavior was affected by his current state and whether his future behavior was influenced by his current state and whether his future state was affected by previous state—and so on.
+
+The test came to be known in the scientific community as a "test of mood" or "motivational accuracy: the ability to predict the behaviour of an individual from his state of mind."
+
+And the people had to believe there was something to this. In order to believe that a person's behavior was determined by his mind, Wilson had to demonstrate that mood alone could predict this behavior. And the method he selected to demonstrate that mood alone worked was to test how well you could tell the personality of someone who was either smiling or frowning from his face. He found that the smile

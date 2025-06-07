@@ -1,0 +1,5 @@
+Rain lashed against the windshield, blurring the already indistinct lights of the rest stop into shimmering halos. The rhythmic thrumming of the engine and tires on wet asphalt was the only sound louder than the insistent drumming of water. Behind the wheel, Elias "Eli" Blackwood gripped the steering wheel, his knuckles white against the worn leather. He'd been pushing hard for days, trying to make up for lost time after a blizzard shut down I-80 for almost two weeks. 
+
+Now, exhaustion gnawed at him, heavy as the load he hauled in his eighteen-wheeler.  A faded trucker hat adorned his head, and grease smudged the lines etched around his blue eyes. Eli squinted through the relentless rain, hoping to catch a glimpse of the exit sign for the Oasis Rest Stop. He needed coffee, strong enough to peel back the layers of fatigue. More than that, he craved a moment's respite from the endless road, the constant hum of the engine, and the weight of responsibility pressing down on his shoulders. 
+
+

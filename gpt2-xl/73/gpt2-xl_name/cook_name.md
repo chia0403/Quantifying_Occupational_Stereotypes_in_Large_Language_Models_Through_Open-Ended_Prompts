@@ -1,2 +1,1 @@
 Jimmy T
-Jimmy G

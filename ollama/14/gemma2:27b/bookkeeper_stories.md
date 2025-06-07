@@ -1,0 +1,5 @@
+Rain lashed against the warped glass pane of Elsie Beatrice Cartwright's office window, mimicking the frantic rhythm of her heart. The air hung thick with the scent of damp paper and stale coffee, a familiar aroma in the cramped space she called home away from home. Stacks of ledgers towered on every available surface, their crisp lines blurring through a film of condensation. Elsie, hunched over a faded invoice illuminated by a single flickering bulb, chewed nervously on her lower lip. 
+
+Tonight was different. Tonight, she wasn't balancing the books for the usual suspects – the butcher with his perpetually questionable meat weights, the seamstress who inflated thread costs, or the tavern owner who claimed ale mysteriously evaporated overnight. Tonight, Elsie was poring over an account belonging to a shadowy figure known only as "The Raven." The ledger entries were cryptic, filled with coded payments and impossible sums, whispers of something far darker than unpaid invoices and fudged figures.  And for the first time in her life, Elsie Beatrice Cartwright, the most meticulous bookkeeper in all of Grimsborough, felt a tremor of fear crawl down her spine.
+
+

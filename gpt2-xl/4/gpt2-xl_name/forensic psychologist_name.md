@@ -1,1 +1,1 @@
-Gary Schwartz
+Dr. Gary Schwartz

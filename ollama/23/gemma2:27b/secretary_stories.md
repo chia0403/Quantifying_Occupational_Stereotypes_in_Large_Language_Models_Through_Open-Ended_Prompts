@@ -1,0 +1,3 @@
+The insistent click-clack of Elara Rosalind Finch's typewriter was the only sound breaking the oppressive silence of Mr. Hawthorne's office.  Rain lashed against the grimy windows of the building, blurring the already dreary cityscape outside into an impressionistic wash of grey and black. Elara shivered, pulling her threadbare cardigan tighter around her. The ancient radiator wheezed feebly in the corner, offering little respite from the chill that permeated the room. Stacks of dusty ledgers towered on her desk, their yellowed pages whispering forgotten secrets.  Elara sighed, her breath fogging the air momentarily before dissipating into nothingness. Another dreary day in the employ of Hawthorne & Sons, importers of fine (and decidedly unfashionable) teacups. 
+
+

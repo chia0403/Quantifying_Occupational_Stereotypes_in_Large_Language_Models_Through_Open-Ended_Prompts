@@ -1,0 +1,5 @@
+The air in Elara Delacroix's studio was thick with the scent of linseed oil and turpentine, a comforting aroma that always grounded her. Sunlight streamed through the large skylight above, illuminating dust motes dancing in its beam and casting sharp shadows from the overflowing paint tubes scattered across her workbench. Outside, Paris hummed with its usual chaotic symphony – the distant blare of a car horn, the melodic chatter of vendors at the nearby market, the rhythmic clatter of the metro rumbling beneath her feet.
+
+Elara, however, was oblivious to the city's bustling energy. Her gaze was fixed intently on the canvas before her, a blank expanse begging to be filled with colour and life. Today, she was grappling with a particularly elusive subject: the ephemeral beauty of a sunrise over the Seine, its fiery hues reflected in the rippling water. The memory of it lingered vividly in her mind – the blush of pink against the deepening indigo sky, the golden fingers of sunlight reaching out to caress the sleeping cityscape. But translating that fleeting moment onto canvas felt like chasing shadows.
+
+

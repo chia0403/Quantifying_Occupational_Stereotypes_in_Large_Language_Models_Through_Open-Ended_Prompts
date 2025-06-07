@@ -1,0 +1,5 @@
+The scent of vanilla and almond hung heavy in the air, a familiar comfort to Amelia Beatrice Cartwright.  Outside, the humid July sun beat down on Charleston's cobblestone streets, turning the historic city into a shimmering mirage. But inside "Amelia's Sweet Dreams," the world was cool and fragrant, bathed in the gentle glow of string lights illuminating rows upon rows of meticulously crafted cupcakes, delicate macarons, and towering cakes adorned with intricate sugar flowers. 
+
+Today was Amelia's busiest day of the year - the annual Charleston Cake Festival. Bakers from all over the region descended on the city, vying for the coveted Golden Spatula award. Amelia had entered her masterpiece: a three-tiered confection inspired by the intricate wrought ironwork adorning the city's balconies. Each delicate scroll and floral motif was painstakingly sculpted from sugar paste, shimmering with edible gold dust. She nervously eyed it across the counter, praying that the humid Charleston air wouldn't cause any meltdowns before judging time.  
+
+

@@ -1,0 +1,3 @@
+Rain lashed against the windows of "Bloom & Bark," a quaint flower shop tucked away on a cobblestone street in Edinburgh's Old Town.  The scent of damp earth mingled with the sweet fragrance of lilies and roses, creating a heady perfume that usually soothed Elsie Carmichael's soul. Today, however, even the intoxicating aroma couldn't penetrate the gloom settling over her heart.  
+
+A handwritten note lay crumpled on the counter beside a wilting bouquet of forget-me-nots - a last reminder from her beloved grandmother, who had always encouraged Elsie to follow her passion for flowers. Now, with her grandmother gone and the shop struggling against rising rents and online competition, Elsie felt like her dreams were fading faster than the vibrant colours of autumn leaves.  

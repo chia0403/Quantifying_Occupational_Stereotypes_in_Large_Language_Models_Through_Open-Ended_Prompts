@@ -1,0 +1,5 @@
+The flickering fluorescent lights of Mercy General Hospital cast a sickly yellow pallor over Evelyn Rose Blackwood's scrubs as she hurried down the hallway, her ID badge bouncing against her chest. The scent of disinfectant and fear hung heavy in the air, a familiar cocktail she'd come to accept as the aroma of her daily grind. Today was already shaping up to be one of those days – the ones where the waiting room overflowed with anxious faces and the gurneys seemed perpetually occupied.  Evelyn sighed, pushing open the double doors to the lab, hoping for a brief respite before her next patient arrived.
+
+The lab itself was a sanctuary of organized chaos: rows upon rows of neatly labelled vials shimmering under the harsh glare of the overhead lights, centrifuges whirring like mechanical bees, and the faint, metallic tang of blood hanging in the air.  Evelyn found solace in this controlled environment, a world where precision and order reigned supreme. Here, she wasn't just Evelyn Blackwood, struggling single mother juggling two jobs; here, she was Evelyn Rose, the phlebotomist, wielding needles with the grace and accuracy of a seasoned surgeon. 
+
+

@@ -1,0 +1,5 @@
+Rain lashed against the windows of Ms. Evelyn Thorne's office, blurring the autumn leaves into swirling watercolor strokes. The fluorescent lights hummed overhead, casting a sterile glow on the motivational posters lining the walls – "Believe in Yourself!" and "Reach for Your Dreams!" seemed ironically cruel given the dreary day.  Evelyn sighed, pushing away the stack of college application forms crowding her desk. It was mid-October, peak season for senior stress, and the air in her office felt thick with anxiety.
+
+She glanced at the clock – 3:15 pm. Just fifteen more minutes until the bell rang, signaling freedom for everyone but her. Evelyn braced herself. The last appointment of the day was always the toughest; a student struggling to navigate the choppy waters of post-graduation life, their futures seemingly adrift in the storm brewing outside. Today's case was Liam O'Connell, a quiet boy with haunted eyes and a perpetual slouch, who hadn't spoken a word about his plans for after high school.
+
+

@@ -1,0 +1,3 @@
+The air hung thick with honeysuckle and the scent of impending rain as Elara "Ellie" Briarwood meticulously arranged a bouquet of deep crimson roses.  Her fingertips danced over velvety petals, her movements as practiced as the way she weaved her grandmother's old embroidery patterns into floral arrangements years after her death. The little flower shop on Willow Street had been Ellie's legacy ever since she was a girl, helping her Nana create breathtaking displays and learn the secrets of blooms from every corner of the world.  
+
+But tonight, the usual calm of the late afternoon was shattered. A frantic knock echoed through the door, followed by a voice that sent a shiver down Ellie's spine.  "Ellie? It's Mrs. Odell. She needs you." 

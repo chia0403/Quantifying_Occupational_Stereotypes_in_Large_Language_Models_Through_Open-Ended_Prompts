@@ -1,2 +1,1 @@
 Lucy Thompson
-Mr Higgins

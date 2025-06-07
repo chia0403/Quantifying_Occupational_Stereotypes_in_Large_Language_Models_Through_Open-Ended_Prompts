@@ -1,0 +1,7 @@
+The musty scent of old books clung to Eliza Cartwright like a second skin as she dusted the mahogany shelves lining Lord Beaumont's study. Sunlight, filtered through dusty lace curtains, illuminated motes dancing in the air and cast long shadows across the Persian rug. Outside, the rhythmic clang of the blacksmith's hammer echoed from the village square, a stark contrast to the hushed stillness of the manor house. Eliza paused, her fingers hovering over a leather-bound volume titled "The History of Alchemy." The arcane symbols embossed on its cover sparked a flicker of curiosity within her.
+
+Eliza Cartwright wasn't your typical housekeeper. Beneath her starched apron and sensible shoes resided a mind brimming with unanswered questions and a heart yearning for adventure beyond the confines of Blackwood Manor. She devoured the books Lord Beaumont neglected, her imagination ignited by tales of distant lands and extraordinary feats. But reality always tugged her back to the mundane tasks of scrubbing floors, polishing silver, and tending to the lord's eccentric whims.
+
+Today, however, felt different. A restlessness pulsed within her, a sense that something momentous was about to unfold. Little did Eliza know, her intuition wasn't wrong. An unexpected visitor was soon to arrive at Blackwood Manor, one who would shatter her ordinary existence and plunge her into a world she could never have imagined.
+
+

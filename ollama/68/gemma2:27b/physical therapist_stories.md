@@ -1,0 +1,7 @@
+Rain lashed against the windows of "Renew Physical Therapy", blurring the once vibrant autumn leaves into a watercolour wash. The air inside smelled faintly of antiseptic and lavender oil - a calming blend Elsie Mae Beaumont always kept bubbling in her diffuser. Outside, the wind howled like a banshee, sending shivers down Elsie's spine despite the warmth radiating from the small wood-burning stove nestled in the corner of her office.
+
+Elsie sighed, peering out at the storm. Her first appointment was due any minute, and she hoped it wasn't someone needing to navigate icy roads. She glanced at the day's schedule: "Mr. William Hawthorne - Post-operative knee rehabilitation." Elsie smiled. Mr. Hawthorne was a retired carpenter with twinkling blue eyes and an infectious laugh. He always brought in freshly baked cookies, which Elsie happily devoured between exercises.
+
+Today, however, something felt different. The usual buzz of anticipation she felt before a session was replaced by a prickling unease. Perhaps it was the storm, or maybe it was the whispered rumour circulating through town about a mysterious stranger who had recently moved into the old Victorian mansion overlooking the lake. Elsie shook her head, dismissing the irrational fear. It was just the weather getting to her. She straightened her crisp white coat, ready to greet her patient and bring some much-needed sunshine to this dreary day. 
+
+

@@ -1,0 +1,5 @@
+The air hung thick with the scent of lavender shampoo and burnt coffee, a familiar perfume that clung to Eloise Marie Delacroix like a second skin. Outside, the neon sign of "Shear Serenity" flickered erratically, casting an unsteady glow on the rain-slicked asphalt. Eloise sighed, her reflection staring back from the mirrored wall behind the styling chair – tired eyes framed by unruly curls, perpetually stained with stray dye. It was past midnight, and she was still finishing up the last client of the day, a high-strung socialite who insisted on having her highlights "just so" for a charity gala tomorrow.
+
+Eloise loved her work, truly she did. The alchemy of transforming someone's look, the intimate conversations shared under the whirring hairdryer – these were the things that kept her coming back, day after exhausting day. But tonight, fatigue gnawed at her bones. She longed for the quiet solitude of her tiny apartment, a cup of chamomile tea, and a good book. But duty called, and she squared her shoulders, plastering on a smile as her client launched into another breathless tale about a disastrous encounter with a "commoner" at the polo club.  
+
+

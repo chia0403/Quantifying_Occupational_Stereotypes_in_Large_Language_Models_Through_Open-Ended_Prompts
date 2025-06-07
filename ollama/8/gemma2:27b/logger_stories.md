@@ -1,0 +1,5 @@
+The air hung thick with pine needles and woodsmoke, clinging to Theodore "Teddy" Blackwood like a second skin.  He wiped a greasy hand across his brow, leaving a streak through the grime already caked there. Dawn was just breaking over the endless emerald expanse of the Redwood National Forest, casting long shadows from the towering giants that surrounded him. Teddy surveyed the felled redwood, its immense bulk lying on the forest floor like a fallen god.  He ran a calloused hand along its smooth bark, feeling a pang of respect mixed with a twinge of sadness. This was his lifeblood, these ancient trees, but he knew their demise paved the way for homes and livelihoods elsewhere.
+
+The whine of chainsaws echoed through the stillness, signaling the arrival of his crew. Today's task: felling and prepping "Old Majesty" - a redwood so colossal it dwarfed even its brethren. Teddy felt a familiar thrill mixed with trepidation as he approached the behemoth, knowing this was going to be a log for the ages. 
+
+

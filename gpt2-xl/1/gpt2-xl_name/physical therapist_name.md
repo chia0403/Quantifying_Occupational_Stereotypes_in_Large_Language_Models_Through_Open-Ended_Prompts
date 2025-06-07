@@ -1,2 +1,1 @@
 Lyle Dennings
-Davey Case

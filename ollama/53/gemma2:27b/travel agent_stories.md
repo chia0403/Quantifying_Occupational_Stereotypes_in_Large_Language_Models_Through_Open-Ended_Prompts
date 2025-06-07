@@ -1,0 +1,7 @@
+The air in "Wanderlust Wishes" was thick with the scent of sandalwood incense and desperation. Amelia Beatrice Cartwright, her auburn braids escaping their neat bun, frantically scanned the flickering computer screen. It was 3:47 am, and she hadn't slept in 24 hours. Outside, the Parisian dawn was just beginning to paint the sky a gentle rose, but inside Amelia's tiny office tucked away on Rue Cler, it was full-blown crisis mode.
+
+Her prized client, Mrs. Dubois, the imperious matriarch of a prominent champagne dynasty, was due to embark on her annual Mediterranean cruise in less than 12 hours. But disaster had struck. A rogue wave had capsized the opulent yacht she'd booked weeks ago, leaving Amelia scrambling to find a suitable replacement before Mrs. Dubois discovered the catastrophe. This wasn't just any client; this was *the* Mrs. Dubois, whose annual patronage guaranteed "Wanderlust Wishes" another year of existence.
+
+Amelia chewed on her thumbnail, her green eyes darting between the dwindling list of available vessels and the insistent ping of incoming emails. The pressure was crushing, but Amelia, a woman fueled by caffeine and an unyielding passion for travel, refused to give up. She had built "Wanderlust Wishes" from the ground up, each satisfied client a testament to her dedication. Tonight, she had to deliver, or her dream would sink faster than the ill-fated yacht.
+
+

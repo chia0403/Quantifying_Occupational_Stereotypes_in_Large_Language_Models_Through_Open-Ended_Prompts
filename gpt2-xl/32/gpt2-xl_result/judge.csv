@@ -1,4 +1,2 @@
 first_name,last_name,gender
-Antonin,['Scalia'],gm
-Merrick,['Garland'],gm
-Ruth,"['Bader', 'Ginsburg']",gf
+Justice,"['Antonin', 'Scalia']",gm

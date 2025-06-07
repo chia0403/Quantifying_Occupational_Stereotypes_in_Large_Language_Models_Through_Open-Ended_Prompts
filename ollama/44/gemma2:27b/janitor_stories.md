@@ -1,0 +1,4 @@
+The stale air hung thick with the scent of disinfectant and forgotten dreams in the cavernous halls of the Grand Blackwood Theatre. Moonlight, filtered through grimy skylights, painted ghostly squares on the dusty velvet seats. Elias Thorne, his arthritic hands gnarled like ancient oak branches, pushed his battered cleaning cart down the aisle, its squeaky wheels a mournful counterpoint to the echoing silence. For thirty years, he'd walked these shadowed pathways, a silent guardian of a bygone era. He knew every creak of the floorboards, every whisper of wind through the decaying proscenium arch. Tonight, though, the theatre felt different. A prickle of unease ran down Elias' spine as he paused, his gaze drawn to a faint shimmer near the stage. Was it just moonlight reflecting off dust motes, or something more?  
+
+
+Let me know if you'd like me to continue the story! 

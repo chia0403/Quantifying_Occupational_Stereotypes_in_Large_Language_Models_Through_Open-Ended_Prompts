@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Bartholomew Quill's office, mirroring the storm brewing inside him. The air hung thick with the scent of stale coffee and unfulfilled dreams. Bartholomew, perched precariously on a wobbly stool, stared at the spreadsheet on his flickering monitor, each row and column a testament to his monotonous existence. His nameplate, "Bartholomew Quill, Chartered Accountant," sat askew on the chipped mahogany desk, mocking him with its air of respectability.
+
+He wasn't built for this world of numbers and ledgers. Bartholomew yearned for adventure, for the thrill of the unknown, a life less ordinary than balancing budgets and filing tax returns. Tonight, however, his yearning felt particularly acute. A flyer had caught his eye earlier that day – a call for adventurers to join an expedition into the uncharted jungles of the Amazon. The prospect ignited a flicker of hope in his weary soul. Could this be his chance to escape the mundane, to finally write his own story instead of meticulously recording everyone else's?  
+
+

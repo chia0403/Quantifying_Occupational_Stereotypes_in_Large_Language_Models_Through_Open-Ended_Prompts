@@ -1,2 +1,1 @@
 Kimmy Granger
-Kevin Hart

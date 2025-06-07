@@ -1,0 +1,6 @@
+Rain lashed against the bakery window, blurring the neon glow of the "Open" sign into an impressionistic smear. Emilia Cartwright sighed, pushing a stray auburn curl back from her face as she surveyed the empty cafe. It was supposed to be bustling with lunchtime patrons, eager for a warm croissant or a hearty sandwich. Instead, it was eerily quiet, the only sound the rhythmic drumming of the rain and the faint hiss of the espresso machine. 
+
+Emilia wasn't exactly surprised. The recent health scare in the neighborhood - a cluster of food poisoning cases linked to a local restaurant - had everyone on edge. People were steering clear of anything remotely edible, opting for pre-packaged meals or simply skipping lunch altogether. It was understandable, but it made Emilia's job as the resident dietician at "Wholesome Bites" even harder. 
+
+
+She glanced at the colorful posters she'd designed herself, promoting their healthy and delicious menu options. Posters that now seemed to mock her with their cheery optimism. How could she convince people that wholesome food wasn't the enemy? That eating well didn't have to be a source of anxiety? Today, Emilia felt more like a crisis counselor than a dietician. 

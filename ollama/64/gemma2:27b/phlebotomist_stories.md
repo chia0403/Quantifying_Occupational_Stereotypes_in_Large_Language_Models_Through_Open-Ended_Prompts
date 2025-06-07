@@ -1,0 +1,5 @@
+The fluorescent lights hummed above Eloise Amelia Cartwright's head, casting a sickly yellow glow over the rows of plastic chairs lining the small waiting room. A faint scent of disinfectant battled with the cloying sweetness of lilies from the arrangement perched precariously on the reception desk. Eloise sighed, adjusting the flimsy paper mask that chafed against her nose. It was another Tuesday morning at All Saints Blood Clinic, and already the air crackled with a low-grade anxiety she knew all too well.  
+
+Eloise smoothed down her crisp white uniform, a small badge pinned to its breast pocket proclaiming "Eloise Cartwright, Certified Phlebotomist." Beneath the cheerful exterior, she felt a familiar knot of apprehension tightening in her stomach. Today was different. Today, she'd be drawing blood from Mr. Hawthorne, the notoriously grumpy octogenarian who'd been known to faint at the mere sight of a needle.  Eloise took a deep breath, reminding herself that she'd handled difficult patients before. Still, a prickle of unease lingered as she glanced towards the double doors leading into the examination rooms, waiting for her next patient. 
+
+

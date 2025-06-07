@@ -1,0 +1,5 @@
+The Cairo sun beat down on Amelia Blackwood's shoulders, turning her linen shirt into an instant sauna. She adjusted the brim of her straw hat, trying to shield her face from the relentless glare. Around her, the bustling Khan el-Khalili market hummed with life: vendors hawking spices and trinkets, donkeys braying through narrow alleyways, tourists marveling at intricately woven carpets and glittering gold jewelry.  
+
+Amelia inhaled deeply, a familiar mix of dust, incense, and roasting lamb filling her lungs. This was her playground, her symphony of chaos and beauty. For five years, she'd led tours through the labyrinthine streets of Cairo, weaving tales of pharaohs and pyramids, sharing the stories etched into ancient hieroglyphs.  Today, however, a prickle of unease danced beneath her usual excitement. A strange sense of foreboding had been gnawing at her since she woke that morning - a feeling amplified by the cryptic note tucked under her door last night: "Beware the Eye of Ra." 
+
+

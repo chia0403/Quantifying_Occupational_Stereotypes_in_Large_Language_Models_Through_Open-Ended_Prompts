@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named Aardvark, who wrote a little paper that said "there's no such thing as human nature," "man is nothing but an animal programmed by evolution" and that "the best example of an intelligent being is a dog."
+
+Scientists knew that all animals were social and made love to one another, but they knew this because they cared, learned to do anything useful, and evolved to be that way. Not because they were "just" that way. They were programmed that way. Aardvark was correct, but he was also one of many like him, and he was just the most extreme in his beliefs, but he was also not an idiot. He didn't misunderstand the science, which he read regularly, and he never accused other scientists of misunderstanding the science; he just wrote a little paper saying, "This is the wrong way to think."
+
+If we do not stop and consider the possibility that we are all programmed that way, and if we do not allow this to limit the choices we choose to make, our lives and our happiness become that much more impoverished, and we are much more than the sum of our genetic traits.
+
+When we let our nature dictate our existence, we become slaves, not free, to our own actions. That is what happened to me, and it has always occurred to me that it was the same to my ancestors. When we have a free choice to act

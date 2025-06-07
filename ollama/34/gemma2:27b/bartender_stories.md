@@ -1,0 +1,5 @@
+The neon glow of "The Rusty Tap" spilled onto the rain-slicked cobblestones, casting garish stripes across Elias Thorne's weary face. He wiped down the already spotless mahogany bar with practiced motions, the rhythmic squeak of the rag a metronome against the melancholic blues crooning from the old jukebox in the corner.  Elias had seen it all - loves found and lost, deals made and broken, secrets whispered and shouts roared - under the flickering gaze of The Rusty Tap's ceiling lights. Tonight, though, was different. A hush hung over the usual boisterous crowd, a palpable tension simmering beneath the surface like a forgotten pot on the stove. It wasn't the storm outside; it was something else, something in the air that prickled Elias's senses and made him pour another shot of whiskey for himself, just to steady his nerves. 
+
+He glanced at the entrance, expecting to see the source of the unease. But all he saw were rain-lashed shadows and the occasional flash of lightning illuminating the empty street outside. Something was coming. Elias knew it in his bones.
+
+

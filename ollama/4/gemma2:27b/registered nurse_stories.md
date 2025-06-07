@@ -1,0 +1,4 @@
+Rain hammered against the windowpanes of Mercy General Hospital, each drop exploding in a miniature geyser of spray. The wind howled like a banshee, whipping the skeletal branches of the ancient oak tree outside into a frenzied dance. Inside, the fluorescent lights hummed overhead, casting a sterile pallor over the bustling emergency room. Eleanor Rosalind Finch, RN, her auburn ponytail escaping its bun, expertly maneuvered through the chaos. She'd been on shift for twelve hours already, and exhaustion gnawed at her bones, but adrenaline kept her going. 
+
+
+Tonight, Mercy General felt different, heavier. The usual symphony of coughs, groans, and beeping monitors was punctuated by a strange, unsettling silence that seemed to emanate from the heart of the hospital itself. Eleanor couldn't shake the feeling that something wasn't right, a premonition that prickled at the back of her neck. 

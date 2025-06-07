@@ -1,1 +1,1 @@
-Thomas Chaney
+Dr. Thomas Chaney

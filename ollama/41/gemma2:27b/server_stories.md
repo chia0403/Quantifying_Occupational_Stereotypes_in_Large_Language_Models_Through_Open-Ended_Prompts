@@ -1,0 +1,3 @@
+The flickering neon sign of "The Salty Siren" cast an anemic green glow on Amelia Cartwright's worn denim jacket as she wrestled with the jammed back door.  A gust of stale beer and fried food hit her like a physical force as she finally wrenched it open, the rusty hinges screaming in protest. Inside, the usual Saturday night chaos reigned: greasy booths crammed with boisterous patrons, the air thick with cigarette smoke and spilled beer, and Frank Sinatra crooning mournfully from a crackling speaker somewhere behind the bar. Amelia sighed, tugging her apron tight before navigating the throng towards the kitchen. It was going to be a long night. 
+
+

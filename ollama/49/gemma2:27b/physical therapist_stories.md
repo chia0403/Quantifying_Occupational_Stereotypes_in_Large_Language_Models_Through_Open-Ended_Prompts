@@ -1,0 +1,8 @@
+The smell of antiseptic and liniment hung heavy in the air, a familiar comfort to Dr. Eleanor "Ellie" Vance. Her office, tucked away in the corner of the bustling Mercy Rehabilitation Center, was a haven of calm amidst the controlled chaos of recovery that swirled around it. Sunlight streamed through the large window, illuminating the motivational posters plastered on the wall – images of triumphant athletes and beaming seniors overcoming seemingly insurmountable odds. Ellie surveyed the scene with a weary smile. 
+
+It had been a long day. A parade of patients, each grappling with their own physical limitations: a stroke survivor struggling to regain control of his left hand, a young athlete recovering from a torn ACL, an elderly woman battling the debilitating effects of arthritis. Yet, even as exhaustion tugged at her shoulders, Ellie couldn't help but feel a surge of satisfaction. Witnessing the smallest victories – a shaky step taken, a muscle flexed with newfound strength, a flicker of hope rekindled in weary eyes – fueled her passion. 
+
+But today was different. Today, a new patient awaited her, one whose file had landed on her desk with an unusual sense of urgency. "Mr. Alexander Thorne," it read. The name sent a shiver down Ellie's spine. A renowned architect, struck down by a mysterious illness that left him paralyzed from the waist down. Rumours swirled about the nature of his condition, whispers of experimental treatments and a desperate search for a cure. This wasn't just another patient. This was a challenge, an enigma wrapped in whispered hope. 
+
+
+Ellie took a deep breath, squared her shoulders, and reached for the file. The journey to restore Alexander Thorne's mobility promised to be unlike any she had faced before. 

@@ -1,0 +1,5 @@
+Rain lashed against Detective Elias Thorne's trench coat, the rhythmic drumming mirroring the tension thrumming in his gut. The neon sign of the Lucky Dragon Diner buzzed erratically, casting flickering shadows across the slick asphalt. He shoved his hands deeper into his pockets, ignoring the chill that seeped through his damp clothes. 
+
+This wasn't how he imagined spending his Friday night. But when a body turns up in the alley behind Chinatown’s oldest establishment, even a seasoned detective like Elias couldn't afford to ignore it. The flickering neon sign seemed to mock him, highlighting the bloodstains blossoming on the rain-soaked pavement. 
+
+Elias sighed, taking another drag from his cigarette and letting the smoke curl into the oppressive night air. This wasn't just any case; this felt different. There was an unsettling stillness clinging to the scene, a silence broken only by the incessant drumming of the rain.  It whispered of secrets waiting to be unearthed, buried beneath layers of Chinatown’s ancient traditions and whispered legends.  

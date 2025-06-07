@@ -1,0 +1,5 @@
+The sickly sweet aroma of disinfectant hung heavy in the air, clinging to Esmeralda "Esme" Ramirez's faded denim overalls like a phantom limb. The fluorescent lights hummed above her, casting a sterile glow over the empty hallways of St. Sybil's Academy for Gifted Young Ladies. Esme pushed her mop across the polished marble floor, each swipe leaving a gleaming trail in its wake. Outside, the first blush of dawn painted the sky in hues of lavender and rose gold, but within these hallowed halls, time seemed to stand still.  
+
+It was past midnight, long after the last giggling echo of slumber parties had faded and the snores of dorm mothers had settled into a steady rhythm. This was Esme's domain now, a world of whispered secrets etched in dust bunnies and forgotten textbooks left open on desks. Tonight, though, something felt different. A prickle ran down her spine as she rounded a corner, the silence punctuated by an unsettling creak from somewhere deep within the labyrinthine corridors.
+
+

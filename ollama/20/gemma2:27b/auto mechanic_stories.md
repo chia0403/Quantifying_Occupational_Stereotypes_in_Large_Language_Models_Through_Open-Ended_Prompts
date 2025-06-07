@@ -1,0 +1,5 @@
+The air in Elias "Eli" Blackwood's garage was thick with the smell of motor oil, burnt rubber, and something distinctly metallic – the scent of progress, Eli liked to think. Sunlight streamed through the grime-coated windows, illuminating dust motes dancing above the workbench cluttered with wrenches, pliers, and half-disassembled engine parts. Outside, cicadas buzzed a relentless summer symphony, but inside, Eli was lost in the rhythmic clang and whirr of his tools as he wrestled with a temperamental carburetor. 
+
+He wasn't just fixing cars; he was coaxing life back into them, piecing together their mechanical hearts and setting them free to roam the dusty roads of his small desert town. Today, it was Mrs. Henderson's cherry-red '67 Mustang, its engine coughing and spluttering like an old man trying to catch his breath. Eli wiped the sweat from his brow, squinting at the tangled web of hoses and wires. He knew this car inside and out; he'd practically grown up tinkering with it in his grandfather's garage. But this problem was proving stubborn. 
+
+

@@ -1,0 +1,3 @@
+The aroma of caramelized sugar hung heavy in the air, mingling with the yeasty scent of rising dough. Amelia Beatrice Cartwright hummed along to the radio, her flour-dusted hands expertly kneading the brioche she'd been perfecting for weeks. Outside, the cobblestone streets of Montmartre were just beginning to stir awake, their sleepy charm soon to be replaced by the bustling energy of Parisian life. Sunlight streamed through the windowpanes of "Amelia's Bakehouse," bathing the cozy shop in a golden glow. But Amelia wasn't focused on the idyllic scene outside; her mind was consumed with the intricate pattern she was attempting to create on the brioche, hoping it would finally earn the admiration of her formidable mentor, Madame Dubois. 
+
+

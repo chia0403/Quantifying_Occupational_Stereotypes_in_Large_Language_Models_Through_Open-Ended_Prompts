@@ -1,2 +1,1 @@
-Taffy Winkle
-Lizzie Winkle
+Dr. Taffy Winkle

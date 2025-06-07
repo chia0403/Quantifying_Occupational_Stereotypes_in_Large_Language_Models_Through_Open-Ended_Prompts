@@ -1,0 +1,5 @@
+The diesel engine hummed beneath Elara Jane Blackwood like a contented beast, its vibrations traveling up through the worn leather seat and into her bones. Dawn was breaking over the endless expanse of Nevada desert, painting the sky in hues of burnt orange and bruised purple. Dust devils danced on the horizon, swirling ephemeral apparitions against the desolate landscape. Elara gripped the steering wheel, her knuckles white against the cracked vinyl. 
+
+She'd been hauling freight for nearly a decade, crisscrossing the country with her trusty rig, "The Bluebird." It wasn't glamorous work, but it provided a sense of freedom that she craved – the open road stretching before her like an unfurling map of possibilities. Today, her cargo was a shipment of fresh produce headed to a bustling market in Los Angeles, a journey fraught with potential delays and unexpected detours. But Elara wasn't fazed. She thrived on the challenge, on pushing herself and The Bluebird further and faster, against both time and the unforgiving elements. 
+
+

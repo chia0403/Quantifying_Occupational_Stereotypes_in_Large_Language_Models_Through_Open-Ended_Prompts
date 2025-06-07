@@ -1,2 +1,1 @@
 Bob Pettit
-Jerry Gray

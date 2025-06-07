@@ -1,0 +1,7 @@
+The midday sun beat down on Silas Tiberius Finch's weathered shoulders as he chipped away at the granite block. Dust motes danced in the golden rays filtering through the open roof of his workshop, illuminating the sweat beading on his brow. The rhythmic clang of hammer against stone echoed through the cavernous space, a familiar symphony to Silas's ears. He'd been working this quarry since he was a boy, apprenticed to his father before him, learning the ancient craft of shaping raw stone into something beautiful and enduring. 
+
+Today, however, Silas wasn't feeling the usual satisfaction that came with sculpting. A knot of unease tightened in his chest, a premonition that something was amiss. The quarry itself felt different – the air heavier, the shadows deeper. Even the usually boisterous sparrows nesting in the rafters seemed unusually silent.  
+
+Silas paused his work, wiping the sweat from his forehead and squinting at the entrance to the workshop. It was then he noticed it: a single raven perched on the lintel, its obsidian eyes fixed on him with unnerving intensity. Ravens weren't uncommon visitors to the quarry, but this one felt different – larger, more imposing, its presence imbued with an almost unnatural stillness. 
+
+As Silas watched, the raven spread its wings and took flight, circling once above the workshop before disappearing into the hazy blue sky. A shiver ran down Silas's spine. He couldn't shake the feeling that the raven was a portent, a harbinger of something unforeseen and potentially dangerous.

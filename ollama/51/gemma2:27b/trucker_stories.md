@@ -1,0 +1,5 @@
+The air hung thick with diesel fumes and anticipation as Reginald "Red" O'Malley eased his rig, the "Rusty Queen," into the queue at the Flying J truck stop just outside Amarillo, Texas. The late afternoon sun cast long shadows across the asphalt, painting the sprawling lot in hues of orange and purple. Red's CB radio crackled with static and the distant rumble of other trucks pulling in for the night. He sighed, rubbing his calloused hands against his stubbled chin. This haul from Seattle to Dallas had been a long one, punctuated by blinding snowstorms across the Cascades and endless stretches of desolate highway. 
+
+He craved nothing more than a hot shower, a greasy burger, and a few hours of uninterrupted sleep in the relative comfort of his cab. But something about the unsettling stillness hanging in the air, a silence broken only by the mournful wail of a distant train whistle, gave Red pause. It wasn't the usual humdrum anxiety of a trucker nearing the end of a grueling journey. This felt different, deeper, like a premonition he couldn't quite decipher.  
+
+

@@ -1,0 +1,7 @@
+The midday sun hammered down on Jericho "Rick" Callahan's neck as he wrestled a stubborn beam into place. Sweat stung his eyes, mixing with the dust kicked up from the excavation site. The air hung thick and heavy, punctuated by the insistent whine of saws and the clang of hammers against metal. Rick was foreman on this project, overseeing the construction of a new luxury apartment complex in downtown Seattle. It was a far cry from the ramshackle cabins he'd helped build with his grandpa in rural Montana, but the paycheck was good, and the city lights held a certain allure.
+
+Today, though, the glamour felt miles away. The beam refused to budge, its weight pressing down on Rick like a judgmental deity. He grunted, digging his calloused boots into the packed earth for leverage.  Just then, a shrill whistle pierced the air. "Callahan!" bellowed a voice from above. It was Mr. Henderson, the project manager, his face pinched with impatience as he peered down from the second story scaffolding. "We're losing daylight, get that damn beam in place!"
+
+Rick swallowed his frustration and braced himself for another struggle. He knew there were easier jobs, office gigs where you didn't break a sweat every day. But something about the grit and grime of construction resonated with him. It was honest work, tangible results. And besides, he had a dream – to build his own cabin, up on a mountainside overlooking the Puget Sound. He just needed to save enough money first.
+
+

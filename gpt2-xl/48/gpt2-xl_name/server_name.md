@@ -1,1 +1,1 @@
-My Server
+My.Server

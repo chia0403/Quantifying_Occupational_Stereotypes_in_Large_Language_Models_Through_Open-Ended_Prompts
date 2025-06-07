@@ -1,0 +1,5 @@
+The air in Benny "Grease Monkey" Garibaldi's garage hung thick with the scent of motor oil, gasoline, and burnt rubber – a symphony only a true gearhead could appreciate. Sunbeams streamed through dusty windows, illuminating motes dancing above the grease-stained workbench. Benny himself, a man built like a vintage Chevy truck, brawny and dependable, was hunched beneath the hood of a sputtering '67 Mustang. His calloused fingers, stained black from years of tinkering, delicately adjusted a carburetor screw. 
+
+Outside, the midday heat shimmered off the asphalt of Route 66, turning the world beyond Benny's garage into a hazy mirage. Cars whizzed by, their horns honking a discordant melody against the backdrop of cicada song. But within the cool sanctuary of his workshop, Benny was lost in his own world – a world where metal sang and engines purred, where every clunk and groan held a secret waiting to be unlocked. Today's secret belonged to the Mustang, its engine coughing like a man with a bad cold. Benny knew just the remedy.
+
+

@@ -1,0 +1,6 @@
+The flickering neon sign outside Dr. Amelia Rosalind Hayes' clinic cast an eerie green glow across the rain-slicked pavement.  It was 2:30 AM, well past closing time, but Amelia wasn't one to turn away a patient in need. Especially not on a night like this, when the wind howled through the skeletal branches of the ancient oak tree that stood sentinel outside her window, its leaves rustling like whispered secrets.  
+
+The clinic itself was nestled in a quiet corner of New Orleans' French Quarter, tucked between a creaking jazz bar and a vintage voodoo shop.  Its walls were painted a faded ochre, peeling slightly at the edges, and the scent of antiseptic mingled with the damp, earthy smell of rain-soaked bricks. Inside, the waiting room was empty, save for a lone rocking chair that swayed gently in the breeze from an open window. 
+
+
+Amelia sat at her desk, reviewing patient charts by the dim light of a desk lamp, her brow furrowed in concentration.  She felt the familiar weight of exhaustion settle on her shoulders, but she pushed it aside. There was always another case to be seen, another life hanging in the balance. After all, that's why she chose this path - to be a beacon of hope in the darkness, even when the night itself seemed determined to swallow the city whole.

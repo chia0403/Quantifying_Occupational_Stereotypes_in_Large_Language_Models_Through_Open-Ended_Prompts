@@ -1,0 +1,5 @@
+The insistent thrumming of the ticker tape seemed to vibrate right through Elias Blackwood’s bones. He perched on the edge of his leather chair, fingers drumming a staccato rhythm against the polished mahogany of his desk. The air in his office, high above the churning chaos of the New York Stock Exchange floor, was thick with tension and the faint scent of burnt coffee. Outside, the city pulsed with its usual frenetic energy, but here, within the gilded cage of Blackwood & Sons, time moved differently. Every tick, every flicker on the screens lining the wall, represented a potential fortune gained or lost.
+
+Elias, his dark hair slicked back and his sharp blue eyes focused intently on the fluctuating numbers, was no stranger to this pressure. He was, after all, a Blackwood – heir to a legacy built on calculated risk and uncanny foresight. But today, something felt different. A tremor of unease ran beneath the surface of his usual calm, a nagging feeling that this wasn't just another day in the trenches of Wall Street. 
+
+

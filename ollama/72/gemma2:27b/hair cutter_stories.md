@@ -1,0 +1,5 @@
+The bell above the door jingled merrily, announcing Elias Finch's first customer of the day. Sunlight streamed through the dusty windowpane, illuminating motes dancing in the air and casting a warm glow on the worn leather chairs lining the walls of "Elias' Emporium of Exquisite Cuts." Elias himself, a man with salt-and-pepper hair perpetually tousled and eyes that crinkled at the corners when he smiled, straightened his apron and greeted the newcomer. 
+
+"Good morning! Welcome to Elias's. What can I do for you today?" His voice was warm and welcoming, tinged with the lilting accent of his Yorkshire upbringing.  The shop itself was a testament to Elias' long career - a jumble of vintage barber chairs, framed photographs of elaborate hairstyles from bygone eras, and shelves overflowing with bottles of potions promising everything from lustrous locks to youthful vigor. But the heart of the Emporium was undoubtedly Elias himself, a master craftsman with scissors who could transform a head of unruly hair into a work of art. 
+
+

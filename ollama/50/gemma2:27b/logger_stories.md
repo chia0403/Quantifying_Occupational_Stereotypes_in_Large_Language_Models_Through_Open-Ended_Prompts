@@ -1,0 +1,3 @@
+The scent of pine needles and damp earth hung heavy in the air, clinging to Elias Blackwood's flannel shirt like a second skin. Dawn was breaking over the Cascade Mountains, painting the sky in hues of bruised purple and fading orange as Elias surveyed the towering firs before him. He ran a calloused hand through his beard, its ginger bristles catching the faint light filtering through the dense canopy. This grove was prime timber – tall, straight trunks promising rich lumber. It would be hard work, but Elias thrived on the challenge. His axe, honed to razor sharpness, gleamed invitingly at his side, eager for the dance they would soon share. Today was a good day to be a logger. 
+
+

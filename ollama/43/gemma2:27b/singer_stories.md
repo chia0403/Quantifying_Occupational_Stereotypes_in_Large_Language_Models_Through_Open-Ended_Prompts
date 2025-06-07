@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of The Rusty Microphone, blurring the neon sign into a watercolor smudge. Inside, the air hung thick with cigarette smoke and the ghosts of forgotten dreams. Eloise Evangeline Dubois, her fiery red hair pulled back in a messy bun, nervously adjusted the microphone stand. Her emerald green eyes scanned the sparse crowd - a couple sharing a cheap beer at a corner table, a lone biker nursing a whiskey, and the bartender polishing glasses with an air of weary indifference.
+
+Eloise wasn't known for her stage presence. She preferred to let her voice speak for itself, a rich contralto that could melt hearts or shatter windows depending on the song. Tonight was different though. Tonight, she was singing for more than just tips and a warm meal.  Tonight, a scout from a prestigious record label was rumored to be in the audience.  Eloise took a deep breath, her fingers trembling slightly as she prepared to pour her soul into every note. This wasn't just another night at The Rusty Microphone. This could be her ticket out.
+
+

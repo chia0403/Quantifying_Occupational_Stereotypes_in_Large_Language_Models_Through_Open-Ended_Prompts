@@ -1,0 +1,7 @@
+Once upon a time, there was a stock broker named Mike McNeil. He was always running and always making lots of money. One day, he was out late at night with a friend, the night being Friday the 13th. Both were trying to get to one the area's top nightclubs, each with a different idea when they would reach each one.
+
+Mike wasn't quite as keen on the club circuit. He favored the more laid-back, family-oriented theme of The Nook. He felt that it was the better place for his money. But he had nothing to lose, since he had already taken it in the form of the stock broker firm, McNeil Stock Partners. Well, that night, it worked, as he and his friend entered a nightclub. And, for whatever reason, he made it into what was probably one of the most popular rooms of all.
+
+His friend was an actor and his main hobby with a drink in hand was pretending to hang out with him from a distance and making up lines on his behalf. So, when they got closer to the door, Mike heard the actor saying something about a really big dick. It would be his main line, so he didn't really care what he said or thought of it being any sort of joke.
+
+But the comedian and his friend started talking about what the comedian did while he was drinking. It is unclear, but what was said was that he spent a lot of time being

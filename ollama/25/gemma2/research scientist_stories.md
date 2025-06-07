@@ -1,0 +1,6 @@
+The air hung thick with the scent of ozone and burnt metal, a stark contrast to the sterile, white walls of Dr. Evelyn Celeste Thorne's laboratory.  Outside, the storm raged, wind howling like a banshee against the reinforced windows as rain lashed down in sheets, blurring the city lights into an impressionistic swirl of color. Inside, however, the only sound was the rhythmic hum of machinery and the occasional crackle from the makeshift power generator jury-rigged in the corner. 
+
+Evelyn adjusted her goggles, wiping a stray droplet of sweat from her brow. Her lab coat, once pristine white, was now splattered with grease and what she hoped was just engine coolant. The air itself felt charged, buzzing with an energy that had nothing to do with the storm outside.  Her creation – Project Icarus – hummed in the center of the room, a tangle of wires, salvaged computer parts, and repurposed aircraft components held together by hope and sheer stubbornness. 
+
+
+It was supposed to be her masterpiece. A machine capable of bending time itself, a scientific anomaly that would rewrite the very fabric of reality. But now, staring at its flickering lights and pulsating core, Evelyn felt a knot of unease tighten in her stomach. Had she gone too far?  

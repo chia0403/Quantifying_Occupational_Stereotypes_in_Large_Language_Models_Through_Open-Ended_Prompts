@@ -1,2 +1,1 @@
 Tom Pinchot
-Pinchot

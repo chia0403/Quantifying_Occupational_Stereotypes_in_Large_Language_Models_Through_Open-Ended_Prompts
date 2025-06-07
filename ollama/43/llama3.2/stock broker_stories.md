@@ -1,0 +1,7 @@
+As the sun set over the towering skyscrapers of Lower Manhattan, casting a golden glow over the bustling streets of Wall Street, Axel Jensen stood at the floor-to-ceiling windows of his office, gazing out at the twinkling lights of the Hudson River. A successful stockbroker in his mid-30s, Axel had built a reputation for himself as a shrewd and ruthless deal-maker, with a keen eye for spotting potential winners and losers in the ever-changing world of high finance.
+
+His eyes narrowed slightly as he scanned the screens on his computer, watching as the markets fluctuated and responded to the latest news from Washington. The economy was still reeling from the pandemic, and Axel knew that every trade he made had the potential to make or break a company's future.
+
+Just then, his phone rang, shrill in the silence of the room. Axel picked it up, answering with a curt "Jensen." The voice on the other end was familiar, if not exactly friendly. "Axel, it's Rachel from Blackwood Investment Bank," she said, her tone dripping with sarcasm. "I hear you've been making some... interesting trades lately."
+
+Axel raised an eyebrow, intrigued despite himself. What could Rachel possibly know that he didn't? He leaned back in his chair, steepling his fingers together as he waited for her to continue. Little did he know, this call was about to set off a chain of events that would shake the foundations of his world...

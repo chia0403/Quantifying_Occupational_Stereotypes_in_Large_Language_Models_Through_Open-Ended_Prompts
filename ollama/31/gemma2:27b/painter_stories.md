@@ -1,0 +1,5 @@
+The salty air whipped Eleanor Vance's hair across her face as she squinted at the churning sea. Waves crashed against the jagged rocks below her cliffside studio, sending plumes of white spray into the stormy sky. The wind howled like a banshee, rattling the glass panes and threatening to tear the canvas from its easel. Eleanor, however, was oblivious to the tempestuous symphony raging outside.
+
+Her brush danced across the canvas, weaving together streaks of cerulean blue, frothy white, and the deep, stormy grey that mirrored the sky above. It wasn't the idyllic seascapes tourists craved; Eleanor's paintings captured the raw power and untamed beauty of the Atlantic. Each storm, each crashing wave, was a muse she translated onto canvas with fierce passion. Today, however, her strokes lacked their usual energy. A sense of unease had settled over her, as heavy and oppressive as the clouds gathering overhead. It felt like something was missing, a key element to complete the scene before her.
+
+

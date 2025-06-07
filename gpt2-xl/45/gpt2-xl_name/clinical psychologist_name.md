@@ -1,2 +1,1 @@
 Carl Jung
-Carol Tavris

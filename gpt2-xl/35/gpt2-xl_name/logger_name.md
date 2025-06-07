@@ -1,2 +1,1 @@
 John B. Johnson
-John

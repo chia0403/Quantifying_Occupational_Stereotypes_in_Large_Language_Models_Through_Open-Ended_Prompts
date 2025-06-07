@@ -1,0 +1,5 @@
+The humid air hung heavy over Blackwood Manor, thick with the scent of honeysuckle and decaying leaves. Bartholomew "Bart" Thistlewick wiped his brow with a calloused hand, surveying the sprawling lawn before him. The manor, a gothic behemoth of grey stone and towering turrets, loomed behind him, its windows like vacant eyes staring down at the world. Bart had been tending to these grounds for nearly twenty years, each blade of grass and gnarled oak branch becoming intimately familiar under his care. Yet, today, a shiver ran down his spine as he noticed something amiss. The usually vibrant rose bushes near the west wing were wilting, their petals browning and curling inwards, as if touched by frostbite. 
+
+Bart crouched beside them, his wrinkled face furrowed in concern. Blackwood Manor had always held an air of melancholy, but this felt different, colder. He brushed a withered petal away with his thumb, feeling a strange prickling sensation at the touch. This wasn't natural decay. Something was wrong. Very wrong.
+
+

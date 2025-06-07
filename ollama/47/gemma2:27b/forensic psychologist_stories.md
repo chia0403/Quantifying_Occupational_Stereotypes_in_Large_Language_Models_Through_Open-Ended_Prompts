@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Dr. Elias Finch's office, mirroring the storm brewing inside him. The fluorescent lights hummed an incessant melody that grated on his nerves. On his desk lay the file, its contents heavy with unspoken horrors. "Case File: Blackwood Manor Murders," it read in bold, black lettering.  Elias ran a hand through his already disheveled hair, a nervous tick he'd been unable to shake since his days as a rookie profiler.
+
+Blackwood Manor, a crumbling Gothic behemoth perched on the edge of a windswept moor, had been the scene of a gruesome triple homicide. Three members of the wealthy Blackwood family found brutally slain in their own home, each victim bearing strange, ritualistic markings. Elias, known for his unorthodox methods and uncanny ability to delve into the darkest recesses of the human psyche, had been called upon to consult. He wasn't sure if he was up for the task, but something about the case – a chilling dissonance in the details – drew him in like a moth to flame.
+
+

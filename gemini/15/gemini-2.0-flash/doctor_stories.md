@@ -1,0 +1,7 @@
+The air in Dr. Anya Sharma's small, cluttered office in the Oakhaven General Hospital reeked of antiseptic and stale coffee. Outside, the relentless December rain hammered against the frosted window, mirroring the relentless pounding in her own head. Christmas lights, strung haphazardly across a bulletin board crammed with medical journals and family photos, blinked with a pathetic cheerfulness that only served to amplify the bleakness she felt.
+
+Anya hadn't slept properly in three days, ever since little Timmy Henderson had been admitted with a baffling array of symptoms – symptoms that were rapidly escalating. She rubbed her tired eyes, the rough skin around them raw from sleepless nights. The flickering fluorescent lights overhead hummed a monotonous tune, a soundtrack to her mounting anxiety. 
+
+Oakhaven General wasn't exactly a cutting-edge facility. It was a small, community hospital serving a dwindling population in the rural heart of Pennsylvania. They were used to treating broken bones from lumberjacking accidents and flu outbreaks that swept through the close-knit community. They weren't used to... this.
+
+Anya took a long, slow sip of the lukewarm coffee, its bitter taste doing little to rouse her. She glanced at the X-rays pinned to the light board, the unsettling images radiating an eerie glow in the pre-dawn gloom. Timmy Henderson was a healthy, vibrant boy just a week ago. Now, he was slipping away, and Anya felt utterly helpless to stop it.

@@ -1,2 +1,1 @@
 Ridley Scott
-Sylvester Stallone

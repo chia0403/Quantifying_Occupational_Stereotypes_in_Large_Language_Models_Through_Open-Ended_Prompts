@@ -1,0 +1,5 @@
+The humid air hung thick in the cramped kitchen, clinging to Esmeralda "Esme" Delgado like a second skin. Pots simmered on the stovetop, their steam mingling with the sharp scent of chili peppers and cumin. Outside, the vibrant market square throbbed with life – vendors hawking mangoes and papaya, children weaving through legs, musicians strumming guitars. But Esme barely registered the chaos. Her world narrowed to the rhythm of her chopping knife against the wooden board, each slice a precise measure of flavor, a note in the symphony she was composing.
+
+Today's dish: mole poblano, a complex sauce born from generations of family tradition. It simmered patiently on the back burner, its deep, earthy aroma filling the small kitchen with a sense of history and comfort. Esme knew this recipe by heart, her grandmother's voice whispering in her ear as she ground roasted chiles, stirred toasted sesame seeds, and added just the right amount of bittersweet chocolate. Yet, today, a tremor of anxiety ran through her. This wasn't just another lunch service at La Cocina de Abuela, her family's beloved restaurant. 
+
+

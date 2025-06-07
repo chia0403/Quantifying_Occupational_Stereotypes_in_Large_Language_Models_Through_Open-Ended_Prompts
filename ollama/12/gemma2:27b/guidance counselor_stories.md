@@ -1,0 +1,5 @@
+The aroma of stale coffee and desperation hung heavy in the air of Ms. Eloise Cartwright's office. Outside, the late October sun cast long shadows across the manicured lawns of Westbridge High, painting an idyllic scene that clashed sharply with the chaos unfolding within. Eloise sighed, pinching the bridge of her nose as she reread the email for the tenth time. "College application deadlines are approaching," it chirped cheerfully, a stark contrast to the mounting anxiety in her stomach.
+
+Eloise wasn't just facing the usual senior slump; this year felt different. The weight of expectations – from parents, teachers, even the students themselves – seemed heavier than ever.  She glanced at the overflowing inbox: pleas for essay help, panicked questions about standardized tests, and a chilling number of requests for "alternative" post-graduation paths. Eloise knew she was supposed to be a beacon of hope, guiding these young minds towards a brighter future. But today, staring at the daunting pile of paperwork and feeling the tremor in her own hands, she wondered if she could even guide herself out of this storm. 
+
+

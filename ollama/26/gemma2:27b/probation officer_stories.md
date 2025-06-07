@@ -1,0 +1,5 @@
+The fluorescent lights buzzed overhead, casting a sickly yellow glow on the stacks of files piled high on Eleanor Vance's desk. It was a Tuesday afternoon, the air thick with the scent of stale coffee and desperation. Outside her third-floor window in the dilapidated Probation Office building, the city of New Haven hummed with its usual chaotic symphony: car horns blaring, sirens wailing, the distant thrum of construction. But inside, Eleanor's world was silent save for the rhythmic click of her keyboard and the occasional muffled cough from the waiting room.
+
+Eleanor rubbed her weary eyes. Five years on the job and she still hadn't found a way to quell the persistent ache in her chest whenever a new file landed on her desk. Every name, every face, represented a life teetering on the edge, a future hanging in the balance. Today's case was no different: Jeremiah Hayes, 23 years old, charged with petty larceny and possession of a controlled substance. Eleanor sighed, knowing this young man's story likely mirrored countless others she had encountered - poverty, addiction, lack of opportunity weaving together a tapestry of despair.  
+
+

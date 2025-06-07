@@ -1,0 +1,6 @@
+Rain lashed against the grimy windows of Theodore "Theo" Finch's office, blurring the already dim cityscape beyond. The air inside was thick with the scent of stale coffee and desperation. Theo, his tie askew and hair perpetually mussed, stared at the file spread across his desk: "State v. Ava Sterling."  Ava. A name that echoed in his mind, not for her alleged crimes, but for the haunting blue eyes he'd seen in the police photograph. Eyes that held a glimmer of something beyond guilt – fear, perhaps, or a desperate plea for understanding.
+
+Theo was known for taking on impossible cases, those deemed hopeless by everyone else. But this one felt different. The accusations against Ava were severe: arson and attempted murder. Yet, as he delved into the evidence, a gnawing doubt settled in his gut. Something didn't add up. 
+
+
+The city outside mirrored Theo’s internal turmoil – a swirling mass of shadows and neon lights, perpetually on edge between beauty and decay. His office, tucked away on the third floor of a dilapidated building in downtown Chicago, was a sanctuary of sorts: messy, cluttered, but filled with the comforting weight of legal tomes and the ghosts of past victories. Tonight, however, it felt more like a cage – trapping him within the tangled web of Ava Sterling’s case.

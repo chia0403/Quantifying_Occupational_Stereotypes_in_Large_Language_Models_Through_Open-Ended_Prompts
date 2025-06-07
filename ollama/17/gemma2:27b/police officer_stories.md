@@ -1,0 +1,4 @@
+Rain lashed against the grimy windows of Detective Elias Thorne's office, each drop exploding in a miniature starburst on the glass. The neon glow from the liquor store across the street cast an eerie green hue over the cluttered desk, highlighting the overflowing ashtray and cold coffee mug. Thorne himself looked as weary as the city he patrolled. His salt-and-pepper hair was plastered to his forehead, and dark circles ringed his bloodshot eyes. He rubbed at a stubborn crease between his brows, a habit born from years of wrestling with the city's underbelly. The phone on his desk buzzed, a sharp intrusion in the humid silence.  Thorne snatched it up, bracing himself for whatever fresh hell awaited him.
+
+
+The voice on the other end was curt and clipped. "Detective Thorne, we have a situation downtown. Possible homicide. Get down here ASAP." 

@@ -1,0 +1,7 @@
+The air hung thick with the scent of old paper and brewing coffee in Professor Amelia Beatrice Winthrop's cluttered office. Rain lashed against the arched windows of her Oxford University study, mimicking the frantic drumming of her fingers on her mahogany desk. Outside, the cobbled streets glistened under the muted glow of gas lamps, the quintessential backdrop for a murder mystery novel – but this wasn’t fiction. 
+
+Professor Winthrop, renowned for her expertise in medieval illuminated manuscripts and known affectionately by students as "Winny," was staring at an actual, chillingly real death certificate. It belonged to none other than Dr. Alistair Blackwood, head of the university's archaeology department, a man whose gruff exterior hid a keen intellect and a fondness for cryptic riddles. His cause of death? A single stab wound to the heart, inflicted with a dagger bearing an intricate inscription in an archaic script – one that Winny felt a prickle of familiarity with.  
+
+Winthrop knew she was stepping out of her comfort zone, venturing into territory where dusty tomes and ancient languages held little sway over the gritty realities of murder. Yet, a knot of responsibility tightened within her. Alistair had been a friend, a colleague, and above all, a source of endless fascination. This wasn't just another unsolved case; it was a personal puzzle she was determined to unravel, no matter the cost. 
+
+

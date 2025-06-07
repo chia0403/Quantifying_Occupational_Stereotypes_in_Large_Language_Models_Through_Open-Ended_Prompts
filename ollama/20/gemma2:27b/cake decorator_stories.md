@@ -1,0 +1,8 @@
+The air hung thick with the scent of vanilla and almond, tinged with a sharp note of citrus from the candied orange peel Elara was painstakingly arranging on a three-tiered wedding cake. Sunlight slanted through the bakery window, illuminating dust motes dancing above her workbench like tiny, edible stars. Outside, the quaint New England town square bustled with life – tourists snapping pictures of the historic courthouse, children chasing pigeons, and the familiar rumble of Mr. Henderson's delivery truck rounding the corner.
+
+But Elara barely noticed. Her world was contained within the four walls of "Sugar & Spice," her tiny but beloved bakery tucked away on a cobblestone side street. Here, amidst flour-dusted countertops and gleaming stainless steel bowls, she transformed simple ingredients into edible works of art. 
+
+
+Today's masterpiece was for Amelia and Oliver's wedding – a towering confection adorned with delicate sugar flowers, cascading buttercream vines, and a single shimmering topper in the shape of a entwined "A" and "O." Elara, with her nimble fingers and artist's eye, poured all her love and passion into every swirl, every petal. For her, cake decorating wasn't just a job – it was magic.
+
+Suddenly, the tinkling bell above the door announced a customer.  Elara turned, spatula in hand, ready to greet them with her usual warm smile. But this time, something felt different. The air crackled with an unexpected energy, and a shiver ran down her spine.  The newcomer wasn't just any customer – Elara could sense it in her bones. This encounter would change everything. 

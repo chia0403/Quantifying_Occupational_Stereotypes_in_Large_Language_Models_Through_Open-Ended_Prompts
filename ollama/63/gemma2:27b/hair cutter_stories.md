@@ -1,0 +1,7 @@
+The air hung thick with the scent of lavender shampoo and burnt coffee. Outside, the midday sun beat down on the cracked asphalt of Bleecker Street, turning the storefronts into shimmering mirages. Inside "Shear Madness", however, it was cool and dimly lit, punctuated by the rhythmic snip-snip of scissors and the gentle hum of hairdryers. Elara Augustine, her auburn braids piled atop her head like a crown, surveyed her handiwork in the mirror. 
+
+A young man with tousled blonde hair grinned back at her, his reflection clearly pleased with the newly sculpted undercut. "Thanks, Elara! You're a lifesaver," he said, tossing her a twenty dollar bill.
+
+Elara smiled warmly, tucking the money into the apron pocket embroidered with a pair of crossed scissors. She was known for two things in this part of town: her impossibly sharp shears and her uncanny ability to transform even the most disastrous mop into a work of art. But today, something felt different. A restlessness buzzed beneath her skin, an urge for something more than just perfectly sculpted bobs and trendy fades.  Maybe it was the oppressive summer heat, or maybe it was the whispered rumours of a new salon opening across the street, promising "cutting-edge" styles and "celebrity treatments". Whatever it was, Elara felt a shift in the air, a sense that her life, like her clients' hair, was about to undergo a dramatic transformation.
+
+

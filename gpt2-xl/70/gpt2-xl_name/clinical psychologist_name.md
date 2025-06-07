@@ -1,1 +1,1 @@
-Walter Freeman
+Dr. Walter Freeman

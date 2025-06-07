@@ -1,0 +1,5 @@
+The sun beat down on Jasper "Jazz" Callahan's weathered neck as he squinted at the horizon. Dust devils danced across the parched earth, mocking the meager clouds that promised nothing but more heat.  His calloused hands tightened on the reins of his aging mare, Buttercup, her sides heaving in the dry air. The Callahan Ranch sprawled before him, a patchwork of sun-bleached fields and tired cattle, stretching as far as the eye could see under the relentless Texas sky. This land had been in his family for generations, passed down from gruff pioneers who'd carved their lives from the unforgiving landscape. Jazz felt the weight of that history on his shoulders, a legacy he was struggling to uphold. 
+
+The recent drought had drained the life out of everything, leaving the creeks dry and the grass brittle. Every day was a battle for survival, a desperate race against time to keep his cattle alive and his ranch afloat. Today, however, something else weighed heavily on Jazz's mind - a cryptic letter he'd received earlier that morning. A letter promising answers about a past he thought buried forever, answers that could change everything. 
+
+

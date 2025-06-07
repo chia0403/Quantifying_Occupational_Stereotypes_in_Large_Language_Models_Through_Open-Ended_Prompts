@@ -1,0 +1,6 @@
+The fluorescent lights hummed a discordant symphony above Bartholomew "Bart" Higgins as he pushed his ancient mop across the linoleum floor. The air hung heavy with the scent of stale disinfectant and something vaguely metallic – probably leftover from the welding class that had taken place in Room 203 earlier. Outside, the first tendrils of dawn were creeping over the cityscape, painting the skyscrapers in shades of bruised purple and orange. Bart, however, was blissfully unaware of the burgeoning beauty. His world was confined to the echoing halls and dusty classrooms of the abandoned Ainsworth Technical Institute.
+
+He liked it that way. Quiet, predictable, a haven from the chaos that had always seemed to follow him. The institute, with its peeling paint and cobwebbed corners, felt like a sanctuary. He knew every creak of the floorboards, every groan of the aging plumbing. He even whispered goodnight to the rusty welding equipment in Room 203, feeling a strange kinship with the inanimate objects that shared his solitude.
+
+
+But tonight, something was different. A faint tremor ran through the building, followed by an unsettling silence. Bart paused, his mop hovering mid-air. A shiver snaked down his spine, and for the first time in years, he felt a prickle of unease.  

@@ -1,0 +1,5 @@
+Rain lashed against the windows of Amelia Rose Cartwright's clinic, blurring the city lights into an impressionistic smear.  Inside, the air was warm and smelled faintly of eucalyptus oil and disinfectant. Amelia, her blonde braid escaping its confines as she leaned over a patient, frowned. "Just a little further," she encouraged, her voice soft but firm. "You're doing great, Mr. Henderson."
+
+The cramped clinic, nestled in a quiet corner of Brooklyn, was Amelia's sanctuary.  Despite the overflowing laundry basket in the corner and the stack of paperwork precariously balanced on her desk, there was an undeniable sense of peace within its walls. She thrived on helping people regain their strength, their mobility, their independence.
+
+But tonight, a knot of anxiety tightened in her chest. The phone call had come just that morning -  a renowned orthopedic surgeon needing a physical therapist for a high-profile patient. Amelia hadn't even hesitated; this was the opportunity she'd been waiting for, a chance to prove herself. Yet, as she watched Mr. Henderson struggle with a simple leg lift, doubt crept in. Was she truly ready for this? 

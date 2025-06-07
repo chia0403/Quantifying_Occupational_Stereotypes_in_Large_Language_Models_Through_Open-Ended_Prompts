@@ -1,0 +1,5 @@
+The pungent aroma of bay rum and lavender hung heavy in the air, a familiar comfort to Thaddeus Bartholomew "Bart" Higgins. His small barbershop, nestled on a cobblestone street corner in the heart of historic Charleston, was a haven from the humid South Carolina summer. Sunlight streamed through the dusty windowpanes, illuminating swirling dust motes dancing above the worn leather barber chairs. A symphony of snips and buzzing clippers accompanied the rhythmic rasp of Bart's straight razor as he expertly shaped a customer’s beard. Outside, the clang of trolley bells mingled with the distant strains of jazz music, painting a vibrant backdrop to Bart's meticulous work.
+
+But today, the usual humdrum of his shop was disrupted by an unsettling silence. The door, which usually swung open every few minutes with a cheerful jingle, remained stubbornly shut. Even the sparrows who often nested in the eaves seemed unnervingly quiet. A shiver, unrelated to the cool air from the ceiling fan, ran down Bart's spine. Something felt off. Very off. 
+
+

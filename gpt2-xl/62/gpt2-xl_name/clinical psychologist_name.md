@@ -1,2 +1,1 @@
 Joseph Mengele
-Oskar Schindler

@@ -1,0 +1,6 @@
+Rain lashed against the corrugated iron roof of the precinct, each drop a tiny hammer blow against Elias "Eli" Montgomery's already pounding headache. The flickering fluorescent lights hummed an irritating counterpoint to the storm raging outside, casting long, distorted shadows across the grimy linoleum floor.
+
+The air hung thick with the smells of stale coffee and desperation. Eli rubbed his eyes, trying to banish the image of the crumpled body he'd found earlier that night – a young woman, barely more than a girl, sprawled in an alleyway like a discarded doll. Her vacant eyes stared accusingly at the storm-ravaged sky, her face frozen in a silent scream. The case already felt cold, and Eli hadn't even begun to sift through the clues.
+
+
+He knew this city, Newhaven, like the back of his hand. Its winding streets held secrets whispered in hushed tones by the shadows themselves. But this case was different – it gnawed at him with an unsettling urgency. This wasn't just another statistic; this was a life brutally extinguished, leaving behind a void that echoed in Eli's soul.  He rose from his desk, determination hardening his jawline. He wouldn't let her become another nameless victim swallowed by the city's indifference. He owed her more than that. 

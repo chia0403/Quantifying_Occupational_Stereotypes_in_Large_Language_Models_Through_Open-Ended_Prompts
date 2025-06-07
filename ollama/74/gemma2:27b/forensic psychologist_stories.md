@@ -1,0 +1,5 @@
+The flickering fluorescent lights of the interrogation room cast long, skeletal shadows across the table, mirroring the tension thrumming in Amelia Kensington's chest.  She sat opposite a man whose eyes darted around the room like trapped birds, refusing to meet hers. This was Daniel Thorne, accused of arson and suspected of something far more sinister – a string of disappearances plaguing their sleepy coastal town. Amelia, a forensic psychologist with a reputation for peeling back the layers of the human psyche, had been called in to assess Thorne's mental state. Was he merely a pyromaniac, driven by an insatiable urge to watch the world burn? Or was there something darker lurking beneath the surface, a chilling secret waiting to be unearthed?
+
+The air hung thick with the metallic scent of fear and desperation, mingling with the faint tang of burnt wood that clung stubbornly to Thorne's clothes. Amelia leaned forward, her voice soft yet firm. "Daniel," she began, choosing her words carefully, "tell me what happened on the night of the fire."
+
+

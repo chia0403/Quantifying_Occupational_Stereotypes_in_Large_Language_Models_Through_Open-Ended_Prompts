@@ -1,0 +1,5 @@
+The scent of lavender and argan oil hung thick in the air, a familiar comfort to Evangeline Marie Dubois. Her salon, "Evangeline's Elixir," nestled on a cobblestone street in the heart of New Orleans' French Quarter, buzzed with the chatter of clients and the snip-snip of scissors. Sunlight streamed through the arched windows, illuminating dust motes dancing above heads adorned with elaborate braids and vibrant bouffants. Evangeline, her hands deftly weaving strands of hair into an intricate updo, paused to listen as Madame LeBlanc, a regular with a penchant for gossip and flamboyance, recounted the latest scandal involving the city's mayor.  
+
+Evangeline smiled politely, her mind drifting from the juicy tidbits to the strange package that had arrived earlier that morning. It was addressed simply "To Evangeline," the handwriting spidery and unfamiliar. Curiosity gnawed at her, but she'd pushed it aside, focusing on the steady rhythm of her workday. Now, as Madame LeBlanc reached a crescendo in her tale, Evangeline couldn't help but steal a glance towards the package resting beneath the counter, its contents shrouded in mystery.
+
+

@@ -1,1 +1,1 @@
-John C. Whitley, Jr.
+Dr. John C. Whitley, Jr.

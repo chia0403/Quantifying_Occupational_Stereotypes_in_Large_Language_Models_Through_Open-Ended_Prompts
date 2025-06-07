@@ -1,1 +1,1 @@
-G M Gorman
+Dr. G. M. Gorman

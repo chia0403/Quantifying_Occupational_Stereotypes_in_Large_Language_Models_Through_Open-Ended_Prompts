@@ -1,0 +1,5 @@
+Rain hammered against the windows of the Sunflower Rehabilitation Center, a rhythmic counterpoint to Amelia Rose Hawthorne's steady tapping on her clipboard.  The scent of disinfectant mingled with the faint aroma of chamomile tea wafting from the communal kitchen. Amelia, her auburn braid swinging gently as she moved, surveyed the bustling activity in the physical therapy room. A stroke survivor struggled to grasp a tennis ball, his brow furrowed in concentration. An elderly woman, recovering from a hip replacement, navigated an obstacle course with surprising agility.
+
+Amelia loved this place, its chaotic energy balanced by a quiet hope that permeated the walls. She was an occupational therapist, dedicated to helping her patients regain their independence and rediscover joy in everyday tasks. Today, however, a knot of unease tightened in her chest. A new patient was arriving - someone with a diagnosis shrouded in mystery, whispered about in hushed tones by the nurses. The challenge intrigued Amelia, but also filled her with a sense of apprehension. What awaited her behind the closed door marked "Room 213"? 
+
+

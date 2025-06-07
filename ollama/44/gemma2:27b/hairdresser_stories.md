@@ -1,0 +1,5 @@
+The insistent chirping of cicadas mingled with the rhythmic snip-snip of Eleanor "Ellie" Beaumont's shears, creating a familiar summertime soundtrack in her tiny salon tucked away on Elm Street. Sunlight streamed through the dusty windows, illuminating motes dancing in the air and casting elongated shadows across the worn linoleum floor. Ellie paused, tilting her head to study the reflection staring back at her from the mirror before her client. The woman's face, etched with worry lines, was slowly softening, replaced by a hesitant smile as Ellie expertly sculpted layers into her frizzy mane. 
+
+Ellie knew this town like the back of her hand, its secrets whispered in hushed tones during late-night appointments and shared over steaming mugs of coffee at Millie's Diner across the street.  She had witnessed generations grow up and pass away within these four walls, her scissors a constant companion through births, deaths, marriages, and breakups. But lately, something felt off. A shadow hung over Elm Street, a palpable unease that made even the cicadas seem to chirp with nervous anticipation. 
+
+

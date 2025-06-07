@@ -1,0 +1,5 @@
+The neon glow of the city reflected off Dr. Anya Sharma's glasses as she sat hunched over her lab table, surrounded by mountains of data. The air hung heavy with the scent of ozone and burnt coffee from late nights fueled by caffeine and desperation. Outside, Mumbai throbbed a frantic rhythm against the backdrop of an endless monsoon, but inside her cramped apartment-lab, the only sound was the whirring of centrifuges and the frustrated sighs of Anya herself.  
+
+Her latest research focused on Project Aurora, a groundbreaking project to develop an AI capable of understanding human emotions, particularly grief. It had been years since she’d received that email from the renowned psychologist Dr. Patel - his words echoing in her head: "An algorithm for sorrow." Now, as the deadline for the final presentation loomed, Anya felt the weight of her ambition crushing her.  Could an AI truly comprehend the complexities of human grief? Or was it a fool's errand, destined to be another failed dream buried beneath the city's relentless undertow? 
+
+

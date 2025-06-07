@@ -1,0 +1,7 @@
+The scent of lavender and eucalyptus hung heavy in the air, mingling with the faint metallic tang of rubbing alcohol. Dr. Amelia Rosalind Finch adjusted the paper towel covering the examination table, smoothing out the wrinkles with practiced precision. Sunlight streamed through the window, illuminating dust motes dancing in the air and painting stripes across the worn wooden floorboards of her office. Outside, the relentless summer heat shimmered over the asphalt parking lot of her quaint, brick-fronted building nestled amidst a row of independent businesses in downtown Charleston.  
+
+Amelia sighed, pushing a stray curl behind her ear. The usual afternoon lull had descended upon her practice. Her morning had been a whirlwind of back pain sufferers and whiplash victims, but now the only sound was the rhythmic ticking of the antique clock perched on the wall, counting down the minutes until closing time.  She longed for the beach, for the cool caress of ocean waves against her skin and the salty tang of sea air. But duty called. She had a practice to run, patients to care for. 
+
+Just then, the jangling bell above the door announced a new arrival. Amelia straightened, anticipation momentarily eclipsing her weariness. Perhaps this patient would be different, someone whose ailment sparked her interest, someone who offered a respite from the routine. A flicker of hope ignited within her as she turned towards the entrance, ready to offer her healing touch. 
+
+

@@ -1,0 +1,5 @@
+The fluorescent lights buzzed overhead, casting a sickly yellow glow over the polished linoleum floors of the Grand Blackwood Library. It was 3:02 AM, well past closing time, and Bartholomew Quill, head janitor for the last fifteen years, shuffled through the cavernous reading room with his trusty mop bucket in tow. The silence was profound, broken only by the rhythmic squeak of Bartholomew's shoes and the occasional rustle of ancient parchment whispering secrets from forgotten centuries.
+
+He paused by a towering oak bookcase, its shelves groaning under the weight of leather-bound volumes dating back to the Renaissance. Moonlight filtered through the arched window above, illuminating swirling dust motes that danced like miniature galaxies in the air. Bartholomew sighed, his wrinkled face reflecting the melancholy stillness of the library. This place held countless stories, but he was just a humble custodian, entrusted with keeping its physical form intact, never privy to the whispered knowledge it contained. 
+
+

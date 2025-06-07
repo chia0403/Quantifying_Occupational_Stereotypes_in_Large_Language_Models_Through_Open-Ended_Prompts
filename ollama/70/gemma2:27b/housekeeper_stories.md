@@ -1,0 +1,7 @@
+The worn oak floorboards groaned under Eloise Beatrice Cartwright's weight as she shuffled into the grand foyer of Blackwood Manor. Dust motes danced in the shafts of pale sunlight filtering through the arched window above the heavy mahogany door. The air hung thick with the scent of beeswax polish and something faintly floral, a ghost of Mrs. Blackwood's favourite lavender perfume lingering like a memory. Eloise sighed, the sound swallowed by the cavernous space. Even after twenty years, Blackwood Manor still held an unsettling grandeur, a sense of hushed secrets whispering from behind its faded tapestries and chipped marble busts.
+
+Today was Tuesday, which meant dusting the library – a task Eloise both relished and dreaded. The towering shelves groaned under the weight of leather-bound volumes, each one a portal to another world. But nestled amongst them were shadowy corners where cobwebs clung like macabre lace and dust bunnies huddled in silent communion.
+
+Eloise straightened her apron, the starched white fabric crisp against her faded blue dress. She glanced at the grandfather clock ticking away in the corner, its pendulum swinging with the measured rhythm of time. It was nearly nine o'clock. Mrs. Blackwood wouldn't be awake for another hour, but Eloise preferred to start early, to carve out a space of solitude amidst the echoing silence of the manor before the day's demands took hold. 
+
+

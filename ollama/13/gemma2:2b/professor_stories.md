@@ -1,0 +1,7 @@
+The stale air hung heavy in Professor Elias Blackwood's cramped office, thick with the scent of old books and forgotten dreams. Dust motes danced in the weak light filtering through the grime-etched window, illuminating a world seemingly swallowed by time. Elias sat hunched over his desk, fingers tracing the frayed edge of a crumbling map – an intricate network of lines stretching across continents, each marked with cryptic symbols that echoed centuries-old languages he barely understood. He hadn't slept in days, fuelled by a fevered mix of hope and desperation.
+
+Elias was a scholar, renowned for his groundbreaking research into ancient civilizations lost to the ravages of time. His focus was on uncovering the truth behind an enigmatic text known only as "The Codex Meridianus," which hinted at hidden knowledge that could rewrite history as he knew it. The map before him, painstakingly pieced together from fragmented manuscripts and crumbling artifacts, suggested a location deep in the heart of the Amazon rainforest – a place whispered to hold secrets as vast as the earth itself.
+
+But this wasn't just about academic curiosity. Elias was driven by a personal tragedy - the disappearance of his younger brother, vanished without a trace years ago into the very jungle that now held the key to untold truths. With every passing day, his guilt and frustration grew, fueling the fire that drove him forward – a burning desire for answers, a desperate plea to understand the mysteries of his brother's fate. 
+
+

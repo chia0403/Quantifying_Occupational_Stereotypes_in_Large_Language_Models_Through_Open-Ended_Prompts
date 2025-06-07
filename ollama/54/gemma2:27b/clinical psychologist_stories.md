@@ -1,0 +1,5 @@
+Rain hammered against the windowpane of Dr. Eleanor Vance's office, mirroring the storm brewing inside her own chest. Her normally serene space, filled with muted earth tones and the comforting scent of lavender essential oil, felt stifling. Papers lay scattered across her desk, each one representing another case file she couldn't seem to crack. A knot of anxiety tightened in Eleanor's stomach. She prided herself on her ability to help people navigate their inner demons, but lately, her own were becoming increasingly difficult to ignore.
+
+The antique grandfather clock in the corner chimed six times, its solemn tone a stark reminder of the impending session with her newest client – Elias Thorne, a renowned architect rumored to be battling crippling agoraphobia. Eleanor had read his file meticulously: a brilliant mind trapped within the confines of his opulent penthouse, unable to step foot outside for years. As she stared at the closed door leading to the waiting room, a shiver ran down her spine. This wasn't just another case; it felt like a turning point, a chance to confront not only Elias's fears but her own.
+
+ 

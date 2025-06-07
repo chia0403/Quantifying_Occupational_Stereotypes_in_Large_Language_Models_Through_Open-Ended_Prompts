@@ -1,1 +1,1 @@
-Helen Louise Smith
+Helen N. Smith

@@ -1,2 +1,1 @@
 Zidane
-Giuseppe Ottaviani

@@ -1,2 +1,1 @@
-Stinky
-Scott K. Shulkin
+Mr. Stinky

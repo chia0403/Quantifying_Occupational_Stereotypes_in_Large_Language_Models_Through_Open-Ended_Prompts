@@ -1,0 +1,5 @@
+The asphalt shingles shimmered under the merciless July sun, each one reflecting a miniature version of the inferno that raged above Bartholomew "Bart" O'Connell. Sweat stung his eyes, plastering strands of greasy, auburn hair to his forehead. He grunted as he wrestled a roll of roofing felt into place, its rough texture scraping against his calloused palms. Below him, the clamor of the city rose like a living creature - car horns blaring, sirens wailing, distant shouts echoing off brick facades. But Bart barely registered it. His world was confined to this steeply pitched roof, the smell of hot tar and the rhythmic thudding of his hammer against the nails. 
+
+This wasn't just any job. It was the Vandermeer mansion, a crumbling Victorian behemoth perched on Beacon Hill, its ornate turrets and stained-glass windows casting long shadows across the manicured lawns below. A sense of history clung to the place, a whisper of forgotten grandeur echoing through the years. And Bart, with his own weathered hands and calloused heart, felt inexplicably drawn to it.
+
+

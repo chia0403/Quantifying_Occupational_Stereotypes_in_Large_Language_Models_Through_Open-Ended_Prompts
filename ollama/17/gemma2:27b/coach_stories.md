@@ -1,0 +1,5 @@
+The humid air hung thick over the cracked asphalt of the community basketball court, shimmering like heat haze above the scuffed lines.  Dust motes danced in the single ray of sun that pierced through the ancient oak tree casting its long shadow across half the court. It was here, beneath the rustling leaves and watchful gaze of crows perched on high branches, that Eleanor "Ellie" Vance, head coach of the struggling Eagles, surveyed her team with a mixture of hope and exasperation.
+
+Ellie tugged at the collar of her faded Eagles t-shirt, wishing for the breeze promised in the weather forecast.  Her own sweat mingled with sunscreen, forming a sticky film on her brow. Her team, however, seemed oblivious to the discomfort, their youthful energy buzzing around the court like a swarm of bees.
+
+Ellie watched them practice, a familiar pang of frustration squeezing her heart. They lacked discipline, focus, and that crucial spark of belief - all things she desperately wanted to instill in them.  But how could she ignite a fire when they seemed content with flickering embers? 

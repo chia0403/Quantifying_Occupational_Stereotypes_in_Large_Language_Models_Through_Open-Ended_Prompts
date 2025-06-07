@@ -1,0 +1,5 @@
+The air hung thick with the scent of frying garlic and desperation. Eloise "Ellie" Moreau balanced three plates piled high with spaghetti bolognese, navigating the treacherous terrain of sticky floors and oblivious patrons. The flickering fluorescent lights cast harsh shadows on the chipped red vinyl booths lining the walls of Tony's Trattoria, a once-bustling Italian restaurant now struggling to stay afloat in a sea of trendy gastropubs and artisanal pizza joints. Ellie dodged a rogue toddler wielding a half-eaten meatball like a weapon and plastered on her best customer service smile. 
+
+Tonight was busier than usual, thanks to a coupon deal Tony had desperately thrown together – "Buy one entree, get the second for a nickel!" The crowd was a motley mix of college students drawn by cheap pasta and weary families hoping for a decent meal without breaking the bank.  Ellie sighed internally. A nickel profit per dish wasn't exactly going to pay her rent, but she needed this job. It was all that stood between her and eviction from her tiny studio apartment above Mrs. Goldberg's bakery. 
+
+

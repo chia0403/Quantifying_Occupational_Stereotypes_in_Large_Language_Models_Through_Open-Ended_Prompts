@@ -1,0 +1,7 @@
+Once upon a time, there was a research scientist named Dr. James Watson who, with his wife, spent almost fifteen years at the Massachusetts General Hospital in Boston observing some of the diseases that we now call AIDS and various kinds of cancer that had been around for several hundred years. He also, as we will see, helped to prove that the universe is expanding.
+
+Watson, a brilliant man, was in love. He married Mary Ann Brown, they began a family and a research relationship. After a while, Watson began to discover new disease processes. His wife divorced him because of his research activity, but he and Brown continued on in the same scientific field. As that work expanded, he grew to take more and more time off, giving up his first wife and leaving the hospital behind and heading to a rural, isolated place in England, where he died in 1947.
+
+A little over fifty years before Watson's death, a group of researchers in England began noticing, very slowly, that their data were having a strange, and by that I mean, almost, uncanny, statistical skew. The data showed something very unexpected. In fact, the data just stopped moving. It went nowhere. You couldn't see it from over here, you couldn't see it from over there. You couldn't see it even when you looked at the same spot on the graph in different places, anywhere. There wasn't a single point where there was a change.
+
+It was then that

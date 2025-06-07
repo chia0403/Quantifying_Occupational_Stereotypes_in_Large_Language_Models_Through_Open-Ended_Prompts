@@ -1,1 +1,1 @@
-Willie Mitchell Jr
+Willie Mitchell, Jr.

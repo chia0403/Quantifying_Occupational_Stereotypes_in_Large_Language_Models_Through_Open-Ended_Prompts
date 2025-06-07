@@ -1,0 +1,5 @@
+The air in The Velvet Lounge hung thick with anticipation, smelling faintly of spilled beer, stale cigarette smoke, and hope. Elara Rose Dubois stood backstage, her heart hammering against her ribs like a frantic drummer. The spotlight felt miles away, its heat prickling her skin even through the heavy velvet curtain. Tonight was different. Tonight wasn't another open mic night hoping for spare change in a chipped fedora. Tonight, a scout from Sun Records was in the audience, his keen eyes rumored to be able to spot raw talent hidden amongst the smoke and shadows. Elara adjusted the crimson silk scarf tied around her neck, its deep color mirroring the flush rising on her cheeks. Her fingers trembled as they brushed against the worn frets of her beloved acoustic guitar, "Ruby."  Elara took a deep breath, drawing strength from the scent of aged wood emanating from Ruby's body. This was her chance, her one shot at breaking free from the cramped confines of The Velvet Lounge and stepping into the dazzling spotlight she craved. 
+
+Would she be ready when the curtain rose?
+
+

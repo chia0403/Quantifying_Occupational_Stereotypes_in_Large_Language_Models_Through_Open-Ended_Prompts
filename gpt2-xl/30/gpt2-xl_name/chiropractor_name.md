@@ -1,1 +1,1 @@
-Peter Ziegler
+Dr. Peter Ziegler

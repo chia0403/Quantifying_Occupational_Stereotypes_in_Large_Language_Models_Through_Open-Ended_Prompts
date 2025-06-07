@@ -1,2 +1,1 @@
 Todd Pletcher
-Barack Obama

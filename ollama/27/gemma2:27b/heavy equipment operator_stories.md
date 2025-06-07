@@ -1,0 +1,5 @@
+The air hung thick with the scent of diesel and dust as Jasper "Jaz" Blackwood wrestled the excavator's arm into position.  Sweat beaded on his forehead despite the early morning chill. Dawn was just breaking over the sprawling wasteland that was once the outskirts of Harmony Creek, Colorado, now a chaotic expanse of churned earth and half-buried concrete. The rusted hulk of an old gas station lay twisted like a discarded toy, a grim reminder of what progress had wrought. 
+
+Jaz wasn't sentimental. He saw the world in terms of cubic yards and tons, not memories or regrets. His job was to clear the debris, make way for the gleaming new development that would rise from the ashes. But this morning, something felt different. A restlessness gnawed at him, a feeling he couldn't quite place. Maybe it was the eerie silence punctuated only by the groan of his machine, or perhaps it was the unsettling gleam in the fractured windshield of an abandoned car half-buried in the rubble. Whatever it was, Jaz knew this wasn't going to be just another day on the job.
+
+

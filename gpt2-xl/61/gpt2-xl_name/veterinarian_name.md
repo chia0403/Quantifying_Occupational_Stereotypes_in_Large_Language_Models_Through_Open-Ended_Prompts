@@ -1,1 +1,1 @@
-Richard Henshaw
+Dr. Richard Henshaw

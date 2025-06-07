@@ -1,0 +1,5 @@
+The aroma of caramelized sugar hung heavy in the air, a sweet siren song drifting from the open doorway of "Henrietta's Hearth".  Inside, Henrietta Bellweather, her flour-dusted apron askew and wisps of auburn hair escaping their braid, wrestled with a particularly stubborn batch of croissant dough. The late afternoon sun slanted through the bakery window, casting long shadows across the worn wooden floorboards and illuminating the shelves laden with loaves of sourdough, rye, and multigrain bread.  Henrietta's usually cheerful humming was replaced by a grunt of frustration as the dough stubbornly refused to rise. Today was the annual Harvest Festival bake-off, and Henrietta had her heart set on winning with her signature apricot croissant. 
+
+But something felt off. The air seemed heavier than usual, charged with an unseen energy that prickled at Henrietta's skin. And then there was the unsettling dream she'd had last night - a vision of swirling smoke and whispered warnings, leaving her feeling inexplicably uneasy.  
+
+

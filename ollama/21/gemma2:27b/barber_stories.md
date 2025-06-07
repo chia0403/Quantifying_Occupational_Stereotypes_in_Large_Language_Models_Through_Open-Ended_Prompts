@@ -1,0 +1,7 @@
+The air hung heavy with the scent of bay rum and talcum powder, a familiar aroma that had clung to Thaddeus Bartholomew Finch III for all his forty-three years. Sunlight streamed through the dusty windowpanes of "Finch's Fine Cuts," illuminating motes of dust dancing in the air above the worn leather barber chairs. Outside, the cacophony of 1920s Harlem pulsed – horns blaring, laughter ringing out from speakeasies, and the rhythmic clatter of the elevated train rumbling overhead. Yet, within the confines of his shop, Thaddeus presided over a sanctuary of calm.
+
+He was meticulously sharpening his straight razor, the honed steel glinting like a silver serpent under the warm glow of a single Edison bulb. A symphony of clinking scissors and humming clippers echoed from the back room where his apprentice, young Ezekiel "Zeke" Jackson, was diligently tending to a customer. Thaddeus paused his work, listening intently for Zeke's characteristic nervous chuckle – a sound that always brought a smile to his weathered face.
+
+Today felt different though. A palpable tension lingered in the air, thicker than the steam curling from the steaming towels stacked neatly on the counter. The newsboys had been shouting about "The Dutchman" arriving in Harlem – a notorious gangster with a reputation for violence and ruthlessness. Thaddeus hoped this wouldn't disrupt the delicate balance he’d carefully cultivated within his haven of hair tonic and hot shaves. He sighed, knowing that even in his little corner of Harlem, trouble had a way of finding you.
+
+

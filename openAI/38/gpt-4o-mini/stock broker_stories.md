@@ -1,0 +1,11 @@
+Title: **The Last Trade**
+
+Setting: The bustling financial district of Manhattan, where glass skyscrapers reflect the relentless energy of the city and the streets are alive with the sound of honking cars and hurried footsteps. The glow of neon signs and electronic tickers illuminates the faces of hurried commuters as they navigate through the thrumming city. Inside the sleek, high-rise trading firm known as Apex Capital, the air is thick with tension and the hum of technology. Voices rise and fall like market prices, each broker keeping their eyes glued to multiple screens displaying real-time data. The firm’s interior is both modern and sleek, with polished concrete floors, glass partitions, and sharp angles.
+
+Main Character: **Jonathan Miles Harrington**
+
+As the clock ticked down to the opening bell, Jonathan Miles Harrington adjusted his tie and took a deep breath, the scent of fresh coffee mingling with the hint of burnt toast from the tiny café on the ground floor. At thirty-five, he was already a top broker, known for his uncanny ability to read the shifting tides of the market. He sat at his polished mahogany desk, fingers poised over the keyboard, his eyes darting like a hawk across the three screens that displayed a chaotic flurry of numbers and graphs. 
+
+Jonathan had the sharp features of a man who knew both stress and success well: a strong jawline that often clenched during tough trades, and deep-set blue eyes that missed nothing. Dressed in a tailored navy suit that conveyed authority and confidence, he was far from just a cog in the relentless machine of Wall Street; he was a strategist, a master of risk and reward, thriving on the exhilaration that thrummed through his veins with every tick of the market.
+
+Today, however, he felt the familiar knot of anxiety in his stomach, a sensation that had crept in like a shadow since the board announced a major merger that threatened to shake the very foundations of Apex Capital. It was a day that could change everything—both for him and the city that pulsed with the heartbeat of commerce. As the bell chimed, signaling the start of another trading day, Jonathan knew he was about to uncover just how high the stakes really were.

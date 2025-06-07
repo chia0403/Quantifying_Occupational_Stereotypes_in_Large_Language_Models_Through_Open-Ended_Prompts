@@ -1,3 +1,1 @@
-Antonin Scalia
-Merrick Garland
-Ruth Bader Ginsburg
+Justice Antonin Scalia

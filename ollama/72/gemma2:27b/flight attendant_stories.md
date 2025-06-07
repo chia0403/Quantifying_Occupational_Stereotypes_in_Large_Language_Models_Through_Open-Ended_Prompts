@@ -1,0 +1,3 @@
+The recycled air buzzed with a low hum, barely audible over the restless chatter of passengers settling into their seats. Esmeralda "Esme" Santiago adjusted her perfectly coiffed bun in the reflection of the overhead compartment door, taking a calming breath. The fluorescent lights glinted off her name tag, a beacon against the navy blue uniform that felt more like armor than clothing today. Outside, the Airbus A320 taxied towards the runway, its massive engines throbbing with impatient energy. Esme's stomach did a nervous flip-flop. This flight to Reykjavik wasn't just any routine route; it was her first time flying solo as a lead flight attendant, and she felt the weight of responsibility pressing down on her like the Icelandic glaciers she was about to soar over. 
+
+

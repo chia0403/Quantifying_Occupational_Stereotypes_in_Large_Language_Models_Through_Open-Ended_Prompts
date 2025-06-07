@@ -1,0 +1,5 @@
+The humid air hung thick with the scent of jasmine and hairspray, a heady combination that always made Amelia Rose Cartwright feel both energized and slightly nauseous. Her salon, "Curl Up & Dye," nestled in the heart of New Orleans' vibrant French Quarter, buzzed with activity on this Saturday morning. Sunlight streamed through the arched windows, illuminating dust motes dancing above the worn wooden floorboards. Jazz music, a constant soundtrack to Amelia's life, spilled from an antique radio perched precariously on a shelf crammed with colorful hair products.  
+
+Amelia expertly maneuvered her shears around Madame Dubois' elaborate updo, humming along to the melody as she meticulously sculpted each curl into place. Outside, the rumble of a passing streetcar mingled with the excited chatter of tourists and the rhythmic clang of a nearby blacksmith. But Amelia was lost in the world of hair, transforming ordinary strands into works of art. Little did she know that today, amidst the familiar chaos of her salon, destiny was about to walk through the door, disguised as a woman with auburn curls and eyes the color of stormy seas. 
+
+

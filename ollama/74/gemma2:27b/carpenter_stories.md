@@ -1,0 +1,5 @@
+The salty air whipped Elias Hawthorne’s greying hair across his face as he wrestled the heavy oak beam into place. The rickety scaffolding groaned beneath him, threatening to give way under the combined weight of man and timber. Below, the sapphire waters of the Aegean Sea crashed against the rugged cliffs of Santorini, a breathtaking vista that usually brought Elias peace. Today, however, his mind was elsewhere, preoccupied with the cryptic message etched into the wood he’d salvaged from a wrecked ship – a message that spoke of hidden treasures and ancient curses.
+
+Elias, a master carpenter known throughout the island for his intricate furniture and sturdy homes, wasn't one for adventure. He preferred the quiet rhythm of his workshop, the scent of sawdust mingling with the salty tang of the sea breeze. But something about this message, scrawled in faded ink across the weathered oak, tugged at him. Could it be true? Were there truly riches hidden on this sun-drenched island, protected by a curse whispered through centuries? 
+
+

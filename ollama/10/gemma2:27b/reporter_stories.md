@@ -1,0 +1,3 @@
+Rain lashed against the grimy windows of The Daily Grind, blurring the neon glow of the "Open 24 Hours" sign.  Inside, Amelia Rose Callahan hunched over her keyboard, the insistent clacking a counterpoint to the storm's roar. Empty coffee cups littered her desk like fallen soldiers, casualties in her relentless pursuit of the truth.  Tonight, that truth resided somewhere in the labyrinthine alleys of Old Town, where whispers of a shadowy organization manipulating the city’s underworld swirled thicker than the fog rolling in from the harbor. Amelia's gut churned with a potent mix of adrenaline and trepidation - she knew this story could make her career, but it also smelled like trouble, the kind that clung to you like damp wool. 
+
+

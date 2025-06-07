@@ -1,0 +1,4 @@
+The humid air hung heavy over New Orleans, thick with the scent of jasmine and beignets. Sunlight streamed through the dusty windows of Eloise "Ellie" Moreau's workshop, illuminating swirling sawdust motes and the rich grain of cypress wood. Ellie wiped sweat from her brow, leaving a smudge on her forehead above the faded tattoo of a fleur-de-lis. Her calloused fingers traced the intricate carvings she was adding to a custom armoire, each curve echoing the elegance of the wrought iron balconies that adorned the French Quarter. A rhythmic tap-tap-tap punctuated the stillness as Ellie's hammer met wood, the sound familiar and comforting in the quiet morning.  
+
+
+Today, however, Ellie wasn't just working on another commission; she was preparing for a visitor, one who held the key to a mystery that had haunted her family for generations. 

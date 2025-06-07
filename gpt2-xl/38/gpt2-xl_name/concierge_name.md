@@ -1,1 +1,1 @@
-Thelma Wanns
+Thelma Wann

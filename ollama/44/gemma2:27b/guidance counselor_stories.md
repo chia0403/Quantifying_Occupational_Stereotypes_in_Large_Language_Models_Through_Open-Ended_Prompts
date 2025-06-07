@@ -1,0 +1,8 @@
+The flickering fluorescent lights of Northgate High's guidance office hummed a monotonous tune, mirroring Eleanor "Ellie" Hawthorne's current state of mind.  Rain lashed against the windows, blurring the already-drab view of the football field, and Ellie sighed, rubbing her temples. Another Monday morning, another onslaught of teenage angst, college applications, and the existential dread that seemed to permeate the very walls of this building. 
+
+She glanced at the overflowing inbox on her desk – a testament to the unending cycle of student needs – then picked up a crumpled permission slip for a field trip she'd signed three days ago, its wrinkled edges evidence of countless trips through Ellie's overstuffed bag. A pang of guilt shot through her; she'd promised herself she wouldn't let the chaos engulf her this semester. She needed to find a way back to that calm center, the one where she could truly guide these young minds instead of just reacting to their crises. 
+
+
+Ellie straightened a framed photo on her desk – a snapshot of her beaming alongside a group of graduating seniors from five years ago. Their faces held the promise of futures bright and undefined, reminding Ellie why she'd chosen this demanding path in the first place. Today, though, that promise seemed distant, obscured by the fog of deadlines and disappointments that clung to the air like the persistent drizzle outside.
+
+She took a deep breath, steeling herself for the day ahead. A knock at the door snapped her back into focus. Time to face the music – and hopefully, help some students find theirs along the way. 

@@ -1,0 +1,5 @@
+The midday sun beat down on Elias "Eli" Thorne's neck as he wrestled with a stubborn piece of rebar. Sweat stung his eyes, blurring the already hazy outlines of the half-built skyscraper rising around him. The cacophony of the city amplified itself between the steel girders – the insistent whine of power tools, the distant rumble of traffic, and the shouts of fellow construction workers echoing off concrete walls. Eli tugged again, muscles straining, and finally, with a satisfying clang, the rebar slotted into place. He wiped his brow with a grimy forearm, momentarily savoring the small victory before moving on to the next piece. 
+
+This wasn't just any building; this was the Apex Tower, rumored to be the tallest structure in the city once completed. Eli had seen the artist renderings – sleek, futuristic glass reflecting the cityscape like a mirrored mirage. He imagined himself standing on the top floor, gazing out at a world stretched beneath him, a world he'd helped build. It was a powerful thought, one that pushed him through the exhaustion and aches of his daily grind.  
+
+

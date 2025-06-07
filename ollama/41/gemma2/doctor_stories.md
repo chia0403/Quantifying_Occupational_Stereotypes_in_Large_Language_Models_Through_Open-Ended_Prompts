@@ -1,0 +1,4 @@
+The flickering fluorescent lights hummed above Dr. Elara Rosalind Vance's head, casting long, skeletal shadows across the sterile operating room. The air hung thick with the metallic tang of blood and antiseptic, punctuated by the rhythmic beeping of the heart monitor beside her. Outside, the storm raged – a furious symphony of wind howling against the hospital windows and sheets of rain lashing down like angry fists. Inside, Elara was a beacon of calm amidst the chaos, her gloved hands deftly maneuvering through the intricate dance of surgery. Sweat beaded on her brow, blurring her vision for a moment as she focused on the delicate tissue before her. The life of the young man lying under the harsh glare of the surgical lamps rested in her capable hands. 
+
+
+This was more than just another case. This was personal.  

@@ -1,1 +1,1 @@
-EMT
+EMT (Emergency Medical Technologist) training

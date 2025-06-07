@@ -1,1 +1,1 @@
-John D. Gartner
+Dr. John D. Gartner

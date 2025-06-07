@@ -1,0 +1,4 @@
+Sawdust danced in the shafts of morning sunlight slicing through Elias Blackwood's workshop. The air hung heavy with the scent of pine and cedar, mingling with the metallic tang of fresh-cut steel. Outside, the coastal town of Havenwood was just beginning to stir – gulls squawking, fishermen mending nets, the faint clang of a ship’s bell echoing across the harbour. Elias, however, was already deep in his work, his calloused hands shaping a length of oak into a sinuous curve for a new rocking chair. He whistled along to a tune only he could hear, his brow furrowed in concentration as he coaxed the wood into submission. 
+
+
+Havenwood, perched on the edge of a rugged coastline, was a town built on the backs of fishermen and shipbuilders. Elias, though not a sailor himself, found his place among them – crafting sturdy furniture for their homes, repairing the worn timbers of their boats, shaping the dreams they brought back from the sea into tangible objects.  

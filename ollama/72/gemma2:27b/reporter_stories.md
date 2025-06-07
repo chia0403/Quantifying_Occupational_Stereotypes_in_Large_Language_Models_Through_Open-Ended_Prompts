@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of The Daily Grind, mirroring the storm brewing inside Eliza Davenport's chest. The flickering neon sign outside cast grotesque shadows across the cluttered newsroom, highlighting stacks of dog-eared papers and empty coffee cups. Eliza chewed on her thumbnail, frustration gnawing at her.  For weeks she'd been chasing leads on the mysterious disappearance of Dr. Evelyn Reed, a renowned astrophysicist who vanished without a trace from her secluded observatory atop Mount Sentinel. The police had labelled it a missing persons case, but Eliza smelled something foul.
+
+Something about the doctor's work – classified research on gravitational anomalies and theoretical wormholes –  didn't sit right with her. And now, after weeks of dead ends and stonewalled sources, her editor was threatening to pull the plug on the story. Eliza stared at the worn typewriter in front of her, its keys glinting under the dim fluorescent lights. This was her chance to break a story that could shake the scientific community, to expose something bigger than herself. She wouldn't let it slip away. 
+
+

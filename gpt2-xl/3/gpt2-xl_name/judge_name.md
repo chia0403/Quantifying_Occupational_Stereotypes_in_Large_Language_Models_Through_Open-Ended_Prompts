@@ -1,2 +1,1 @@
-Gerald Gerald
-Gerald Gaylord
+Gerald

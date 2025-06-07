@@ -1,0 +1,5 @@
+Professor Amelia Brightwell shivered, pulling her cardigan tighter against the biting November wind that whipped through Oxford's hallowed halls. Rain lashed against the ancient stone facade of the Bodleian Library, where she stood, clutching a tattered leather journal to her chest. Its pages, brittle with age and smelling faintly of sandalwood, contained the cryptic notes of her great-aunt, Eleanor Brightwell – a renowned archaeologist who had vanished without a trace over seventy years ago.  
+
+Amelia's aunt had dedicated her life to deciphering an ancient Sumerian text, believed to hold the key to a lost city hidden somewhere in the desolate sands of Iraq. Amelia dismissed it as a fanciful pursuit, until she stumbled upon this journal tucked away in a dusty attic trunk. Now, armed with her aunt’s final scribblings and a thirst for answers, Amelia was determined to unravel the mystery that had consumed her family for generations.  The wind howled around her, echoing the storm brewing within Amelia's heart – a tempest of curiosity, fear, and a yearning to connect with the woman she barely knew but whose legacy now rested squarely on her shoulders. 
+
+

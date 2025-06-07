@@ -1,0 +1,5 @@
+The flickering gaslight cast long shadows across Professor Alistair Hawthorne's cluttered desk, illuminating stacks of dusty tomes and handwritten notes crammed onto every available surface. A faint smell of pipe tobacco hung in the air, mingling with the musty scent of aged paper. Outside his window, a relentless London drizzle hammered against the glass panes, blurring the view of the cobblestone street below. Alistair sighed, pushing aside a sheaf of papers detailing ancient Sumerian mythology. He rubbed his tired eyes and reached for his pipe, needing its familiar comfort to chase away the creeping unease that had settled upon him. 
+
+Tonight was the solstice, the longest night of the year, and an unsettling premonition gnawed at him. For weeks, strange dreams had plagued his sleep: visions of shadowy figures lurking in forgotten corners, whispering words he couldn't understand. He dismissed them initially as mere figments of a tired mind, but their persistence, their growing intensity, had begun to chip away at his rational façade. 
+
+

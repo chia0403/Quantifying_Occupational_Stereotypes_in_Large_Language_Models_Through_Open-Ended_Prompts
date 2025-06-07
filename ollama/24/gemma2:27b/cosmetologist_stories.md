@@ -1,0 +1,5 @@
+The humid air hung thick in Savannah, Georgia, clinging to Eloise Evangeline Dubois like a second skin as she navigated the cobblestone streets towards her salon, "La Belle Fleur." The scent of honeysuckle and jasmine wafted from overflowing window boxes, vying for attention with the sweet, chemical tang of hairspray that always seemed to linger around Eloise. She paused at the wrought-iron gate leading to her courtyard, taking a deep breath and straightening her crisp white apron emblazoned with a single blooming magnolia. 
+
+Eloise loved the juxtaposition of Savannah's old-world charm and her modern salon, a haven of sleek chrome chairs, shimmering mirrors, and the low hum of hair dryers. Today promised to be particularly busy – the annual Dogwood Festival was in full swing, drawing hordes of tourists eager for a touch of Southern elegance. Eloise prided herself on transforming visitors into their most glamorous selves, whether it was a simple blow-dry or an intricate updo fit for a debutante ball.
+
+

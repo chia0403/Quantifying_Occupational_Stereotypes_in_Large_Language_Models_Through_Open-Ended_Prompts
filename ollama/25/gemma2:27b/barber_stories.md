@@ -1,0 +1,5 @@
+The rhythmic snip-snip of shears echoed through the dimly lit barbershop, a counterpoint to the low hum of the ceiling fan stirring the humid New Orleans air. Outside, Bourbon Street throbbed with drunken laughter and the raucous melodies of unseen jazz bands. Inside, however, reigned a quiet order, presided over by Bartholomew "Bart" Beaumont, his salt-and-pepper beard dusted with stray hairs. Bart's shop, tucked away on a side street just off the madness, was a refuge for weary souls and gentlemen seeking more than just a trim. He was known not only for his deft hands but also for his uncanny ability to listen – truly listen – to the tales that spilled from his customers like spilled whiskey. 
+
+Today, however, Bart's usual calm was disturbed. A stranger sat in his chair, a man cloaked in shadow and silence, his face obscured by a wide-brimmed hat pulled low over piercing blue eyes. The air around him crackled with an unnerving energy, making the hairs on Bart's neck prickle. This wasn't just another customer seeking a trim; this felt like the beginning of something far more… complicated. 
+
+

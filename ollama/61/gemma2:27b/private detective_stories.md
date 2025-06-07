@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Elias Thorne's office, blurring the already indistinct neon glow of the pawn shop across the street. The air hung heavy with the scent of stale cigarettes and desperation, a perfume peculiar to his line of work.  A single bare bulb cast long shadows across the cluttered space: overflowing ashtrays perched precariously on stacks of dusty case files, a half-eaten sandwich oozing mayonnaise onto a dog-eared paperback titled "The Maltese Falcon," and a rotary phone that seemed perpetually poised to ring with another dubious proposition. 
+
+Elias Thorne himself was a study in contrasts – his sharp, aquiline features framed by unruly silver hair, his tailored suit rumpled from hours spent hunched over a desk littered with evidence. His eyes, the color of faded denim, held a weary wisdom honed by years navigating the city's underbelly. Tonight, however, they were fixed on the figure slumped in the chair opposite him. A young woman, barely out of her teens, clutched a worn leather purse like a lifeline, her face pale and etched with fear.
+
+

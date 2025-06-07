@@ -1,0 +1,7 @@
+Once upon a time, there was a cake decorator named George Wurtz. He could decorate any cake for any wedding, not requiring the use of the special icing or the special colors that the bride wanted. He would say, "What the ladies' number one wish is…" and go off and do it. Sometimes Wurtz would decorate not only the cake…but also the wedding cake, which was how he came up with the popular name of his company, Wurtz Brothers. As time went on the Wurtz's weren't just some decorating company but also the official baker of the American cake scene — even the United Nations, like in this picture, wanted their own Wurtz's cookies.
+
+So the cake company had an image problem. One which they were unable to solve, which really didn't help things when a woman named Betty Crocker asked them to decorate the first batch of Wurtz's for the 1960 New Year's Eve party.
+
+Wurtz's is probably best known for this 1959 television commercial:
+
+The ad got it all wrong even for 60s America. When they told the kids that "You got to go to this party to make your wishes come true" they meant "you got to go to this party to get the Wurtz's." It wasn't in their rules to say anything else. And I really think the Wurtz's are responsible more for the current lack of a

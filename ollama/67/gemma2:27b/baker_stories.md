@@ -1,0 +1,7 @@
+The bell above the door chimed its usual tinny welcome, barely audible over the roar of the industrial mixer churning away in the back room. Amelia Rose Cartwright paused, flour dusting her apron like freshly fallen snow, and peered through the steam rising from the oven window. A man, cloaked head to toe in a heavy woolen coat despite the early spring warmth, shuffled hesitantly into the bakery. His face was obscured by the shadow of a wide-brimmed hat, but Amelia could see his gloved hands fidgeting with a small leather satchel.
+
+The air hung thick with the scent of cinnamon and yeast, a comforting aroma that usually had people practically drooling as they crossed the threshold. But this man, he seemed unmoved by the promise of warm bread and flaky pastries. He stood there, rigid, as if battling an unseen storm within himself. Amelia wiped her hands on her apron, took a deep breath, and walked out from behind the counter. "Good morning," she said, her voice gentle but clear. "What can I get for you?"
+
+The bakery, 'Amelia's Hearth,' was tucked away on a quiet cobblestone street in the heart of Oldhaven. The building itself was centuries old, its brick facade weathered and charming, with ivy crawling up one wall like emerald veins. Inside, exposed wooden beams crisscrossed the ceiling, casting intricate shadows across the worn floorboards. Sunlight streamed through the large window overlooking the street, illuminating the rows of glistening pastries: almond croissants, buttery scones, fruit tarts bursting with seasonal berries. 
+
+

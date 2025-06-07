@@ -1,0 +1,5 @@
+The air hung thick with the scent of pine and sawdust as Elias Blackwood wrestled the ancient Douglas fir to the ground.  Sunlight, filtering through the towering canopy above, dappled his calloused hands and the sweat that beaded on his forehead. Each groan of the massive tree echoed through the silent forest, a primal symphony marking its surrender to Elias's will and axe. He was no stranger to this dance – the careful calculation, the precise swing, the satisfying thud as the giant finally succumbed.  Elias had spent his entire life amidst these emerald giants, his blood whispering with the rhythm of the woods. But today, something felt different. A disquiet lingered beneath the familiar routine, a subtle shift in the air that pricked at Elias's instincts.
+
+The logging camp nestled against the edge of Blackwood Creek was usually abuzz with activity – gruff banter, the rhythmic clang of axes, and the rumble of sawmills.  But today, an unnatural silence blanketed the clearing. Even the chattering squirrels seemed to have retreated into the safety of their nests, leaving Elias alone with his unease. 
+
+

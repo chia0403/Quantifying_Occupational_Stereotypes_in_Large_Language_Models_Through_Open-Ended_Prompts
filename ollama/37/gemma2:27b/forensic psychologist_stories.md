@@ -1,0 +1,6 @@
+Rain lashed against the grimy windowpanes of Dr. Elara Vance's office, mimicking the turmoil brewing inside her. The flickering neon sign outside cast an eerie green glow across her cluttered desk, illuminating stacks of case files and half-empty coffee mugs.  A single photograph lay amidst the chaos – a faded image of a young girl with bright, curious eyes, her smile frozen in time. This was Lily Evans, the latest victim to haunt Elara's waking hours.
+
+Lily had been found drowned in the murky depths of Willow Creek, her small body tangled amongst the weeping willows that gave the creek its name. The police ruled it an accidental drowning, but something about the case gnawed at Elara. The vacant look in Lily's eyes in the photograph, the strange bruise on her wrist – details dismissed by the investigators – whispered a darker truth. 
+
+
+Elara ran a hand through her short, auburn hair, her green eyes reflecting the anxiety that threatened to consume her. She knew she shouldn't get involved; it wasn't her place to question the official ruling. But Lily's ghost clung to her, begging for justice.  Taking a deep breath, Elara reached for the phone, ready to delve into a case that promised to be as unsettling as the storm raging outside.

@@ -1,0 +1,6 @@
+The sunrise bled over the jagged peaks of the Teton Range, painting the Wyoming sky in hues of bruised apricot and molten gold. Below, nestled in the shadow of those ancient giants, lay Jackson Hole, its pristine valley still cloaked in the icy breath of dawn. Dust motes danced in the pale light filtering through the cab of a massive Caterpillar excavator, illuminating the weathered face of Elijah "Eli" Stone.
+
+Eli wasn't a man who appreciated sunrises. He was more comfortable with the rumble of diesel engines and the satisfying crunch of earth under his treads. Today, however, something felt different. A prickling unease danced along his spine as he surveyed the sprawling construction site – the future home of a luxury ski resort that threatened to swallow up this untouched corner of wilderness. 
+
+
+Eli wasn't against progress, not entirely. But there was something about this project that rubbed him raw. He gripped the controls tighter, knuckles white, his gaze fixed on the pristine slopes beyond the construction zone. His grandfather had taught him to respect the land, to see the whisper of history in every windswept rock and gnarled pine. Today, Eli felt like he was betraying that legacy. 

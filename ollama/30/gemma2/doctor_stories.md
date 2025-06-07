@@ -1,0 +1,6 @@
+The humid Kolkata air hung heavy, thick with the scent of jasmine and incense, as Dr. Avani Chatterjee adjusted her stethoscope. The rhythmic honking of rickshaws and the distant chatter from the bustling market provided a chaotic soundtrack to the sterile silence of her small clinic. Sunlight streamed through the dusty window, illuminating motes dancing in the air and casting long shadows across the worn linoleum floor.  A young boy with eyes too large for his face fidgeted on the examination table, clutching a tattered stuffed elephant. 
+
+This wasn't Avani's first rodeo. Every day brought its own parade of ailments: coughs that rattled like dying engines, fevers that burned hotter than the midday sun, and skin conditions crawling with unseen parasites.  But today felt different. An unease coiled in her stomach, a premonition whispered by the wind rustling through the mango tree outside. 
+
+
+It wasn't just the boy's fear, though it mirrored her own rising anxiety. It was something deeper, something intangible, like the air itself held its breath, waiting for something to happen.  Avani took a deep breath, trying to quell the feeling. She had to focus on her patients, on the lives she touched every day. But as she met the boy's gaze, those wide, frightened eyes reflecting her own growing unease, she knew this wasn't just another ordinary day in Kolkata. 

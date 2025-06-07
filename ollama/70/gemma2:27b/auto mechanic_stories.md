@@ -1,0 +1,4 @@
+The greasy air hung heavy in Gus "Grease Monkey" Grimaldi's garage, thick with the scent of motor oil, burnt rubber, and desperation.  Sunlight strained through the grimy windowpanes, illuminating dust motes dancing in the humid air. Outside, cicadas throbbed a relentless rhythm, punctuated by the occasional honk of a frustrated driver navigating the midday traffic on Route 66. Gus wiped his forehead with a rag already stained black, leaving a streak across his tanned face. His calloused hands were expertly maneuvering a wrench, tightening a stubborn bolt on a vintage Ford Mustang's engine. The car, a gleaming cherry red beauty, was a far cry from the rusted hulks and sputtering jalopies that usually graced Gus's garage floor. It belonged to Veronica DeLuca, a local movie starlet who had charmed her way into Gus's heart and wallet with promises of fame and fortune. 
+
+
+Gus wasn't sure he believed her anymore.

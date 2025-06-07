@@ -1,1 +1,1 @@
-JB Rhoades
+Dr. J.B. Rhoades

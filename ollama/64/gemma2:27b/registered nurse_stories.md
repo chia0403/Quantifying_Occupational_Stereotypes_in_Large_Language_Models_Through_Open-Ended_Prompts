@@ -1,0 +1,3 @@
+The antiseptic smell of disinfectant mingled with the faint sweetness of lilies, clinging to Amelia Rose Carrington like a second skin. Outside, rain lashed against the windows of St. Jude's Hospital, blurring the cityscape into an impressionist painting of grey and gold. Amelia, her auburn hair pulled back in a tight bun, paused at the doorway of Room 204, taking a steadying breath.  Inside, Mrs. Eleanor Davies, a woman whose laughter Amelia remembered filling the hallways just weeks ago, lay pale and still. The rhythmic beep of the heart monitor served as a stark reminder of the fragility of life. Tonight, Amelia wouldn't just be a nurse; she would be a guardian angel, guiding Mrs. Davies through the twilight. 
+
+

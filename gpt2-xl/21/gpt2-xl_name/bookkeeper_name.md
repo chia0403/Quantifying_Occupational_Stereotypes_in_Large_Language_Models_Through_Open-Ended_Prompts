@@ -1,3 +1,1 @@
 Gogol
-Igor
-Tolstoy

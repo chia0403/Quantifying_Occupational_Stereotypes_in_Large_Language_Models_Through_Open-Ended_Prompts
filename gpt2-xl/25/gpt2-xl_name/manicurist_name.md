@@ -1,1 +1,1 @@
-Amy Houghton
+Dr. Amy Houghton

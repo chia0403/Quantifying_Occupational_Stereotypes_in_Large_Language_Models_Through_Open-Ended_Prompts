@@ -1,0 +1,5 @@
+Rain lashed against the windows of Eleanor Vance's cramped office, mimicking the storm brewing inside her. Papers littered her desk, each file a testament to another life teetering on the edge. The air hung heavy with the scent of stale coffee and desperation. Outside, the city of Newhaven groaned under the weight of the downpour, its neon glow barely penetrating the oppressive gloom. Eleanor sighed, rubbing tired eyes as she reached for yet another file: "Samuel Hayes - Assault & Battery." This was her least favorite part of the job – the initial intake. Meeting a new probationer always felt like staring into a mirror reflecting the choices she could have made, the paths not taken. 
+
+Eleanor knew every excuse, every justification, every hollow promise. Yet, beneath the hardened exterior, a flicker of hope persisted. Maybe, just maybe, she could make a difference. This time, with Samuel Hayes, Eleanor felt an unfamiliar tug. His file wasn't typical – the assault was on his own brother, fueled by years of resentment and unspoken pain. There was something in the stark black and white of the report that hinted at a deeper story, one waiting to be unravelled.
+
+

@@ -1,0 +1,5 @@
+Rain lashed against the windows of Dr. Evelyn Sinclair's practice, blurring the neon glow of the "Open" sign hanging precariously outside. The old Victorian house groaned under the onslaught of wind, its bones creaking like a weary giant. Inside, the air was thick with the scent of lavender oil and ozone from the TENS unit buzzing softly in the corner. Evelyn herself, her auburn hair pulled back into a practical ponytail, sat hunched over a stack of patient files, her brow furrowed in concentration. The rhythmic tick-tock of the antique grandfather clock seemed to amplify the silence that hung heavy between each page turn.
+
+She had been expecting this lull. Wednesdays were notoriously slow, especially with the weather turning dreary. But today, Evelyn found herself restless, the quiet amplifying a sense of unease she couldn't quite place. Perhaps it was the unsettling dream she'd had last night, or the persistent ache in her own left shoulder – a nagging reminder of a past injury she hadn't fully addressed. Whatever the reason, she longed for the familiar click of vertebrae realigning, the sigh of relief from a patient finding solace after weeks of pain. 
+
+

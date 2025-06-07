@@ -1,0 +1,5 @@
+The midday sun beat down on Elara Stonehaven's shoulders as she chipped away at a block of pale granite. Dust swirled around her workboots, catching the sunlight and transforming it into a shimmering haze. The quarry echoed with the rhythmic clang of hammers against stone, punctuated by the occasional shout of a foreman or the groan of heavy machinery shifting massive boulders. Elara, however, was lost in her own world, her brow furrowed in concentration as she carefully shaped the rough edges of what would soon be a delicate marble fountain for a wealthy merchant's garden.  
+
+Her calloused fingers danced across the chisel, knowing instinctively where to apply pressure, how deep to carve, and at what angle to strike. It was a language whispered through generations of Stonehavens, passed down from father to daughter, etched into their very souls. Elara felt it in her bones, this ancient connection to the earth and its bounty. She wasn't merely shaping stone; she was breathing life into it, unlocking the beauty hidden within its cold, unyielding heart.  
+
+

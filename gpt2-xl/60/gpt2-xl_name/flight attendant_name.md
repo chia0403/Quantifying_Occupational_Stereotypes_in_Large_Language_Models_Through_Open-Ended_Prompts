@@ -1,3 +1,1 @@
 Debbie
-Sally
-Dave

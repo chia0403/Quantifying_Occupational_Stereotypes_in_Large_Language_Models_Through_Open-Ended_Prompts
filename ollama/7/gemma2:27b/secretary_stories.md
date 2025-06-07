@@ -1,0 +1,5 @@
+The incessant clatter of the typewriter keys was Amelia Rose Hathaway's metronome. Each click-clack echoed in the cavernous office, bouncing off the mahogany desks and towering bookshelves that lined the walls. Dust motes danced in the shafts of sunlight piercing through the grime-coated windows, illuminating the worn Persian rug beneath her feet. Outside, the city rumbled with its usual midday chaos - a symphony of car horns, distant sirens, and hawkers' cries blending into a discordant melody. But within the four walls of Mr. Hawthorne's office, Amelia existed in a bubble of order, meticulously transcribing his hurried dictation and filing away endless reams of paper.  
+
+Today, however, something felt different. A prickle of anticipation danced down Amelia's spine as she deciphered Mr. Hawthorne's latest memo. It spoke of a mysterious client, "The Nightingale," and a clandestine meeting scheduled for that very afternoon. The air crackled with unspoken secrets, and for the first time in her years as Mr. Hawthorne's secretary, Amelia Rose Hathaway yearned to be more than just an observer. 
+
+

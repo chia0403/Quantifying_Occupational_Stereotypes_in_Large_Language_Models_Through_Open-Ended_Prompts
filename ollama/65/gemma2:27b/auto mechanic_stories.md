@@ -1,0 +1,5 @@
+Grease stained Amelia "Ace" Davenport's hands as she wrestled with the carburetor of a vintage Mustang. The late afternoon sun streamed through the open garage doors of Ace's Auto Repair, casting long shadows across the cluttered space. Tools hung haphazardly from pegboards, engine parts lay in organized disarray on workbenches, and the air hummed with the scent of oil, gasoline, and Amelia's signature blend of coffee and motor oil. 
+
+It wasn't glamorous, but it was home. For Ace, there was nowhere she'd rather be than elbow-deep in an engine, deciphering its mechanical language.  The Mustang sputtered back to life with a roar that echoed through the quiet neighborhood, bringing a grin to Ace's face. She wiped her brow, leaving a streak of grease across her forehead, and surveyed her work with pride. This old girl was ready to cruise again.
+
+But just as Ace finished tightening the last bolt, a piercing shriek pierced the air, followed by the unmistakable sound of shattering glass.  Ace froze, her hand hovering above the wrench. Something wasn't right. 

@@ -1,0 +1,6 @@
+The air hung thick with the scent of buttercream and anxiety.  Amelia Beatrice Everbrook adjusted her floral headband for the hundredth time, the delicate sugar roses feeling like wilting dandelions in her sweaty grip. It was the Grand Gala of the Sugar Arts Society, the biggest competition of the year for cake decorators like Amelia. 
+
+The setting wasn't just any ordinary bakery – it was the opulent ballroom of the grand Blackwood Manor, its gilded chandeliers casting flickering shadows on the meticulously arranged tables showcasing a kaleidoscope of edible masterpieces.  Elaborate sugar sculptures stood sentinel next to gravity-defying tiered cakes adorned with spun sugar clouds and intricate fondant designs. Amelia, however, felt like her humble creation – a three-tiered "Garden of Eden" cake complete with hand-painted buttercream flowers and delicate gum paste butterflies – was merely a wilting daisy amongst blooming roses.  
+
+
+Her heart hammered against her ribs as she caught sight of the judges – renowned pastry chefs with faces as stern as their critiques were legendary. This wasn't just about winning; it was about proving to herself, after years of self-doubt, that she could truly belong in this elite circle. 

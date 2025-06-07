@@ -1,0 +1,5 @@
+Rain lashed against the arched windows of the Grand Blackwood Library, mimicking the frantic pounding in Elara Winthrop's chest.  She clutched the ancient, leather-bound volume tighter, its pages brittle beneath her fingertips. A shiver ran down her spine, despite the roaring fire crackling merrily in the hearth. The library, usually a haven of hushed whispers and the comforting scent of aging paper, felt suffocating tonight. Shadows danced ominously in the flickering candlelight, and Elara swore she could hear a faint whisper echoing through the towering shelves – a murmur that sounded suspiciously like her name.
+
+Elara Winthrop, head librarian for nearly two decades, had never been one to believe in ghosts or ancient curses. But this book, unearthed from the library's deepest vaults, felt different. Its cryptic symbols and unsettling illustrations whispered of forbidden knowledge and forgotten gods. Now, standing alone in the cavernous hall after closing time, Elara couldn't shake the feeling that she had stumbled upon something far more powerful – and dangerous – than she could ever have imagined.  
+
+

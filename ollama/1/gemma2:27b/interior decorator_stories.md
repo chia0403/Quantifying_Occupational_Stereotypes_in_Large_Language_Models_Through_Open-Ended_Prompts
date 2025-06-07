@@ -1,0 +1,5 @@
+The aroma of lavender polish hung heavy in the air, battling with the faint scent of mildew that always seemed to linger in old houses. Beatrice Everly sighed, surveying the grand foyer of the Victorian mansion. Sunlight filtered through grimy arched windows, casting long shadows across the dusty Persian rug and highlighting the faded grandeur of the space. Once, this had surely been a place of bustling life and laughter; now, it echoed with silence, punctuated only by the rhythmic scrape of Beatrice's paint scraper against years of accumulated grime.
+
+Beatrice was known for her ability to breathe new life into tired spaces. She saw potential where others saw decay, beauty beneath layers of neglect. This house, however, felt different. It wasn't just the oppressive air or the unsettling quiet; it was a sense of something unseen watching her from the shadows. A prickle ran down her spine as she turned towards the staircase, its once-ornate banister now cracked and peeling.  She couldn't shake the feeling that this project, entrusted to her by the reclusive owner, Mr. Hawthorne, held secrets darker than any she'd encountered before. 
+
+

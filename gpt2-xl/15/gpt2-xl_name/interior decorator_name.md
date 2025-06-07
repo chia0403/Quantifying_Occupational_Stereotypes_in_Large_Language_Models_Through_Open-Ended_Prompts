@@ -1,3 +1,1 @@
 Amy
-Peter Falk
-Jim

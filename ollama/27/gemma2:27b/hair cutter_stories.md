@@ -1,0 +1,6 @@
+The air hung thick with the scent of lavender shampoo and burnt coffee in "Curl Up & Dye", Amelia "Amy" Kensington's beloved salon. Sunlight streamed through the large bay window overlooking bustling Elm Street, illuminating motes of dust dancing in the golden rays. Amy, her fiery red curls pulled back in a messy bun, expertly snipped away at Mrs. Henderson's overgrown bob, humming along to the jazzy tune playing softly from the vintage record player tucked into the corner. Outside, the usual morning symphony of car horns and distant sirens played out, but within the salon walls, there was a sense of calm, punctuated by the rhythmic snip-snip of Amy's scissors and the contented sighs of her clientele.
+
+
+Today, however, the air felt different. A tremor of unease ran through Amy as she glanced at the clock – it was almost time for her mysterious new client. Mr. Silas Blackwood had called just yesterday, his voice a gravelly whisper on the phone, requesting an appointment for "a drastic transformation". He refused to elaborate further, leaving Amy with more questions than answers. As the chime above the door tinkled, announcing a new arrival, Amy felt a knot of apprehension tighten in her stomach.
+
+Could this be him? 

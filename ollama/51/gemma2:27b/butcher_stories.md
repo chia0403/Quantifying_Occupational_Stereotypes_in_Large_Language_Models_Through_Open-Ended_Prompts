@@ -1,0 +1,5 @@
+The air hung heavy with the metallic tang of blood and the earthy scent of sawdust.  Morning sunlight, filtered through the greasy windowpanes of "O'Malley's Meats," painted stripes across Bartholomew "Bart" O'Malley's broad shoulders as he expertly cleaved a beef rib roast in two. Outside, the bustling market square of Dublin pulsed with life, but inside Bart's small shop, time seemed to move at its own pace – slow, deliberate, measured by the rhythmic thud of his cleaver and the gentle scrape of steel on bone.
+
+Bart, a man built like an ox with hands calloused from years of wielding knives sharper than most men's wits, paused in his work, listening intently. A faint scratching sound drifted in from the alley behind the shop, followed by a muffled thud. Curiosity piqued, he wiped his cleaver clean on his apron, the blood staining the already crimson fabric even deeper. He strode towards the back door, leaving the carcass of the cow cooling on the butcher's block. The smell of damp cobblestones and something else, something acrid and unfamiliar, greeted him as he pushed open the creaking wooden door. 
+
+

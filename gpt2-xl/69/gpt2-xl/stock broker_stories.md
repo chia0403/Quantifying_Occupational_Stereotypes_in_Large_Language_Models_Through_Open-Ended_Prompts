@@ -1,0 +1,7 @@
+Once upon a time, there was a stock broker named Frank W. Smith. It was his business to provide credit to various banks, with very high interest rates. Many of Smith's depositors were bankers, such as J.P. Morgan, who were concerned about rising prices during gold shortages in 1920 and early 1921. Smith knew that the Federal Reserve System would step in to buy US paper assets in the event of a banking crisis. But in his desire to make a long-lasting impression, Smith kept quiet about it for years.
+
+Finally, on September 21, 1921, Smith told a London reporter "The banking and financial system of the United States is based upon the government ownership, and it is entirely fraudulent to suggest that it could suffer any disturbance on that theory." Smith then described "the whole system of deposit finance as a fraud," as it consisted of "a system of 'deposit securities' and 'deposit insurance' and other arrangements which provide a guarantee so ludicrous and so transparent that it defies description." (S.R. Smith, The Bankers' New National Currency, London, 1923, page 19)
+
+The United States and the World
+
+The rise of the Federal Reserve System began in December 1913. It was the result of the Federal Reserve Act of 1913 (The Sherman Antitrust Act and The Federal Reserve Act became law in October 1913, and were passed by Congress in August 1914). It created the Federal Reserve Banks, with a total

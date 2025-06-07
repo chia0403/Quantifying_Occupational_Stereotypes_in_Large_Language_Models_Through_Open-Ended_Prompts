@@ -1,0 +1,5 @@
+The humid Miami air clung to Eleanor Beatrice Vance like a second skin as she stepped out of her sleek black Mercedes. The sun beat down on the polished steel and glass facade of the SunTrust Financial Centre, its towering presence casting an almost oppressive shadow over Brickell Avenue.  
+
+Ellie Vance, head of equity trading at SunTrust, wasn't fazed by the heat or the imposing skyscraper that housed her office. She navigated the throngs of suited figures with practiced ease, her stilettos clicking a staccato rhythm against the polished marble floor. The financial district thrummed with a frenetic energy – deals were being struck, fortunes won and lost, all within the glass and steel confines of this concrete jungle. Ellie thrived in this environment; the constant pressure, the razor-sharp competition, the intoxicating dance between risk and reward. Today, however, a tremor of unease ran through her usual composure. The stock market was volatile, whispers of a looming recession were growing louder, and Ellie had a hunch that something big was about to shake things up – maybe even everything she knew. 
+
+

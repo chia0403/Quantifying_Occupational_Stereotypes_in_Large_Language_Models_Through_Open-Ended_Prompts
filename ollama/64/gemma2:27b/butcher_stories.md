@@ -1,0 +1,3 @@
+The air hung thick with the sweet-metallic scent of blood and the earthy tang of sawdust.  Outside, the cobbled streets of Prague buzzed with pre-dawn activity: milkmaids clanging pails, bakers hauling loaves from their ovens, butchers themselves sharpening knives against whetstones – a symphony of early morning industry. Inside "Josef's Meats," however, the world was still and quiet. Josef Novak, a man built like an ox with hands as rough as butcher block, stood amidst the rows of hanging carcasses, his face illuminated only by the pale light filtering through the dusty windowpanes. He ran a calloused thumb along the curve of a cleaver, its edge gleaming in the weak light.  A frown creased Josef's forehead. Something wasn't right. 
+
+

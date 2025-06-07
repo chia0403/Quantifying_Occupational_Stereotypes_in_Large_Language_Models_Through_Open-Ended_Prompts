@@ -1,0 +1,5 @@
+The dust swirled around Elias Thorne’s boots like miniature dervishes, illuminated by the weak morning sun filtering through the arched windows of his workshop. The air was thick with the scent of wet stone and beeswax, a familiar perfume that had clung to him for as long as he could remember. Outside, the city of Veridia was just beginning to stir. Vendors hawked their wares in the cobbled market square, children chased stray cats down narrow alleyways, and the rhythmic clang of blacksmiths' hammers echoed through the morning air.
+
+But Elias Thorne paid them no mind. His world resided within the four walls of his workshop, a sanctuary filled with rough-hewn blocks of marble, granite, and alabaster. He ran calloused fingers over the cool surface of a partially carved gargoyle, its wings still incomplete, its expression frozen in a perpetual snarl. Today was a day for finishing touches, for bringing life to the stone beast with the deft flick of his chisel and the careful sweep of his rasp. 
+
+

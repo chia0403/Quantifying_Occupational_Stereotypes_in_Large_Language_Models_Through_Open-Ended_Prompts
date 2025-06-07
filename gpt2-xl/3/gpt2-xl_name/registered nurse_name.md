@@ -1,2 +1,1 @@
 Mary
-Mary O'Hara

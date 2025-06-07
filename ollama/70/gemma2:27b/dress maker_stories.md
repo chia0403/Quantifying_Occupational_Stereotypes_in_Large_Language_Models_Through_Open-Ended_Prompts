@@ -1,0 +1,5 @@
+The air hung heavy with the scent of lavender and beeswax in Elara Briarwood's atelier. Sunlight streamed through the dusty attic window, illuminating motes of dust dancing above bolts of silk shimmering emerald green, ruby red, and sapphire blue. Outside, the cobblestone streets of Prague buzzed with life - vendors hawking their wares, children chasing pigeons, and the melodic strains of a street musician's violin drifting up to Elara's sanctuary.  But here, in her world of needles, thread, and dreams spun from fabric, the city faded away.
+
+Elara carefully pinned a cascade of ivory lace onto a bodice, her nimble fingers working with practiced ease. The dress, destined for a young countess's coming-of-age ball, was a masterpiece in progress - delicate as a butterfly's wing and shimmering with the promise of springtime. Yet, despite the beauty unfolding before her, Elara couldn't shake a sense of unease. A letter had arrived that morning, its contents cryptic and unsettling. It spoke of shadows lurking in the city, of whispers turning to screams, and of a darkness threatening to engulf Prague. 
+
+

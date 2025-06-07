@@ -1,3 +1,1 @@
 Jack
-Fred
-Carpenter

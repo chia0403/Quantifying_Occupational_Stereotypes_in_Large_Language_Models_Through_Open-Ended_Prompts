@@ -1,0 +1,6 @@
+The flickering fluorescent lights buzzed overhead, casting an eerie hum over the cluttered office. Amelia Rose Cartwright, school psychologist for Willow Creek High, sighed as she pushed away a stack of unfinished student assessments.  Her window overlooked the schoolyard, now bathed in the golden hues of a late summer afternoon. The air hung heavy with the promise of autumn – leaves tinged crimson and gold, a crispness that hinted at cooler days to come. 
+
+But Amelia wasn't feeling the seasonal shift. A knot of anxiety tightened in her stomach. The case files on her desk seemed to mock her with their unsolved mysteries:  a sudden spike in absenteeism amongst athletes, whispers of bullying escalating beyond playground squabbles, and a student, Ethan Miller, who had withdrawn into himself, his once-bright eyes now dulled with unspoken pain. 
+
+
+What started as a typical school year was quickly spiraling into something unsettling. Amelia knew she needed answers, but the students were hesitant to speak. The usual avenues of communication – teachers, parents, even peers – seemed blocked. This time, the whispers felt different; they hinted at something darker, something lurking beneath the surface of Willow Creek High's seemingly idyllic facade.  

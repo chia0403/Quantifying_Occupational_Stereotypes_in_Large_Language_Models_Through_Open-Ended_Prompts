@@ -1,4 +1,2 @@
 first_name,last_name,gender
-James,['Ritter'],gm
-Charles,"['E', 'Lattimer']",gm
-Jim,nan,gm
+James,"['Jim', 'Ritter']",gm

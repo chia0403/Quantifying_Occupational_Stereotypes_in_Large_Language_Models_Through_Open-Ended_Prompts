@@ -1,1 +1,1 @@
-Ritchie B. Johnson
+Dr Ritchie B. Johnson

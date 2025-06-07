@@ -1,0 +1,7 @@
+The acrid scent of woodsmoke hung heavy in the air, mingling with the sweeter perfume of drying lavender wafting from Amelia Thorne's window box. Rain lashed against the grimy glass panes, drumming a relentless rhythm that mirrored the anxiety tightening in her chest. Her workshop, nestled on a cobbled side street in the heart of Grimsborough, was unusually quiet this morning. No bustle of customers eager for new gowns or mended trousers. Just the rhythmic tick-tock of her grandfather clock and the insistent patter of rain.
+
+Amelia ran a calloused hand over the finely-wrought silver thimble she always wore on her middle finger. A family heirloom passed down through generations, it was a symbol of their craft, a reminder of the legacy she carried on her shoulders. But today, the weight felt heavier than usual. Grimsborough, once a bustling trading hub, had fallen on hard times. The mines that fueled its prosperity were running dry, and with them, the livelihood of countless families, including Amelia's. 
+
+Her gaze fell upon the unfinished gown draped over the tailor's dummy – a vision in crimson silk, destined for Lady Elara’s Midsummer Ball. But would there even be a ball this year? With whispers of unrest swirling through the town and the ominous shadow of poverty looming large, Amelia couldn't help but fear that the once vibrant heart of Grimsborough was slowly fading away.
+
+

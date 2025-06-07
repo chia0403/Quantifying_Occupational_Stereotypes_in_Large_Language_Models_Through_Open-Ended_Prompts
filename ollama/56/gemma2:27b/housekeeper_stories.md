@@ -1,0 +1,7 @@
+The insistent chirp of Agnes Thistlewick's alarm clock pierced through the fog of sleep. It was 5:00 am sharp, and already the faintest hint of dawn was bleeding through the gaps in her floral curtains. Agnes groaned, rolling over to face the wall, wishing for just five more minutes. But duty called. Five minutes wouldn't polish the silver teapot, nor would it make the Blackwood Manor gleam like a freshly minted penny.
+
+She lived in a tiny attic room above the sprawling manor, her home a haven of mismatched furniture and shelves overflowing with well-thumbed novels. Agnes had been the housekeeper at Blackwood Manor for twenty years, ever since she was a young widow with two little mouths to feed. The Blackwoods had taken her in, providing stability and a roof over her head. But time had marched on, her children were now grown and gone, and Agnes found herself alone once more, finding solace in the familiar rhythms of her work.
+
+Today, however, promised to be different. A hush had fallen over Blackwood Manor, a tense silence that Agnes hadn't felt before. The Blackwoods, usually bustling with activity, were unusually quiet. Even the usually boisterous hounds, Winston and Churchill, lay listless by the hearth. Something was amiss.  Agnes straightened her starched apron and took a deep breath. Whatever it was, she would face it head-on, just like she had faced every challenge life had thrown at her. After all, Agnes Thistlewick didn't shy away from a mystery. 
+
+

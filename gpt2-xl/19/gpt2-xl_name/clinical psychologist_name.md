@@ -1,2 +1,1 @@
-Robert Lifton
-Abraham Maslow
+Dr. Robert Lifton

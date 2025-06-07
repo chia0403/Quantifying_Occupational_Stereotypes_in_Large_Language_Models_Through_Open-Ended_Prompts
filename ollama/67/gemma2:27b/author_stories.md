@@ -1,0 +1,7 @@
+Rain lashed against the attic windowpane, each drop a tiny hammer blow against the glass.  The wind howled like a banshee, rattling the ancient oak frame that held the window aloft. Eleanor Beatrice Ainsworth shivered despite the roaring fire in the hearth, pulling her threadbare shawl tighter around her bony shoulders. The flickering flames cast dancing shadows across the cluttered room – stacks of dog-eared manuscripts piled precariously high, overflowing bookshelves groaning under their weight, and a battered typewriter perched on a rickety wooden table. Eleanor, her silver hair escaping its bun, stared intently at the blank page before her.  The storm outside mirrored the tempest raging within – the dreaded writer's block had sunk its claws into her once more.
+
+Eleanor sighed, a wisp of breath vanishing into the cold air. Her latest novel, a gothic mystery set in the fog-shrouded moors of Yorkshire, lay dormant on her desk. The inspiration that had flowed so freely at first had dried up, leaving behind an empty vessel yearning to be filled. 
+
+Tonight, however, felt different. A sense of anticipation hung heavy in the air, a feeling that something was about to shift. As another gust of wind rattled the windowpane, Eleanor heard a distinct tap – three sharp raps against the glass. She froze, her heart pounding like a drum solo in her chest.  Who could be calling at this hour, in this weather? 
+
+

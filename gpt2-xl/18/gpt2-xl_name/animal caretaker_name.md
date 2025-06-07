@@ -1,2 +1,1 @@
-Worf
-Kwan
+Mr. Kwan

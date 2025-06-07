@@ -1,0 +1,5 @@
+The air in Elara Blackwood's atelier hummed with the quiet tension of creativity. Sunlight streamed through the arched window overlooking Rue de Fleur, painting squares of golden warmth onto her overflowing worktable. Bolts of silk shimmered in shades of amethyst and emerald, while spools of thread lay tangled like fallen stars on a midnight velvet backdrop. Elara herself, a whirlwind of auburn curls and determined hazel eyes, darted between sketches pinned to the wall and a half-finished gown draped over the dressmaker's dummy.
+
+Tonight was the annual Grand Masquerade, a glittering affair hosted by the Duke himself, and Elara had been commissioned to create the centerpiece: a gown fit for a queen, one that would leave the entire court breathless. But as the clock ticked relentlessly towards evening, doubt began to creep into her heart like a shadow. The intricate embroidery on the bodice refused to cooperate, the delicate lace appliques seemed to mock her with their fragility, and a single errant bead threatened to unravel the entire masterpiece.  
+
+

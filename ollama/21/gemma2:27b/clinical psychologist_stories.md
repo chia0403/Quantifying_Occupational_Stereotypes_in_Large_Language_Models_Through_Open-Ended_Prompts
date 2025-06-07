@@ -1,0 +1,5 @@
+Rain lashed against the arched windows of Dr. Eleanor Vance's office, blurring the already muted hues of the late autumn cityscape beyond. The rhythmic drumming was almost hypnotic, mirroring the steady thrumming anxiety she felt in her chest.  Eleanor, with her carefully coiffed auburn hair and piercing blue eyes that seemed to see right through you, usually prided herself on her composure. But today, the impending arrival of a new patient – one shrouded in secrecy and whispered rumors – was unsettling even her seasoned nerves.
+
+The file lay open on her desk, stark against the worn mahogany. "Subject X," it read simply, followed by a list of redacted details: age unknown, occupation classified, presenting issue... "Existential Dread."  Eleanor frowned. Existential dread was a broad term, often accompanied by depression, anxiety, or even psychosis. But the complete lack of identifying information, the insistence on anonymity, and the cryptic referral from a trusted colleague all pointed to something far more unusual. 
+
+

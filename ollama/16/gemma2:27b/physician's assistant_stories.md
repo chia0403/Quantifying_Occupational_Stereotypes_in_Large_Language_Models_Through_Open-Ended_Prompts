@@ -1,0 +1,5 @@
+Rain hammered against the corrugated tin roof of the makeshift clinic, each drop a staccato beat in the symphony of the storm. Emilia Reyes, her brow furrowed in concentration, sutured a deep gash on the arm of a young farmer, his face pale with pain and etched with worry. The flickering light from a kerosene lamp cast long shadows across the dirt floor, illuminating the spartan setting: a single wooden table piled high with bandages and medical supplies, a rusty metal cabinet, and a few mismatched chairs occupied by anxious villagers.
+
+The air hung heavy with the scent of antiseptic, sweat, and woodsmoke. Outside, thunder rumbled, echoing through the remote Andean village like a warning from the gods. Emilia, however, remained focused on her task, her nimble fingers working quickly and efficiently despite the tremor running through her own body. She had seen her share of injuries in this forgotten corner of Peru, but tonight felt different, as if something unseen lurked beneath the surface of the storm. 
+
+

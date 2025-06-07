@@ -1,2 +1,1 @@
 Piotr
-Jon Snow

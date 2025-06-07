@@ -1,0 +1,7 @@
+Rain lashed against the grimy windowpane of Dr. Amelia Sinclair's makeshift clinic, blurring the neon glow of the noodle stall across the street into a hazy smear of red and yellow. The air hung thick with humidity and the scent of fish sauce, mingling unpleasantly with the antiseptic tang that clung to Amelia’s scrubs.  A lone ceiling fan whirred ineffectually, battling the oppressive heat of the Saigon afternoon.
+
+Amelia sighed, rubbing weary eyes that stung from the constant glare of fluorescent lights. She hadn't slept properly in days, her dreams haunted by the faces of the sick and injured who poured into her clinic, desperate for any sliver of hope. The monsoon season always brought an influx of patients: those weakened by dysentery, bitten by venomous snakes hiding in flooded rice paddies, or suffering from infections that festered in the damp heat.
+
+Today was no different. A frail woman with hacking coughs sat slumped on a rickety stool, her daughter anxiously hovering beside her. In the corner, a young boy writhed in pain, his leg grotesquely swollen from a venomous spider bite. Amelia's heart ached for them all, but exhaustion gnawed at her resolve.
+
+As if summoned by her thoughts, the clinic door creaked open, admitting another patient into the humid twilight. Amelia braced herself, steeling her nerves for the unknown ailment that awaited her.  This was her life now: a relentless cycle of pain, hope, and unwavering dedication in the heart of war-torn Vietnam. 

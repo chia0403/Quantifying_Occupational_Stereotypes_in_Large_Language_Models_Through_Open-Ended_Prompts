@@ -1,0 +1,5 @@
+Rain hammered against the skyscraper windows, blurring the neon cityscape into an Impressionist painting of shimmering lights. The air inside Alistair Montgomery's office was thick with the scent of mahogany and old money - a fitting aroma for the 48th floor of the Montgomery & Sons building, a financial institution his family had helmed for generations. 
+
+Alistair himself, impeccably dressed in a bespoke suit that seemed to absorb the dim light, sat rigidly at his desk. His silver hair was slicked back, revealing the sharp angles of his face - a face weathered by years of high-stakes decisions and sleepless nights spent analyzing market trends. The glow of multiple computer screens illuminated his piercing blue eyes, which were fixed on the plummeting numbers scrolling across the Bloomberg terminal. A cold sweat beaded on his forehead as he watched the Dow Jones Industrial Average plunge further into the red. This wasn't just another bad day in the markets. This was a catastrophe waiting to unfold.
+
+

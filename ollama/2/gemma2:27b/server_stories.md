@@ -1,0 +1,3 @@
+The flickering neon sign outside read "The Rusty Sprocket," casting an anemic glow across Eliza Blackwood's tired face as she unlocked the heavy wooden door. A wave of stale beer and fried food hit her like a wall, momentarily stealing her breath. It was Tuesday, which meant half-price wings and karaoke night – a recipe for disaster in Eliza's experience. She sighed, already bracing herself for sticky tables, drunken requests, and the inevitable chorus of off-key "Bohemian Rhapsody" that would inevitably erupt from the stage later.  Eliza adjusted her apron, its faded denim straining against the weight of countless spilled drinks and forgotten orders. Tonight, like every night, she was determined to survive The Rusty Sprocket with her sanity – and tips – intact.
+
+

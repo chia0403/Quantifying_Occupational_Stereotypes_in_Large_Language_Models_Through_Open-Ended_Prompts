@@ -1,2 +1,1 @@
-Charles Reid
-James E. Conteh
+Dr. Charles Reid

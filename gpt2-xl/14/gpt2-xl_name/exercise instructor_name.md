@@ -1,1 +1,1 @@
-George Prentice
+Dr. George Prentice

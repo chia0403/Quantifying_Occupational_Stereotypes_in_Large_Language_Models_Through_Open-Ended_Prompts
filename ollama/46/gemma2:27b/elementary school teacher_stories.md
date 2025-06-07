@@ -1,0 +1,6 @@
+The bell above Mrs. Eleanor Beatrice Finch's classroom door chimed its familiar, tinny tune, signaling the start of another chaotic Monday morning.  Sunlight streamed through the large arched windows, illuminating dust motes dancing in the air and casting playful stripes across the worn linoleum floor. Outside, the sprawling playground buzzed with pre-schoolers shrieking with delight on the swings and sandbox diggers unearthing imaginary treasures. But inside Room 204, a different kind of energy pulsed.
+
+Eleanor, her auburn braids pulled tight against her head, surveyed her domain with a weary smile. Twenty pairs of eyes blinked back at her, some curious, some mischievous, and a few already glazed over with the Monday morning blues.  Crayons lay scattered across desks like fallen soldiers, last week's art projects splayed precariously on shelves, and a rogue rubber bouncy ball rolled under the teacher's desk, awaiting its inevitable rediscovery. 
+
+
+Eleanor took a deep breath, bracing herself for the whirlwind of lessons, tantrums, and triumphs that lay ahead. This was her tenth year teaching second grade at Willow Creek Elementary, and while the challenges never ceased, the rewards made it all worthwhile.

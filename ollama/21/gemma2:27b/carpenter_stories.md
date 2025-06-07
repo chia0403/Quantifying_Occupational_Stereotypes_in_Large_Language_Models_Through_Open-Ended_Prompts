@@ -1,0 +1,7 @@
+The scent of sawdust hung heavy in the air, clinging to Elias Hawthorne's worn overalls like a second skin. Sunlight streamed through the grime-coated windows of his workshop, illuminating motes of dust that danced in the golden rays. Outside, the clatter and clamor of the bustling marketplace echoed into the small space, but within its wooden walls, a serene quiet reigned. Elias ran a calloused thumb over the smooth curve of a newly carved leg, admiring the grain of the cherrywood beneath his fingertips. His workshop, nestled on a cobblestone alley behind the vibrant spice market of Zahar, was his sanctuary - a world where wood whispered stories and dreams took shape under his skilled hands.
+
+Today, however, Elias wasn't crafting furniture for eager patrons or repairing timeworn treasures. He was hunched over a workbench cluttered with tools, painstakingly piecing together a puzzle box unlike any he'd ever seen before. Its intricate carvings depicted mythical creatures and forgotten languages, hinting at a secret far beyond the mundane realm of carpentry. A crumpled parchment, found tucked within an ancient book from his grandfather's collection, lay beside the box, its faded ink promising untold riches for whoever could unlock its hidden compartments.  
+
+Elias paused, squinting at a particularly stubborn lock mechanism. A shiver ran down his spine, not from the chill autumn air seeping through the cracks in the walls, but from the growing sense that he was walking into something far greater than himself. 
+
+

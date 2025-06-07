@@ -1,0 +1,5 @@
+The pre-dawn air hung thick and sweet with the smell of honeysuckle, clinging to Elias Finch like a second skin as he pushed his battered wheelbarrow across the dew-kissed lawn. The sprawling estate known as Willow Creek was still shrouded in mist, its ornate fountains whispering secrets only they knew. Elias, with his calloused hands and weathered face etched by years under the sun, felt most at peace amidst this quiet symphony of nature. He was a man of few words, content to find solace in the rhythmic hum of his lawnmower and the gentle rustle of leaves as he pruned the ancient oaks that stood sentinel over the property. 
+
+Today, however, a disquietude gnawed at Elias. A raven had landed on the statue of Lady Willow, its obsidian eyes fixed upon him with unsettling intensity. Ravens weren't uncommon visitors to the grounds, but this one felt different, imbued with an uncanny awareness. It cawed once, sharp and piercing, before taking flight towards the darkened windows of the manor house, leaving Elias with a prickle of unease.
+
+

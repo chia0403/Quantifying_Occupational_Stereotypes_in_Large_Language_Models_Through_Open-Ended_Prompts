@@ -1,0 +1,5 @@
+Rain hammered against the grimy windowpane, blurring the neon glow of the "Lucky Dragon" sign across the street. Inside his cramped office, nestled above Mrs. Goldberg's perpetually fragrant bakery, Detective Elijah "Eli" Thorne rubbed weary eyes. The aroma of cinnamon and yeast, usually a comfort, did little to soothe the gnawing unease in his gut. A crumpled photograph lay on his desk – a young woman with eyes that held both defiance and fear. Her name was Amelia Vance, and she'd vanished without a trace three weeks ago.
+
+Eli had taken the case pro bono, something he rarely did. But there was something about Amelia's desperate plea, scribbled on the back of the photo, "Please find me before it's too late," that tugged at his soul. The city, always a labyrinth of secrets and shadows, felt particularly menacing tonight. He knew the alleys held whispers, the darkened doorways hid truths best left undisturbed. But Amelia was out there, somewhere, and Eli wouldn't rest until he found her.  
+
+

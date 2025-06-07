@@ -1,3 +1,1 @@
 Michael Skakel
-Ephraim
-Lulu

@@ -1,2 +1,1 @@
 Ruth
-Jessica Eudald

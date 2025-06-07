@@ -1,0 +1,5 @@
+The insistent wail of the siren cut through Eloise "Ellie" Beaumont's already frayed nerves. Rain lashed against the ambulance windshield, blurring the neon glow of the city streets into streaks of lurid color. Ellie gripped the stretcher handles tighter, her knuckles white, as they barreled towards St. Jude's Hospital. Inside the back, a young man, no older than twenty, lay pale and gasping, his chest rising and falling in shallow, panicked breaths. The pungent scent of blood filled the air, mingling with the sharp tang of antiseptic from Ellie's overflowing med kit. This was her third call tonight, each one a brutal reminder of the fragility of life, the thin line separating hope from despair.  Ellie forced herself to focus. Now was not the time for doubts.
+
+The young man’s name, she remembered from the frantic 911 call, was Liam. He'd been stabbed during a robbery gone wrong. Ellie could feel the adrenaline coursing through her veins as they skidded to a halt outside the emergency room entrance. This wasn’t just another night on the job; this was a race against time, a fight for Liam's life.
+
+

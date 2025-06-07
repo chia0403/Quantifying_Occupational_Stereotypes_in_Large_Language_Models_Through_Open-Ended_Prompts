@@ -1,0 +1,5 @@
+The air hung thick with the scent of vanilla and almond, punctuated by the sharp tang of lemon zest. Eliza Winthrop adjusted her spectacles, her brow furrowed in concentration as she piped delicate buttercream roses onto a three-tiered wedding cake. Sunlight streamed through the bakery window, illuminating the swirling patterns on the fondant and casting dancing shadows across the polished countertop. Outside, the bustling streets of Charleston hummed with activity, but inside "Eliza's Edible Delights," time seemed to slow down, measured only by the rhythmic swoosh of the piping bag and the gentle whirring of the stand mixer.
+
+Eliza had poured her heart and soul into this cake, painstakingly crafting each sugar flower and meticulously smoothing the buttercream frosting until it gleamed like polished ivory. This wedding was a big one, for Charleston socialite Vivienne Sinclair, and Eliza knew every detail had to be perfect. But as she leaned back to admire her work, a knot of unease tightened in her stomach. Something wasn't right. 
+
+

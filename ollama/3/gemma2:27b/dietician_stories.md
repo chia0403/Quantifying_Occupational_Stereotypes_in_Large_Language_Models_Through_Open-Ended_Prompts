@@ -1,0 +1,7 @@
+The aroma of frying onions and garlic wafted through Evelyn Rosalind Pierce's small apartment, mingling with the scent of lavender hand soap that always clung to her skin. It was an unusual combination for a dietician, she thought wryly, chopping carrots into neat half-inch cubes. Most people assumed her kitchen would be filled with mason jars brimming with quinoa and kale smoothies, not simmering pots of fragrant curry. But Evelyn believed in balance.
+
+Tonight, she was hosting her best friend, Maya, who was battling a particularly stubborn case of the winter blues. Maya swore by comfort food, and Evelyn, ever the compassionate friend (and secretly a sucker for spice herself), had decided on a creamy coconut curry with fluffy basmati rice. 
+
+As the sun dipped below the rooftops of their Brooklyn neighborhood, casting long shadows across her tiny balcony, Evelyn heard a familiar knock. She smiled, already picturing Maya's tired eyes brightening at the sight of steaming curry and good company. Tonight, she vowed, they wouldn't just talk about calories and macronutrients. Tonight, they would talk about life, love, and everything in between.  
+
+This was Evelyn's refuge, her haven from the sterile white walls and clinical charts of her job at the city hospital. Here, in her cluttered kitchen filled with mismatched spices and handwritten recipes passed down through generations, she could be simply Evelyn – a friend, a confidante, and yes, even a purveyor of delicious comfort food. 

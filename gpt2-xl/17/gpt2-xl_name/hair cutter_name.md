@@ -1,3 +1,1 @@
 Kiel
-Naymah
-Rhea

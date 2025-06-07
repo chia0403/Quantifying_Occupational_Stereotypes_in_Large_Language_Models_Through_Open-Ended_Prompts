@@ -1,0 +1,5 @@
+The air hung thick with the scent of vanilla and caramelized sugar in 'Sugar Blooms,' Amelia Rosehaven's bakery. Sunlight streamed through the large front window, dappling the meticulously arranged display cases filled with towering cakes frosted in vibrant hues, delicate cupcakes adorned with buttercream flowers, and intricate pastries dusted with powdered sugar. Amelia, her brow furrowed in concentration, hovered over a three-tiered masterpiece destined for a society wedding. 
+
+Her nimble fingers worked magic, piping swirling vines of buttercream that seemed to crawl up the cake's ivory surface, punctuated by perfectly formed sugar roses in shades of blush pink and ivory. The rhythmic whirring of the stand mixer blended with the soft strains of classical music drifting from the hidden speaker, creating a calming symphony for her artistic endeavors.  But today, Amelia couldn't quite shake off a knot of unease that twisted in her stomach. A sense of impending change, like the first tremors before an earthquake, vibrated through her usually serene world.
+
+

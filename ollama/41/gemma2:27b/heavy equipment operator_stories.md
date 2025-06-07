@@ -1,0 +1,6 @@
+The rusty shriek of metal against rock echoed through the pre-dawn gloom. Bartholomew "Bart" Kowalski squinted through the dust swirling around his Caterpillar 336 excavator, its massive arm groaning as it heaved another boulder out of the earth. The air hung thick and heavy, smelling of diesel fumes and damp soil.
+
+Bart wasn't a morning person, but the harsh beauty of this desolate landscape always managed to pull him from his slumber. He was carving a new road through the heart of the Arizona desert, a ribbon of asphalt slicing through miles of sun-baked scrubland and towering saguaro cacti. It wasn't glamorous work, but it was honest, and Bart took pride in shaping the earth with his iron steed. 
+
+
+He wiped the sweat from his brow, the grit already caking on his skin. Another day, another mountain to move. He adjusted the controls, the engine purring like a contented lion as he maneuvered the behemoth towards the next obstacle: a stubborn outcrop of red sandstone resisting his efforts.  But something felt different today. An unsettling quiet had settled over the desert. The usual chorus of cicadas and birdsong was absent, replaced by an unnerving stillness. Even the wind seemed to hold its breath. 

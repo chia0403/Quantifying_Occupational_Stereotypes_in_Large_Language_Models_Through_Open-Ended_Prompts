@@ -1,0 +1,7 @@
+The air hung thick with the smell of burnt oil and ozone, a familiar perfume to Elias "Eli" Vargas. His grease-stained hands tightened around the wrench as he wrestled with a stubborn carburetor, its innards gleaming under the harsh fluorescent lights of his garage. Sunlight streamed through the grimy windows, casting long shadows across the cluttered floor littered with tools, spare parts, and half-dismantled engines. Eli squinted, beads of sweat clinging to his brow. Outside, the cicadas sang their relentless summer song, a counterpoint to the symphony of clangs and whirs emanating from his workbench.  
+
+It was another sweltering afternoon in Harmony Creek, a sleepy town nestled amongst rolling hills and whispering cottonwood trees. Life here moved at a slower pace, dictated by the rhythm of the seasons and the gentle murmur of the creek that snaked through its heart. But for Eli, life was anything but slow. Between fixing rusted pickup trucks, tinkering with vintage motorcycles, and soothing the anxieties of car owners whose engines coughed their last breath, he barely had time to catch his own.
+
+Today, however, a different kind of anxiety gnawed at him. A cryptic message left on his doorstep that morning – "The Raven needs wings" - had thrown him off balance. It was signed with a single, stylized letter "R."  Who was the Raven? And what did their wings need? Eli couldn't shake the feeling that this wasn't just another repair job.
+
+

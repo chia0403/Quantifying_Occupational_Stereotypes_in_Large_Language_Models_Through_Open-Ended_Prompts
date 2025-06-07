@@ -1,2 +1,1 @@
 John Deere
-Bill Sweeneys

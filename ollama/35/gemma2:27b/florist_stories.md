@@ -1,0 +1,5 @@
+Rain lashed against the storefront window, blurring the vibrant colors of Amelia Rosethorne's meticulously arranged bouquets. The scent of lilies, roses, and lavender battled against the damp earthiness seeping in from the street outside. Amelia sighed, wiping condensation off the glass with a faded floral-print tea towel. Usually, the gentle patter of rain was soothing, encouraging introspection and creativity. Today, it felt like a harbinger of doom.
+
+Her shop, "Blooms & Briars," nestled on a quiet cobblestone street in the historic heart of Willow Creek, had been struggling. The rise of online flower delivery services had drained business, leaving Amelia clinging to hope like a wilting rose desperately seeking sunlight.  The bell above the door tinkled, startling her. A man with rain-streaked hair and weary eyes hesitantly stepped inside, bringing with him a gust of wind and the scent of woodsmoke. He looked out of place among the delicate blooms, his rugged coat and boots stark against the pastel-colored decor. Amelia straightened her apron, ready to face whatever storm this newcomer might bring. 
+
+

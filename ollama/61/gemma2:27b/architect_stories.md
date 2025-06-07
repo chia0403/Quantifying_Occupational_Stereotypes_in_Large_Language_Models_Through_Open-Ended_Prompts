@@ -1,0 +1,5 @@
+Rain lashed against the frosted glass of Amelia Cartwright's office window, blurring the already muted skyline of Manchester into a watercolour wash. The incessant drumming was punctuated by the rhythmic click-clack of her keyboard as she wrestled with the latest iteration of her design for the Northern Quarter community centre. Frustration gnawed at her. The space felt sterile, lacking the vibrancy and soul that Amelia envisioned for the heart of this diverse neighbourhood.
+
+She leaned back in her ergonomically designed chair (a triumph of form over function, she mused wryly) and stared out at the dreary cityscape. Perhaps a walk would clear her head. Stepping into the hallway, Amelia noticed a flyer tacked to the noticeboard: "Manchester Architectural Society - Urban Renewal Challenge". An intriguing image caught her eye – a dilapidated warehouse nestled amongst towering modern structures. A spark ignited within her. This was exactly the kind of project that could reignite her passion for architecture. 
+
+

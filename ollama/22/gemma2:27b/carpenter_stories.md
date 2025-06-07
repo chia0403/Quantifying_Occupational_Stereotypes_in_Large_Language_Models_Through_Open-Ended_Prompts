@@ -1,0 +1,5 @@
+The smell of sawdust and varnish hung thick in the air, mingling with the sharp tang of saltwater carried on the wind. Elias Thorne squinted through the grime-streaked window of his workshop, watching the waves crash against the jagged cliffs below. His calloused fingers tightened around the chisel in his hand as he surveyed the half-finished hull before him. The sun dipped lower, casting long shadows across the worn floorboards and overflowing tool chests. It was a familiar scene, one Elias had played out countless times in his forty years, yet today it felt different. A restless energy thrummed beneath his skin, urging him towards something beyond the familiar curves of wood and the comforting rhythm of his craft. 
+
+Elias knew he should be content. His workshop perched on the edge of a bustling fishing village, overlooking the churning sea that had sustained generations before him. He'd carved out a good life here, respected by his neighbors, known for the sturdy boats he built with patient hands and an unerring eye. But lately, whispers of adventure had begun to tug at him, like unseen ropes pulling on his heartstrings.
+
+

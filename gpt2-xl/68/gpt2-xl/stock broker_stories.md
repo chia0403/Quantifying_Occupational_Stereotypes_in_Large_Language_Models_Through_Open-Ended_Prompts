@@ -1,0 +1,7 @@
+Once upon a time, there was a stock broker named James Hinkley. He had great taste in wine and, it turned out, a fondness for young women. He had two for whom he kept a cottage in the country and they would take turns sleeping on the bed. One day a young woman arrived who was just the thing. The stock broker made love to her that night and had her bring another. After another night, he went looking for another and found a blonde at a party who spoke perfect English. This blond was Mary.
+
+Hinkley told Mary she must visit his cottage in the country and bring a younger woman with her. After Mary left, he found another one and tried to arrange a similar encounter the following night. He was unable to. After one week, he tried again, but he was again unsuccessful. It's doubtful he thought about how wrong he had been.
+
+Hinkley's next attempt at the same woman failed even worse a second time. Mary and this other young woman arrived at his cottage to try again. Again, Hinkley made love to her. And again, he failed.
+
+Hinkley tried to give Mary a third girl. As he started to undress, he felt the breasts beneath him. With great trepidation he removed his clothes, but the girl appeared to have an extra nipple on top of the other one. This did not stop him though; he continued to dance to the rhythmic

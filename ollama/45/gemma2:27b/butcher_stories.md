@@ -1,0 +1,3 @@
+The air hung thick with the metallic tang of blood and the sweet perfume of sawdust.  A fat fly buzzed lazily against the greasy windowpane, momentarily obscuring the view of the cobblestone street outside Archibald "Archie" Grimshaw's butcher shop. Archie himself, a man built like an ox with forearms thicker than hams, was expertly cleaving a side of beef. His cleaver, christened "Betsy," whistled through the air, each stroke precise and economical. 
+
+The bell above the door jingled, announcing a customer. Archie wiped his brow with a blood-stained rag and bellowed, "Morning! What can I get for ya?" The shop, dimly lit by flickering gas lamps and crammed with hanging carcasses, seemed to hum with anticipation.  

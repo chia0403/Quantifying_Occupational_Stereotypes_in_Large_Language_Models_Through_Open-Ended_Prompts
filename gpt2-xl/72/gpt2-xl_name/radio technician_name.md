@@ -1,1 +1,1 @@
-Jack Pate
+Jack

@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane of Eloise Beaumont's cramped studio apartment, mimicking the chaotic storm brewing inside her. Empty coffee cups littered her desk, the glow of her monitor casting long shadows across the cluttered space. A half-eaten bagel sat precariously on a stack of design books, its cream cheese oozing onto a sketchpad filled with crumpled ideas. Eloise rubbed her tired eyes, frustration gnawing at her. The deadline for the new advertising campaign loomed like a malevolent specter, and inspiration seemed as elusive as sunshine in this perpetually overcast city. 
+
+Her latest attempt, a vibrant but cluttered design for a new line of organic skincare products, glared back at her from the screen. It was technically sound – colors were balanced, typography legible – but it lacked the spark, the *je ne sais quoi* that would make it truly stand out.  Eloise sighed, pushing away from her desk and pacing the small room. Outside, the wind howled like a banshee, echoing her growing anxiety.
+
+

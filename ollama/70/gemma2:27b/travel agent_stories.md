@@ -1,0 +1,5 @@
+The insistent chime of the shop bell startled Elara Cartwright from her daydreams. Dust motes danced in the afternoon sunbeams slicing through the windowpanes, illuminating the cluttered desk and overflowing brochure racks that were Elara's domain. "Welcome to Wanderlust Travels," she chirped, plastering on her best customer service smile as a young woman hesitantly entered the shop. The scent of jasmine and sunscreen clung faintly to the newcomer, hinting at a recent escape from reality. 
+
+Elara's own wanderlust was a chronic condition. Her passport, crammed with colourful stamps, was a testament to her love for exploring hidden corners of the world. Yet, she found herself rooted in this quaint little shop on the cobblestone streets of Edinburgh, patiently guiding others towards their own adventures.  But today, something felt different. This wasn't just another client seeking a sun-soaked beach holiday or a city break filled with museums and monuments. Elara could sense it – there was a spark of desperation in the woman's eyes, a yearning for something more than just a vacation.
+
+

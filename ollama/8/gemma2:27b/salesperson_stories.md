@@ -1,0 +1,6 @@
+The humid Florida air clung to Eliza Bethany Cartwright like a second skin as she adjusted her crisp white blouse, praying it wouldn't succumb to sweat stains before she reached her first client meeting.  She navigated the labyrinthine corridors of the opulent Grand Cypress Resort, the scent of chlorine and sunscreen mingling with the faint aroma of hibiscus from the overflowing planters lining the walkways. Today was Eliza's first day as a salesperson for Sunshine Vacations, a company specializing in luxury travel packages to the Caribbean. 
+
+
+Eliza had always dreamed of working in the travel industry, her imagination filled with visions of turquoise waters, pristine beaches, and exotic locales. Now, clutching a leather portfolio overflowing with brochures and itineraries, she was determined to prove herself worthy of this opportunity.
+
+Her phone buzzed, a reminder for her 10:00 am meeting with Mr. and Mrs. Davenport, a retired couple looking for a romantic getaway to celebrate their 50th anniversary. Eliza took a deep breath, channeling the confidence she knew she possessed beneath the layer of nerves. Today was the day she would turn dreams into reality, one vacation at a time.  

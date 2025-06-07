@@ -1,0 +1,5 @@
+The rain hammered against the corrugated iron roof of the precinct like an army of tiny fists, drowning out everything except the rhythmic drip from a leaky pipe somewhere in the dusty back office. Detective Isabella “Izzy” Diaz sighed, pushing away the lukewarm coffee that had long ago surrendered its bitterness to boredom. The fluorescent lights buzzed overhead, casting an anemic glow over the cluttered desk littered with cold case files and half-eaten donuts. Outside, the neon glow of Miami Beach flickered through the grimy windowpane, a cruel reminder of the vibrant life pulsing just beyond the precinct walls. 
+
+Tonight, however, Izzy was stuck with a missing person's report that smelled like trouble from the get-go. The woman, Gabriela Ramirez, hadn't been seen in three days. Her husband, a jittery man with shifty eyes and clammy palms, claimed she'd simply vanished into thin air. But something about his forced smile and rehearsed answers felt off to Izzy. Something told her this wasn't just another runaway case. This was the beginning of something dark and dangerous. 
+
+

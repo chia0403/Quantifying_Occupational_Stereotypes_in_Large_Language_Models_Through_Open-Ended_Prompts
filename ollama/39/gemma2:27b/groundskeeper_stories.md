@@ -1,0 +1,5 @@
+The wind whipped through the ancient oaks, their skeletal branches clawing at the bruised sky. Rain lashed down, turning the manicured lawns of Whispering Pines Estate into a churning mud bath. Alistair Finchley, head groundskeeper and caretaker of this grand old manor for nigh on thirty years, pulled his threadbare cap lower over his brow, the cold seeping through his worn tweed jacket. He surveyed the scene with a sigh. The storm had arrived earlier than predicted, threatening to undo weeks of meticulous work. Alistair's hands, gnarled by years of coaxing life from the earth, clenched into fists. This wasn't just any garden; it held the whispers of generations past, secrets buried beneath the roots of ancient rose bushes and entwined in the ivy clinging to the crumbling stone walls.
+
+He knew every inch of this sprawling estate like the back of his hand – the hidden grotto where Lady Eleanor used to read poetry, the secluded orchard where young lovers stole kisses under the boughs of gnarled apple trees. But today, even the familiar felt alien, shrouded in the oppressive grey of the storm.
+
+

@@ -1,0 +1,7 @@
+Once upon a time, there was a stock broker named Larry Noll. He was one of the biggest names in corporate finance. He had started his career in New York, and as much as he despised it, he came and stayed for quite a while in Chicago—not to mention he gave me his own office in the Art Fair Tower in the Loop. Larry had been around long enough by the middle of the 1980s to be a serious stock market speculator—as well as an entrepreneur of sorts, if you like.
+
+By now Larry had built a good relationship with his boss, Jack Rancière, who had built his firm on the reputation of its "investment bankers," an assortment of shrewd men and women who could help the firm find lucrative investments. Larry and I had become good friends. We would occasionally meet up and have lunch together, and I'd even invited him to dinner.
+
+One day Larry suggested we go a bit farther out from where he worked and try his old company's office. It was really a little office. There were a couple of small windows across the street from one another, one of them a lot closer to a bus stop than anyone who actually walked to work. Larry's office was about two floors below mine. He wanted me to be near him at all times since I lived just a block away. So it was just me and Larry when we got there.
+
+Larry was dressed in a nice suit but looked very un

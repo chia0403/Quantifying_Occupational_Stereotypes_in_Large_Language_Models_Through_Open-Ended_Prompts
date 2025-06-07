@@ -1,0 +1,7 @@
+The flickering neon sign of "Benny's Burgers" cast long, distorted shadows across the greasy asphalt. Rain lashed down in sheets, making it hard to see through the grime-streaked windshield of Elijah Vance's beat-up pickup truck. He squinted at the sign, his reflection a weary ghost superimposed on the image of a grinning burger. It was past midnight, and the only other light came from the dim glow of streetlamps struggling against the downpour. 
+
+Elijah, a man built like an oak tree with calloused hands and wire-rimmed glasses perpetually perched on the bridge of his nose, sighed and reached for the toolbox in the passenger seat. Tonight's emergency call had led him to Benny's Burgers, a greasy spoon diner notorious for its questionable hygiene and even more questionable clientele. Apparently, their ancient wiring was threatening to plunge the whole place into darkness, which wasn't exactly ideal considering they were still serving late-night burgers to a handful of diehard patrons huddled inside.
+
+He braced himself against the torrent of rain as he slammed the truck door shut and trudged towards the diner, the smell of frying onions and stale grease assaulting his senses. He could see flickering shadows moving behind the greasy windows – Benny himself, a portly man with a booming laugh, probably trying to calm down panicked customers. Elijah hoped this wouldn't be too complicated. He was tired, hungry, and all he wanted was to get back to his warm apartment and a good book before the rain woke up the city.
+
+

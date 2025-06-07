@@ -1,0 +1,5 @@
+The air in Benny "Grease Monkey" Grimaldi's garage was thick with the scent of gasoline, motor oil, and desperation. The late afternoon sun slanted through the grime-coated windows, illuminating dust motes dancing in its golden rays. Outside, cicadas buzzed their monotonous summer song, a stark contrast to the symphony of clanking metal and sputtering engines emanating from Benny's cluttered domain. He leaned against his cherry-red 1967 Mustang Fastback, wiping grease-stained hands on his oil-soaked rag, a frown etched deep into his weathered face.
+
+Benny wasn't a man who wore his worries easily. But today, the weight of them pressed down on him like a busted engine block. His landlord was breathing down his neck about overdue rent, and business had been slower than a rusted-out carburetor.  His gaze fell on the battered, green 1972 Chevy Nova sitting in the corner, its hood open, revealing a tangled mess of wires and hoses. This car, a desperate plea from Mrs. Henderson, whose son needed it running for his first job interview, was Benny's last hope – both for her and for himself.
+
+

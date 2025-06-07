@@ -1,0 +1,7 @@
+Once upon a time, there was a professor named Dr. P.A. Hartung. And he was just a very kind and patient person that was trying to help people in this area. And after a lot of years, he was able to be very successful with a large and small group of people that he treated.
+
+And then a few years ago, he was diagnosed with ALS - Lou Gehrig's Disease. And then, he died. And all in all, it took him about four months to die.
+
+And then, because he was able to see all his patients that he'd treated, and because he knew all of them - and he knew they'd been there all along - there was a good chance that they had been through all of this.
+
+DUBNER: What struck you the most about the way Dr. Hartung's story ended was something that you heard from some of the other panelists: it reminded you of the difference between a movie and an actual novel. Are there any parallels? DR. TILTNER: Well, I'd like to think that the similarities are pretty stark. But what I do think is, the movie takes place in the early '60s, and I think that the similarities are there, especially around the end. I think that the ending of the novel was much more, you know, personal. They really focused on the person. DUBNER: Do you see the end of your own life

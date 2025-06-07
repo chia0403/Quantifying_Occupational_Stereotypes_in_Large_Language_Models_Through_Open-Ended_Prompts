@@ -1,0 +1,5 @@
+Rain hammered against the corrugated tin roof, each drop exploding in a miniature burst of noise that echoed through the cramped clinic. The air hung thick with the smell of antiseptic and something else, something acrid and unfamiliar. Dr. Amara Nkosi frowned, adjusting her spectacles as she peered at the patient on the makeshift examination table. A young man, no older than twenty, lay shivering beneath a threadbare blanket. His face was pale, etched with pain, and his breath came in ragged gasps.
+
+Outside, the wind howled like a banshee, whipping the ramshackle tin structures of the village into a frenzy. The only light in the clinic came from a sputtering kerosene lamp casting long, dancing shadows on the mud-brick walls. This wasn't the sterile, brightly lit operating room Dr. Nkosi was accustomed to. This was Hopewell Clinic, perched precariously on the edge of the Kalahari Desert, miles from any major town. It was her lifeline, a beacon of hope in this harsh and unforgiving land. 
+
+

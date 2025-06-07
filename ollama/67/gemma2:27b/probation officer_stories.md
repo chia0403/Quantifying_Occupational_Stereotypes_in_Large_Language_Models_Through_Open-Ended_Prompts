@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Beatrice "Bea" Holloway's office, blurring the already dismal cityscape beyond. The fluorescent lights hummed overhead, casting a sickly yellow glow on the stacks of paperwork piled precariously on her desk. Bea sighed, pushing a stray strand of auburn hair behind her ear and reaching for yet another file labeled "High Risk." Her stomach churned with a familiar blend of dread and determination. This was the part she hated - the endless cycle of broken promises, missed appointments, and the gnawing fear that she wasn't making a difference.
+
+Today's case was particularly unsettling: Marcus Finch, a twenty-year-old charged with aggravated assault. His file was thick with juvenile offenses and a recent stint in juvie for vandalism. The judge had been lenient, granting probation with strict conditions - drug testing, anger management classes, curfew adherence. But Bea had a gut feeling about Finch; something in his steely gaze during their initial meeting sent a shiver down her spine.
+
+

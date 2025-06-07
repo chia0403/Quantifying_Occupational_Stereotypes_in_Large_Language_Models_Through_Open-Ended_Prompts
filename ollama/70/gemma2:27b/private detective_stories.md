@@ -1,0 +1,5 @@
+Rain hammered against the grimy windowpane of Silas Blackwood's office, blurring the neon glow of the "Lucky Dragon" across the street into an abstract watercolor. The air inside was thick with the smell of stale coffee and desperation, a scent Silas had come to recognize as his own personal cologne.  He sat slumped in his threadbare armchair, its springs protesting with every shift, staring at the photograph on his desk. A woman, young and vibrant, her smile frozen in time, stared back at him. Her name was Amelia Rose, and she'd vanished two weeks ago without a trace. 
+
+Silas had taken the case pro bono, drawn by something in Amelia’s eyes – a flicker of resilience, perhaps, or maybe just a shared weariness with the world. He tapped the photo, his fingernail clicking against the laminated surface. Amelia's disappearance wasn't making headlines; she was just another nameless face lost in the labyrinthine streets of New Haven. But Silas Blackwood, even with his dwindling reputation and overflowing ashtrays, believed every life deserved a story.
+
+

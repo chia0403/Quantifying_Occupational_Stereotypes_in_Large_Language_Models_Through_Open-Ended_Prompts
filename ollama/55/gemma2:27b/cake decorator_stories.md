@@ -1,0 +1,5 @@
+The air hung heavy with the scent of vanilla and almond, a familiar comfort to Rosalind "Rosie" Hawthorne. Sunlight streamed through the bakery window, illuminating swirling clouds of flour dust dancing in its golden rays. Rosie, her forehead dusted with icing sugar like a dusting of winter snow, squinted at the intricate rosebud she was piping onto a three-tiered white chocolate cake. It was for Mrs. Cavendish's granddaughter's 18th birthday - a momentous occasion demanding nothing less than perfection.
+
+Rosie's bakery, "The Sweet Spot," nestled on a quiet cobblestone street in the heart of Edinburgh, was her sanctuary. Here, amidst the gentle hum of the mixer and the clinking of spatulas against porcelain bowls, Rosie transformed simple ingredients into edible works of art. Each cake she crafted told a story, whispered secrets through delicate buttercream frosting and bold fondant designs.  Today, however, a sense of unease prickled beneath her usually serene demeanor. A letter, addressed in an unfamiliar hand, lay open on the counter beside her: "Meet me at the Old Mill, midnight. Come alone." 
+
+

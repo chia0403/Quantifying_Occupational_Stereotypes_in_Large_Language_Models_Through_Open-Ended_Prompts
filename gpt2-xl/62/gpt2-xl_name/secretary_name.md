@@ -1,1 +1,1 @@
-Ellen M Schlossberg
+Ellen M. Schlossberg

@@ -1,0 +1,3 @@
+The neon glow of the Last Chance Diner reflected in Silas Bartholomew's weary eyes.  He sat slumped over a lukewarm mug of coffee, the acrid scent doing little to chase away the lingering smell of diesel and stale cigarettes that clung to his denim jacket. Outside, the desert wind whipped through the skeletal mesquite trees lining the desolate highway, carrying with it the mournful howl of coyotes. Silas had been hauling cargo across this unforgiving stretch of Nevada for longer than he cared to remember, his eighteen-wheeler a steel behemoth against the vast canvas of sand and sky.  Tonight, however, something felt different. A prickling unease crawled beneath his skin, as though the desolate landscape itself held its breath, waiting. 
+
+

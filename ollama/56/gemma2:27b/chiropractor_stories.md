@@ -1,0 +1,5 @@
+Rain lashed against the stained glass windows of Dr. Eleanor Ainsworth's practice, blurring the vibrant colours into an impressionistic smear. The rhythmic drumming felt like a frantic heartbeat echoing Eleanor's own anxiety. Today was her busiest day yet - a testament to the relentless ache and stiffness that plagued the townsfolk of Oakhaven. She adjusted the antique brass lamp on her desk, its warm glow barely penetrating the gloom settling over the room. A stack of patient files loomed beside it, each one representing another back, neck, or shoulder begging for relief. 
+
+Eleanor sighed, pushing a stray strand of auburn hair behind her ear. Oakhaven was a town steeped in history and tradition, its residents fiercely proud but also burdened by generations of hard work and the toll it took on their bodies. As the only chiropractor within a hundred miles, Eleanor felt the weight of responsibility pressing down on her. She knew each crack, pop, and adjustment she made wasn't just about physical relief; it was about restoring hope, functionality, and a sense of agency to the people who entrusted her with their wellbeing. 
+
+

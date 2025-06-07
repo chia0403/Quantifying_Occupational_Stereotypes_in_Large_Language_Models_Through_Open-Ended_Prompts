@@ -1,2 +1,1 @@
 James Krieger
-Alice Lichtenstein

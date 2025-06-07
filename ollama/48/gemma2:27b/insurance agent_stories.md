@@ -1,0 +1,5 @@
+The flickering neon sign outside cast an unsettling green glow onto Theodore Bartholomew Finch's face as he squinted at the crumpled insurance claim in his hand. Rain lashed against the windowpanes of his tiny office, mirroring the storm brewing inside him. The claim, for a house fire that had tragically claimed the life of a young family, was unlike anything he'd ever seen before. Every detail screamed foul play: the suspiciously rapid spread of the flames, the missing valuables, and the unsettling grin etched onto the charred face of the family patriarch in the photograph attached. 
+
+Theodore, known to everyone as "Teddy" despite his distaste for nicknames, wasn't a man built for mysteries. He preferred the straightforwardness of assessing damages, calculating premiums, and reassuring clients about their coverage. Yet, something about this claim felt different. It tugged at him like a loose thread on an old sweater, begging to be pulled. And so, with a sigh that mingled with the rhythm of the rain, Teddy decided he'd investigate further, stepping out from behind his safe, predictable world into the murky depths of what promised to be a dangerous truth.
+
+

@@ -1,0 +1,6 @@
+The air hung thick with the scent of sugar and vanilla, punctuated by the sharp tang of lemon buttercream.  Sunlight streamed through the bakery's skylights, illuminating dust motes dancing in the warm air. It was a Saturday morning at Sweet Surrender, and Amelia Beatrice Hawthorne, owner and head cake decorator, surveyed her domain with a critical eye. 
+
+Amelia, with flour dusting her apron and strands of auburn hair escaping her braid, adjusted the tiny sugar flower perched precariously on a towering wedding cake.  It was a masterpiece, multi-tiered and adorned with delicate roses and cascading ivy, each petal painstakingly crafted from fondant. But Amelia wasn't satisfied. The centerpiece rose, meant to represent the bride's fiery spirit, lacked just the right touch of passion. 
+
+
+Her gaze drifted to a bowl of crimson marzipan, its vibrant hue mirroring the setting sun that peeked through the bakery window. Could she achieve the desired intensity with a hint of red? Or would it clash with the delicate palette of the cake? Amelia chewed on her lip, wrestling with the decision.  This wasn't just any cake – it was the culmination of weeks of meticulous planning, countless sleepless nights, and the hopes and dreams of two people about to embark on their forever. It had to be perfect. 

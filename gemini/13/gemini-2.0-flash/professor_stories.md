@@ -1,0 +1,7 @@
+**Story Opening:**
+
+The persistent chirp of the antique alarm clock ripped Professor Alistair Humphrey Thorne from the clutches of a dream where he was arguing with Albert Einstein about the proper way to boil an egg. He groaned, batting a hand at the offending device until its mechanical cries finally ceased. Another Tuesday. Another lecture on the intricacies of Byzantine mosaics. Another day of fielding exasperated sighs from undergraduates who clearly preferred TikTok to tesserae.
+
+**Setting:**
+
+Professor Thorne’s life was, much like his flat, a meticulously curated collection of the antique and the academic. His apartment, perched precariously on the top floor of a converted Victorian townhouse in the heart of Oxford, was a testament to his obsession with the past. Bookshelves, overflowing with leather-bound volumes and first editions, lined every wall. Maps from forgotten expeditions were pinned to corkboards crammed with cryptic notes. Sunlight, filtered through stained glass windows rescued from a demolished chapel, cast an ethereal glow over the dusty surfaces. The air perpetually smelled of old paper, pipe tobacco, and a faint hint of lavender – a scent lingering from the previous owner, a forgotten botanist who, according to local legend, had discovered a flower that bloomed only under the light of a full moon. From his window, Alistair could see the dreaming spires of the university, a constant reminder of the weight of history and the burden of knowledge he carried on his shoulders.

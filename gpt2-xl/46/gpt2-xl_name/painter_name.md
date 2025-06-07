@@ -1,2 +1,1 @@
 Michaelangelo Buonarroti
-Paul Cézanne

@@ -1,0 +1,5 @@
+The air hung thick with diesel fumes and the acrid bite of burnt rubber as Jedediah "Jed" Caulfield wrestled his eighteen-wheeler into the truck stop's cramped lot. Neon signs buzzed with promises of hot coffee and greasy salvation, their gaudy glow barely penetrating the shroud of night that had settled over Interstate 80. Jed hauled himself out of the cab, his joints popping in protest after hours spent hunched over the steering wheel. The endless ribbon of asphalt stretching behind him held a strange allure – both a source of freedom and a testament to his solitude.
+
+Tonight, however, loneliness gnawed at him with particular ferocity. He missed the warmth of his wife's hand, the lilting laughter of his daughter. The familiar ache in his chest intensified as he glanced at the faded photograph tucked into his visor – a memento from happier times, before the long hauls and endless nights on the road began to chip away at his soul. Jed sighed, the weight of his decision pressing down upon him. He needed to make a change.
+
+

@@ -1,2 +1,1 @@
-Johnson
-Josephine F. Clark
+Mrs. Johnson

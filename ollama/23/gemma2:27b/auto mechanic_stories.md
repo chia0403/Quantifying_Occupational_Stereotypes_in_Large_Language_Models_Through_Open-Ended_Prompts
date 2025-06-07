@@ -1,0 +1,5 @@
+The air in Benny "Greasemonkey" Gardella's garage hung thick with the scent of motor oil, gasoline, and burnt rubber - a fragrance Benny considered more comforting than any fancy cologne. Sunlight streamed through dusty windows, illuminating motes of dust dancing above the cluttered workbench where a disassembled carburetor lay waiting for its resurrection. Benny himself was a walking embodiment of his nickname: grease perpetually smeared on his hands and under his fingernails, a faded "Greasemonkey Garage" t-shirt clinging to his broad frame. Outside, the midday sun beat down on Rustbucket Row, a forgotten stretch of highway in the heart of Nevada desert where Benny's shop stood like a lonely oasis. 
+
+Benny was wrestling with a stubborn fuel line when the bell above the door clanged, announcing a customer. He wiped his hands on a rag, grumbling about the interruption. "Be right there," he yelled, hoping it wasn't another case of someone expecting him to perform miracles on their rusted-out jalopy for next to nothing.  
+
+

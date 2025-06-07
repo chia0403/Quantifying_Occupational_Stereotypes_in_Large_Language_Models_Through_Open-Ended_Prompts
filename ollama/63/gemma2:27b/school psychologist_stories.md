@@ -1,0 +1,6 @@
+Rain lashed against the grimy windows of Dr. Eleanor Vance’s office, mirroring the storm brewing inside her.  The cluttered desk held the weight of unanswered emails, unfinished reports, and half-eaten granola bars - testament to the relentless demands of being Willow Creek High's sole school psychologist.  A faded poster advertising “Positive Thinking” hung askew on the wall, its message a cruel irony given Eleanor’s current state. 
+
+The clock ticked past 5:30 p.m., but she couldn’t bring herself to leave.  Ethan Miller’s case lay open before her, a stark reminder of the responsibility she carried.  His file was thick with red flags: plummeting grades, erratic behavior, and whispered rumors about self-harm. Eleanor had been trying to reach his parents for weeks, but they remained frustratingly unreachable. 
+
+
+The phone on her desk buzzed, jarring her from her thoughts. It was Principal Thompson, reminding her about tomorrow's student assembly.  Eleanor sighed. Another opportunity to preach about mental health awareness – a message that often fell on deaf ears.   She closed Ethan’s file, the boy’s troubled face seared into her memory. Tonight, she needed to find answers.  But where to begin?

@@ -1,0 +1,5 @@
+The neon sign outside The Drowned Sailor flickered erratically, casting its sickly green glow onto the rain-slicked cobblestones. A symphony of dripping gutters and honking cabs played against the mournful wail of a saxophone drifting from the bar's open doorway. Inside, Elias Blackwood polished a chipped highball glass with a practiced hand, his movements as smooth and rhythmic as the jazz pouring from the crackling speakers. He was a man carved from shadows and cigarette smoke, his face lined with years spent listening to whispered secrets and drowning sorrows. His eyes, though, held a surprising warmth, like embers glowing beneath a pile of ash.  
+
+Tonight, The Drowned Sailor hummed with a quiet unease. A group of men huddled in the corner booth, their voices low and urgent. A woman sat alone at the bar, nursing a glass of something amber and strong, her gaze fixed on the rain-streaked windowpane. Elias knew the regulars, could read their moods like an open book. But tonight, there was a stranger seated at the far end. Dressed in a long coat that hid his face, he sat motionless, sipping from a cup of black coffee as if waiting for something - or someone. 
+
+

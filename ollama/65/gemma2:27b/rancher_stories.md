@@ -1,0 +1,5 @@
+Dust devils danced across the parched earth, kicking up reddish dirt that swirled and eddied like angry spirits. The sun beat down mercilessly on Caleb Elijah Thorne's weathered face as he surveyed his cattle, their bony frames grazing listlessly on the sparse, brittle grass.  His ranch, nestled in the heart of Arizona's unforgiving Sonoran Desert, was struggling. Drought had gripped the land for months, turning once-lush pastures into desolate stretches of brown and yellow. Caleb, a man whose lifeblood flowed with the same stubborn grit as the prickly pear cacti dotting his land, refused to give up hope. He knew these harsh conditions were nothing new; this land had tested men far tougher than him for centuries.  But even Caleb felt the gnawing worry in his gut. The well was running dry, and the future of Thorne Ranch hung precariously in the balance.
+
+Today, however, a flicker of something akin to optimism ignited within him. A plume of dust rose on the horizon, signaling the approach of riders.  Could it be help finally arriving? 
+
+

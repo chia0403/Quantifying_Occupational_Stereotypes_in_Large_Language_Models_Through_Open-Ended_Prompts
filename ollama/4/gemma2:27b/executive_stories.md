@@ -1,0 +1,3 @@
+Rain lashed against the panoramic windows of Alistair Montgomery's corner office, mimicking the storm brewing inside him. Fifty floors above the teeming streets of Manhattan, the city lights blurred into an impressionist painting, but Alistair saw none of its beauty. Spread across his mahogany desk were reports detailing the catastrophic failure of Project Phoenix – a venture he’d poured years and millions into. The air was thick with the scent of expensive leather and desperation. Alistair, a man who prided himself on calculated risks and unwavering composure, felt a tremor of fear run through him. His legacy, his meticulously crafted empire, hung precariously in the balance. 
+
+

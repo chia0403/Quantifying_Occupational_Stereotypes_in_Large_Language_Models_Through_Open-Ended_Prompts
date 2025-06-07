@@ -1,0 +1,5 @@
+The air hung thick with the scent of gasoline and burnt oil – a perfume Amelia "Amy" Diaz knew better than Chanel No. 5. Sunlight streamed through the dusty windows of Diaz Auto Repair, illuminating motes dancing in its path and casting long shadows from the rusted hulks that populated her lot.  A half-dismantled Chevy pickup truck, its engine sprawled open like a dissected frog on an operating table, dominated the center bay. Amy wiped grease off her forehead with the back of her hand, leaving a smudge across her freckled cheek. The midday heat pressed in, even through the open garage doors, and she longed for a cold beer and the sweet relief of her porch swing. But first, she had to wrestle this stubborn carburetor back to life. 
+
+A bell jingled overhead as a customer entered, breaking the symphony of clanks and whirs that accompanied Amy's work.  She knew the man before he even turned around – Mr. Henderson, a retiree whose 1967 Mustang was his pride and joy, and a frequent visitor to Diaz Auto. He always smelled faintly of mothballs and lemon drops.
+
+

@@ -1,0 +1,5 @@
+The rusted gate groaned like an old man complaining about the weather as Beatrice "Bee" Holloway pushed it open. Morning dew clung to her worn work boots, each step raising tiny diamonds of sparkling moisture in the dawn light. Her calloused fingers tightened around the handle of her weathered leather gardening bag, its contents clinking softly - trowel, pruning shears, twine, and a well-worn copy of "The Gardener's Almanac." Bee was on her way to meet Mrs. Hawthorne at Whisperwood Manor, a rambling Victorian estate perched precariously on a cliff overlooking the tempestuous Atlantic. 
+
+The wind whipped Bee's auburn braid around her face as she walked along the overgrown gravel path. Ivy, thick and unruly, snaked its way up the manor's crumbling stone facade, seemingly attempting to reclaim the house for nature. The windows were dark and empty, reflecting the somber grey sky like vacant eyes. A shiver ran down Bee's spine. She couldn't shake the feeling that Whisperwood Manor held secrets, whispers of forgotten lives and buried memories carried on the salty breeze. 
+
+

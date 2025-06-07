@@ -1,0 +1,3 @@
+The flickering fluorescent lights cast an unsettling green hue over Dr. Amelia Rosalind Finch's cluttered lab bench. Papers overflowed from trays, beakers bubbled with iridescent concoctions, and the air hummed with the low thrum of machinery. Outside her window, the perpetual twilight of the Arctic research station pressed against the frosted glass. Amelia rubbed her tired eyes, squinting at the microscope display. It had been weeks since she'd seen anything other than the stark white landscape and the relentless glare reflecting off the ice. Weeks spent chasing a ghost, a whisper of an anomaly in the deep-sea sediment samples brought up from the Arctic Ocean floor. 
+
+

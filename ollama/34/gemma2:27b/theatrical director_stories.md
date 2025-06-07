@@ -1,0 +1,5 @@
+The air backstage crackled with nervous energy, thick as the smell of sweat and cheap hairspray.  A single spotlight pierced the gloom, illuminating a tangle of ropes, costumes, and half-assembled set pieces. Elara Beaumont, her dark hair pulled back in a tight bun that threatened to rival the rigidity of her posture, surveyed the chaos with a hawk’s eye. Tonight was opening night for "The Tempest," a production Elara had poured her heart and soul into for the past six months.
+
+The Grand Blackwood Theatre, a relic from a bygone era of velvet curtains and gilded balconies, groaned under the weight of its own history. Dust motes danced in the shafts of sunlight filtering through the grimy skylights, illuminating faded posters of past productions: Shakespearean tragedies, operatic epics, even a disastrous experimental dance piece Elara herself had directed back when she was just starting out. Now, with years of experience under her belt and a reputation for pushing boundaries, she hoped "The Tempest" would be the production that finally cemented her place in the theatrical world.
+
+

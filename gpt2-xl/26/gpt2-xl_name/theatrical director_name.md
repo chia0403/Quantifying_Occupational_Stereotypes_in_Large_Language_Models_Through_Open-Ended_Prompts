@@ -1,2 +1,1 @@
 Charles Laughton
-George Laughton

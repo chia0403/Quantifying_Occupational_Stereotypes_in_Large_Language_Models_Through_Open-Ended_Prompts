@@ -1,0 +1,7 @@
+## Story Opening:
+
+The antique clock in Professor Alistair Humphrey Pembroke's study chimed a mournful, eight o'clock. Alistair sighed, the sound like a tired wind sifting through dead leaves. He rubbed the bridge of his nose, the scent of aged paper and pipe tobacco a comforting, albeit increasingly feeble, barricade against the growing dread gnawing at his insides. He knew he should be preparing his lecture on the sociological impact of the printing press. He knew he should be focusing on Gutenberg and movable type, not on cryptic symbols and whispered curses. But the ancient book, bound in cracked leather and radiating an unsettling chill, lay open before him, daring him to look away.
+
+## Setting:
+
+The setting is the rambling, gothic-revival home of Professor Alistair Humphrey Pembroke, located on the edge of the prestigious (and notoriously haunted) Blackwood University campus. The house, a relic of Victorian excess, is filled with towering bookshelves crammed with dusty tomes, strange artifacts collected during Alistair's years of travel, and the ever-present scent of pipe tobacco. Outside, the encroaching Blackwood Forest presses close, its gnarled branches scratching at the windows during the frequent storms. The year is 1927, a time of burgeoning scientific discovery and lingering superstition, a tension reflected in both the academic pursuits and the unsettling mysteries that often plague Blackwood University.

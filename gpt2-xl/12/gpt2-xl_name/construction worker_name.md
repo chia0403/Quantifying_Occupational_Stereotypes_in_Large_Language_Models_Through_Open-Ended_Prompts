@@ -1,1 +1,1 @@
-Billie Joe Armstrong
+Bill

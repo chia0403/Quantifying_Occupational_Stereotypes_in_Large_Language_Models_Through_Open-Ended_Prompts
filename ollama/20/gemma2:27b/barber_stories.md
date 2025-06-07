@@ -1,0 +1,5 @@
+The humid air hung thick in the cramped barbershop, clinging to Bartholomew "Bart" Higgins like a second shirt. The scent of bay rum and talcum powder battled with the ever-present tang of sweat and disinfectant. Outside, the Mississippi sun beat down on Clarksdale, turning the asphalt into shimmering waves. Bart wiped his brow with the back of his hand, leaving a smear of greasepaint across his forehead. He hadn't shaved this morning - hadn't seen the need, not when he was already surrounded by blades and clippers all day long. 
+
+His shop, "Bart's Blades," wasn't much to look at. The paint on the storefront was peeling, revealing patches of faded red brick beneath. Inside, a single barber chair sat under a chipped ceiling fan that whirred like an overworked engine. Posters advertising hair tonic and cigarettes adorned the walls, their colours bleached by years of sunlight. Yet, despite its modest appearance, Bart's Blades held a certain charm - a haven for the men of Clarksdale, a place where stories were shared as freely as haircuts. 
+
+

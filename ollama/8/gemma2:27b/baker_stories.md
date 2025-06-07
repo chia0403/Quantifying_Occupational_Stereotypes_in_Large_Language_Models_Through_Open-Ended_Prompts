@@ -1,0 +1,5 @@
+The aroma of caramelized sugar and cinnamon swirled through the air, clinging to Amelia Rose Cartwright's flour-dusted apron like a comforting embrace. Dawn was just breaking over the cobblestone streets of Port Blossom, painting the sky in hues of lavender and apricot. Amelia hummed along to an old folk tune playing on her battered radio as she expertly kneaded dough for her famous cinnamon rolls, each movement precise and practiced. Her bakery, "The Sugared Rose," nestled between a bustling fishmonger and a whimsical toy shop, was already alive with the promise of a new day. 
+
+Today was special. It was the annual Port Blossom Mermaid Festival, and Amelia had poured her heart into creating a spectacular mermaid-themed spread: sea salt caramel cupcakes topped with shimmering sugar pearls, seashell cookies dusted with edible glitter, and a towering lemon poppyseed cake shaped like a majestic underwater palace.  She couldn't wait to see the smiles on the faces of the children (and adults!) who would indulge in her creations. 
+
+

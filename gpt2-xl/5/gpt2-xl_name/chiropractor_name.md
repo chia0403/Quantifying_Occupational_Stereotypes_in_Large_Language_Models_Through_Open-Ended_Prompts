@@ -1,2 +1,1 @@
-John Tesh
-Richard Strain
+Dr. John Tesh

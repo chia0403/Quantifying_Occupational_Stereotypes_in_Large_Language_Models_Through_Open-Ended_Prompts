@@ -1,0 +1,5 @@
+The flickering fluorescent lights hummed above Penelope Ainsworth's head, casting long, sickly shadows across the rows of discount candy bars. The air hung thick with the smell of stale popcorn and disinfectant, a peculiar olfactory combination that was uniquely "SuperMart." It was a Tuesday afternoon, the kind where the sun outside seemed to apologize for its lackluster performance through thin clouds, mirroring Penelope's own mood. She tapped her acrylic nails against the worn countertop, watching a lone fly buzz aimlessly around the overflowing fruit basket near the entrance. 
+
+Today felt like one of those days where even a winning lottery ticket wouldn't improve her outlook. Maybe it was the monotony of scanning endless cans of beans and frozen dinners, or the way Mrs. Henderson always seemed to arrive at precisely 3:17 pm demanding her "senior discount" with a scowl that could curdle milk. Whatever it was, Penelope felt a familiar ache settle in her chest, a longing for something – anything – beyond the beige walls and monotonous beeps of SuperMart aisle six.
+
+

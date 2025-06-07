@@ -1,0 +1,6 @@
+The air shimmered above the cracked runway, a distorted reflection of the sun baking the Arizona desert. Amelia "Ace" Dominguez wiped sweat from her brow, squinting at the faded paint marking the landing strip's edge. Dust devils danced in the distance, kicking up red sand that stung her eyes. Ace tugged her worn leather cap lower, shielding her face as best she could. This wasn't exactly the glamorous life she'd envisioned when she'd first earned her wings, but it was a job - a damn good one at that.
+
+Ace adjusted the headset resting on her shoulders, listening for any crackle from the ancient radio in the cockpit of her beat-up Cessna 172. The engine sputtered, coughed, then grumbled back to life with a shudder. It wasn't much to look at, but Ace knew this old bird like she knew her own hand. They were a team: rusty, reliable, and always ready for adventure. Today's adventure? Delivering medical supplies to a remote Navajo community nestled deep in the canyonlands. 
+
+
+Let me know if you'd like me to continue the story!

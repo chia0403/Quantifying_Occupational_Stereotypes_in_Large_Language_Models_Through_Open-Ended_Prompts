@@ -1,0 +1,5 @@
+The fluorescent lights hummed a relentless tune above Esmeralda "Esme" Rodriguez's head, casting a sterile glow on the polished marble floor of the grand lobby. The air conditioner whirred in constant battle against the Miami humidity seeping in through the revolving doors. Esme sighed, tapping her manicured nails on the gleaming mahogany desk, the only sound breaking the hushed expectancy of the waiting area.
+
+She was bored, utterly and completely bored. Tuesdays were always slow at the Oceana Tower, a sleek skyscraper housing the offices of some of Miami's wealthiest residents. Today, even the usual trickle of socialites seeking to book penthouse suites or disgruntled millionaires demanding concierge services had dwindled.  Esme longed for something, anything, to break the monotonous rhythm of her day. Little did she know, that "something" was about to walk through those revolving doors in the form of a dishevelled man with haunted eyes and a briefcase clutched tightly to his chest. 
+
+

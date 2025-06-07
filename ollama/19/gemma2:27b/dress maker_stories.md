@@ -1,0 +1,7 @@
+The air in Elizabelle Moreau's atelier hung thick with the scent of lavender sachet powder and singed silk. Afternoon sun streamed through the dusty attic window, illuminating motes of dust dancing above spools of thread and bolts of shimmering fabric. Elizabelle herself, perched on a stool beneath a tangled mess of measuring tapes, sighed as she wrestled with a stubborn zipper. 
+
+The garment in question – a midnight blue velvet gown destined for Madame Dubois’s grand ball – was proving to be more troublesome than anticipated. The intricate beading along the bodice refused to lay flat, catching and snagging on the delicate silk lining. Elizabelle pricked her finger on a stray pin, drawing a crimson bead of blood that mirrored the fiery ruby brooch she planned to adorn the gown's neckline.
+
+"Stubborn as a mule," she muttered under her breath, dabbing at the prick with a frayed handkerchief. A sigh escaped her lips as she surveyed the cluttered space around her. This attic room, tucked away in the eaves of her grandmother’s rambling Victorian house, was Elizabelle's sanctuary – a haven from the bustling city below and the disapproving whispers of those who deemed dressmaking an unglamorous trade. Yet, today even this refuge felt stifling. The deadline for Madame Dubois’s gown loomed large, and Elizabelle longed for inspiration to strike, to banish the creative block that threatened her latest masterpiece. 
+
+

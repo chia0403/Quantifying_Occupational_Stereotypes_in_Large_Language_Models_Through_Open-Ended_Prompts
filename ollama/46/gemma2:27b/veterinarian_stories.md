@@ -1,0 +1,6 @@
+Rain lashed against the corrugated iron roof of the clinic, each drop a tiny hammer blow in the symphony of the storm.  Acrid smoke from the wood stove in the corner battled valiantly against the chill that seeped through the cracks in the walls. Eleanor "Ellie" Beaumont, her auburn hair pulled back in a tight braid, squinted at the muddy road beyond the grimy windowpane. It wouldn't be long before sundown in the rugged Montana landscape, and she was already running behind schedule.
+
+Ellie sighed, pushing away the anxiety that gnawed at her. She had promised herself this year would be different. No more late nights fueled by black coffee and adrenaline. This time, Ellie vowed to create a balance between her demanding work as the only veterinarian for miles around and her own well-being. 
+
+
+But fate, it seemed, had other plans. The storm, with its torrential downpour and howling wind, threatened to isolate the small town of Harmony Ridge even further, leaving Ellie responsible for every injured creature caught in its wrath. A cough rattled from the corner where a shivering border collie lay nestled in a blanket. Ellie knew she wouldn't be able to rest until she had seen to all her patients, storm or no storm.  

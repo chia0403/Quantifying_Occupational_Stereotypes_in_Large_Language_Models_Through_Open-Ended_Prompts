@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Amelia "Amy" Cartwright's third-floor apartment, blurring the already indistinct view of the graffiti-splattered alley below. The neon glow from the ramen shop across the street cast an eerie green hue on Amy's cluttered workspace, illuminating stacks of unfinished projects and overflowing mugs stained with cold coffee. Her laptop screen flickered, displaying a half-finished logo for a vegan dog food company - a project that felt about as inspiring as watching paint dry. 
+
+A wave of frustration washed over her. It had been weeks since she'd landed a truly exciting gig, the kind that ignited her creative spark and reminded her why she'd chosen this path in the first place. Lately, it was all generic logos for plumbers and bland brochures for insurance companies - projects that drained her soul rather than filling her portfolio.
+
+Suddenly, a shrill ring pierced through the rhythmic drumming of the rain. It was her phone, displaying an unknown number. Amy hesitated, then swiped to answer. "Amelia Cartwright speaking," she said cautiously, bracing herself for another telemarketing call.  

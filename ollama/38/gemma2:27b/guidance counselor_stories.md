@@ -1,0 +1,7 @@
+Rain lashed against the grimy windowpanes of Ms. Eleanor Cartwright’s office, mirroring the storm raging within her chest. The fluorescent lights hummed overhead, casting a sterile glow on the worn posters adorning the walls: "Reach for Your Dreams," "Believe in Yourself," and, ironically, "Stress Less, Live More."  Eleanor, with her greying bun and perpetually tired eyes, felt anything but hopeful. For twenty years, she'd poured her heart into guiding students at Northgate High, a crumbling brick edifice perched precariously on the edge of a forgotten industrial town. But lately, the weight of their struggles, their disillusionment, and the crushing reality of their limited opportunities threatened to drown her.
+
+Today was no different. A crumpled rejection letter lay on her desk, addressed to Michael Sanchez, a bright but troubled senior who'd dreamed of escaping Northgate through a college scholarship. Eleanor knew his chances were slim, but she'd held onto hope, fueled by the flicker of ambition in Michael’s eyes. Now, that flicker was extinguished, replaced by a hollow despair that mirrored her own. 
+
+The bell shrieked, signaling the end of lunch. Soon, another wave of lost souls would file into her office, seeking answers she didn't have, harboring dreams she couldn't guarantee. Eleanor sighed, straightening her cardigan and preparing for the onslaught. Today, more than ever, she needed to find a way to reignite that flickering hope, not just in her students, but in herself as well. 
+
+

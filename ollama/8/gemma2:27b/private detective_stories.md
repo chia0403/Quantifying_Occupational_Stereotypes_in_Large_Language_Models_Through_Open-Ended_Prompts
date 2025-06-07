@@ -1,0 +1,5 @@
+Rain lashed against the windowpane of Evelyn “Eve” Thorne’s office, mimicking the chaotic rhythm pounding in her chest. The neon sign outside flickered erratically, casting grotesque shadows that danced on the peeling floral wallpaper. Eve ran a hand through her perpetually disheveled auburn hair, grimacing at the grease staining her fingers.  It was 2:00 am, and she hadn’t slept in almost 48 hours. A half-eaten bowl of instant ramen sat precariously on the edge of her desk, next to a crumpled photograph of a woman with eyes as blue as forget-me-nots.
+
+This case - finding Amelia Cartwright - was unlike any Eve had tackled before. Amelia wasn’t just another missing person; she was the daughter of a notorious crime lord, and her disappearance reeked of something far more sinister than a teenage rebellion.  Eve knew venturing into this world could be dangerous, but Amelia's pleading blue eyes in the photograph haunted her. She owed it to the woman, and to herself, to uncover the truth behind Amelia’s vanishing act. 
+
+

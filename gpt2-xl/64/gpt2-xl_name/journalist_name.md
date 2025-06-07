@@ -1,2 +1,1 @@
 Robert Hinton
-Jonah Lehrer

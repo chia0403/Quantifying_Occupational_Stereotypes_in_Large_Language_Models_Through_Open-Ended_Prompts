@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of The Rusty Quill, the neon sign flickering pathetically above the entrance. Inside, the air was thick with cigarette smoke and stale beer, punctuated by the occasional raucous laugh from a group huddled around a pool table.  Eleanor Vance sat hunched over a chipped Formica table, her notebook open before her, pen tapping an erratic rhythm against the surface.
+
+Eleanor wasn't supposed to be here. A journalist for The Chronicle, a respectable broadsheet with aspirations of Pulitzer Prizes, she was more accustomed to the hushed sanctity of libraries and the sterile gleam of courtrooms. But this story – the disappearance of young Anya Petrova from the dilapidated tenements across the street – smelled different. It reeked of secrets, whispers traded in shadowed alleys, and a truth buried deep beneath layers of poverty and despair. The Rusty Quill, with its denizens steeped in the grime and grit of this forgotten corner of the city, was Eleanor's only hope for unearthing it.
+
+

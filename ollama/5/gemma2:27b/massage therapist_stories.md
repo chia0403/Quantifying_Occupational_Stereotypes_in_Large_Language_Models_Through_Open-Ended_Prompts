@@ -1,0 +1,5 @@
+Rain hammered against the skylight of Seraphina Bellwether's studio, each drop a tiny drumbeat in the otherwise hushed space. The scent of lavender oil hung heavy in the air, mingling with the musky aroma of sandalwood from her latest batch of massage balm. Outside, the city throbbed, a distant symphony of honking horns and screeching sirens, but here, within the warm embrace of Seraphina's Sanctuary, all was calm. 
+
+Seraphina herself, perched on a plush velvet cushion, meticulously sharpened her bamboo tools. The rhythmic scraping against the whetstone mirrored the steady pulse of rain, creating a soothing backdrop to her pre-client meditation. Today's appointment was unlike any other: a Mr. Alistair Finch, who requested a specific blend of acupressure and deep tissue massage aimed at relieving chronic insomnia. He was an enigma, shrouded in whispered rumours about his vast fortune and reclusive nature. Seraphina couldn't help but feel a tremor of anticipation, curiosity tingling beneath her fingertips.  
+
+

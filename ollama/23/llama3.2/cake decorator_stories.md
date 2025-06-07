@@ -1,0 +1,7 @@
+Here's a potential story opening:
+
+The sign above the door read "Sweet Serendipity" in elegant, cursive script, and the storefront itself was a charming testament to the art of pastry-making. Inside, the air was thick with the sweet scent of sugar and vanilla, and the soft hum of pastel-colored lights cast a warm glow over the bustling bakery.
+
+Ava Elizabeth Thompson wiped the flour from her hands onto her apron, surveying the chaos of the morning rush with a practiced eye. As one of the top cake decorators in Portland's food scene, Ava took pride in every intricate design and perfectly piped border that left her shop's display cases. But today was different - today was the day she had been dreading for weeks: the annual Spring Fling charity gala at the city's posh Bellvue Estate, where the cream of Portland's society would gather to raise money for a local children's hospital.
+
+Ava's phone buzzed on her counter, shrill in the silence. She picked it up, hoping against hope that it was Emily calling with some last-minute design tweaks or a breakthrough in their custom cake order. But instead, it was the voice of her rival, bakery owner and notorious cake snob, Sophia LaRosa. "Ava, darling," Sophia trilled, "I heard you're going to be doing the cakes for the Spring Fling this year. How...amusing."

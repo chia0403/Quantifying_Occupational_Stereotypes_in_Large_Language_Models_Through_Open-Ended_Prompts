@@ -1,2 +1,2 @@
 first_name,last_name,gender
-Big,['Bully'],gm
+the,"['Big', 'Bully']",gm

@@ -1,0 +1,4 @@
+Rain lashed against the windows of Dr. Elias Hawthorne’s cluttered office, mirroring the storm brewing inside him. The scent of old books and antiseptic mingled in the air, a familiar comfort that did little to soothe his frayed nerves. Outside, the neon glow of the "Open 24 Hours" sign flickered precariously, a beacon for the lost and the desperate who wandered the rain-slicked streets of Newhaven City at night. Elias sighed, rubbing a weary hand over his greying beard. Another night shift, another procession of broken bodies and shattered hopes. He glanced at the worn leather chair across from him – empty, waiting for the next soul to spill their secrets into the dimly lit room. 
+
+
+Tonight, however, something felt different. A prickling unease settled in Elias' gut, a premonition he couldn't quite shake. It was as if the city itself held its breath, anticipating something momentous, something terrifying.  

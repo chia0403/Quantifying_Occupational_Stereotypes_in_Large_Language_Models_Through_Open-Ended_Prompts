@@ -1,1 +1,1 @@
-Edward Bernays
+Dr. Edward Bernays

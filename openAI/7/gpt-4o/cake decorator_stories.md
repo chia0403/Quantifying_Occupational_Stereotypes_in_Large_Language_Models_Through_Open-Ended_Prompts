@@ -1,0 +1,7 @@
+In the heart of the quaint village of Willow Haven, nestled between the whispering emerald hills and the serene flow of the River Lumina, stood a charming little bakery named "Sweet Whimsy." Its windows, adorned with frosted scrolls and sugar-petal garlands, offered glimpses of the confections within—masterpieces created by none other than Eliza Mayfair.
+
+Eliza, with her silken auburn hair pulled into a tidy bun and her apron perpetually dusted with confectioners' sugar, was a magician with buttercream. Each morning, as the golden hues of dawn painted the cobblestone streets, she could be found in the kitchen, orchestrating a symphony of scents that mingled with the crisp morning air—vanilla, almond, and the faintest hint of lemon zest.
+
+The shop was more than just a place of work for Eliza; it was a sanctuary where her creativity flowed as freely as the river beside the village. Here, surrounded by shelves lined with jars of sprinkles and edible glitter, Eliza spun her dreams into reality, crafting cakes that were not merely desserts but stories whispered through layers of sponge and frosting.
+
+In Sweet Whimsy, every cake had a voice, whether it was the delicate tiers gracing weddings under the willow trees or the whimsical fairy cakes for children’s birthdays by the riverbank. Eliza Mayfair poured her heart into each creation, hoping to bring a sprinkle of magic to the lives of those she touched.

@@ -1,0 +1,7 @@
+The scent of bay rum and talcum powder hung thick in the air, a comforting shroud against the damp chill seeping in from the cobblestone street outside.  Elias Finnigan adjusted his spectacles, peering into the mirror across the cramped barbershop. The reflection staring back was a weary one – hair as white as freshly fallen snow framing eyes that had seen too many decades, wrinkles etching themselves deep around a mouth perpetually set in a thin line. 
+
+He swept his hand over the faded green countertop, littered with stray hairs and the ghost of shaving cream. Outside, the rain beat down relentlessly on the corrugated iron roof above, each drop a tiny hammer tapping out the rhythm of a dreary Tuesday. Elias sighed, knowing full well that few souls would brave the storm for a haircut today. Business had been slow lately, a fact he attributed to the newfangled electric clippers popping up in fancier establishments across town. 
+
+But Elias Finnigan wasn't one to give up easily. He’d been cutting hair in this very shop for over forty years, honing his skills with each snip and shave. His hands, though gnarled with age, moved with a precision born from muscle memory. For Elias, barbering wasn't just a trade; it was an art form, a conversation conducted through the careful sculpting of hair. And today, he longed for that connection, that quiet intimacy shared between barber and client.
+
+

@@ -1,0 +1,6 @@
+The desert sun beat down on Elias "Eli" Blackwood's neck as he wrestled the gargantuan excavator arm into position. Sweat stung his eyes, blurring the already hazy outline of the crumbling mesa in the distance.  He adjusted the controls, feeling the rumble of the Caterpillar 349E beneath him vibrate through his bones. Dust devils danced on the horizon, mocking the stillness of the Nevada landscape.
+
+Eli wasn't one for philosophical musings about the desert or his place within it. He was a man of action, more comfortable wrestling steel and earth than pondering existential questions. But today, a gnawing unease settled in his gut as he surveyed the barren expanse ahead. The mine site was unusually quiet, the usual cacophony of clanging metal and roaring engines replaced by an unsettling hush. 
+
+
+Eli wasn't superstitious, but the feeling that something was amiss prickled at the back of his neck. He glanced at the time – 10:32 am – still plenty of time left in his shift. Yet, the stillness felt unnatural, a prelude to something unforeseen. He shifted the excavator into gear and began the laborious process of clearing another section for the blasting crew, hoping that the familiar rhythm of work would banish the growing unease. 

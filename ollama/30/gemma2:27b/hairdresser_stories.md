@@ -1,0 +1,5 @@
+The air in "Shear Heaven" hung thick with the sweet scent of coconut conditioner and burnt hair.  It wasn't an unpleasant smell, more like the acrid ghost of a thousand perms past, clinging to the worn velvet chairs and the chipped Formica counter. Eloise Beaumont, her silver-streaked braids escaping their usual bun, surveyed her domain with a sigh. The afternoon sun slanted through the grimy window, illuminating dust motes dancing in its golden rays. Three empty chairs stared back at her, mockingly vacant.
+
+Eloise had been cutting hair in this tiny shop on Elm Street for over thirty years. She knew every crack in the linoleum floor, every creak of the ancient dryer.  But lately, business had been slow, slower than a snail in molasses. The trendy salons downtown with their sleek interiors and Instagram-famous stylists were stealing her customers away, one perfectly coiffed head at a time. Today, she was starting to feel the weight of those empty chairs, not just on her bottom line, but on her soul. 
+
+

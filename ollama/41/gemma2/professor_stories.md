@@ -1,0 +1,6 @@
+Professor Elara Vance adjusted her spectacles, peering down at the crumpled note nestled amongst the stacks of textbooks on her mahogany desk. The flickering gaslight cast long shadows across the cluttered room, illuminating dust motes dancing in the air and the faded portraits of past academics lining the walls. Rain lashed against the windowpanes of her office at Blackwood University, the ancient stone edifice groaning under the onslaught. Elara sighed, pushing back a stray strand of auburn hair that had escaped its bun. 
+
+This wasn't how she envisioned spending her Friday evening – poring over cryptic messages from unknown students instead of enjoying a glass of wine by the fire. But the note, scrawled in frantic handwriting and signed simply "H.S.," promised something extraordinary: proof of a long-forgotten magical society hidden within the university's very foundations. 
+
+
+Elara was a historian, not a believer in fairytales. Yet, Blackwood had always held an air of mystery, whispering tales of secret passages and forgotten rituals. Could this be more than just another student prank? The note sparked a flicker of excitement within her, a hunger for discovery that she hadn't felt in years. Perhaps, just perhaps, H.S. was leading her to something truly remarkable. 

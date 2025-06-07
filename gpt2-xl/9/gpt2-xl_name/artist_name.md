@@ -1,2 +1,1 @@
 Raph Koster
-Andrew Wyeth

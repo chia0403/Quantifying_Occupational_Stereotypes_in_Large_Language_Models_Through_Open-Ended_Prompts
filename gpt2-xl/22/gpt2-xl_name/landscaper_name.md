@@ -1,1 +1,1 @@
-Walter White
+Walter

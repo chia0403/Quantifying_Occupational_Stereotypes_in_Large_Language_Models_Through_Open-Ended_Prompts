@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Henderson & Finch, blurring the cityscape into an impressionistic smear of greys and yellows. Amelia "Amy" Blackwood sighed, pushing a stray strand of auburn hair behind her ear.  The late afternoon light cast long shadows across the cluttered desk in front of her, illuminating stacks of dog-eared files and overflowing inboxes. It was always like this at Henderson & Finch - a whirlwind of last-minute filings, panicked clients, and the ever-present scent of stale coffee. Today was no exception.  
+
+Amy, a paralegal with five years under her belt and an uncanny knack for finding needles in legal haystacks, was facing a particularly daunting task: untangling the web of deceit surrounding the Blackwood Corporation, a seemingly reputable tech firm embroiled in allegations of industrial espionage. The case had landed on their desk only hours ago, courtesy of a frantic CEO who swore his company was being framed.  Amy's gut instinct told her there was more to the story than met the eye. 
+
+

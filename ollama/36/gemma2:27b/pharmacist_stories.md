@@ -1,0 +1,6 @@
+Rain lashed against the grimy windowpane, blurring the neon glow of "Oakhaven Pharmacy" into an impressionistic smear.  Elara Blackwood sighed, pushing her damp bangs out of her eyes and straightening the crooked prescription labels on the counter. The bell above the door jingled pathetically, announcing the arrival of another customer seeking solace from the unrelenting storm outside. Elara plastered a smile on her face – one she'd perfected over years of dispensing everything from antihistamines to antidepressants – and glanced up.
+
+It was Mrs. Henderson, her usual Wednesday afternoon fixture, shuffling in with a cane and a worried frown etched into her weathered face. "Elara dear," she rasped, clutching her purse like a lifeline. "My arthritis is acting up something fierce today. Think you've got anything stronger than those ibuprofen pills?" 
+
+
+The scent of lavender air freshener couldn't quite mask the underlying tang of mildew that permeated the old pharmacy. Elara scanned Mrs. Henderson's file, her mind already debating the ethics of prescribing a stronger painkiller without consulting a doctor.  Oakhaven Pharmacy wasn't just a place to dispense pills; it was a lifeline for this forgotten corner of town, where doctors were scarce and hope even scarcer. But that didn't mean she could bend the rules. 

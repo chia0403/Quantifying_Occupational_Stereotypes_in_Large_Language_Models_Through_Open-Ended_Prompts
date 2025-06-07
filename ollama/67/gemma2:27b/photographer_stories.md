@@ -1,0 +1,3 @@
+The air hung thick with salt and the cries of gulls as Amelia Rose Thornton adjusted the strap of her camera bag, her boots sinking slightly into the damp sand.  Dawn was just breaking over the rugged Cornish coast, painting the sky in strokes of fiery orange and pale lavender. The jagged silhouette of Land's End loomed against the horizon, a familiar yet ever-awe-inspiring sight. Amelia had come to Cornwall seeking inspiration, hoping to capture the raw beauty of the landscape in her photographs. She'd heard whispers of a hidden cove, accessible only at low tide, where ancient rock formations met turquoise waters in a symphony of natural art. Today, she was determined to find it. 
+
+

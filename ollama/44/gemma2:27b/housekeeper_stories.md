@@ -1,0 +1,6 @@
+Rain lashed against the leaded windows of Blackwood Manor, each gust rattling the ancient panes like skeletal fingers tapping for entry. Eleanor Cavendish, her silver hair escaping its neat bun, tightened her grip on the feather duster as she navigated the cavernous hallway. Dust motes danced in the pale light filtering through the grimy windows, swirling like miniature phantoms in the oppressive gloom. The manor, a Gothic behemoth perched precariously atop a windswept cliff, seemed to sigh under the onslaught of the storm, its very bones groaning with age and neglect.
+
+Eleanor had been housekeeper at Blackwood Manor for over thirty years, outlasting three generations of the Blackwood family and bearing silent witness to their triumphs and tragedies.  She knew every nook and cranny of the sprawling estate, from the cobweb-choked attic rooms to the labyrinthine cellars, where the scent of damp earth mingled with something older, something unsettling that Eleanor preferred not to dwell on. 
+
+
+Today, however, was different. A new family had recently taken up residence – the enigmatic Van der Lynns, who arrived in a flurry of expensive luggage and hushed whispers. Their presence hung over the manor like a shroud, thick with unspoken secrets and an underlying tension that made Eleanor's usually steady hand tremble. 

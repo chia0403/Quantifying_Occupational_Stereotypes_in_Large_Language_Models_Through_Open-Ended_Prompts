@@ -1,0 +1,6 @@
+The air hung heavy with the scent of antiseptic and burnt ozone, each breath leaving Dr. Elias Thorne's lungs feeling scorched like he'd just crawled through a furnace.  He stared at the X-ray image flickering on his monitor, its grainy detail revealing an unsettlingly fragmented jigsaw puzzle - a skull riddled with bullet holes and gaping wounds. The late summer night hummed with the unseen activity of the city; sirens wailed in the distance, their rhythmic drone echoing through the sterile hallways of St. Jude's Medical Center. Elias’s heart pounded against his ribs, a frantic bird trapped within a cage made of concrete walls. 
+
+**Setting:**  St. Jude's Medical Center - a bustling, modern medical center in a sprawling metropolis where the underbelly of urban life bled into the sterile corridors. The hospital had its share of hardship stories, each patient brought in through the chaos and despair that seeped out onto the city streets.
+
+
+**Main Character:** Dr. Elias Thorne - A renowned but weary doctor, known for his sharp mind and even sharper scalpel. Despite his success in surgery, Elias was haunted by a past he couldn't escape, one filled with broken promises and lost dreams. 

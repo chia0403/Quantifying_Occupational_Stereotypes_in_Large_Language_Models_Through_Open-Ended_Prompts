@@ -1,0 +1,5 @@
+The humid Miami air clung to Elara Cortez like a second skin as she hurried through the crowded marketplace. A kaleidoscope of colors assaulted her senses: vibrant sarongs draped over stalls overflowing with mangoes and papayas, hand-woven baskets brimming with guavas and starfruit, and vendors hawking everything from coconut water to conch fritters in rapid-fire Spanish. Elara's destination was a small jewelry shop tucked away in a quiet alley, its entrance obscured by a canopy of fragrant bougainvillea. Her heart pounded a nervous rhythm against her ribs. Today was the day she would finally pitch her revolutionary new line of sustainable jewelry to Señor Rodriguez, a notoriously discerning collector with a reputation for ruthlessly rejecting anything that didn't meet his exacting standards.
+
+Elara smoothed down the crisp linen fabric of her dress and adjusted the delicate silver necklace adorning her collarbone – a prototype from her own collection.  She inhaled deeply, drawing in the heady scent of jasmine and saltwater, and steeled herself for the encounter. 
+
+

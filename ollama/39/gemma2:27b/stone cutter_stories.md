@@ -1,0 +1,7 @@
+The midday sun beat down on Elias Thorne’s back as he swung his hammer, chipping away at the rough granite block. Dust motes danced in the air, illuminated by the golden light filtering through the open roof of his workshop. Outside, the bustling market square of Atheria hummed with activity – merchants hawking their wares, children chasing pigeons, and the constant clang of metal on metal from the nearby blacksmith. But Elias was oblivious to it all. His world was confined to the cool grey stone before him, the rhythmic thudding of his hammer against its surface, and the ache in his arms that spoke of years spent honing his craft.
+
+Elias wasn't just any stone cutter; he was renowned throughout Atheria for his skill. He could coax life from the most stubborn block, transforming rough granite into intricate sculptures, delicate fountains, or even towering tombstones. Today, however, Elias was working on a commission unlike any he'd tackled before: a massive keystone shaped like a gryphon, destined to crown the archway of the new Royal Academy.
+
+The air grew heavy with anticipation as he chipped away the last bit of excess stone, revealing the gryphon's proud beak and piercing gaze. With a final polish, Elias stepped back, his chest swelling with pride. He had breathed life into this creature of legend, imbuing it with strength and majesty befitting its future home. But as he gazed upon his creation, a shiver ran down his spine, an unsettling premonition whispering in the back of his mind...
+
+

@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Evelyn "Eve" Ramirez's office, mirroring the storm brewing within her. The fluorescent lights hummed overhead, casting a sickly yellow glow on the piles of case files stacked precariously on her desk. Outside, sirens wailed in the distance, a constant reminder of the city's simmering tension. Eve rubbed her temples, her headache pulsing in time with the incessant drumming of rain. She was already running behind schedule, thanks to an unexpected visit from her supervisor who'd unleashed a torrent of criticism regarding her recent caseload.
+
+Today, she had to meet Marco Sanchez, a young man recently released from prison on probation for aggravated assault. His file sat open before her, the black-and-white mugshot staring back with unsettling intensity. Marco was considered high-risk, a label that weighed heavily on Eve's conscience. She believed in second chances, but the city streets were unforgiving, and she knew one wrong step could send him spiraling back into the darkness he was trying to escape.
+
+

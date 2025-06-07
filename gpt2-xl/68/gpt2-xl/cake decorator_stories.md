@@ -1,0 +1,7 @@
+Once upon a time, there was a cake decorator named Denny Jones who wanted to turn his talents into a career. Unfortunately, there weren't many opportunities for a wedding cake decorator to find work in this day and age.
+
+In an attempt to find a new career, Jones was hired as a "cake decorator" by a small bakery called Honeybuns, which he loved. However, every day he was presented with a new cake theme, each of which was an homage to Star Wars. From an Imperial cupcake to a Star Wars Jedi cupcake; there was truly no "off the wall" or "strange".
+
+Honeybuns didn't have much control of what Jones would work on as much as they could get him to help "perfect" the designs. Jones began working on designs for the Empire cupcake and was told to create one for the bounty hunter. Unfortunately, Jones was already very familiar with Star Wars as he had already designed several characters and monsters. Jones decided that the bounty hunter's cake was the ultimate homage to his original characters.
+
+After finishing the bounty hunter's cake, Jones told company management that he had a bit of news for them. Instead of continuing with their day, Jones went back to the bakery, made his way to the kitchen to see how the entire project had gone, and then left. Jones never returned. It was in this manner that Jones' heartache began. Over the next few days Jones

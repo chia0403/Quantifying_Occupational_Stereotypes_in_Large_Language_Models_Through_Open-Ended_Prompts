@@ -1,0 +1,5 @@
+The greasy air hung thick in The Rusty Mug, clinging to Elara Cartwright's apron like a second skin. Fluorescent lights buzzed overhead, casting an anemic glow over the worn booths and sticky Formica tables. It was a Tuesday night, which meant the usual crowd: grizzled regulars nursing cheap beer, weary construction workers devouring greasy burgers, and the occasional lost soul seeking refuge from the outside world. Elara weaved through them with practiced ease, balancing a tray laden with lukewarm coffee and wilted fries. She knew their orders by heart – Earl always had his black coffee "blacker than sin," Margaret preferred her burger well-done with extra pickles, and Jimmy, bless his heart, ordered the same chicken fried steak every single time.
+
+Tonight, though, something felt different. A prickle of unease crawled up Elara's spine as a new customer walked through the door. He was tall and lean, cloaked in shadows despite the harsh lighting. His eyes, when they met hers, were like ice shards – sharp and unforgiving. Elara forced a smile, her hand trembling slightly as she handed him a menu. "Table for one?" 
+
+

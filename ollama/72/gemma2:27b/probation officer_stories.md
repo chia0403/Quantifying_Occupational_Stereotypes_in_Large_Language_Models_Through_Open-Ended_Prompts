@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpanes of Amelia Cartwright's office, mimicking the turmoil brewing inside her.  The flickering fluorescent light cast long shadows across the cluttered desk piled high with case files, each one representing another life teetering on the edge. Outside, the neon glow of a liquor store sign fought valiantly against the relentless storm. It was a fitting backdrop for Amelia's current dilemma - deciding whether to recommend early parole for Marcus "Sparks" Johnson, a notorious arsonist serving time for setting fire to his ex-girlfriend's apartment building.
+
+Sparks had been a model inmate, participating in every rehabilitation program offered and earning glowing reviews from prison staff. But Amelia couldn't shake the image of the terrified faces she'd seen on the news that night - the families scrambling out of their homes, flames licking at the sky.  Could someone capable of such destruction truly be reformed? The weight of her decision pressed down on her, heavy as the storm clouds above. 
+
+

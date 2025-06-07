@@ -1,0 +1,7 @@
+Once upon a time, there was a doctor named Thomas Cushing of Pasadena, California.
+
+Cushing was one of thousands of doctors who were willing to help the Allies win the Second World War. He was a German-American physician and an American citizen born in Germany, a very different state from what he may have been used to.
+
+During WWII, the war between Germany and the United States was a matter of national pride. It cost several American lives in the process of this rivalry. Germany felt threatened by the threat to its national security but American doctors felt threatened by their own country's policy. This was especially true in Texas where Germany had one of the greatest concentrations of German medicine. Their hospitals and clinics ran with thousands of medical students, scientists and others who were trained to practice medicine in Germany. Texas was America's biggest export hub for medical supplies and there were huge numbers of German and other foreign doctors that came to the Lone Star state to begin their training. Many of these doctors would return the next year with more advanced ideas on how to treat modern soldiers' wounds and illnesses, and also more medical equipment that could be used on battlefields. Many of the doctors spent months or years in Germany studying Germany's modern method of preparing troops for battle, especially the use of anesthesia.
+
+From 1945 to 1949, Germany used thousands of physicians, nurses and researchers as it continued the war. During this same period, Cushing served as a non-commissioned officer in

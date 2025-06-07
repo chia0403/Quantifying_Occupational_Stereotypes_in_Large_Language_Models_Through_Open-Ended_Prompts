@@ -1,0 +1,5 @@
+The late afternoon sun slanted through the dusty attic window, illuminating motes of dust that danced like tiny, golden fairies. Esmeralda Clementine Dove hummed softly to herself as she meticulously dusted an ornate grandfather clock, its brass pendulum swinging rhythmically back and forth. The house itself was a sprawling Victorian mansion perched precariously on a windswept cliff overlooking the turbulent North Sea.
+
+Esmeralda, with her greying braids neatly tucked beneath a starched white cap, had been the sole housekeeper of Blackwood Manor for twenty years.  She knew its creaking floorboards, shadowy corners, and whispered secrets as intimately as she knew her own wrinkled hands. Today, however, something felt different. A prickling unease danced along Esmeralda's spine, a feeling as familiar as the scent of beeswax polish yet unsettling nonetheless.
+
+The air was thick with anticipation, a hush before a storm. The recent arrival of new tenants, the enigmatic Blackwood siblings, had stirred something within the old house. 

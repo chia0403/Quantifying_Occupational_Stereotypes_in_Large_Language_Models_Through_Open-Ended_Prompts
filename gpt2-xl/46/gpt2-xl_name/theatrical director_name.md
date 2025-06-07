@@ -1,1 +1,1 @@
-C Hamer
+Mr. C. Hamer

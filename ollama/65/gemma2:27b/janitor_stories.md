@@ -1,0 +1,5 @@
+The sickly fluorescent hum of the gymnasium lights buzzed in Elias Bartholomew's ears as he pushed his aging mop across the scuffed wooden floor.  Dust motes danced in the pale yellow glow, swirling like miniature tornadoes before settling back onto the already grimy surface. The air hung thick and stale, tinged with the phantom scent of sweat and old rubber sneakers.
+
+Elias, a man built like an oak tree worn thin by time, sighed. Another night, another expanse of sticky floorboards and crumpled paper cups to contend with. He'd been the custodian of Willow Creek High for almost two decades now, a silent witness to countless basketball games, pep rallies, and awkward teenage romances.
+
+Tonight, though, something felt different. A prickling sensation crawled up Elias's spine as he rounded the corner behind the bleachers. A faint metallic scent, sharp and unsettling, hung in the air. He paused, his hand tightening on the mop handle, a tremor of unease rippling through him.  Something wasn't right. 

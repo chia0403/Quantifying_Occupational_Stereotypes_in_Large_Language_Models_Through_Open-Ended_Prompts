@@ -1,0 +1,8 @@
+The neon sign of the "Dusty Donkey Diner" buzzed erratically, casting a sickly green hue over Elijah "Eli" Booker's weathered face as he pulled his Kenworth T680 into the truck stop lot.  The air hung thick with diesel fumes and the scent of frying onions, a familiar perfume to Eli's nostrils after decades on the road. He shifted the massive rig into park, the engine sighing in relief. Dusk was settling over the desolate stretch of I-80 in Wyoming, painting the distant mountains in shades of violet and burnt orange.  Eli was hauling a load of steel beams from Chicago to Denver, and the day's drive had been a grueling one, punctuated by fierce wind gusts that threatened to push his trailer off the road.
+
+
+He stepped out, his joints protesting with familiar pops and cracks, and surveyed the scene. The diner parking lot was dotted with a handful of other rigs, their chrome glinting dully under the fading light. A group of truckers huddled around a picnic table, sharing stories and laughter over mugs of steaming coffee. Eli felt a pang of loneliness, yearning for the camaraderie he once enjoyed on the road before his wife passed away. Now, he mostly kept to himself, content with the company of his CB radio and the endless ribbon of asphalt stretching before him.  
+
+Tonight, though, something felt different. A prickling sensation ran down Eli's spine as he noticed a lone figure standing near the edge of the lot, shrouded in shadow. The figure seemed to be watching him intently.
+
+Eli hesitated, unsure whether to approach or ignore the stranger. He wasn't one for trouble, but something about the figure's unwavering gaze drew him in.  He decided to investigate. 

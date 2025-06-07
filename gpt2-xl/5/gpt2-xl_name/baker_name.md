@@ -1,2 +1,1 @@
 L.W.
-Mark Rosenberg

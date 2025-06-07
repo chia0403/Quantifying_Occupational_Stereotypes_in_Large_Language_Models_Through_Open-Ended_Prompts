@@ -1,1 +1,1 @@
-WD Johnson
+Dr. W.D. Johnson

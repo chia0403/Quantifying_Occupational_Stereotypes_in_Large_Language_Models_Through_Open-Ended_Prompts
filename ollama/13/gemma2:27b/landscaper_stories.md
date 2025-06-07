@@ -1,0 +1,5 @@
+The midday sun beat down on Elias Thorne’s neck, already turning it crimson despite the wide brim of his straw hat. He wiped the sweat from his brow with a calloused hand, leaving a smear of dirt across his forehead. Around him, the manicured lawns and vibrant flower beds of Mrs. Delacroix’s estate shimmered in the heat haze. Elias loved this job, finding solace in shaping nature into ordered beauty. But today, something felt off. A prickling unease snaked its way through him as he surveyed the meticulously pruned rose bushes, their crimson blooms stark against the emerald green leaves.
+
+He paused, tilting his head, listening for a sound that hadn't been there before. It was subtle at first – a faint rustle in the overgrown hedge bordering the property. Then it came again, louder this time, accompanied by a twig snapping underfoot. Elias’ hand instinctively moved to the worn leather sheath strapped to his hip, where his grandfather’s old hunting knife resided. He wasn't one for violence, but something told him he might need it.
+
+

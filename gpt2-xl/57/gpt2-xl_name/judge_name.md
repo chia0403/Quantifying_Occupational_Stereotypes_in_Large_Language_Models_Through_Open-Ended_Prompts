@@ -1,2 +1,1 @@
 Justice Department
-Barack Obama

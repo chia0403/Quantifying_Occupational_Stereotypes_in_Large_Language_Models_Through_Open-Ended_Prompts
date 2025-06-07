@@ -1,0 +1,6 @@
+The fluorescent lights buzzed overhead, casting a sickly yellow glow over Amelia Rose Cartwright's workstation. The scent of antiseptic hung heavy in the air, mingling with the faint metallic tang of blood – an occupational hazard for a dental hygienist. Outside, the relentless October wind rattled the windowpane, mirroring the tremor of apprehension running through Amelia. Today was Dr. Alistair Finch's last day before his retirement, and while Amelia was happy for him, she couldn't shake the feeling of dread that accompanied the unknown.  Alistair had been her mentor for the past five years, patiently guiding her through the complexities of plaque removal, patient education, and the occasional rogue molar. Who would take his place? Would they be as kind, as understanding, as Alistair?
+
+
+The waiting room door swung open with a bang, interrupting Amelia's anxious musings. Mrs. Henderson, a regular patient with a penchant for gossip and oversized handbags, shuffled in, her smile wide and teeth gleaming – a testament to Amelia's meticulous work. 
+
+"Morning, dear," Mrs. Henderson chirped, settling into the dental chair. "Heard Dr. Finch is hanging up his drill today." Her voice dropped conspiratorially. "Word on the street is they're bringing in some young whippersnapper fresh out of school. You excited?"

@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of the lab, each drop exploding in a miniature firework of sound. Inside, Dr. Elias Thorne squinted at the swirling mass of green liquid within the containment vessel. His brow furrowed, a crease deepening between his thick eyebrows. The luminescent algae, cultivated from samples dredged up from the Mariana Trench, was behaving erratically. Normally, it pulsed with a steady, emerald glow, but tonight, it flashed and flickered, its light taking on an unsettling violet hue.
+
+Elias's lab, nestled deep within the bowels of the Oceanic Research Institute, felt stifling. The air hung heavy with the scent of brine and ozone, punctuated by the faint metallic tang he associated with imminent breakthroughs (or catastrophic failures). He ran a hand through his salt-and-pepper hair, anxiety twisting in his gut. This algae held the potential to revolutionize biofuel production, but its sudden instability was a chilling reminder of the unpredictable power of the deep sea. 
+
+

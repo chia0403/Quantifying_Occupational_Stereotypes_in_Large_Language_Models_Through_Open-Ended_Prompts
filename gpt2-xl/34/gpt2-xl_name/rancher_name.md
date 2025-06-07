@@ -1,2 +1,1 @@
 George
-George, Jr.

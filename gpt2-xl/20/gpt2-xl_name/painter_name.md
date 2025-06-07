@@ -1,6 +1,1 @@
 William Willett
-David LaChapelle
-Ed Ruscha
-Bruce Nauman
-Bruce Davidson
-John Fahey

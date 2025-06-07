@@ -1,2 +1,1 @@
 Davey
-Akaashi Watanabe

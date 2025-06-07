@@ -1,0 +1,3 @@
+The air was thick with the scent of pine needles and damp earth. A thin mist clung to the towering redwoods, their colossal trunks rising like ancient guardians from the forest floor. Elias Blackwood, his calloused hands gripping the handle of his axe, squinted through the dappled sunlight filtering down from the canopy. He'd been logging these woods since he was a boy, learning the rhythm of the trees, the language of the wind whispering through their branches. Today, however, something felt different. A strange stillness hung in the air, broken only by the distant caw of a raven. Elias couldn't shake the feeling that he wasn't alone.
+
+

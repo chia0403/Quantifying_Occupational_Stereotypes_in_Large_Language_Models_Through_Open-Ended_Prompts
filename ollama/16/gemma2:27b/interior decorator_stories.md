@@ -1,0 +1,3 @@
+Rain lashed against the dusty windows of the Victorian townhouse, blurring the already fading light of dusk into an Impressionist watercolour. Penelope Ainsworth, her blonde curls escaping their meticulously styled bun, sighed as she surveyed the cavernous living room. The faded floral wallpaper peeled at the seams, the once-plush velvet sofa sagged like a tired old dog, and a cobweb-draped chandelier cast skeletal shadows on the threadbare rug.  This was her latest project: breathing life back into the neglected bones of 137 Elm Street. Penelope had a knack for it, seeing beyond the grime and decay to the hidden beauty beneath. But this house, with its melancholy air and secrets whispered in the creaking floorboards, felt different. It felt...watched. 
+
+

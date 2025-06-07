@@ -1,0 +1,5 @@
+The humid Georgia air clung to Eloise Mae Davenport like a damp dishcloth as she navigated the bustling lunchtime crowd at The Blue Crab Shack. Laughter, chatter, and the clinking of silverware formed a symphony only barely audible over the rhythmic crash of waves against the weathered wooden pier. Sunlight glinted off the peeling turquoise paint of the shack's exterior, illuminating the faded "Open" sign swaying precariously in the sea breeze. Eloise Mae balanced a tray laden with overflowing plates of hushpuppies and fried shrimp, her freckled cheeks flushed from the heat and exertion. 
+
+She weaved between tables sticky with spilled sweet tea and littered with crumpled paper napkins, memorizing orders and anticipating needs before they were even voiced. It was a dance she'd perfected over years at The Blue Crab Shack – a place that smelled perpetually of salt water and fried food, where the regulars knew her by name, and where Eloise Mae dreamed of something more than endless refills and greasy plates.
+
+

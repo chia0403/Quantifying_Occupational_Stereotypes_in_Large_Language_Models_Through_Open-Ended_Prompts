@@ -1,0 +1,5 @@
+The scent of lilies and roses hung heavy in the air, battling with the sharp tang of bleach that Ophelia Bellweather used religiously to scrub down her work surfaces. Sunlight streamed through the dusty glass front door of "Bloom & Briar," casting warm squares onto the worn wooden floorboards. Outside, the cobbled street of Primrose Lane bustled with morning activity – a baker unloading trays of fresh croissants, a dog walker wrestling with a pack of boisterous terriers, and Mrs. Higgins, perched on her usual bench, feeding the pigeons.
+
+Ophelia sighed contentedly, smoothing down the frilly apron tied around her waist. Today was a good day for flowers. She had a delivery of vibrant tulips arriving any minute, and a wedding consultation scheduled for this afternoon with a young couple eager to fill their ceremony with fragrant peonies and delicate baby's breath. But beneath the surface of Ophelia's cheerful hum lay a knot of unease. Lately, business had been slow, and the bills were piling up faster than she could arrange them into charming bouquets. 
+
+

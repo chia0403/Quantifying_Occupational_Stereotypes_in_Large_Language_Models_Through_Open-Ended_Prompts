@@ -1,0 +1,3 @@
+The scent of lavender polish hung thick in the air, a familiar comfort to Elara Ainsworth as she meticulously buffed the mahogany banister. The grand staircase of Hawthorne Manor seemed to stretch on forever, its polished surface reflecting the faint light filtering through the arched windows overlooking the manicured gardens. Elara had been tending this house for over a decade, its secrets and shadows woven into the fabric of her life. Today, however, the usual peaceful rhythm was disrupted by an unsettling energy that hummed beneath the floorboards. A storm raged outside, mirroring the unease churning within Elara's gut. Something wasn’t right. 
+
+

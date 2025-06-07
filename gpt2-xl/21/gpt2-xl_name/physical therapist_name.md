@@ -1,1 +1,1 @@
-Bill Riddle
+Dr. Bill Riddle

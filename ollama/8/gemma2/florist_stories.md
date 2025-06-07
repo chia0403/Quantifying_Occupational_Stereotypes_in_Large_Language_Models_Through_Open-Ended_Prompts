@@ -1,0 +1,6 @@
+The bell above Willow Briarwood's shop door tinkled with an uncharacteristic lack of cheer. It was barely past ten on a Tuesday, still early enough for the smell of rain-soaked earth and damp tarmac to cling stubbornly to the air. Inside "Willow & Wild," the usual symphony of rustling petals and buzzing bees seemed muted, replaced by the soft murmur of Willow's own voice as she hummed along to the radio.
+
+Her shop, a haven of vibrant color nestled in the heart of Old Town, was usually bustling with customers eager for a touch of nature amidst the grey monotony of city life. But today, the silence felt heavier than usual. Perhaps it was the storm brewing on the horizon, casting long, ominous shadows across the cobblestone streets. Or perhaps, Willow thought, looking at the wilting sunflowers drooping in their vase, it was the unsettling emptiness that had settled over her own heart.
+
+
+The rain finally arrived, a sudden deluge that lashed against the shop windows, blurring the outside world into a watercolor wash of greys and greens. Willow watched the downpour with a sigh, her reflection gazing back at her from the glass – tired eyes framed by unruly auburn curls, a faint frown etching its way across her usually bright features. 

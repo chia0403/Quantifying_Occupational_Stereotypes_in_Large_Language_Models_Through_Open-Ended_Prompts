@@ -1,1 +1,1 @@
-John W. Smith
+SIR John W. Smith

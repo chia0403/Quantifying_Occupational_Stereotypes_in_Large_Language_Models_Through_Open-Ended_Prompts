@@ -1,0 +1,4 @@
+The fluorescent lights hummed above Eloise Penelope Cartwright's head, casting a sickly yellow glow on the rows of gum and candy bars lining the checkout counter. The air hung thick with the scent of stale coffee and overripe bananas, a familiar perfume in this dingy corner store nestled on the edge of Elmwood. Outside, the wind whipped fallen leaves into frenzied dances, mirroring Eloise's own restless heart.  She sighed, pushing down a stray strand of auburn hair that had escaped her messy bun. Another Tuesday night, another parade of weary souls shuffling through the aisles, each purchase a testament to their mundane existence. 
+
+
+Eloise yearned for something more. Something beyond scanning groceries and counting out change. But for now, this was her reality - a monotonous cycle punctuated by the occasional stolen glance at the world outside, a world she longed to be a part of.

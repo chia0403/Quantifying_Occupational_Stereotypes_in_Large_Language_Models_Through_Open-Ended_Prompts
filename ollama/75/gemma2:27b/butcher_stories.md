@@ -1,0 +1,3 @@
+The air hung thick with the scent of iron and rosemary, a peculiar perfume that Elias Thornwood, proprietor of Thornwood's Meats, considered his signature. Dawn was just breaking, painting the cobblestone streets outside his shop in shades of rose and lavender, but inside, the day was already well underway.  Elias, a man built like an oak tree with hands as calloused as cured leather, surveyed his domain: rows of glistening cuts, sausages plumping in their casings, and mountains of fresh-caught fish gleaming on beds of ice. He hummed a mournful tune, his voice deep and rumbling like distant thunder, as he sharpened his cleaver, the rhythmic scrape echoing through the cool, damp air. Today was market day, and Elias Thornwood intended to make it a good one. 
+
+

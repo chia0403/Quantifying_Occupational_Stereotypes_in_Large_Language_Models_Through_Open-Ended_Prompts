@@ -1,0 +1,5 @@
+Rain hammered against the grimy windows of The Drowned Rat, each drop exploding in a miniature burst of light from the neon sign flickering outside. Inside, the air hung thick with cigarette smoke and the mingled scent of stale beer and regret.  Anya Petrova, her crimson lipstick smeared slightly from the constant wiping of glasses, surveyed the sparse crowd with a practiced eye. Three lonely souls huddled at the bar – a businessman drowning his sorrows in whiskey sours, an elderly woman nursing a lukewarm gin and tonic, and a young man hunched over a half-empty pint, staring intently at the swirling liquid as if it held the secrets of the universe.
+
+Anya knew their stories before they even spoke.  She’d seen them all before - countless nights of whispered confessions, desperate pleas for advice, fleeting moments of connection forged in the dim light and smoky haze of The Drowned Rat.  Tonight, however, something felt different. A tension crackled in the air, a feeling that whispered of secrets waiting to be unearthed.
+
+

@@ -1,2 +1,1 @@
 Lorna Bennett
-Alexey Verepenko

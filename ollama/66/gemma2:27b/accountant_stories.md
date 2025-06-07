@@ -1,0 +1,7 @@
+Rain lashed against the grimy windowpane of Bartholomew "Bart" Finch's office, mirroring the turmoil brewing within him. Spreadsheets lay scattered across his desk like fallen leaves, each cell filled with numbers that mocked his mounting anxiety. The air hung heavy with the scent of stale coffee and desperation. Bart was an accountant, a creature of order and logic, but tonight, those qualities seemed woefully inadequate. His client, Mr. Alistair Grimshaw, a man whose reputation for shady dealings preceded him, was due any minute, and Bart had stumbled upon something deeply unsettling in Grimshaw's accounts - something that smelled of fraud on an unimaginable scale. 
+
+The clock ticked relentlessly towards seven o'clock, each click a hammer blow to Bart's already frayed nerves. He glanced at the rain-streaked window again, wishing he could disappear into the gloomy night. But there was no escape. Grimshaw was coming, and Bart knew he had a choice to make: expose the truth and risk his own safety, or remain silent and become complicit in a web of deceit that threatened to unravel everything he held dear.
+
+The door creaked open, and a gust of wind carried with it the scent of damp tweed and something else, something faintly metallic. Bart's heart pounded in his chest as he looked up. Standing in the doorway, silhouetted against the stormy night, was Mr. Alistair Grimshaw himself. His smile was sharp, predatory.
+
+

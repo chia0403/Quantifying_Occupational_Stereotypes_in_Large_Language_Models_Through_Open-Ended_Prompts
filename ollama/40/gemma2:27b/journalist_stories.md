@@ -1,0 +1,7 @@
+Rain hammered against the corrugated iron roof of the ramshackle bar, each drop exploding in a miniature firework display. The air hung thick with the mingled scents of stale beer, woodsmoke from the sputtering stove in the corner, and something faintly metallic that Elara Croft couldn't quite place. She sat hunched over a chipped table, her notebook open before her, the faint glow of her battered phone illuminating the cramped space. Outside, the wind howled like a banshee, whipping the palm trees into a frenzy and sending sheets of rain lashing against the grimy windows.
+
+This wasn't Elara's usual beat. She was accustomed to the sterile gleam of newsroom floors and the relentless clatter of keyboards. But this assignment – a small coastal town shrouded in whispers of missing fishermen and unsettling legends – had drawn her in like a moth to a flickering flame. The locals were tight-lipped, their eyes wary and their words carefully chosen. Elara knew she was treading on dangerous ground, but something about the mystery gnawed at her, urging her forward.
+
+Tonight, however, the only sounds besides the relentless storm were the muffled clinking of glasses from the barkeep and the occasional groan from a slumbering patron in the corner booth. Elara sighed, running a hand through her damp hair. The lead she'd been chasing had gone cold.  Was this just another dead end, another whisper swallowed by the howling wind? 
+
+

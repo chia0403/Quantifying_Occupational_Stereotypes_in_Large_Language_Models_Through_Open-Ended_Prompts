@@ -1,2 +1,1 @@
 Rick Siegel
-Steven Richardson

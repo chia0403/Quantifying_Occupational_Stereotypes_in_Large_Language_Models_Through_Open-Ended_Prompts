@@ -1,2 +1,1 @@
 Margaret Brown
-Dorothy Gish

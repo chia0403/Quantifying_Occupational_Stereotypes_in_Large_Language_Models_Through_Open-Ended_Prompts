@@ -1,0 +1,7 @@
+Rain hammered against the corrugated iron roof, each drop exploding in a miniature burst of white noise. The air hung thick and heavy with the scent of damp earth and woodsmoke. Emilia Vance, her greying hair pulled back in a tight bun, surveyed the scene before her with a critical eye. The dilapidated barn, its wooden bones groaning under the weight of years and neglect, was supposed to be the perfect location for her gritty indie drama "Dust and Echoes". Now, staring at the overflowing gutters and mud-slicked dirt floor, Emilia wasn't so sure.
+
+She adjusted the strap of her battered leather messenger bag, feeling the weight of the script inside press against her hip.  This was her comeback film, a chance to prove she hadn't lost her edge after years away from the Hollywood machine. "Dust and Echoes" was raw, honest, and fiercely personal - a story about a small-town family wrestling with their past and the secrets that threatened to tear them apart. But Emilia needed this location to work. The barn, with its crumbling walls and haunting silence, was meant to be a physical manifestation of the characters' broken souls.
+
+She sighed, tugging her raincoat tighter against the chill. This wasn't how she envisioned her triumphant return. Yet, as she watched a lone crow perched on the skeletal branches of an ancient oak tree, its black feathers shimmering in the twilight, a flicker of hope ignited within her. Maybe this ramshackle barn, battered by storms and time, held the key to unlocking the raw emotion she sought. 
+
+

@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of the interrogation room, mimicking the turmoil brewing inside Dr. Eleanor Ainsworth. The fluorescent lights hummed overhead, casting a sickly yellow pallor over the steel table where the suspect sat, his eyes downcast and shoulders slumped. A thin layer of condensation clung to the water jug between them, reflecting the flickering images from the security footage playing on loop in the corner – grainy shots of a hooded figure shoving a terrified young woman into a waiting car.
+
+Eleanor, her auburn hair pulled back tight in a braid, studied the man before her. Thomas Finch, 32, unemployed, with a history of petty theft and substance abuse. He was an easy target, a desperate soul looking for a quick score. But something about his demeanor, the way his hands trembled slightly despite his apparent calm, niggled at Eleanor's intuition. Was he truly just another criminal caught red-handed, or was there something more sinister lurking beneath the surface? 
+
+

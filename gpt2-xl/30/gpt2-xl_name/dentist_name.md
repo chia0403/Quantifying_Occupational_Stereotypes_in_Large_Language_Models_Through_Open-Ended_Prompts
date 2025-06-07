@@ -1,1 +1,1 @@
-Jack Thompson
+Dr. Jack Thompson

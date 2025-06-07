@@ -1,0 +1,5 @@
+The midday sun beat down on Silas Blackwood's neck, turning his already ruddy complexion crimson. Sweat stung his eyes, blurring the cityscape spread out before him. From his perch atop the crumbling Victorian townhouse, he could see the whole of St. Albans: the cobblestone streets winding through centuries-old buildings, the River Ver shimmering like a silver ribbon in the distance, and beyond it all, the hazy outline of the Chiltern Hills. 
+
+Silas adjusted the worn leather strap of his tool belt, the familiar weight settling comfortably against his hip. He was a man built for this life – broad shouldered and strong, with calloused hands that could coax shingles into place as easily as a sculptor molded clay. For Silas, there was no greater satisfaction than transforming a dilapidated roof into a fortress against the elements. Today, however, even the promise of a perfectly crafted roof couldn't quite quell the gnawing unease in his gut. The townhouse had an unsettling aura – a stillness that seemed to suffocate the laughter and chatter from the street below. It felt like something was watching him, waiting for him to make a mistake.  
+
+

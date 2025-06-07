@@ -1,0 +1,6 @@
+The Arizona sun beat down on Elias "Eli" Blackwood's Kenworth W900 like a blacksmith's hammer. Dust devils danced across the endless ribbon of asphalt ahead, shimmering mirages mocking Eli with visions of cool oases that vanished the moment he neared. His CB crackled with static and the distant drawl of another trucker complaining about the heat, a sentiment Eli wholeheartedly shared. 
+
+He'd been hauling this load of refrigerated produce from Yuma to Phoenix for what felt like days, though it was probably only 12 hours. The miles blurred together in a monotonous symphony of engine hum and the occasional chirping of desert crickets.  Eli craved the cool air conditioning of his cab, a haven from the relentless desert sun, but he knew stopping now would put him behind schedule. He had deadlines to meet, deliveries to make, and a restless ache for the open road that kept him going even when the world seemed determined to melt him into the asphalt.
+
+
+Eli squinted at the horizon, searching for any sign of civilization beyond the endless expanse of scrub and saguaro cacti. Just then, a plume of smoke snaked up in the distance, a faint promise of respite. He hoped it was a rest stop, a diner, anything to break the monotony and offer a cold drink and a chance to stretch his aching legs.  

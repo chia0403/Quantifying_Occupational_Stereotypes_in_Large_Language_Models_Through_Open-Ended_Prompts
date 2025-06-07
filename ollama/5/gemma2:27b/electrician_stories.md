@@ -1,0 +1,5 @@
+The flickering fluorescent lights of the abandoned diner buzzed like angry wasps, casting long, skeletal shadows across the cracked linoleum floor. Elias Finch, his calloused fingers stained yellow with oxidized copper, crouched beside a sputtering fuse box, the air thick with the scent of dust and stale grease. He'd been called in to troubleshoot a power outage plaguing this desolate roadside relic – an eerie beacon on Highway 17, seemingly forgotten by time itself. Elias, however, had a knack for breathing life back into forgotten things, coaxing electricity from the most recalcitrant wires.  
+
+He unscrewed the rusted panel, revealing a labyrinth of frayed wires and corroded terminals. It looked like a spiderweb spun by a madman. Elias sighed. "This ain't gonna be pretty," he muttered, pulling out his trusty multimeter and headlamp. The diner hummed with an unsettling silence, broken only by the ticking of a dusty wall clock and the faint scratching sound coming from the kitchen, a place shrouded in shadow. 
+
+

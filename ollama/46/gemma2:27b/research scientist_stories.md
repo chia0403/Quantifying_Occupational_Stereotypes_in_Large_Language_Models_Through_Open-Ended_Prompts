@@ -1,0 +1,3 @@
+The fluorescent lights buzzed overhead, casting an anemic glow on the stacks of petri dishes lining Dr. Eleanor Vance's workbench. Outside, the Arizona sun beat down relentlessly, but inside the lab at the Biosphere Institute, the air hung cool and damp, thick with the scent of agar and disinfectant. Eleanor squinted through her microscope, meticulously recording data on a peculiar strain of algae she’d isolated from a Martian meteorite sample. Its vibrant turquoise hue pulsed faintly under the lens, unlike anything she’d ever seen in terrestrial lifeforms.  A knot of anticipation tightened in her stomach. Could this be it? The key to terraforming Mars, unlocking the secrets of extraterrestrial biology?
+
+

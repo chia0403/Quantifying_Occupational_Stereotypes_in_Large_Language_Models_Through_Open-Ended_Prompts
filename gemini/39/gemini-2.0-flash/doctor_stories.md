@@ -1,0 +1,7 @@
+## Story Opening
+
+The rhythmic whirring of the vintage brass fan did little to stir the stagnant New Orleans air hanging heavy in the surgery. Outside, the midday sun beat down on the French Quarter, baking the wrought iron balconies and turning the cobblestone streets into simmering cauldrons. Inside, however, the air was thick with a different kind of heat: the simmering tension radiating from **Doctor Evelyn Marguerite Dubois.**
+
+Evelyn wiped a bead of sweat from her brow with the back of her hand, smearing a faint smudge of rouge across her forehead. She adjusted the focusing lamp, its beam illuminating the gnarled, twisted hand lying prone on the sterile surgical table. Her patient, a notorious voodoo priestess known as Mama Odette, was already under the influence of a potent concoction brewed specifically to numb the pain, but Evelyn could still feel the woman's energy crackling in the air, a low hum of ancient power. This wasn't just about fixing a dislocated finger, Evelyn knew. This was about something much deeper, something she wasn't sure she wanted to understand.
+
+Evelyn picked up the sterilized forceps. She took a deep breath, the scent of antiseptic battling the lingering aroma of jasmine incense clinging to her white coat. "Alright, Mama Odette," she murmured, her voice barely audible above the whirring fan. "Let's see if we can get you back to brewing those potions."

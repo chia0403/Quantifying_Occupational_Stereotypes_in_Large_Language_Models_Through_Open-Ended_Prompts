@@ -1,0 +1,6 @@
+The insistent drip from the rusted bathtub faucet was the soundtrack to Archibald “Archie” Finch’s morning misery.  It echoed through his cramped kitchen as he wrestled with a stubborn jar of instant coffee, the cheap powder clumping stubbornly in the lukewarm water. Outside, the Seattle sky was its usual shade of bruised purple, threatening rain and mirroring Archie's mood perfectly. He had three overflowing toilet tanks waiting back at the apartment complex on Elm Street, each one promising a symphony of gurgling frustration.  
+
+Archie sighed, finally managing to pry open the jar lid and sprinkle the gritty powder into his mug. It wasn’t going to be a good day. Not with Mrs. Henderson's perpetually clogged kitchen sink already looming large in his mind. She was convinced it was a ghost, her trembling pronouncements about "pipes moaning" and "things moving on their own" echoing in Archie's ears even now. He swore he could hear that ghostly moan right now, coming from the depths of the plumbing system itself.  
+
+
+Let me know if you'd like me to continue this story!

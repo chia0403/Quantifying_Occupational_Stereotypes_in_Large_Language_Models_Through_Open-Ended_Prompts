@@ -1,2 +1,1 @@
-Samuel Alito
-William Rehnquist
+Alito

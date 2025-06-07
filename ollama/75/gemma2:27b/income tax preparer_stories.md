@@ -1,0 +1,3 @@
+Rain lashed against the dusty windowpanes of Beatrice "Bea" Templeton's cramped office, mimicking the drumming anxiety in her chest. The flickering neon sign outside, proclaiming "Tax Time Terrors Be Gone!" in lurid green, cast an unsettling glow on the stacks of W-2s and 1099s threatening to engulf her desk. April 15th was looming like a guillotine blade, and Bea, despite years of experience untangling the financial knots of her clients, felt the familiar prickle of dread. This year, however, it wasn't just the usual pre-deadline frenzy. A new client had walked into her life, leaving behind a trail of unanswered questions and a whiff of something unsettlingly...dangerous. 
+
+

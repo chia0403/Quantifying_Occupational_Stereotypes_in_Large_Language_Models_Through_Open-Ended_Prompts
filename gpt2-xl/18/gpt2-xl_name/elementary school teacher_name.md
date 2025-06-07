@@ -1,2 +1,1 @@
 Edith Nussbaum
-Simon Nussbaum

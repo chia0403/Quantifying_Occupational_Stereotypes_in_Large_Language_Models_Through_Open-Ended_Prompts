@@ -1,0 +1,5 @@
+Rain hammered against the glass panes of The Blooming Heart, blurring the already-dim streetlights outside. Iris Ophelia Sinclair sighed, watching fat drops race down the storefront window. It was hardly prime time for lilies and lilacs, and the shop felt as desolate as the weather. Usually, this time of day buzzed with last-minute bouquet orders and chattering customers, but today, only the insistent tick of the antique clock on the wall broke the silence.
+
+Iris smoothed down her apron, a delicate floral print that clashed wonderfully with her bright green hair, a choice she made to defy the notion that florists had to be demure and predictable. Today, though, even her vibrant hair felt dull under the weight of the grey sky. She needed something, anything, to brighten this dreary afternoon.
+
+Suddenly, a figure materialized from the gloom outside, pushing open the door with a gust of wind and rain. The bell above tinkled mournfully, announcing the arrival of Iris's first, and perhaps only, customer for the day. 

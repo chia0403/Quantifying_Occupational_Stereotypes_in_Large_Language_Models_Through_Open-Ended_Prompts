@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Dr. Elias Thorne's cramped clinic, blurring the already dismal view of the alleyway below. The air hung thick with the scent of disinfectant and stale herbs, a perpetual reminder of the precarious balance between life and death he navigated every day in this forgotten corner of Newhaven. Elias, his salt-and-pepper hair plastered to his forehead, sighed as he scrubbed his hands raw, the rhythmic squeak of soap against porcelain echoing the relentless drumming of rain outside. 
+
+He knew tonight would be another long one. The storm had already brought a steady stream of shivering souls seeking refuge from the cold and whatever unseen horrors lurked in the shadows beyond his door. He braced himself for the usual parade: coughs wracked by dampness, fevered brows burning with unknown ailments, and the occasional broken bone from a drunken fall on the cobblestones. But Elias never turned anyone away. It was a vow he'd made long ago, to be a beacon of hope in this city steeped in despair. 
+
+

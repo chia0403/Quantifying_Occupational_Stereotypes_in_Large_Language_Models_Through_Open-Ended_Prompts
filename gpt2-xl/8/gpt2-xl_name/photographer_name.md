@@ -1,3 +1,1 @@
-James B. Brown
-Jackie Robinson
-John T. Reed
+James B. (Jimmy) Brown

@@ -1,0 +1,5 @@
+The air hung thick with the scent of linseed oil and turpentine in Eloise Delacroix's cramped studio apartment.  Sunlight, filtered through the grime on the single windowpane, illuminated dust motes dancing over canvases stacked precariously against every available surface. Eloise, a whirlwind of energy trapped in a petite frame, wrestled with a stubborn tube of cadmium yellow, her brow furrowed in concentration. Outside, the cacophony of New York City pulsed relentlessly, but within the confines of her studio, time seemed to stand still. This was her sanctuary, her battleground, where vibrant hues and bold strokes fought for supremacy on canvases that whispered untold stories. 
+
+Today, Eloise grappled with a portrait commission – a stern-faced businessman whose smile seemed perpetually frozen somewhere between amusement and disdain. She dipped her brush in the now-yielding yellow, adding a hint of warmth to the subject's otherwise austere visage.  But something felt amiss. The man on canvas remained an enigmatic stranger, his eyes holding secrets she couldn't decipher. Eloise sighed, stepping back for a better view. 
+
+

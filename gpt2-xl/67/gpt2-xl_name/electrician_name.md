@@ -1,1 +1,1 @@
-Billy "The Electric"
+Billy

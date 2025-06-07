@@ -1,0 +1,7 @@
+Once upon a time, there was a professor named Richard B. Spencer. He was a young man with a passion and a dream that would change the course of history.
+
+A little over a year ago, that dream became possible. Richard Spencer moved in with David Duke, a notorious neo-Nazi who is no friend of Jews, Muslims, or anyone because of their race. David Duke wanted Richard Spencer to run a website, and that was his purpose all along. He was going to create a Nazi website where people could come in and learn about the history of Nazi hate. That turned out to be a mistake, for Richard Spencer was discovered to be white supremacist after gaining his black girlfriend. You might think that Richard Spencer might flee. He is one powerful son of a bitch.
+
+After this news, Spencer flew into a rage. After he learned that David Duke was moving in with him, his feelings of self-esteem and self-worth plummeted. He was angry and he wanted people to know about it. He even offered a $10,000 bounty for the head of David Duke, but no one took it up on his offer.
+
+When the public learned the truth, Richard Spencer became more desperate. He began to think back to his high school days, when he would look at pictures of himself and he would always think that one day he would be famous as a famous person. He told the media that he was going to do some of the things some celebrities do

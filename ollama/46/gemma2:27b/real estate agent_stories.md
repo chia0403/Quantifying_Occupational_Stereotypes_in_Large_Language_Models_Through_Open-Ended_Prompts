@@ -1,0 +1,5 @@
+The humid Charleston air clung to Beatrice Amelia Winthrop like a damp shroud as she climbed the crumbling steps of the antebellum mansion.  Spanish moss, thick and heavy as cobwebs, draped from the gnarled oaks lining the drive, casting eerie shadows that danced in the afternoon sun. Beatrice adjusted her straw hat, its wide brim offering scant protection from the relentless heat. "Magnolia Manor," the rusted iron gate declared, its once-grand lettering now flaking and faded.
+
+Beatrice had been called to the property by Eleanor Hawthorne, a woman whose voice on the phone had trembled with both apprehension and hope.  Eleanor was the last remaining descendant of the Winthrop family, the original owners of Magnolia Manor. She’d inherited the sprawling estate after her aunt passed away but knew little about its history beyond faded photographs and whispered family legends. Now, facing mounting debts and a crumbling home, Eleanor had turned to Beatrice, Charleston's most trusted real estate agent, with a desperate plea: sell Magnolia Manor. 
+
+

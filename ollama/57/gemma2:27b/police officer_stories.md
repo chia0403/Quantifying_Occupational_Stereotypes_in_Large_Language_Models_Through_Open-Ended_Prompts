@@ -1,0 +1,6 @@
+Rain lashed against the grimy windows of Detective Elias Finch's office, mirroring the storm brewing inside him. The flickering neon sign from the diner across the street cast grotesque shadows on the cluttered desk, illuminating stacks of cold case files and half-eaten donuts. Elias rubbed his weary eyes, his reflection in the darkened glass a ghost of the man he once was – younger, sharper, fueled by an unwavering belief in justice. Now, cynicism clung to him like the damp chill that permeated the city.
+
+He'd been chasing shadows for years, haunted by unsolved murders and the faces of victims forever etched in his memory. Tonight, however, a new case had landed on his desk – a brutal stabbing in the heart of the Red Light district. A young woman, barely out of her teens, found lifeless in an alleyway reeking of stale alcohol and despair. The only clue: a single crimson rose clutched tightly in her hand. 
+
+
+Elias knew this wasn't going to be easy. This city had a way of swallowing its secrets whole, leaving behind only whispers and unanswered prayers. But something about the rose, its delicate petals stained with blood, stirred a dormant ember within him. This time, he vowed, he would bring justice, even if it meant facing the darkest corners of his own soul. 

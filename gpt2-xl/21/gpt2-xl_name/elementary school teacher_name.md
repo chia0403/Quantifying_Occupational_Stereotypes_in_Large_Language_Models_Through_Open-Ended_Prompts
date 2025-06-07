@@ -1,2 +1,1 @@
 Helen Keller
-Helen Keller

@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of the workshop, each drop a tiny drumbeat in the symphony of the storm.  The air hung thick with the smell of ozone and old grease, punctuated by the sharp tang of solder. Elias Finch, his brow furrowed beneath a tangle of greasy brown hair, tightened the last screw on the vintage lamp he was restoring. He squinted at it through his safety goggles, a faint smile playing on his lips. It wasn't every day you got to breathe life back into something this beautiful - a brass and crystal chandelier, salvaged from a demolished Victorian mansion.
+
+Elias ran a calloused thumb over the intricate carvings on the lamp's base, imagining it illuminating grand ballrooms and casting shimmering shadows on silk gowns. A sudden, loud crack of thunder jolted him back to reality. The lights flickered ominously, then plunged the workshop into darkness. Elias swore under his breath, fumbling for his headlamp. "Just what I needed," he muttered, the faint beam cutting through the gloom.  He had a feeling this was going to be one hell of a night. 
+
+

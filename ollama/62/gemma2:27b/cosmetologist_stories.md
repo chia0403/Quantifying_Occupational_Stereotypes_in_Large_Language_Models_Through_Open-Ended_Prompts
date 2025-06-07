@@ -1,0 +1,5 @@
+The air hung heavy with the scent of jasmine and burnt hair, a peculiar perfume unique to "Curl Up & Dye," Beatrice "Bea" Delacroix's cozy salon tucked away on a cobblestone street in New Orleans' French Quarter. Sunlight streamed through the arched window, illuminating dust motes dancing above Bea's work station. Her nimble fingers were weaving magic into Mrs. LeBlanc's silver curls, transforming them from wispy tendrils to a voluminous cloud of platinum perfection.
+
+Outside, jazz music drifted on the warm breeze, punctuated by the clatter of horse-drawn carriages and the shouts of street vendors hawking beignets and pralines. But inside Curl Up & Dye, time seemed to slow down, held captive in the gentle hum of hairdryers and Bea's soothing Southern drawl as she whispered beauty secrets into Mrs. LeBlanc's ear.
+
+Today, however, a sense of unease lingered beneath Bea's usual calm. A cryptic message scrawled on a faded postcard had arrived that morning, its words chilling her to the bone: "The secrets you hold will unravel soon."  

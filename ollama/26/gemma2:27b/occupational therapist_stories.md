@@ -1,0 +1,6 @@
+Rain lashed against the windows of the Havenwood Rehabilitation Center, blurring the view of the overgrown gardens outside. Amelia Blackwood, OT, sighed as she watched the storm brew. She preferred sunny days; they seemed to match the spirit of hope she tried to instill in her patients. Today, however, felt heavy, mirroring the storm raging outside. 
+
+Amelia had been working at Havenwood for five years, dedicated to helping people regain their independence after strokes, injuries, or debilitating illnesses. She loved her job, the small victories, and the connections she forged with each patient. But lately, a sense of weariness had settled over her. Funding cuts meant fewer resources and larger caseloads, leaving Amelia feeling stretched thin and unable to give her patients the attention they deserved. 
+
+
+Today's session with Mr. Henderson, a retired carpenter struggling to regain dexterity in his left hand after a stroke, loomed large in Amelia's mind. He was eager to return to whittling, his lifelong passion, but progress had been frustratingly slow. Amelia knew she needed to find a way to reignite his spark, to remind him of the strength and resilience that lay dormant within him. But how, when her own spirit felt so depleted?

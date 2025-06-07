@@ -1,0 +1,6 @@
+Rain hammered against the ornate glass doors of the Grand Blackwood Hotel, mirroring the tempest brewing in Elodie Sinclair’s chest. The opulent lobby, usually abuzz with the murmur of international intrigue and clinking champagne glasses, was eerily quiet. Shadows danced across the Persian rugs and marble floors, cast by the flickering gas lamps that fought valiantly against the gloom seeping in from outside. Elodie, her crisp black uniform impeccable despite the chaos brewing within, adjusted the emerald brooch at her collar, a nervous habit inherited from her grandmother.
+
+Tonight was no ordinary night.  The Grand Blackwood, a beacon of luxury nestled amidst the cobbled streets of Prague, was hosting the annual masquerade ball for the city’s elite. But tonight's festivities were overshadowed by a chilling rumour – the infamous "Shadow Thief" was rumored to be lurking among the guests, ready to snatch priceless artifacts right under their noses. 
+
+
+Elodie, the hotel's most trusted concierge, knew she had to be vigilant.  Her sharp mind and keen eye for detail, honed over years of anticipating every guest’s whim, were her only weapons against this shadowy threat. The fate of the Grand Blackwood, and perhaps its illustrious guests, rested on her shoulders tonight. 

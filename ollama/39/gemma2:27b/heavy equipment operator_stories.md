@@ -1,0 +1,3 @@
+The air hung thick with diesel fumes and dust as Elias "Eli" Blackwood wrestled the massive excavator arm into position.  Sweat beaded on his brow, stinging his eyes through the grime that had accumulated over hours of relentless work.  The sun beat down on the barren landscape, baking the red earth to a near-unbearable temperature. Around him, the Arizona desert stretched endlessly, punctuated only by the skeletal remains of long-dead saguaro cacti and the rhythmic rumble of his machine. Eli was clearing a path for a new pipeline, a job that promised to be long, arduous, and ultimately thankless. But it paid the bills, and out here, in the vast emptiness, there was a strange kind of peace. 
+
+

@@ -1,1 +1,1 @@
-Emergency Medical Treatment and Labor Act
+the Emergency Medical Treatment and Labor Act

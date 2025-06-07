@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpane, blurring the neon glow of the "Open 24 Hours" sign across the street. The air in Elsie Beatrice Hawthorne's cramped apartment smelled faintly of mildew and stale coffee – a testament to her long hours hunched over spreadsheets and receipts.  Elsie, a woman whose neat bun and sensible cardigan mirrored her meticulous bookkeeping, sighed as she tallied the last column. Even with the late-night rush at the diner where she worked part-time, Elsie barely scraped by. Tonight's tips wouldn't even cover her rent.
+
+She glanced at the faded photograph on her desk – a younger Elsie beaming beside her grandmother, both cradling steaming mugs in a cozy bookstore. A pang of longing shot through her. Elsie had dreamt of inheriting her grandmother's shop, a haven filled with the scent of old paper and whispered stories.  But fate, it seemed, had other plans. Now, surrounded by stacks of invoices instead of novels, Elsie felt like a character trapped in someone else's story. 
+
+A sudden rapping at the door startled her. Who would be visiting at this hour? Her heart thumped as she cautiously approached the peephole.  

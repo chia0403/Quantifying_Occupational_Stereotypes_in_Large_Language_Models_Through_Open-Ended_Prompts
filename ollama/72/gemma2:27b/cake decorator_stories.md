@@ -1,0 +1,5 @@
+The air hung thick with the scent of vanilla and caramelized sugar. Emilia Rosalind Cartwright hummed along to an old Billie Holiday tune as she delicately piped a garland of crimson roses onto a towering three-tiered almond cake. Sunlight streamed through the arched window of her tiny bakery, "Emilia's Edibles," illuminating the flurry of flour dusting the worn wooden countertop and catching on the wisps of Emilia's auburn curls. Outside, the cobblestone streets of Prague buzzed with the morning rush, but within the cozy confines of her shop, Emilia found her sanctuary – a world where sugar transformed into art, and every creation held the promise of sweetness. Today, however, a knot of anxiety tightened in her chest as she glanced at the clock. The delivery was due in two hours, and this cake, commissioned by a mysterious patron known only as "The Nightingale," felt different. Heavier somehow.  
+
+The Nightingale had been vague about the occasion, simply requesting a "cake fit for a queen" with a hidden inscription revealing a secret message. Emilia's curiosity burned brighter than her oven. Who was this enigmatic client? What secrets did this cake hold? 
+
+

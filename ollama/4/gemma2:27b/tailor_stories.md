@@ -1,0 +1,7 @@
+The midday sun beat down on Rue des Artisans, turning the cobblestones into shimmering, molten rivers.  Even through the thick linen curtain shielding his shopfront window, Bartholomew "Bart" Moreau could feel its oppressive heat. Inside, his workshop was a haven of cool, fragrant air tinged with the scents of beeswax and lavender. Bolts of velvet in jewel tones lined the walls alongside crisp linens and sturdy wools, their colors muted by the dim light filtering through the dusty windowpane. Bart, his brow furrowed in concentration, carefully pinned a silk sleeve to a bodice, the needle flashing like a tiny silverfish under the flickering gaslight.
+
+He was crafting a gown for Madame Dubois, the notorious courtesan whose extravagance was only surpassed by her sharp wit. The commission had come with specific instructions: "Something that whispers of forbidden gardens and moonlit trysts," she'd purred, her eyes sparkling like amethysts. Bart, ever the craftsman, had envisioned a dress of midnight blue silk, embroidered with silver threads depicting sinuous vines laden with delicate blossoms. He imagined Madame Dubois gliding through Parisian salons, the gown whispering secrets with every rustle of its skirt. 
+
+But today, the joy Bart usually found in his work was overshadowed by a gnawing anxiety. A rumor had been circulating amongst the artisans – whispers of a new tax levied on luxury goods. If true, it would mean ruin for many of them, including Bart. He couldn't afford to lose this commission, let alone face the prospect of crippling taxes. 
+
+

@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of Eloise Beaumont's atelier, blurring the already dim Parisian street below. A chill seeped through the cracks in the ancient walls, making Eloise shiver despite the layers of wool and linen she wore. The air inside was thick with the scent of lavender and mothballs, a comforting aroma that did little to soothe her frayed nerves. 
+
+Eloise ran a hand over the worn velvet of her worktable, tracing the outline of a half-finished gown. Moonlight glinted off the iridescent beetle wings sewn onto the bodice, a testament to her skill and imagination. But tonight, inspiration felt as distant as the sun. The deadline for Madame Dupont's grand ball gown was looming, and Eloise still hadn't cracked the design.
+
+The rhythmic clatter of the carriage wheels outside jolted her back to reality.  A shiver of anticipation ran through her. Perhaps it was a client, drawn by the faint glow of her window candle. Or maybe just another dreary soul seeking refuge from the storm. Either way, Eloise straightened her posture and smoothed down her apron, ready to face whatever the night might bring. 

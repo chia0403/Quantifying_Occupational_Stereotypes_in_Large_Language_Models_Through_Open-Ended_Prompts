@@ -1,0 +1,5 @@
+The air hung thick with ozone and sweat in the cramped transmitter room.  Jasper "Jax" Alistair Thornton III squinted at the flickering meters, his calloused fingers dancing across the tubes and wiring of the ancient RCA transmitter. Outside, the wind howled like a banshee, whipping snow against the windows of K-SNOW, the tiny radio station perched precariously on the edge of Glacier Ridge.
+
+Jax ran a greasy hand through his perpetually messy hair, muttering under his breath. The blizzard had knocked out power to half the town, leaving only K-SNOW's trusty backup generator humming in defiance of the elements. He needed to get this old beast back online – folks depended on K-SNOW for weather updates, emergency broadcasts, and a comforting dose of oldies during these long, dark winter nights.
+
+A sudden crackle from the speaker startled him. A voice, tinny and distorted, announced: "This is Sheriff Brody... anyone listening? We need..." The transmission cut out abruptly. Jax's heart pounded. Something was wrong. 

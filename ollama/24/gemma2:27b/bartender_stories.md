@@ -1,0 +1,6 @@
+The neon sign outside flickered erratically, casting emerald shadows across the rain-slicked street. "The Siren's Call" it proclaimed in faded cursive, the promise of escape barely visible through the grime. Inside, the air hung heavy with the scent of spilled whiskey, stale cigarette smoke, and regret.  Elias Thorne, his silver hair slicked back despite the humidity, wiped down the mahogany bar for the tenth time that night. Business was slow, as usual on a Tuesday in this forgotten corner of New Orleans.
+
+He idly watched the condensation drip from a bottle of bourbon, wondering if it mirrored the melancholic tears he'd seen shed countless times over his twenty years tending bar at The Siren's Call.  His patrons were a motley crew: lonely sailors yearning for home, jaded artists searching for inspiration, and heartbroken souls drowning their sorrows in cheap liquor. Elias knew their stories, listened to their woes, and offered a sympathetic ear - or sometimes just a strong drink - without judgment. 
+
+
+Tonight, however, something felt different. A restless energy thrummed beneath the surface of the usual gloom. Perhaps it was the storm brewing outside, or maybe it was the woman who just walked in, her silhouette framed by the doorway like a vengeful angel.  

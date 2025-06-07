@@ -1,0 +1,5 @@
+Rain lashed against the windows of Amelia Blackwood's tiny office, mimicking the rhythm of her mounting anxiety. Outside, the quaint seaside town of Havenwood was shrouded in a grey mist that clung to the cobblestone streets and wind-battered cottages like a shroud.  Amelia, known locally as "Amy" despite her formal name, tapped a manicured nail against the chipped surface of her desk. Today was supposed to be the day she closed on the Blackwood Manor - a grand, crumbling Victorian mansion perched atop Widow's Hill overlooking the churning sea. It was Havenwood's most prized property and Amy's ticket to finally escaping this damp, dreary town.
+
+But a call earlier that morning from her client, the enigmatic millionaire Alistair Finch, had thrown everything into disarray. He was withdrawing his offer, citing "unforeseen circumstances."  Amy felt a chill crawl up her spine.  Something wasn't right. The Blackwood Manor held dark secrets, whispered legends of tragic deaths and restless spirits. Was this more than just a change of heart from Alistair? 
+
+

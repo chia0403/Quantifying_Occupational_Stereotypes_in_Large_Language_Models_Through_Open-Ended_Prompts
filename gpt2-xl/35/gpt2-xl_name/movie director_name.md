@@ -1,2 +1,1 @@
 Quentin Tarantino
-Steven Spielberg

@@ -1,0 +1,7 @@
+Once upon a time, there was a stock broker named Dan D'Angelo. But one day, he put some money in an index fund and a little while later, the investment vehicle tanked. As D'Angelo watched it tumble, he realized that there was more to investing than just making money. So he set out to invent a new way of earning interest. He would, he decided, do this by investing in the money of many other investors, which he would call "mutual funds."
+
+But Dan met with opposition from some of his investment peers. They argued that stock investors shouldn't be allowed to "leverage" their holdings in other investments, which would inevitably result in the total value of their funds declining. But Dan was undeterred: "So I got some data, to prove to them their arguments were wrong," he says. And he was right.
+
+It turns out that mutual funds actually do work this way. They're essentially a group of investment institutions that hold a bunch of stock. But instead of giving away that stock to their investors each year like a corporation, each fund distributes it back to its investors, in order to give them an ongoing return. When a mutual fund makes a loss—and most of them would—its investors lose.
+
+Over the years, mutual funds have become the main way that the rich save for retirement. Americans tend to keep less of their money in investments like stocks, bonds, and other money market

@@ -1,0 +1,3 @@
+The air hung thick with the scent of caramelized sugar and toasted almonds as Emilia Rosehaven expertly kneaded the dough for her signature cinnamon rolls. Dawn light streamed through the bakery windows, painting the flour-dusted counter in warm hues. Outside, the cobblestone streets of Willow Creek were still hushed, the only sound the gentle chirping of sparrows nestled in the ivy that crept up the brick facade of Emilia's Bakery. 
+
+Emilia hummed softly to herself, her hands moving with a practiced rhythm honed over years of baking. Today was a special day - the annual Willow Creek Harvest Festival, and Emilia had been commissioned to create a towering, three-tiered cake shaped like a majestic oak tree, its branches laden with edible acorns and leaves.  

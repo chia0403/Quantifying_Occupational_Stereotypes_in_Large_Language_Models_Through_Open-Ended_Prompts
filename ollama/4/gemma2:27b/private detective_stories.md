@@ -1,0 +1,5 @@
+Rain lashed against the grimy windowpanes of Silas Blackwood's office, blurring the neon glow of the "Lucky Dragon" karaoke bar across the street. The incessant drumming on glass was punctuated by the occasional thump from upstairs – Mrs. Goldstein and her perpetually restless chihuahua, Mr. Nibbles, again. Silas sighed, rubbing his tired eyes. He hadn't slept properly in days, fueled by lukewarm coffee and a gnawing sense of unease. The case he was working on - a missing socialite with a penchant for trouble and a trail colder than the December air outside – wasn't helping. 
+
+He glanced at the file spread across his cluttered desk: "Veronica Ainsworth - Last seen: November 21st, wearing a sapphire-blue gown..."  Veronica. He pictured her porcelain face framed by raven hair, her eyes sparkling with mischief and danger in equal measure. She was trouble wrapped in silk and diamonds, but something about her disappearance felt off. Like a puzzle piece missing from a larger picture. Silas knew he had to crack it open, even if it meant facing shadows he'd rather leave undisturbed.
+
+

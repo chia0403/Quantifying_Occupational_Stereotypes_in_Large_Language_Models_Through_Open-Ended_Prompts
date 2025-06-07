@@ -1,2 +1,1 @@
-William Strinith
-John D. C. Strinith
+Dr. William Strinith

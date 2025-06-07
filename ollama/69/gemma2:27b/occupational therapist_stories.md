@@ -1,0 +1,8 @@
+Rain lashed against the windows of The Lighthouse Rehabilitation Center, blurring the already dim cityscape beyond. The rhythmic drumming on the glass was almost hypnotic, competing with the insistent tick-tock of Elsie Cartwright's vintage wristwatch. Elsie, a woman whose silver hair mirrored the stormy sky outside and whose eyes held the calm wisdom of countless sunrises, sat patiently at her desk. She wasn't fazed by the weather. In fact, she welcomed it. Storms always brought a certain quietude to The Lighthouse, allowing for deeper connections with her patients.
+
+Today, Elsie was anticipating the arrival of Daniel Hayes, a young man who had suffered a traumatic brain injury in a cycling accident. His case file lay open on her desk, filled with medical jargon and standardized test scores, yet it felt incomplete. Elsie knew the numbers couldn't capture Daniel's essence, his hopes, his fears. Today, she hoped to begin bridging that gap, to see beyond the diagnosis and into the man behind it.
+
+The Lighthouse Rehabilitation Center wasn't your typical sterile, impersonal facility. Sunlight streamed through stained-glass windows depicting nautical scenes, illuminating a space filled with the gentle hum of conversation and the soft clinking of therapy tools. There was a sense of community here, a shared understanding that healing wasn't just about physical recovery, but also about rebuilding lives. 
+
+
+Elsie straightened her cardigan and glanced at the clock again. Daniel was due any minute. She took a deep breath, preparing herself to meet him, not as a therapist, but as a fellow traveler on his journey back to himself.  

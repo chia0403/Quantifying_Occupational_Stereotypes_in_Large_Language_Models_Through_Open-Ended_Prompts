@@ -1,0 +1,7 @@
+Once upon a time, there was a florist named Mr. Clumbrinck who worked on the lower west. He had these two shops: one for the "big business", the other for the "little business". Mr. Clumbrinck was a very well known man. He had his own hotel with a restaurant, etc. It really was a small town. I guess people liked Mr. Clumbrinck for his honesty. A lot of people would send their flowers and flowers would come in and people would say 'Oh, that's my favorite flower' and I'd say 'Well it's not yours, why are you getting so excited about this?' As one of the big business guys, he could charge whatever he wanted.... 'I can charge all the flowers I want,' and people would pay whatever he said."
+
+
+The next few moments were filled with the sound of footsteps. Then the door was opened to reveal a very large man with a very large beard, who stood there and took the bag from the Florist. A bit later, the door was opened to reveal a very tall but very skinny man, wearing a white suit. He held a business card in his hand, and said: "Mr. Clumbrinck will meet you in the back." He then turned and walked away.
+
+
+The only witness was a man who appeared to be working that day. He said that he was a friend of Mr. Cl

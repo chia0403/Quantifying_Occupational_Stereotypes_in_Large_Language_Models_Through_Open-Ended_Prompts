@@ -1,0 +1,7 @@
+Once upon a time, there was a stock broker named Joe, who liked to collect cars that weren't used. He'd then give them away to people who needed them, so he would earn a living doing little more than looking for a good deal. Then one day his client, a wealthy widow, came to him and said she needed to sell a car. Joe bought the car for nothing, went to her house, drove the car around her neighborhood, and then used the money to buy himself a new car, after he'd seen the widow's new car parked outside an expensive restaurant. Joe was quite proud of his new purchase, and thought that the car he'd just bought was a fine example of how to save money on used cars. The only problem was the car had two full sets of tires in it.
+
+
+I was going to have to see this car. The story was all the same as always. Just the same: a new car, good but outdated tires, and for a fee, let me try it out. I'd do the opposite of what Joe was doing here. I was going to buy a brand new car. A car that would absolutely, positively work.
+
+
+As it happens, you can buy a used car for the same price that a new one starts at. Some people also claim to buy used cars for "free" when it comes to trade ins. This is because they've already bought the car, and do not wish to trade it

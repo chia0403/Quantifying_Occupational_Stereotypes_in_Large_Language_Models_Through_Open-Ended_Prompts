@@ -1,0 +1,7 @@
+The air in the cramped office smelled faintly of old paper and lavender polish, a scent Amelia Bellweather found strangely comforting. Rain lashed against the grimy windowpanes, blurring the neon glow of the pawn shop across the street into an abstract watercolor. Outside, the city throbbed with a frenetic energy Amelia could never quite tap into; she preferred the quiet order of numbers, the satisfying click of her adding machine, the rhythmic scratch of her pen across ledger sheets.
+
+Tonight, however, even the comforting humdrum of bookkeeping couldn't quell the unease gnawing at her gut. A letter had arrived that morning, sealed with crimson wax and bearing a crest Amelia didn't recognize. The elegant script inside spoke of an inheritance, a long-lost relative named Silas Blackwood, and a crumbling manor house on the windswept coast of Cornwall.  Amelia stared at the letter, its cryptic words swirling before her eyes like the rain outside. Silas Blackwood – a name whispered in hushed tones by her grandmother, tales of eccentricity and hidden treasures interwoven with warnings of danger and darkness.
+
+A shiver ran down Amelia's spine. This inheritance, this sudden intrusion into her carefully ordered life, felt more like a curse than a blessing. But something in the letter, perhaps the hint of adventure it promised, or the echo of unanswered questions from her childhood, tugged at her. 
+
+

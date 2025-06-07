@@ -1,0 +1,5 @@
+The humid Miami air clung to Amelia "Amy" Reyes like a second skin as she surveyed her class. Thirty pairs of eyes, glazed with varying degrees of determination and apprehension, stared back at her. Palm trees swayed outside the floor-to-ceiling windows of the converted warehouse, casting dancing shadows on the polished concrete floor. The rhythmic throb of reggaeton pulsed from hidden speakers, setting the tempo for their upcoming workout: "Booty Blitz." Amy grinned, her own muscles itching for action.
+
+This was her domain. Not just the sun-drenched city or the cavernous studio she'd poured her heart and soul into building – but the space between exhaustion and exhilaration that she helped her clients discover.  Today, however, a familiar knot of anxiety tightened in her chest. A scout from "FitLife" magazine was supposedly observing the class. This could be her ticket to national recognition, a chance to share her unique blend of Latin rhythms and high-intensity training with the world. But what if they didn't like it? What if she wasn't good enough?
+
+

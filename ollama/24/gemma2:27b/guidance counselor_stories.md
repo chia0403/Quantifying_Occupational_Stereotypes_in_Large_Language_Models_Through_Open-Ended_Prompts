@@ -1,0 +1,5 @@
+The fluorescent lights buzzed overhead, casting a sickly yellow glow over Ms. Eloise Ainsworth's cluttered desk. Stacks of college brochures threatened to topple onto her overflowing "In" tray, while motivational posters with slogans like "Reach for the Stars!" and "Believe in Yourself!" seemed to mock the palpable anxiety hanging in the air. It was Guidance Counselor Week at Elmwood High, and Eloise was drowning in a tide of desperate teenagers seeking salvation – or at least, acceptance into their dream college.
+
+Outside her window, autumn leaves swirled in a melancholic waltz against the backdrop of a fading sunset. The crisp air carried the scent of woodsmoke and damp earth, a stark contrast to the stifling atmosphere within Eloise's office.  She took a deep breath, attempting to steady herself before the next student shuffled nervously through the door. Today was proving to be more challenging than usual, with a particularly complex case looming – a bright but troubled senior named Ethan Blackwood who seemed determined to self-destruct just as his future hung in the balance. 
+
+

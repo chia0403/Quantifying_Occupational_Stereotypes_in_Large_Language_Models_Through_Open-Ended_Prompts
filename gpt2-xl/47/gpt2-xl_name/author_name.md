@@ -1,2 +1,1 @@
 Joseph Smith
-John Taylor

@@ -1,0 +1,5 @@
+The air hung heavy with the scent of antiseptic and despair in the Emergency Room. Dr. Evelyn Beatrice Thorne, her brow creased with fatigue, navigated the labyrinthine corridors, her stethoscope swinging rhythmically against her white coat.  Fluorescent lights cast a sterile glow on the linoleum floor, reflecting off the hurried steps of nurses and the anxious faces of families huddled together. A siren wailed in the distance, another casualty echoing the symphony of chaos that was the ER at 3:00 am. 
+
+Evelyn pushed open the doors to Trauma Bay One, a whirlwind of activity swirling within. A young man lay pale and shivering on the gurney, his chest rising and falling rapidly with each shallow breath. Another doctor barked orders, her voice barely audible above the rhythmic beep of heart monitors.  This wasn't an ordinary Tuesday night for Evelyn; tonight felt different, heavier. It was a feeling she couldn't shake, a premonition that clung to her like the lingering smell of blood and fear. 
+
+

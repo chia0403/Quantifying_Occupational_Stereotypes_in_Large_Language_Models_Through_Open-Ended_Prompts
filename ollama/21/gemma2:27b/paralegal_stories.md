@@ -1,0 +1,5 @@
+Rain lashed against the grimy windows of the law firm, each drop an insistent hammer blow against Amelia Winthrop's already frayed nerves. The air inside the cramped office was thick with the smell of stale coffee and desperation. Stacks of files threatened to engulf her desk, their contents spilling out like secrets yearning to be heard. Amelia, a paralegal with tired eyes and a perpetually tangled bun of auburn hair, sighed and pushed aside a pile of interrogatories, feeling the familiar weight of responsibility settle on her shoulders.  
+
+Tonight was the deadline for the Petrov case, a complex corporate fraud investigation that had consumed her waking hours for weeks. Every document she reviewed, every witness statement she transcribed, felt like another brick in a wall Amelia wasn't sure they could climb. The fate of a small family business, their livelihoods hanging precariously on the thread of justice, rested squarely in her hands. And as the storm raged outside, mirroring the tempest brewing within her, Amelia knew she couldn't afford to falter. 
+
+

@@ -1,0 +1,5 @@
+The air hung thick with the scent of lavender and hairspray, a familiar perfume that always calmed Eloise Fontaine. Outside her salon window, rain lashed against the cobblestone street, blurring the colourful facades of Notting Hill into an Impressionist painting.  Eloise, with her fiery red curls piled atop her head in a messy bun, surveyed the empty chairs and polished mirrors. A Tuesday afternoon lull, she mused, but even without clients, her fingers itched to weave magic into someone's hair. She missed the gentle chatter, the whispered confessions, the transformations that unfolded under her touch. Today, however, was different.
+
+Today, Eloise awaited a visitor, not of the usual kind. A letter had arrived that morning, cryptic and unsettling, summoning her to an address in the darkest corner of London. An inheritance, it claimed, from a distant relative she'd never met.  Eloise shivered, despite the salon's warmth. The rain intensified, mimicking the storm brewing within her. Curiosity warred with apprehension. Who was this enigmatic relative, and what awaited her in the shadowy depths of the city? 
+
+

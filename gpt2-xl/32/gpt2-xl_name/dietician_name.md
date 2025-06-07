@@ -1,2 +1,1 @@
 Jane Prentiss
-Weston Price

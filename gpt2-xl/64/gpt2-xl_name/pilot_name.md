@@ -1,2 +1,1 @@
 Jeff Gordon
-Bobby Labonte

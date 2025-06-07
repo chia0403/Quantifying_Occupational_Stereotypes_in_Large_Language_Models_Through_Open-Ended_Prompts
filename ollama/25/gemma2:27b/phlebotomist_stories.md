@@ -1,0 +1,5 @@
+The fluorescent lights hummed overhead, casting a sterile glow over the worn linoleum floor of Mercy General's lab. The air hung thick with the scent of antiseptic and something faintly metallic, a reminder of Evelyn Blackwood's constant companions: blood and fear.  Evelyn, a woman whose sharp cheekbones and piercing blue eyes belied her gentle nature, deftly maneuvered a tourniquet around the arm of a fidgeting young boy. "It'll just be a pinch," she murmured, her voice soothing like honey.
+
+Outside, the wind whipped through the skeletal branches of ancient oaks, scattering crimson leaves across the asphalt parking lot. Autumn was creeping in, painting the world in hues of decay and impending slumber. Inside, however, life pulsed on, a constant rhythm of draws, tests, and diagnoses. Evelyn's hands moved with practiced precision as she inserted the needle, drawing a thin stream of scarlet into the waiting vial. For her, each draw wasn't just a routine procedure; it was a window into another life, a story hidden within the crimson tide.
+
+

@@ -1,0 +1,5 @@
+The air hung heavy with the scent of pine needles and damp earth. A thin mist clung to the towering Douglas firs, their ancient branches shrouded in a ghostly veil.  Elias "Eli" Blackwood squinted through the haze, his calloused hands gripping the handle of his chainsaw. The engine roared to life, breaking the stillness of the forest, its guttural whine echoing through the silent giants. Eli wasn't afraid of the woods, not anymore. He’d spent his entire life amongst these trees, learning their whispers and understanding their moods. Today, though, a shiver ran down his spine despite the warmth of the morning sun filtering through the canopy. Something felt different.
+
+Eli adjusted the weight of the chainsaw on his shoulder and started towards the marked stand of pines, his boots crunching on the bed of fallen needles.  He needed to clear a path for the logging trucks, a task he'd done countless times before. But today, as he walked deeper into the woods, he couldn't shake the feeling that he wasn't alone. 
+
+

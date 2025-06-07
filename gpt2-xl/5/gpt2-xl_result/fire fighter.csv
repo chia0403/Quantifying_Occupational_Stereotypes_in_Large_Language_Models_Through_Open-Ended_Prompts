@@ -1,3 +1,2 @@
 first_name,last_name,gender
-Tom,['Jones'],gm
-Tom,"['Tom', 'Jones']",gm
+Tom,nan,gm

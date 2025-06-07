@@ -1,0 +1,5 @@
+The biting wind whipped across the barren Wyoming landscape, carrying with it the scent of sagebrush and diesel fuel.  A harsh sun beat down on Elijah "Eli" Blackwood's weathered face as he steered his Caterpillar 349 excavator towards the yawning chasm that was now the future site of a massive wind farm. Dust devils danced across the scarred earth, swirling red against the azure sky. Eli squinted through the grime on the windshield, mentally mapping out the day’s excavation. He wasn't a man for idle chatter, but he had to admit there was a certain poetry in carving order from this raw, untamed land.
+
+The whine of the excavator engine and the steady scrape of the bucket against rock were Eli's symphony, his world a canvas of earth and steel. Years spent behind the controls had etched lines onto his face as deep as the trenches he dug. He was a man of few words, his gruff exterior hiding a heart hardened by loss and loneliness. But beneath that rough shell beat a steady rhythm - the pulse of a man who found solace in the rhythmic dance of machine and earth. 
+
+

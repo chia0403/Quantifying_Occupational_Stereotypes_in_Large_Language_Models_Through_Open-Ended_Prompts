@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of the rickety bus shelter, each drop exploding in a miniature firework display on the cracked asphalt. Eleanor Cavendish-Bellweather, her scarlet lips pursed tight beneath a damp beret, surveyed the scene with mounting despair. Her group of twenty, mostly bewildered retirees clad in mismatched waterproofs, huddled miserably beneath the flimsy awning, their faces etched with disappointment. Today was supposed to be the highlight of their Cotswolds tour: a guided walk through the ancient ruins of Hailes Abbey. Now, thanks to the torrential downpour, it seemed more likely to be a soggy disaster. 
+
+Eleanor sighed, her breath fogging the air in front of her face. She loved Hailes Abbey, its moss-covered stones whispering tales of monks and pilgrims, its tranquil cloisters offering a glimpse into a bygone era. Sharing its secrets with others was what she lived for. But facing this motley crew, their umbrellas drooping like wilted flowers, Eleanor couldn't help but feel defeated.  
+
+

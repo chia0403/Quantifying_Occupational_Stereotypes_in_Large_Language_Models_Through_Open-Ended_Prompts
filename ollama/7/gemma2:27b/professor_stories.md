@@ -1,0 +1,5 @@
+Rain lashed against the arched windows of Professor Amelia Rosalind Thorne's cluttered study, mimicking the turmoil raging inside her. Stacks of dusty tomes threatened to topple over, their leather spines whispering tales forgotten by time. The air hung heavy with the scent of parchment and pipe tobacco, punctuated by the sharp tang of brewing chamomile tea.  Amelia stared out at the storm-wracked courtyard of Oxford University's Pembroke College, a knot of worry twisting in her stomach. She had dedicated her life to deciphering ancient languages, uncovering the whispers of forgotten civilizations buried beneath layers of sediment and stone. But now, a mystery far more personal and terrifying threatened to consume her. 
+
+A crumpled letter lay on her desk, its contents burning a hole through her soul. It spoke of a shadowy organization, the " Keepers of Silence," who sought to suppress knowledge deemed too dangerous for the world. Knowledge Amelia herself possessed, knowledge that could shatter the very foundations of history as they knew it.
+
+

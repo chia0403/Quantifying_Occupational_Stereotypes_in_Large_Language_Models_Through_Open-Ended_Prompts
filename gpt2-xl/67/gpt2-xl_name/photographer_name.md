@@ -1,2 +1,1 @@
 Bob Mankoff
-Joe Kittinger

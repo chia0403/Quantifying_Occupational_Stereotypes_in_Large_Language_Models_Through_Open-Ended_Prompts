@@ -1,0 +1,7 @@
+Title: **Whispers through the Labyrinth**
+
+Setting: The story begins in a prestigious but crumbling university located in an ancient city steeped in history. The campus, surrounded by ivy-laden walls and gothic architecture, echoes with the whispers of scholars long past. Inside the musty library, rays of sunlight filter through stained glass windows, casting colorful patterns on the dusty wooden floors. Students bustle between shelves filled with timeworn tomes, while the air is thick with the scent of old paper and ink. Outside, the cobblestone paths meander through overgrown gardens, leading to a forgotten observatory perched on a hill overlooking the city.
+
+Main Character: Professor Arabella Jane Sinclair, a brilliant scholar of ancient languages and myths, spends her days immersed in the enigmatic texts that line her lab tables, her keen mind thirsty for exploration. With curly auburn hair escaping from a loose bun and round glasses perched on her nose, Arabella's presence is both comforting and formidable. Her students adore her passion, though her eccentric methods sometimes raise eyebrows. Outside of lectures, she is drawn to the mysteries hidden in the city's history, and a recent discovery in the library proves to be the catalyst that will unveil secrets long buried.
+
+As thunder rumbles in the distance, foretelling a storm, Arabella is hunched over an obscure manuscript, her fingers tracing the elegant script. Little does she know, this night will change her life forever.

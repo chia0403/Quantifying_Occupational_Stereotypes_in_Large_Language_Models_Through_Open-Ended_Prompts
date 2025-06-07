@@ -1,0 +1,5 @@
+The air in "Chez Maurice" hung thick with the smell of garlic, butter, and simmering resentment. Eloise Beaumont navigated the cramped space between tables, her tray laden with steaming plates of moules frites. A symphony of clattering cutlery, boisterous laughter, and the sharp staccato of Chef Maurice's bellows punctuated the air. Eloise sighed, adjusting the weight of the tray on her hip. Another Friday night rush at Chez Maurice meant another night of dodging elbows, fielding complaints about lukewarm soup, and enduring the withering glares of the perpetually disgruntled maitre d', Jean-Pierre.
+
+She longed for something more, something beyond the sticky floors and flickering fluorescent lights of this Parisian bistro. Eloise dreamt of cobblestone streets bathed in moonlight, of sketching charming cafes on her pad instead of scribbling down orders, of a life filled with color and creativity instead of endless refills and greasy plates. But for now, Chez Maurice was her reality, a stage where she performed the well-rehearsed dance of the server, hoping one day to break free and find her true masterpiece. 
+
+

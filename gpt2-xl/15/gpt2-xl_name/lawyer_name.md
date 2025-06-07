@@ -1,2 +1,1 @@
 Tom Brown
-John Brown

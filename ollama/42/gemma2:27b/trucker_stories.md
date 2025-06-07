@@ -1,0 +1,7 @@
+The neon glow of the "Dusty's Diner" sign pulsed like a tired heart against the endless expanse of Nevada desert.  Dust devils danced on the horizon, swirling reddish-brown ghosts against the bruised twilight sky. Inside the diner, weary travelers and truckers alike sought refuge from the unforgiving heat and the loneliness that stretched as far as the eye could see.
+
+At a booth tucked in the corner, sat Elijah "Eli" Stone, his trucker cap pulled low over his weathered face. He was built like an oak tree – broad-shouldered, strong-armed, with hands calloused from years of gripping the wheel. The lines etched around his eyes spoke of countless miles traversed and sleepless nights spent battling insomnia on the open road. Eli took a long swig of lukewarm coffee, the bitterness clinging to his tongue like the desert dust that clung to his rig.
+
+He was due for a haul tomorrow, a cross-country run from Reno to Boston.  The thought usually filled him with a sense of purpose, of belonging to something bigger than himself – the intricate web of roads and highways that crisscrossed the nation, carrying goods and dreams. But tonight, a gnawing emptiness settled in his gut. He missed his daughter, Sarah, her laughter echoing in the quiet spaces of his mind.  He'd promised himself he'd be home for her eighth birthday next month, but the relentless demands of the road often made promises like dust – easily swept away. 
+
+

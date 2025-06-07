@@ -1,0 +1,5 @@
+Rain lashed against the corrugated iron roof of the precinct, each drop a miniature hammer blow echoing through Detective Elias Thorne's skull. The flickering fluorescent lights cast harsh shadows on the peeling linoleum floor, highlighting the scuff marks and coffee stains like badges of honor. Outside, sirens wailed in the distance, a mournful symphony accompanying the relentless downpour. Thorne rubbed his tired eyes, the lines around them deepening with each passing sleepless night. This case – the disappearance of Lily Blackwood – had burrowed its way into him, a persistent itch he couldn't scratch. 
+
+He stared at the evidence board, plastered with photographs and scribbled notes: Lily's smiling face frozen in time, a tangled web of potential leads, and a growing sense of despair that threatened to engulf him. Tonight was different. Tonight, he had a hunch. A gut feeling so strong it made his teeth ache.  He reached for the file marked "The Raven," a cold case haunting the precinct's dusty shelves, and flipped it open. Maybe, just maybe, this seemingly unconnected case held the key to Lily's disappearance. 
+
+

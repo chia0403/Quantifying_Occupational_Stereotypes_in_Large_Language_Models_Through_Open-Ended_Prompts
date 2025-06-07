@@ -1,0 +1,4 @@
+The air hung thick with woodsmoke and the tang of roasting garlic. Esmeralda "Esme" Dubois stirred a pot of bubbling cassoulet, her brow furrowed in concentration. Outside, the wind whipped through the ancient olive trees that surrounded her farmhouse, their gnarled branches scraping against the weathered stone walls. Esme lived alone in this secluded corner of Provence, her only companions the plump hens pecking at stray grains in the courtyard and the ghost of her grandmother, whose recipes she diligently followed, filling the house with the aroma of generations past.
+
+
+Today, however, was different. A letter had arrived that morning, its crisp edges bearing the embossed crest of a Parisian restaurant. An invitation. Esme's heart thumped like a frantic quail as she reread the words: "We seek a chef with a passion for tradition and the soul of Provence." Could this be her chance to escape the solitude of her farm and share her culinary heritage with the world?  

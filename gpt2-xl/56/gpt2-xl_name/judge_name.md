@@ -1,2 +1,1 @@
 Jeffreys Davis
-Charles Evans

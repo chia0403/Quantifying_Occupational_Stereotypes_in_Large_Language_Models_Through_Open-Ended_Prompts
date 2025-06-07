@@ -1,0 +1,6 @@
+The air hung thick with the scent of vanilla, butter, and impending disaster.  Amethyst "Amy" Sugarplum, owner and sole employee of "Sweet Dreams Bakery," stared at the towering monstrosity before her: a three-tiered masterpiece intended to be the centerpiece of Mayor Hawthorne's daughter's 16th birthday party. The bottom tier, adorned with hand-piped roses in fondant, was already drooping under the weight of its own sugary ambition. 
+
+The bakery itself was a tiny haven tucked away on a cobblestone street in Willow Creek, a town where time seemed to move at a slower pace than the rest of the world. Sunlight streamed through the stained-glass windows, casting rainbows across shelves overflowing with colorful sprinkles and hand-painted sugar flowers. Outside, the usual hum of daily life – children giggling on their way to school, dogs barking greetings, gossipy housewives exchanging tidbits over steaming mugs of coffee – was muffled by the insistent chirping of a robin perched precariously atop Amy's vintage cash register. 
+
+
+But right now, Amy couldn't hear anything but the ticking clock. The party started in three hours, and her creation looked more like a battlefield than a celebratory cake.  This wasn't just any birthday party; this was *the* event of the year in Willow Creek. A botched cake would be a disaster of epic proportions. 

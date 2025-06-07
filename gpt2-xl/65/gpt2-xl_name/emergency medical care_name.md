@@ -1,1 +1,1 @@
-Caron
+Sure, the name is not explicitly provided in the story.

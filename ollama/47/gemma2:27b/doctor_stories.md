@@ -1,0 +1,5 @@
+Rain lashed against the warped windowpanes of Dr. Alistair Finch's makeshift clinic, the sound mimicking the frantic tattoo of his own pulse. The air hung thick with the stench of iodine and fear. A kerosene lamp sputtered on the rickety table, casting long, dancing shadows across the faces of the desperate souls huddled within. Beyond the flimsy canvas walls, the howling wind carried whispers of a storm unlike any seen before, one that threatened to swallow the entire island village whole. Alistair, his brow furrowed with concern, tightened his grip on the bloodied bandage he was applying to a young boy's arm. He knew time was running out – not just for the injured, but for everyone on this forsaken rock. 
+
+This wasn't how he envisioned his life unfolding. Just a year ago, Alistair had been a rising star in London's esteemed St Bartholomew's Hospital. Now, miles from civilization, his once pristine white coat was stained with mud and blood, his steely demeanor frayed by the relentless onslaught of hardship. Yet, despite the gnawing fear that twisted in his gut, Alistair clung to hope – a fragile ember flickering against the tempestuous winds of fate.  
+
+

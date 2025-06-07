@@ -1,0 +1,5 @@
+Rain hammered against the corrugated iron roof of Esmeralda Diaz's office, each drop a tiny hammer blow echoing through the cramped space.  The air smelled of stale coffee, old paper, and desperation – a potent cocktail that was the signature scent of any good private investigator's den.  Esmeralda, her dark curls escaping their bun, tapped a chipped nail against the worn desk as she stared at the grainy photograph clutched in her hand. The subject, a man with eyes like faded sapphires and a smile that didn't quite reach them, was a ghost from Esmeralda's past – one she thought she’d left buried beneath years of hard cases and harder truths.
+
+The knock on her door startled her. It was the kind of knock that spoke of urgency, not politeness.  Esmeralda tucked the photograph into her desk drawer, the faded image blending with the clutter of forgotten files. "Come in," she called, her voice rough from too many late nights and cheap whiskey. The door creaked open, revealing a figure silhouetted against the dim hallway light.
+
+

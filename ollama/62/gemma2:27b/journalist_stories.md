@@ -1,0 +1,5 @@
+The air hung thick and heavy in the back alley, smelling faintly of fish guts and stale jasmine. Rain slicked the cobblestones, reflecting the anemic glow of the gas lamps strung haphazardly overhead. Esmeralda “Esme” Dubois adjusted her fedora, tucking a stray auburn curl beneath its brim. Her trench coat, once a sharp charcoal grey, was now mottled with rain and grime, mirroring the city’s own weary state. Marseille in 1924 was a simmering cauldron of corruption and intrigue, and Esme, a reporter for Le Matin, was determined to stir the pot.
+
+Tonight's assignment: infiltrate the notorious La Sirene nightclub, rumored to be a front for smuggling operations run by the enigmatic Monsieur Marcel. Her contact, a wiry dockworker named Jean-Luc, had promised her access, but she couldn't shake the feeling that something wasn't quite right. A knot of tension tightened in her gut as she approached the club’s shadowed entrance. The rhythmic thrum of music and muffled laughter beckoned from within, promising both danger and discovery. 
+
+

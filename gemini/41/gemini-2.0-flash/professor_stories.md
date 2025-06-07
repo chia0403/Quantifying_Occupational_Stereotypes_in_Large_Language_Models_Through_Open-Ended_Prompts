@@ -1,0 +1,9 @@
+Okay, here's a story opening and setting, featuring a professor:
+
+**Opening:**
+
+The steam from Professor Alistair Humphrey Blackwood's Earl Grey swirled, blurring the already indistinct face of the woman on the other end of the crackling phone line. He cradled the receiver against his ear, the bone-chilling October wind rattling the leaded glass of his study window. "Repeat that, Mrs. Abernathy," he said, his voice a low, rumbling counterpoint to the rising howl of the wind. "You're saying… you saw what now?" A knot tightened in his stomach, a familiar sensation that always accompanied the truly bizarre. He was, after all, Professor Alistair Humphrey Blackwood, Professor of Folklore and Myth at the venerable, and often utterly strange, University of Ashworth. Dealing with oddities was, unfortunately, part of the job description.
+
+**Setting:**
+
+Professor Blackwood's study occupied the tower room of Blackwood Manor, a rambling, gothic monstrosity that had been in his family for generations. The manor itself stood perched on a windswept cliff overlooking the North Sea, a perpetually grey and turbulent expanse. The room was a testament to his scholarly pursuits – towering bookshelves crammed with leather-bound tomes lined the walls, their titles glinting dimly in the firelight. Maps of forgotten lands and faded tapestries depicting mythical creatures adorned the walls, casting long, dancing shadows. A heavy oak desk, cluttered with notes, manuscripts, and the scattered remains of various research projects, sat in the center of the room, illuminated by a single, hooded lamp. The air hung thick with the scent of old paper, pipe tobacco, and a faint, indefinable aroma that smelled suspiciously of the sea. The weather outside was a classic storm: rain pounding against the windows and an eerie low fog threatening to envelop the entire Manor, further cutting off the world from the professor's isolated existence.

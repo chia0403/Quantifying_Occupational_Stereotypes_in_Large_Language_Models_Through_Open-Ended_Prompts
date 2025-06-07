@@ -1,0 +1,4 @@
+The pungent scent of perm solution mingled with jasmine hair oil, creating a uniquely comforting aroma that Amelia Grace Hawthorne had come to associate with her sanctuary: "Amelia's Allure."  Through the arched windowpanes overlooking bustling Market Street, the late afternoon sun cast golden rays onto the polished mahogany floor, highlighting the swirling dust motes dancing in the air. The rhythmic snip of scissors and the low hum of hair dryers provided a steady soundtrack to Amelia's workday. Today, however, the usual symphony was punctuated by a jarring dissonance – a frantic rapping on the glass door. 
+
+
+Amelia glanced up from expertly weaving auburn highlights into Mrs. Davenport’s hair, her brow furrowing slightly. Curiosity piqued, she excused herself and approached the entrance, her heart quickening with each step. Through the frosted glass, she could just make out the silhouette of a woman – tall, slender, shrouded in an aura of unmistakable distress.
