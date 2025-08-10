@@ -1,4 +1,4 @@
-# README: Story Generation and Character Extraction Prompts
+# Story Generation and Character Extraction Prompts
 
 ## 1. Overview and Purpose
 
